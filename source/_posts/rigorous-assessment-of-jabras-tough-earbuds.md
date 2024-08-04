@@ -1,7 +1,7 @@
 ---
 title: Rigorous Assessment of Jabra's Tough Earbuds
-date: 2024-08-03 21:15:22
-updated: 2024-08-04 11:26:49
+date: 2024-08-03T22:58:10.984Z
+updated: 2024-08-04T22:58:10.984Z
 categories:
   - BestProducts
 description: This Article Describes Rigorous Assessment of Jabra's Tough Earbuds
@@ -13,6 +13,10 @@ thumbnail: https://www.lifewire.com/thmb/avBwRdMiSVdq84JLb9tzAYMzXT0=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Blueear Bluetooth Beanie Hat
 
 ![Blueear Bluetooth Beanie Hat](https://www.lifewire.com/thmb/doY_zCxSysBLDibywXLN58DqFNo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4159779_HeroSquare-d9847be4cedf4a279be58a3ffe96bd06.jpg)
@@ -37,6 +41,9 @@ thumbnail: https://www.lifewire.com/thmb/avBwRdMiSVdq84JLb9tzAYMzXT0=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Blueear Bluetooth Beanie Hat
 
 ![Blueear Bluetooth Beanie Hat](https://www.lifewire.com/thmb/AjDXKp_HcU3-156-Y8LLC7h-Ppc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4159779_HeroSquare-d9847be4cedf4a279be58a3ffe96bd06.jpg)
@@ -68,6 +75,9 @@ thumbnail: https://www.lifewire.com/thmb/avBwRdMiSVdq84JLb9tzAYMzXT0=/400x300/fi
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Simple and discreet**
 
  The idea behind this Bluetooth beanie is very simple and effective. Take a beanie and stitch up some inexpensive Bluetooth speakers in the seam. The speakers are inserted in a little pouch over each ear. Once the cap is on, you can push the speakers around so they fit your head precisely. You’ll have to adjust the speakers every time you put the beanie on, which gets annoying after a while.
@@ -84,6 +94,9 @@ thumbnail: https://www.lifewire.com/thmb/avBwRdMiSVdq84JLb9tzAYMzXT0=/400x300/fi
 
  The Bluetooth range is listed as the standard 10m, or about 30 feet. We found that to be generally accurate so long as you have a direct line of sight to the phone or computer it’s paired to. If walls and other objects get in the way, the range drops sharply.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Blueear Bluetooth Beanie Hat](https://www.lifewire.com/thmb/3aVPDXCbn533gdsOOMrbCMHgUo8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4159779_02-39d07d95367d404e8e36d49ecd0f6aaa.jpg)
 
  Lifewire / Jeffrey Daniel Chadwick
@@ -96,6 +109,9 @@ thumbnail: https://www.lifewire.com/thmb/avBwRdMiSVdq84JLb9tzAYMzXT0=/400x300/fi
 
  Switching between paired devices isn’t quite as seamless as we’ve seen in[Bluetooth earbuds](https://www.lifewire.com/best-wireless-earbuds-4140480) like the[AirPods](https://www.lifewire.com/apple-airpods-review-4589511) and[PowerBeats Pro](https://www.lifewire.com/beats-powerbeats-pro-review-4694361) . During our testing phase, it generally took about one minute to switch from a Mac to an iPhone. It took even longer from an iPhone to a Mac since you have to route the audio manually.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Blueear Bluetooth Beanie Hat](https://www.lifewire.com/thmb/vDgOpMTjzx4rXxlDNddSrWYNiDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4159779_06-ea3ea611fbf8423e9221af228b7c37e4.jpg)
 
  Lifewire / Jeffrey Daniel Chadwick
@@ -116,6 +132,9 @@ thumbnail: https://www.lifewire.com/thmb/avBwRdMiSVdq84JLb9tzAYMzXT0=/400x300/fi
 
  This Bluetooth beanie is made of 100% acrylic fibers. It’s not as comfortable as you might expect by looking at it. When we tested the product, it felt dry and scratchy and caused mild chafing around the ears and neck. Nothing that will leave a mark or cause blisters, but enough that you’ll never forget you’re wearing the hat.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Sound Quality: Decent sound from inexpensive speakers**
 
  The quality of the sound generated by this Bluetooth beanie is listenable, but won’t likely forget that you’re listening by way of tiny speakers in a $15 beanie. The volume is adequate to drown out outside noises, but not overpowering even at max volume. Since these are speakers, and not[earbuds](https://www.lifewire.com/best-earbuds-4045320) or headphones, they don’t deliver the immersive audio experience that you’d expect from Bluetooth earbuds like the AirPods.
@@ -124,6 +143,10 @@ thumbnail: https://www.lifewire.com/thmb/avBwRdMiSVdq84JLb9tzAYMzXT0=/400x300/fi
 
  All of the small foibles of this Bluetooth beanie are forgivable because it’s not an expensive product. Depending on the color you get, expect to pay between $15 and $25, with grey being the most expensive.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Blueear Bluetooth Beanie Hat vs. Rotibox Bluetooth Beanie Hat**
 
  We tested this wireless beanie side by side with the Rotibox Bluetooth Beanie Hat and the two are about comparable in design and function. But the Rotibox is a good deal more comfortable, and it produces better sound. The best thing Blueear has going for it is that it’s the least expensive wireless music beanie we reviewed.
@@ -136,6 +159,9 @@ thumbnail: https://www.lifewire.com/thmb/avBwRdMiSVdq84JLb9tzAYMzXT0=/400x300/fi
 
  However, if you’re interested in an average beanie and decent sound at a bargain basement price, it’s a good pick. It’s a fashionable beanie that goes well with your winter wardrobe, and the Bluetooth speakers provide enough utility to make it more than a novelty.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Bluetooth Beanie Hat

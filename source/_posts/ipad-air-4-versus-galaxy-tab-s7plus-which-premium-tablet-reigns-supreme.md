@@ -1,7 +1,7 @@
 ---
 title: IPad Air 4 Versus Galaxy Tab S7+ - Which Premium Tablet Reigns Supreme?
-date: 2024-07-29 13:18:38
-updated: 2024-07-31 11:38:45
+date: 2024-08-03T22:58:05.561Z
+updated: 2024-08-04T22:58:05.561Z
 categories:
   - BestProducts
 description: This Article Describes IPad Air 4 Versus Galaxy Tab S7+ - Which Premium Tablet Reigns Supreme?
@@ -43,6 +43,9 @@ Rebecca Isaacs / Lifewire
 
 ## Godfall
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Godfall](https://www.lifewire.com/thmb/0NLDB5xBHlyMz4ZXPM-uk0dzS7Y=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Godfall-PC-Game-1-d3b0021c9f1f4c90a844bf0e8f8fcb25.jpg)
 
 Rebecca Isaacs / Lifewire
@@ -70,6 +73,9 @@ Rebecca Isaacs / Lifewire
 
 Rebecca Isaacs / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Plot: What’s that?
 
  “It was all a lie,” the narrator says, signaling the beginning of the game. What follows is an elaborate cut scene depicting everything I’d want in an adventure game: betrayal, battle, and of course, a desire for bloodthirsty vengeance.
@@ -80,12 +86,18 @@ Rebecca Isaacs / Lifewire
 
  If the devil is in the details, then Counterplay sold its soul to ensure that every leaf had ridges and grooves.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Graphics: Gorgeous
 
  For a bland plot, Godfall really brings its A-game with the graphics. Some of the scenes as I ran across streams and trails brought out vivid hues and beautiful environments. If the devil is in the details, then Counterplay Games sold its soul to ensure that every leaf had ridges and grooves. In that aspect, the game shines, and I felt transported into the world as I ran around destroying my enemies with a greatsword.
 
  Though repetitive, the four maps offered show a rich, colorful world that will keep your attention from the poor plotline for a while. Even the different sets of armor, known as Valorplates, are so detailed I was tempted to try to reach through my screen.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Godfall ](https://www.lifewire.com/thmb/IWN-3bTZ5qlsx29Xu_o7m5dQyu8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-3-9be349303fa148cfbcacfa7551c5c743.jpg)
 
 Rebecca Isaacs / Lifewire
@@ -96,6 +108,9 @@ Rebecca Isaacs / Lifewire
 
  Each of the armor sets, based on various animals, comes with different perks, which makes for unique gameplay if you prefer poison or shock to fire damage. It can take some time to craft, modify, and upgrade both the Valorplates and weapons. More importantly, it takes time to gather the materials, so as you continue the game, you’ll have repeat quests and maps.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![Godfall](https://www.lifewire.com/thmb/lkXYe9qqH3ccZewQudKpzPWU4Xc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-2-fc516034a42a462ba1b4ab03bcc76269.jpg)
 
 Rebecca Isaacs / Lifewire
@@ -116,6 +131,9 @@ Rebecca Isaacs / Lifewire
 
 Rebecca Isaacs / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Platform: PS5 or PC
 
  Godfall is pretty straightforward with its platforms: PlayStation 5, or Windows PCs. It does not work on Macs, so take that into consideration before you make your purchase. In terms of gameplay, neither platform really weighs better than the other, though PC gamers with ultrawide screens may have some issues getting the correct resolution set.
@@ -124,6 +142,9 @@ Rebecca Isaacs / Lifewire
 
 Rebecca Isaacs / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Price: Overpriced for the amount of content available
 
  If Godfall was priced around $30, I would have been more sympathetic to its cause. However, the base game itself will cost around $60 before any kind of sale. If you want to upgrade to a higher edition, such as Deluxe or its top edition, Ascended, that will run you up to $90\. That much money for a game that seems half-finished and still requires 50GB of SSD memory is, quite frankly, way too much for anyone to pay. This is also not including the option of pre-order and Ascended content, each of which will cost another $10.
@@ -146,6 +167,9 @@ Rebecca Isaacs / Lifewire
 
  If you’re looking for a mindless hack and slash game to play, this might be a go-to game for you, especially if you like Warframe. But as much as I loved the graphics, I can’t recommend Godfall based on the landscapes alone. If you feel obligated to try out a melee looter slasher, wait for a sale, but for most people you can find better games to play.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Assassin's Creed: Valhalla](https://www.lifewire.com/assassin-s-creed-valhalla-review-an-epic-viking-adventure-across-the-medieval-world-5086782)

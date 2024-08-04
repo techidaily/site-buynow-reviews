@@ -1,7 +1,7 @@
 ---
 title: "Assessment Highlights: Sony W800's Robustness & Attractive Cost Structure"
-date: 2024-08-01 12:51:56
-updated: 2024-08-04 11:46:34
+date: 2024-08-03T22:58:05.367Z
+updated: 2024-08-04T22:58:05.367Z
 categories:
   - BestProducts
 description: "This Article Describes Assessment Highlights: Sony W800's Robustness & Attractive Cost Structure"
@@ -38,8 +38,14 @@ Lifewire / Scott Gercken
 
 3.5
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## Nikon Coolpix A10
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Nikon COOLPIX A10](https://www.lifewire.com/thmb/YC6hZEGkRUots77n6cg8D4tnDfs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_03LW3897833-1-7909edb954234ba998fda175019f4ce7.jpg)
 
 Lifewire / Scott Gercken
@@ -74,6 +80,9 @@ Lifewire / Scott Gercken
 
  Lifewire / Scott Gercken
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Straightforward and simple**
 
  Like most point-and-shoot cameras, setup is simple. We just inserted the included AA batteries, put in the SD card (not included), and turned it on. The camera ran us through the standard steup (date, time, etc.) and then was ready to go.
@@ -84,6 +93,9 @@ Lifewire / Scott Gercken
 
  Lifewire / Scott Gercken
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Photo Quality: Beautiful photographs with a frustrating user experience.**
 
  The headline number for every[point and shoot](https://www.lifewire.com/point-and-shoot-camera-4688891) digital camera is[megapixels](https://www.lifewire.com/what-is-a-megapixel-493313) , and the Nikon COOLPIX A10 has a fairly standard 16 MP ceiling. But the megapixel count doesn’t express much about the quality of the camera or the photographs it takes. We took the Nikon COOLPIX A10 out to see what it could do, taking photos in every setting we could think of, from night landscapes to indoor pet shots. The COOLPIX produces quality photos in most circumstances.
@@ -106,6 +118,9 @@ Lifewire / Scott Gercken
 
  We took video both indoors and outdoors, in shade and in the sun. Indoor video was very noisy, and it didn’t get much better when we went outside in great light. We took a comparison video with an old iPhone SE (12 MP camera), and the iPhone had drastically better video quality in all kinds of light. If quality video is important to you, this is not the camera for you.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: Not worth mentioning**
 
  The Nikon COOLPIX A10 uses .jpg files for photographs and .avi for movies. While the easiest way to retrieve your photos is through the SD card, Nikon has its own software to pull both photos and videos off the camera, a suite called ViewNX-i which includes both photo software and video editing software as well. One problem: we couldn’t figure out how to install it on the Mac we tested. We downloaded the right files and followed the instructions (several times), but nothing happened.
@@ -130,6 +145,9 @@ Lifewire / Scott Gercken
 
  While the Nikon COOLPIX A10 takes beautiful photos, the user experience ruins the camera. It’s difficult to use and locks up for a few seconds after every photo. The sheen of high quality images quickly fades when you’re staring at a warning indicator for long, static moments. Other entry-level cameras perform much better.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Coolpix A10

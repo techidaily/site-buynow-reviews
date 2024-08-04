@@ -1,7 +1,7 @@
 ---
 title: "Speed Test Results & Visual Appeal Analysis on Netgear Powerline 1200: An Extensive Overview"
-date: 2024-08-01 20:15:12
-updated: 2024-08-02 10:51:38
+date: 2024-08-03T22:58:37.735Z
+updated: 2024-08-04T22:58:37.735Z
 categories:
   - BestProducts
 description: "This Article Describes Speed Test Results & Visual Appeal Analysis on Netgear Powerline 1200: An Extensive Overview"
@@ -37,8 +37,14 @@ Lifewire / Zach Sweat
 
 4
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ## X-Plane 11 Global Flight Simulator
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/8OsXHzWBVNEzvelLnfybKyzm3bk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_HeroSquare-05bcd9665c244e8591478794f6732934.jpg)
 
 Lifewire / Zach Sweat
@@ -85,6 +91,9 @@ Lifewire / Zach Sweat
 
  Once you’ve got it hooked up, Windows should recognize the device and download the necessary drivers. When those have completed installing, you should be able to see the HOTAS connected in X-Plane 11 under the control settings. You’ll also be able to fine-tune things based on your preference from there.
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/O9MXEQGpCTKXA5qNcF6nXai8L2o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_03-90ad9c4205af48bcbd8fcc163c630a5a.jpg)
 
  Lifewire / Zach Sweat
@@ -103,10 +112,16 @@ Lifewire / Zach Sweat
 
  While testing out X-Plane 11, we did experience some issues, but more so in the graphics department than the gameplay itself, which we’ll touch on in the next section.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/GF7rAjDnQ1m4Lngb7N3ShcMRA6U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_05-4039c04a1e16492e8b1c6024167e28f8.jpg)
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ## **Graphics: Breathtaking visuals, but subpar optimization**
 
  With such a monster storage requirement, it’s no surprise that the details and graphics in X-Plane 11 are pretty remarkable. Planes themselves are the focus here, so the textures are superb. Also because Laminar chose to focus on fewer aircraft overall, the ones they’ve included all feel exceptionally well fleshed out. That tradeoff might not appeal to those who want hundreds of vehicles to select from, but it does make the selection in the game quite impressive.
@@ -131,6 +146,9 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## **Price: In line with modern games, but pricey DLC not included**
 
  Because X-Plane 11 is a relatively newer game, the price is what you’d expect from most current AAA titles. The game is currently priced at about $60-70 depending on where you purchase it, so it’s not exactly cheap, but it is average for the market.
@@ -159,6 +177,15 @@ Lifewire / Zach Sweat
 
  Without a doubt, X-Plane 11 is the best current-generation flight simulator you can buy. While there are some issues with optimization, if you’ve got the computer for it, the game is stunning and currently provides the best real-world experiences.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Alienware Aurora R7](https://www.lifewire.com/alienware-aurora-r7-review-4689097)

@@ -1,7 +1,7 @@
 ---
 title: Samsung UN65RU8000FXZA Review
-date: 2024-08-02 12:50:21
-updated: 2024-08-04 11:55:47
+date: 2024-08-03T22:58:43.279Z
+updated: 2024-08-04T22:58:43.279Z
 categories:
   - BestProducts
 description: This Article Describes Samsung UN65RU8000FXZA Review
@@ -41,6 +41,9 @@ PHOTO: Best Buy
 
 [$282 at Amazon](https://www.amazon.com/Galaxy-S21-Ultra-5G-Smartphone/dp/B096T6Y623?tag=lifewire-onsite-prod-20&ascsubtag=8630122%7Cn44d71f8cf1854cd282d5e5305237f08e22%7CB096T6Y623) [$398 at Walmart](https://www.walmart.com/ip/Samsung-Galaxy-S21-Ultra-5G-128GB-Black-Unlocked/590496609?slfpid=3) [$1,000 at Samsung](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fus%2Fsmartphones%2Fgalaxy-s21-5g%2Fbuy%2Fgalaxy-s21-fe-5g-128gb-unlocked-sm-g990uzafxaa%2F)
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ### Features: S23 Ultra Remains Powerful With Extra Update Support
 
  At first glance, the Galaxy S23 Ultra and S21 Ultra look very similar. However, the S23 Ultra is a touch classier thanks to refinements like Gorilla Glass Victus 2 and Armor Aluminum, which means it’s more robust and also feels more expensive.
@@ -61,10 +64,16 @@ PHOTO: Best Buy
 | $1200 starting price at release    | $1200 starting price at release       |
 | Released February 2023             | Released January 2021                 |
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### S23 Ultra Snapshot: What’s New
 
  The differences between the Samsung S23 Ultra and S21 Ultra are more incremental than you might expect. Rather than implementing something significantly different, the S23 Ultra is more about refinement. It’s much faster thanks to its Snapdragon 8 Gen 2 processor and has a better display.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ### S23 Ultra Improvements
 
 * **Adaptive refresh rate** : Rather than a strict 120Hz refresh rate at all times, the S23 Ultra has an adaptive refresh rate that adjusts according to the situation (up to 120Hz).
@@ -73,10 +82,17 @@ PHOTO: Best Buy
 * **Better battery life** : Both phones have the same battery, but the S23 Ultra will last longer between charges due to a more efficient processor.
 * **Dedicated S-Pen slot** : The S23 Ultra is ready to use out of the box, saving you the need to buy a separate S-Pen or a case to fit it.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Cameras: S23 Ultra Has the Lenses To Rave About
 
  The S23 Ultra’s camera was the first to offer a 200MP wide lens compared to the S21 Ultra’s 108MP wide lens. It also offers brighter colors than the S21 Ultra, which was known for its relatively muted output. Nighttime photography also looks better on the S23 Ultra with a sharper and more detailed zoom.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ![Samsung Galaxy S23 Ultra](https://www.lifewire.com/thmb/t1Mwsdm2W2PeRSrL1sLl_yvFKd8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/samsung-galaxy-s23-ultra-8d91847532e7430899d8c3a9c74ff5cc.jpg)
 
  Samsung Galaxy S23 Ultra.
@@ -93,6 +109,9 @@ Kawal Dhillon / Unsplash
 | 10MP telephoto with 10x zoom | 10MP telephoto with 10x zoom |
 | 12MP Front                   | 40MP Front                   |
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Final Thoughts: Is Newer Better?  
 
  The Samsung Galaxy S23 Ultra has a much better camera than the S21 Ultra, providing brighter and more vivid imagery with sharper detail. However, if you love taking selfies, you will miss out on the superior 40MP front camera of the S21 Ultra and be resigned to the S23 Ultra's 12MP front lens.

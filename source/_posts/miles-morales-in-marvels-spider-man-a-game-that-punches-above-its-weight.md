@@ -1,7 +1,7 @@
 ---
 title: "Miles Morales in Marvel's Spider-Man: A Game That Punches Above Its Weight"
-date: 2024-07-28 19:22:59
-updated: 2024-07-31 12:26:21
+date: 2024-08-03T22:58:20.768Z
+updated: 2024-08-04T22:58:20.768Z
 categories:
   - BestProducts
 description: "This Article Describes Miles Morales in Marvel's Spider-Man: A Game That Punches Above Its Weight"
@@ -39,6 +39,9 @@ Lifewire / Andy Zahn
 
 ## Fossil Sport Smartwatch
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Fossil Sport Smartwatch](https://www.lifewire.com/thmb/FVsGpLa_gg2Xq47MnBiAgRmc79s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Fossil-Sport-Smart-Watch-1-b30f7a06ff534614a2afa0261ce1905f.jpg)
 
 Lifewire / Andy Zahn
@@ -64,12 +67,18 @@ Lifewire / Andy Zahn
 
  Fossil has a reputation for making cool watches, both of the traditional and smart variety, and Fossil Sport is no exception. The question is, does it work as well as it looks?
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ## **Design: Classy looks, quality controls**
 
  The Fossil Sport is one slick looking watch, and it’s impressively customizable. There are a number of different colors to choose from, as well as varying colors of extra bands you can buy as accessories. I tested the Smoke Black model and appreciated its understated and elegant appearance. If that’s not your thing, you can go crazy and make the watch as gaudy and unique as you like.
 
  The included silicone band feels durable and high quality, as does the aluminum upper half of the case. The lower half of the watch is made of nylon to reduce weight, making this smartwatch only 0.88 ounces. The Fossil Sport is charged using a magnetic,[wireless charging](https://www.lifewire.com/qi-wireless-charging-4151894) pad that snaps onto the rear of the watch.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ![Fossil Sport Smartwatch](https://www.lifewire.com/thmb/09nYIY5js64r3HdZV05shTtw6aI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fossil-Sport-Smart-Watch-3-596e9d29b0634b1a9abfa429e619733e.jpg)
 
  Lifewire / Andy Zahn
@@ -86,20 +95,32 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Comfort: Highly adjustable**
 
  I appreciated that Fossil included a watch band large enough to fit my extra-large 9-inch wrists with room to spare. I found it comfortable to wear all day long; its lightweight prevented it from being overly burdensome on my wrist.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Performance: Accurate stats**
 
  I was impressed by the accuracy of the Fossil Sport’s heart rate sensor and its other fitness tracking features. It read my correct heart rate right off the bat, which is something other smartwatches have failed to do due to my chunky wrists. The GPS and pedometer accurately kept track of my progress on walks and other activities, and these statistics are handled and gamified to some degree through Google Fit. This makes detailed statistics readily available on your phone, though it doesn’t provide quite as much detail and analysis as other fitness tracking software.
 
  The 1.2-inch 390 PPI AMOLED display is wonderfully crisp, clear, and bright enough to see even in strong sunlight. It’s so pretty to look at with deep blacks and bright colors that I found myself occasionally glancing at the watch just to enjoy this startlingly nice screen.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Battery: 24-hour power**
 
  I found that I was easily able to get through a day or two without having to recharge the Fossil Sport. Its 24-hour battery claim is accurate under average daily use conditions. Once you do run the battery down, the watch switches into a battery saver mode where only the time is displayed. In this mode, you can expect a week's worth of battery life.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Fossil Sport Smartwatch](https://www.lifewire.com/thmb/a8TojyXavE05a-LRkRQauxY7ChM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fossil-Sport-Smart-Watch-2-cb6ea34d0ed1441c8c0dac4542d0dd1d.jpg)
 
  Lifewire / Andy Zahn
@@ -116,6 +137,9 @@ Lifewire / Andy Zahn
 
  Just because an app runs on WearOS, this doesn’t mean it will run flawlessly on any WearOS device.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## **Price: An excellent value**
 
  Since launch, the MSRP of the Vivoactive 3 Music has plummeted from $275 to just $99, making it a genuine bargain. The watch is ridiculously high quality for such a low price.

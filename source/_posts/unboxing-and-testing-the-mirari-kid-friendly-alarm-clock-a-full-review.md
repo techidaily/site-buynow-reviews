@@ -1,7 +1,7 @@
 ---
 title: Unboxing and Testing the Mirari Kid-Friendly Alarm Clock - A Full Review
-date: 2024-08-01 17:50:54
-updated: 2024-08-04 10:31:17
+date: 2024-08-03T22:58:16.842Z
+updated: 2024-08-04T22:58:16.842Z
 categories:
   - BestProducts
 description: This Article Describes Unboxing and Testing the Mirari Kid-Friendly Alarm Clock - A Full Review
@@ -15,6 +15,10 @@ thumbnail: https://www.lifewire.com/thmb/QjJGvlIwjSg9Xi4WBoKpTlPb0lA=/400x300/fi
 
 ## TCL 50S425 50-inch 4K Smart LED Roku TV
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/xdZO-ddLXgWQIKHYaUynllKab-w=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_HeroSquare-beccb9820dfd4a878196fac8bdf1d541.jpg)
 
 Lifewire / Yoona Wagener
@@ -38,6 +42,10 @@ Lifewire / Yoona Wagener
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ## TCL 50S425 50-inch 4K Smart LED Roku TV
 
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/3k1MkB4svn07bDvaUq6CGgLhZl8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_HeroSquare-beccb9820dfd4a878196fac8bdf1d541.jpg)
@@ -66,10 +74,16 @@ Lifewire / Yoona Wagener
 
  We tested the TCL 50S425 and were impressed by the ease of setup, picture quality, and user-friendliness of this[smart TV](https://www.lifewire.com/what-is-a-smart-tv-4140172) .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/8IJD6mxL-mHDn0MMWWRd5yZERlc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_04-bbd6d026c9ec48df9f12c934b7def674.jpg)
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Lightweight and straightforward**
 
  Smart TVs range in size, typically starting from 32 inches and reaching all the way up to 85 inches and beyond. If you can’t accommodate or don’t want a really large television, the TCL 50-inch Roku TV offers a decent middle ground that will appeal to shoppers who want an apartment or dorm-friendly TV without sacrificing quality.
@@ -86,6 +100,9 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process** :**Up and running in minutes**
 
  Setting up the 50-inch TCL Roku TV is a breeze. We opted to forego mounting the television, but the user manual indicates that this model is compatible with a VESA 200 x 200 wall mount with M6 x 12mm screws.
@@ -96,6 +113,9 @@ Lifewire / Yoona Wagener
 
  Additionally, if you plan to use a set-top cable box or antenna, the user manual offers straightforward instructions for doing so. You also have the option of enabling the Smart TV experience when you use antenna TV mode. This setting uses automatic content recognition (ACR) to make viewing recommendations based on what you view through your antenna or connected HDMI devices.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Image Quality: Clear and vivid without any tweaking**
 
  One of the biggest draws of a 4K TV is the[4K resolution](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) , which offers four times the resolution quality of a standard high definition TV. This pixel resolution is also commonly referred to as Ultra HD (UHD). This Roku TV also comes with HDR, or High Dynamic Range, which is commonly bundled with 4K resolution in the newest smart TVs.[HDR improves image quality](https://www.lifewire.com/dolby-vision-and-hdr10-4060427) by intensifying the contrast between white and black areas on the screen while achieving a solid balance, so nothing looks too dark or too bright. It also broadens the palette of available colors, especially in combination with Wide Color Gamut (WCG).
@@ -112,10 +132,16 @@ Lifewire / Yoona Wagener
 
  Regular picture mode and the predefined 4K HDR picture settings were on point, which made viewing right out of the box extremely easy and pleasant. We were also pleased by the picture quality from all angles. Getting too close or too far out to the right or left did reveal some shadows and distortion, but only at fairly extreme angles.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/Lv4B9e6LaJSHW7NSl-Braa2vnmc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_03-b8155781e440420aa0c6c2bf19f9fe6a.jpg)
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Audio Quality: Solid but not spellbinding**
 
  While the TCL Roku TV offers impressive picture quality, the sound is less noteworthy. The two built-in 8-watt speakers offer decent volume levels, but there’s no advanced audio settings menu in this model. You do have control over aspects like sound mode and volume mode. The default sound mode is “normal,” which is appropriate for everyday viewing. But you can also select options for higher treble, more bass, movie, or music mode. As for volume modes, you can either turn on leveling, to balance the contrast between lows and highs in audio, or enable night mode, which sets a threshold for how high the volume can go.

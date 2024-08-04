@@ -1,7 +1,7 @@
 ---
 title: Expert Analysis of LensDirect's Prescription Blue Light Filtering Eyewear
-date: 2024-07-31 17:19:20
-updated: 2024-08-01 11:59:31
+date: 2024-08-03T22:58:40.788Z
+updated: 2024-08-04T22:58:40.788Z
 categories:
   - BestProducts
 description: This Article Describes Expert Analysis of LensDirect's Prescription Blue Light Filtering Eyewear
@@ -13,6 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/AOaypBNYyRJfiXGRDysuqItP1OU=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Watch Dogs: Legion
 
 ![Watch Dogs: Legion](https://www.lifewire.com/thmb/U5ORlS3mu37z0H9kyUjZmri_r7c=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Watch-Dogs-Legion-PC-1-4cb0288b78324a52bf9ccce096ab5218.jpg)
@@ -37,8 +40,14 @@ thumbnail: https://www.lifewire.com/thmb/AOaypBNYyRJfiXGRDysuqItP1OU=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## Watch Dogs: Legion
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Watch Dogs: Legion](https://www.lifewire.com/thmb/Qr_SiCRONOchw7xBWly6nRwi4qM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Watch-Dogs-Legion-PC-1-4cb0288b78324a52bf9ccce096ab5218.jpg)
 
  Lifewire / Erika Rawes
@@ -65,6 +74,9 @@ thumbnail: https://www.lifewire.com/thmb/AOaypBNYyRJfiXGRDysuqItP1OU=/400x300/fi
 
  You’re part of a group called DedSec, and you and your associates were framed for the terrorist act, although Zero Day were the real culprits. You now need to rebuild the organization, work to take down the multiple groups, and give London back to the people “V for Vendetta”-style.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Watch Dogs: Legion car chase](https://www.lifewire.com/thmb/w01z_qW1xkiYdMVSg0obsvGJ2NU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-3-042727c8603245bfbcde2e3b67ab7ed8.jpg)
 
  Lifewire / Erika Rawes
@@ -109,10 +121,16 @@ thumbnail: https://www.lifewire.com/thmb/AOaypBNYyRJfiXGRDysuqItP1OU=/400x300/fi
 
  On PC, this game can easily eat a lot of[VRAM](https://www.lifewire.com/increase-vram-on-a-windows-pc-5072150) , as the Very High setting almost maxed out my PC at 1920x1080 (with an[Alienware Aurora R11](https://www.lifewire.com/alienware-aurora-r11-review-5075589) with an RTX 2060 graphics card). I could not run the game on ultra settings. On high, it looks great, running at a solid[60fps](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) .
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Watch Dogs: Legion mission](https://www.lifewire.com/thmb/K-AWpBjCaRJlrJ0G-xBMEG92pQo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-7-87aeabc18ddb4bca8252d33fcb1f20bf.jpg)
 
  Erika Rawes / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: The usual $60**
 
  Watch Dogs: Legions sells for $60 for the standard edition. The Gold Edition sells for $100, and the Ultimate and Collectors Editions sell for $120 and $190, respectively. Everything above the standard edition comes with extra missions and a season pass, but these perks don’t really seem worth the added cost.
@@ -129,6 +147,9 @@ thumbnail: https://www.lifewire.com/thmb/AOaypBNYyRJfiXGRDysuqItP1OU=/400x300/fi
 
  Watch Dogs: Legion feels like a missed opportunity, with a “play as anyone” feature that’s cool, but not cool enough to compensate for the lack of novelty. The addition of online play may offer more replayability, but as of launch, there isn’t enough to keep us coming back.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Watch Dogs: Legion

@@ -1,7 +1,7 @@
 ---
 title: "Assessment: The Second Generation Google Nest Hub and Its Lack of a Camera Functionality"
-date: 2024-08-02 10:23:10
-updated: 2024-08-05 12:33:32
+date: 2024-08-03T22:58:13.893Z
+updated: 2024-08-04T22:58:13.893Z
 categories:
   - BestProducts
 description: "This Article Describes Assessment: The Second Generation Google Nest Hub and Its Lack of a Camera Functionality"
@@ -41,6 +41,11 @@ Lifewire / Erika Rawes
 
 ## Samsung Galaxy Tab S6
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/il4lPBPvRiNVh03WGsCMkN0U0SU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_S6_HeroSquare-041c0f1331604f5199eb280d31cb1fe8.jpg)
 
 Lifewire / Erika Rawes
@@ -72,6 +77,18 @@ Lifewire / Erika Rawes
 
  The Galaxy Tab S6 has a USB-C connector, but no 3.5 mm headphone jack. There’s a microSD card slot on the side to expand your storage to 512 MB, although this is becoming increasingly unnecessary as cloud storage applications become more commonplace.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/VjADXw7yUZHkkKXdcHBM8o70Ywc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_Tab_S6_02-4011b3ea196f44e2a7a111bae1212dc2.jpg)
 
  Lifewire / Erika Rawes
@@ -84,6 +101,9 @@ Lifewire / Erika Rawes
 
  Some users report an issue with the screen, where it randomly goes blank in the middle of using the Tab S6\. Audio will still play, but the tablet’s screen will go dark, and the user will have to re-awaken the Tab S6 to continue their tasks. I personally experienced this issue while testing a refurbished version of the Tab S6\.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/-pHfCamdNdeJAmfn1IG93dda0i4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_Tab_S6_03-ecf977b8c98b41a08872f0605a589246.jpg)
 
  Lifewire / Erika Rawes
@@ -92,6 +112,9 @@ Lifewire / Erika Rawes
 
  The Tab S6 has the Qualcomm 855 processor, which is a pretty solid mobile CPU. It comes in two versions: one version with 128GB of storage and 6 GB of RAM, and one version with 256 GB of storage and 8 GB of RAM. I tested the former version. On PCMark Work 2.0, the lower level Tab S6 scored a 9022\. On Geekbench 5, the Tab S6 scored a single core score of 747 and a multi-core score of 2,518\. It’s multi-core scores come in very close to the A12 Bionic chip in the iPad (2019).
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/TIUmjQSMgpAJw4W3I6fcgiYY1BM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_Tab_S6_06-cc64b6b41e8f4420b9fe38d223541b52.jpg)
 
  Lifewire / Erika Rawes
@@ -106,12 +129,18 @@ Lifewire / Erika Rawes
 
  After about a week, the S Pen became like an extra appendage for me.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ## **Audio: Dolby Atmos**
 
  The Galaxy Tab S6 has four speakers—two on the bottom and two on the top. The speakers are AKG tuned, and they even support Dolby Atmos. You can enable Dolby Atmos in the tablet’s sound settings. Overall, the speakers sound exceptional for a mobile device. I was impressed by the immersive sound quality when watching movies and shows. For music, the bass isn’t as punchy as it could be, but it sounds better than most tablets I’ve encountered.
 
  I do wish the Galaxy Tab S6 had a headphone jack. I was able to purchase a USB-C to 3.5 mm adapter on Amazon for about $10, but it would have been nice to have a 3.5 mm jack available.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Network: No Wi-Fi 6**
 
  The Tab S6 supports Bluetooth version 5.0 and 802.11a/b/g/n/ac Wi-Fi networks, and you can connect it on the 2.4 and 5 GHz bands. I live in a suburb outside of Raleigh, NC, and my network speeds max out at 400 Mbps. I have a Wi-Fi 6 capable router, but the Galaxy Tab S6 doesn’t support Wi-Fi 6\.
@@ -128,12 +157,18 @@ Lifewire / Erika Rawes
 
  The Tab S6 can take UHD video (3840x2160) at 30 FPS with the rear camera and FHD (1920x1080) at 30 FPS with the front cam, and it has a few cool software features like a food mode, pro mode, night mode, and hyperlapse. You can also create an AR emoji and take advantage of additional features like Bixby Vision.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ## **Battery: Worse than the Tab S4**
 
  The Tab S6 has a serviceable battery capacity. The 7040 mAh battery lasts for up to 15 hours play time. The S Pen does take some of the Tab’s battery, but it doesn’t affect the battery life to a noticeable degree. I was able to use the S6 on and off for most of the day, and I still had some battery leftover for the next day. The Galaxy Tab S4 had a slightly better 7300 mAh battery that lasted for up to 16 hours of play time. I was surprised to see that the Tab S6 had less battery capacity than its predecessor.
 
  I was able to use the S6 on and off for most of the day, and I still had some battery leftover for the next day.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Software: Now on Android 10**
 
  Initially, the Tab S6 released with Android 9\. Since its release in 2019, the Tab S6 has now upgraded to Android 10\. You can learn about the different Android versions[here](https://www.lifewire.com/android-versions-4173277) if you want to know more about the differences between the two.
@@ -144,10 +179,16 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ## **Price: On the high end**
 
  The Galaxy Tab S6 sells for $649 for the 128 gig version, which is pricey for an android tablet. But, considering the S Pen is included in the package, the price is a bit more reasonable.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ## **Samsung Galaxy Tab S6 vs. Samsung Galaxy Tab A (2020)**
 
  The Galaxy Tab S6 is designed for productivity, photo editing, drawing, and multipurpose use. It offers fast processing, an optional keyboard case, and features like Samsung DeX to promote even more efficiency.[The Galaxy Tab A](https://www.lifewire.com/samsung-galaxy-tab-a-2020-review-5072672) (view on[Amazon](https://www.amazon.com/dp/B07Q3T2RZF/?tag=lifewire-onsite-prod-20&ascsubtag=5072677%7Cnb09ddd4fc2484a1da2aba73369114b5911%7C) ) is a budget tablet that’s good for communication and on-the-go entertainment. The Tab A works in cellular networks, and it doesn’t provide the processing power or productivity features you get with the Tab S6\. The Tab A is not compatible with the S Pen either.

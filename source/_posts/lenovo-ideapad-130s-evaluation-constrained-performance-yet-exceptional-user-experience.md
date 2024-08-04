@@ -1,7 +1,7 @@
 ---
 title: "Lenovo IdeaPad 130S Evaluation: Constrained Performance, Yet Exceptional User Experience"
-date: 2024-08-02 15:55:38
-updated: 2024-08-04 12:48:59
+date: 2024-08-03T22:58:13.253Z
+updated: 2024-08-04T22:58:13.253Z
 categories:
   - BestProducts
 description: "This Article Describes Lenovo IdeaPad 130S Evaluation: Constrained Performance, Yet Exceptional User Experience"
@@ -37,8 +37,14 @@ thumbnail: https://thmb.techidaily.com/b41dfc1747c954c2591d35270b4a20079e5707f86
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Blueear Bluetooth Beanie Hat
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ![Blueear Bluetooth Beanie Hat](https://www.lifewire.com/thmb/AjDXKp_HcU3-156-Y8LLC7h-Ppc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4159779_HeroSquare-d9847be4cedf4a279be58a3ffe96bd06.jpg)
 
  Lifewire / Jeffrey Daniel Chadwick
@@ -84,6 +90,9 @@ thumbnail: https://thmb.techidaily.com/b41dfc1747c954c2591d35270b4a20079e5707f86
 
  The Bluetooth range is listed as the standard 10m, or about 30 feet. We found that to be generally accurate so long as you have a direct line of sight to the phone or computer it’s paired to. If walls and other objects get in the way, the range drops sharply.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Blueear Bluetooth Beanie Hat](https://www.lifewire.com/thmb/3aVPDXCbn533gdsOOMrbCMHgUo8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4159779_02-39d07d95367d404e8e36d49ecd0f6aaa.jpg)
 
  Lifewire / Jeffrey Daniel Chadwick
@@ -96,10 +105,16 @@ thumbnail: https://thmb.techidaily.com/b41dfc1747c954c2591d35270b4a20079e5707f86
 
  Switching between paired devices isn’t quite as seamless as we’ve seen in[Bluetooth earbuds](https://www.lifewire.com/best-wireless-earbuds-4140480) like the[AirPods](https://www.lifewire.com/apple-airpods-review-4589511) and[PowerBeats Pro](https://www.lifewire.com/beats-powerbeats-pro-review-4694361) . During our testing phase, it generally took about one minute to switch from a Mac to an iPhone. It took even longer from an iPhone to a Mac since you have to route the audio manually.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ![Blueear Bluetooth Beanie Hat](https://www.lifewire.com/thmb/vDgOpMTjzx4rXxlDNddSrWYNiDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4159779_06-ea3ea611fbf8423e9221af228b7c37e4.jpg)
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Controls: Awkward but easy**
 
  The control panel sewed into the band sits over your left ear. This is an odd place for it for right handed people, requiring them to reach across their torso and face to use it with their dominant hand. Nevertheless, the controls are easy and complete. Controls include volume, pause, play, previous and next track. It only takes a few minutes of using the cap to learn its controls effectively.
@@ -112,10 +127,17 @@ thumbnail: https://thmb.techidaily.com/b41dfc1747c954c2591d35270b4a20079e5707f86
 
  It takes a little more than an hour to fully charge this Bluetooth beanie. You can charge the speakers through a small hole in the fabric via an included USB charging cable. It doesn’t come with wall adapter, but if you don’t have one kicking around you can also plug it into a computer or other USB equipped device.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Comfort: Kinda scratchy, but you’ll get used to it**
 
  This Bluetooth beanie is made of 100% acrylic fibers. It’s not as comfortable as you might expect by looking at it. When we tested the product, it felt dry and scratchy and caused mild chafing around the ears and neck. Nothing that will leave a mark or cause blisters, but enough that you’ll never forget you’re wearing the hat.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ## **Sound Quality: Decent sound from inexpensive speakers**
 
  The quality of the sound generated by this Bluetooth beanie is listenable, but won’t likely forget that you’re listening by way of tiny speakers in a $15 beanie. The volume is adequate to drown out outside noises, but not overpowering even at max volume. Since these are speakers, and not[earbuds](https://www.lifewire.com/best-earbuds-4045320) or headphones, they don’t deliver the immersive audio experience that you’d expect from Bluetooth earbuds like the AirPods.
@@ -124,6 +146,9 @@ thumbnail: https://thmb.techidaily.com/b41dfc1747c954c2591d35270b4a20079e5707f86
 
  All of the small foibles of this Bluetooth beanie are forgivable because it’s not an expensive product. Depending on the color you get, expect to pay between $15 and $25, with grey being the most expensive.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Blueear Bluetooth Beanie Hat vs. Rotibox Bluetooth Beanie Hat**
 
  We tested this wireless beanie side by side with the Rotibox Bluetooth Beanie Hat and the two are about comparable in design and function. But the Rotibox is a good deal more comfortable, and it produces better sound. The best thing Blueear has going for it is that it’s the least expensive wireless music beanie we reviewed.

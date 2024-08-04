@@ -1,7 +1,7 @@
 ---
 title: Why the Fellowes Microban Wired Keyboard Is Your Best Bet for Savings and Performance
-date: 2024-08-01 17:34:19
-updated: 2024-08-03 10:57:31
+date: 2024-08-03T22:58:34.153Z
+updated: 2024-08-04T22:58:34.153Z
 categories:
   - BestProducts
 description: This Article Describes Why the Fellowes Microban Wired Keyboard Is Your Best Bet for Savings and Performance
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/NVu5gdmMECRVQkvCY_3ARM-gZVI=/400x300/fi
 
 3.1
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## HP Notebook 15
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![HP Notebook 15](https://www.lifewire.com/thmb/b3ZgX_8zTO6E2dB2hwJdBO31F24=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_5LW4043278-HP-Notebook-15-4-867220d9429742748f0e51dab6ab0946.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -40,6 +46,18 @@ Lifewire / Jeremy Laukkonen
 
 ## HP Notebook 15
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![HP Notebook 15](https://www.lifewire.com/thmb/uGjqdYURbA1RcFfxaRwesN5LDDg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_5LW4043278-HP-Notebook-15-4-867220d9429742748f0e51dab6ab0946.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -75,6 +93,9 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ## **Design: Premium looks at a budget price**
 
  When designing a sub-$300 desktop replacement like the HP Notebook 15, compromises are made in order to hit that budget-friendly price tag. Aesthetics are usually the first concession, but the HP Notebook 15 actually looks very nice. The matte finish of the shell has a pleasant texture and gives a nice visual flare to what could have been an unremarkable design.
@@ -85,6 +106,10 @@ Lifewire / Jeremy Laukkonen
 
  The laptop is less than an inch thick at the rear, and it slopes down to an even thinner profile at the front. It does weigh in at over four and a half pounds, which cuts down on portability somewhat, but the short battery life means you won’t be carrying this one with you everywhere anyway.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ## **Setup Process: Generally straightforward, but bloatware can extend the initial setup**
 
  The HP Notebook 15 is a[Windows 10](https://www.lifewire.com/windows-10-2626217) laptop, and the setup process isn’t anything out of the ordinary for a laptop like this. We timed the initial setup, and it took less than 15 minutes from plugging it in and turning it on to hitting the desktop for the first time. HP does ask for some information (including your email address) during the signup process, but most OEMs have a similar process for setting up support and warranty information.
@@ -101,6 +126,9 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: Outperformed by Intel HP Notebooks with similar specs**
 
  The HP Notebook 15 suffers in the performance department due to its AMD A6-9225 and 4GB of[RAM](https://www.lifewire.com/what-is-random-access-memory-ram-2618159) . It’s perfectly capable of performing basic productivity tasks like word processing, web browsing, email, and even spreadsheets, but comparable models with even slightly better processors and additional RAM beat it in every important benchmark.
@@ -131,6 +159,9 @@ Lifewire / Jeremy Laukkonen
 
  The sound quality is great for a laptop in this category, and we didn’t notice any distortion when listening to music or watching movie trailers on YouTube. It’s also sufficiently loud, although the speakers lack the bass response necessary to really fill a room.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Network: Decent speeds, but no 802.11ac**
 
  The wireless card is another place where HP cut corners on the Notebook 15\. Speeds are decent enough when connected to a 2.4 GHz Wi-Fi network, but the lack of 802.11ac support means you don’t have the option to connect to a 5 GHz network.
@@ -139,6 +170,14 @@ Lifewire / Jeremy Laukkonen
 
  The lack of 802.11ac won’t be a concern if your wireless router doesn’t support 5 GHz, but it’s nice to have that option if you want to stream video or download large files.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ![HP Notebook 15](https://www.lifewire.com/thmb/QJf5J5Be4RdHKzylG4pIFs6FBo4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW4043278-HP-Notebook-15-1-f27ddc931d944435bb93ac8febfa88a9.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -159,6 +198,9 @@ Lifewire / Jeremy Laukkonen
 
  The HP Notebook 15 comes equipped with Windows 10 and free trials of McAfee antivirus and Microsoft 365\. It also has a handful of basic Windows apps installed by default, and a lot of bloatware from HP — there are about ten different apps, including HP JumpStart and HP Audio Switch, that we think most users will want to uninstall.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Attractive price for what you get**
 
  The HP Notebook 15 won’t win any awards for performance or battery life, but it’s a classic example of the old maxim that “you get what you pay for.” The MSRP is just $299, so if you’re in the market for an ultra-budget laptop, then it’s worth a look.
@@ -179,6 +221,9 @@ Lifewire / Jeremy Laukkonen
 
  The lower-resolution display, unimpressive battery, and weak internals make anything beyond basic tasks a struggle for the HP Notebook 15\. But if you just need a laptop for web browsing, email, and word processing — and plan to keep it near an outlet — then the HP Notebook 15 fits the bill for an incredibly low price.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [HP Pavilion Laptop 15z Touch](https://www.lifewire.com/hp-pavilion-laptop-15z-touch-review-4686745)

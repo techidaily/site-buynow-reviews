@@ -1,7 +1,7 @@
 ---
 title: Experience the Lenovo IdeaPad 320 - A Perfect Blend of Elegance & Mobility Complemented by Lenovo's Signature Keyboard Design
-date: 2024-07-29 19:24:33
-updated: 2024-08-01 10:40:49
+date: 2024-08-03T22:58:16.053Z
+updated: 2024-08-04T22:58:16.053Z
 categories:
   - BestProducts
 description: This Article Describes Experience the Lenovo IdeaPad 320 - A Perfect Blend of Elegance & Mobility Complemented by Lenovo's Signature Keyboard Design
@@ -13,6 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/G1oG26gp57YAB7fy1gGV5fHuw8Q=/400x300/fi
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Scosche ReVolt Universal Car Charger
 
 ![Scosche ReVolt Dual](https://www.lifewire.com/thmb/MAZYDIftQ2suhGYu7ZDtYqUsGFQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4053582_Hero-fb27ed6eb1784c0086d1d14c345c5e36.jpg)
@@ -63,6 +66,9 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Low-profile and unobtrusive**
 
  The ReVolt Dual’s standout feature is its relative low profile. That means it doesn’t protrude much from your car’s[12V charge port](https://www.lifewire.com/finding-the-right-12v-usb-adapter-534755) . Push the ReVolt Dual into the socket, though, and you’re greeted by blue LED light that illuminates both USB ports. Scosche call these “Glow-Ports.” They’re a great feature when searching for the ports in the dark, however, if you’re the kind of person who cares about keeping your car’s interior looking original and cohesive, they can become annoying.
@@ -75,6 +81,9 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: 12W fast charging for two devices**
 
  Not all in-car USB chargers are created equal. Aside from design, everything comes down to charging speed. As we’ve mentioned before the ReVolt Dual has two USB ports, both of which can charge at 5V/2.4A, for a total 12W output per USB port. Some manufacturers on Amazon misleadingly label these is 24W, adding up the output of both ports, as in the case of RAVPower.
@@ -83,6 +92,9 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: A mid-range price**
 
  Scosche’s manufacturer's suggested retail price (MSRP) for the ReVolt is $19.99\. This puts it well below some of the fancier $50 units on the market. What’s more, it matches a lot of the other fast-charging adapters in speed, while undercutting them on price.
@@ -93,6 +105,9 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Competition: Slim design, but heftier price tag**
 
  The RAVPower 24W charger is the main rival to the ReVolt Dual. It has a metal exterior, a highly affordable $6.99 price tag, and 5V/2,4A power output per USB port. Despite seeming like a bargain, RAVPower’s construction is far less robust than the ReVolt Dual. The metal body protrudes from the 12V socket, and the shell also separates easily from the internal components. The ReVolt Dual’s plastic body remained intact, even when put through rough usage.
@@ -105,6 +120,9 @@ Lifewire / Nick Jaynes
 
  The Scosche ReVolt Dual has a slim design, robust construction, impressive power output, and sturdy side springs that keep it in place. The price could be a bit lower, but the quality spoke for itself. Despite some minor quibbles over the Glow-Ports, we find the ReVolt Dual to be easy to recommend.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  ReVolt Universal Car Charger

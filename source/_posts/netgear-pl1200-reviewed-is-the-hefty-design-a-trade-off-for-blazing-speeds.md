@@ -1,7 +1,7 @@
 ---
 title: Netgear PL1200 Reviewed – Is the Hefty Design a Trade-Off for Blazing Speeds?
-date: 2024-08-03 16:54:20
-updated: 2024-08-05 10:11:18
+date: 2024-08-03T22:58:47.758Z
+updated: 2024-08-04T22:58:47.758Z
 categories:
   - BestProducts
 description: This Article Describes Netgear PL1200 Reviewed – Is the Hefty Design a Trade-Off for Blazing Speeds?
@@ -39,8 +39,14 @@ Lifewire / Yoona Wagener
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ## Netgear Nighthawk X6 AC3200 Tri-Band Wi-Fi Router (R8000)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Netgear Nighthawk X6 AC3200 Tri-Band Wi-Fi Router](https://www.lifewire.com/thmb/svytmcXYUcatZ6Kem2-kQisPZks=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_NETGEAR-Nighthawk-X6-AC3200-Wi-Fi-Router-1-f33fb4d851884e8982d54d6ff07d5ae7.jpg)
 
 Lifewire / Yoona Wagener
@@ -67,6 +73,9 @@ Lifewire / Yoona Wagener
 
  We used this tri-band router and observed various aspects starting with the setup process, software ease of use, and performance power when performing typical streaming and browsing activities.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Netgear Nighthawk X6 AC3200 Tri-Band Wi-Fi Router](https://www.lifewire.com/thmb/q6eQHVPL_nzfI20_HhRY5seg85c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NETGEAR-Nighthawk-X6-AC3200-Wi-Fi-Router-3-3baf530c5df54c9c903579053d19c25c.jpg)
 
  Lifewire / Yoona Wagener
@@ -79,10 +88,16 @@ Lifewire / Yoona Wagener
 
  All the ports are easy to locate at the back of the device. These include four[LAN](https://www.lifewire.com/what-is-lan-4684071) ports, one WAN port, and one[USB 3.0](https://www.lifewire.com/what-is-usb-3-0-2626038) and one USB 2.0 port. You’ll also find the power button and DC power input in the same row.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear Nighthawk X6 AC3200 Tri-Band Wi-Fi Router](https://www.lifewire.com/thmb/GsN851fjmzxtWs6ShQfaWQtEPok=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NETGEAR-Nighthawk-X6-AC3200-Wi-Fi-Router-2-b6366698f8d14745a5027973d8657745.jpg)
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Simple, with a few bumps in the road**
 
  Unboxing the Nighthawk X6 R8000, we were reminded several times to download the companion Nighthawk[mobile app](https://www.lifewire.com/what-are-apps-1616114) to complete the setup process. There is a sticker on top of the router with a[QR code](https://www.lifewire.com/scan-qr-codes-on-smartphone-4154658) that the app can use to detect the router and launches a quick setup process, but we couldn’t get this code to register. Instead, we went to the App Store and manually downloaded the mobile app.
@@ -99,6 +114,9 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Connectivity: Focused on the most innovative technology**
 
  This is an 802.11ac tri-band router, meaning it supports three frequencies: one 2.4GHz and two 5GHz channels on the[802.11ac wireless standard](https://www.lifewire.com/802-11ac-in-wireless-networking-818284) . The advantage here is that unlike older single- or[dual-band routers](https://www.lifewire.com/dual-band-wireless-networking-explained-818279) that operate on older Wi-Fi standards or even newer dual-band options functioning on the most current Wi-Fi 5 standard, there’s additional support for more devices and less competition over bandwidth.
@@ -119,6 +137,10 @@ Lifewire / Yoona Wagener
 
  Though we were unable to test the full range of this router, we had no issues in our 1,100-square-foot space. The manufacturer does say that this device can serve very large homes and there are six antennas that help boost this coverage, but the actual range—just like speed—will depend on factors like the thickness of your walls, router placement, and interference from other signals and devices.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ![Netgear Nighthawk X6 AC3200 Tri-Band Wi-Fi Router](https://www.lifewire.com/thmb/qDgf4s6CZg8XEea_CVo6DMwg5lg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NETGEAR-Nighthawk-X6-AC3200-Wi-Fi-Router-5-733eda7f890a4105b5bc94ddf8169c81.jpg)
 
  Lifewire / Yoona Wagener
@@ -139,6 +161,9 @@ Lifewire / Yoona Wagener
 
  The Nighthawk X6 R8000 has a list price of $270, which certainly places it in the high-end tier of wireless routers. And while it’s not the most expensive tri-band router on the market, your decision to make this investment could come down to factors like how large your home is, how many devices you’re working with, and how fast your internet service plan is. The tri-band Wi-Fi technology is impressive, and there are many attractive features: an intuitive and low-effort app, built-in security with Netgear Armor, as well as a detailed level of control over managing how everyone in the family spends their screen time, but there are equally capable as less expensive options on the market.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Netgear Nighthawk X6 AC3200 vs. Asus RT-AC3200**
 
  One of the strengths of the Nighthawk X6 R800 is how fast and simple it is to set up for even those who are tech-shy. But if you’re willing or interested in diving in deeper technically, paying less, and still obtaining impressive Wi-Fi performance, the Asus RT-AC3200 retails for $200 and overlaps with the Nighthawk X6 in a number of ways. Both feature three bands, six antennas, QoS and beamforming technologies, VPN and Time Machine support, and peace of mind with respective built-in security platforms.

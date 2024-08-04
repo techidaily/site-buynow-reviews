@@ -1,7 +1,7 @@
 ---
 title: Review of HeimVision Sunrise Alarm Clock A80S - Essential Wake-Up Light Technology
-date: 2024-08-02 20:31:44
-updated: 2024-08-03 11:42:46
+date: 2024-08-03T22:58:04.185Z
+updated: 2024-08-04T22:58:04.185Z
 categories:
   - BestProducts
 description: This Article Describes Review of HeimVision Sunrise Alarm Clock A80S - Essential Wake-Up Light Technology
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/6dhhTAUVbZdfUmg7O9oz56u2Vj0=/400x300/fi
 
 ## Philips HF3650/60 Sleep and Wake-Up Light Therapy Lamp Review
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Philips Somneo HF3650/60 Sleep and Wake-Up Light Therapy Lamp](https://www.lifewire.com/thmb/hjYZyfPIrdy-Dj1MthRfQh8ZbZs=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-4137028-1-3-5c8fee16c9e77c0001ff0b33.jpg)
 
 Lifewire / Jordan Provost
@@ -39,6 +42,9 @@ Lifewire / Jordan Provost
 
 ## Philips HF3650/60 Sleep and Wake-Up Light Therapy Lamp Review
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Philips Somneo HF3650/60 Sleep and Wake-Up Light Therapy Lamp](https://www.lifewire.com/thmb/c9nvEoRMRBjYcwbVPMqxcJWpqBg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-4137028-1-3-5c8fee16c9e77c0001ff0b33.jpg)
 
 Lifewire / Jordan Provost
@@ -67,10 +73,16 @@ Lifewire / Jordan Provost
 
  Lifewire / Jordan Provost
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design and Setup: Very user-friendly, if oddly shaped**
 
  At 12 inches in diameter, 8.8 inches wide, and weighing 3.2 pounds, the Somneo is one of the larger and heavier clocks to grace a bedside table. Its shape is odd as well. Most light therapy clocks put the time interface in the center and the light circles around this. The Somneo, however, retains this shape, but places a hole in the center and the time interface at the bottom. It’s odd, but not objectionable, making the Somneo look more like a modern designer piece than your standard bedside light.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ![Philips Somneo HF3650/60 Sleep and Wake-Up Light Therapy Lamp](https://www.lifewire.com/thmb/idFMYxSvr4WNKHfmtginjcQrPy4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4137028-1-2-5c8fee3dc9e77c0001a926f6.jpg)
 
  Lifewire / Jordan Provost
@@ -91,6 +103,14 @@ Lifewire / Jordan Provost
 
  The Philips Somneo is a top-tier product in the light therapy alarm clock market.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ## **Features: Great for falling asleep**
 
  The unique feature about the Philips Somneo is that it offers a “wind down” feature, which includes both a sunset simulation and breathing exercises. Simply tap the wind down button, and then tap the sunset option, and the light slowly diminishes from a bright yellow hue, morphing to oranges and reds before it completely turns off. We like that the lights don’t suddenly switch off at the beginning and end — every light-related feature with the Somneo gradually fades and brightens.
@@ -107,10 +127,17 @@ Lifewire / Jordan Provost
 
  Snoozing the alarm clock is very easy, too. Simply tap the top of the alarm clock, and the light will stay on while the music stops playing for nine minutes. To turn off the alarm, we simply pressed the alarm button on the interface, the music stopped playing, and the light gradually faded away.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![Philips Somneo HF3650/60 Sleep and Wake-Up Light Therapy Lamp](https://www.lifewire.com/thmb/VnTu8-OX_dmaMQft3divUMJaMm0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4137028-1-4-5c8fee5b46e0fb000172f0a4.jpg)
 
  Lifewire / Jordan Provost
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Radio: An extra convenience**
 
  Because the audio is superb, we thoroughly tested the radio feature. The user can preset five radio stations, and can easily control swapping between them. We couldn’t flip back and forth between the options, but rather cycled through the other stations before coming back to the original. There is a volume section under the FM radio where you can easily increase or decrease it, though it was confusing to find at first. Once you become familiarized with it, though, it’s simple to maneuver.
@@ -137,6 +164,9 @@ Lifewire / Jordan Provost
 * [Philips HF3505 Wake-Up Light](https://www.lifewire.com/philips-hf3505-wake-up-light-review-4589402)
 * [Aura Daylight Therapy Lamp](https://www.lifewire.com/aura-daylight-therapy-lamp-review-4772136)
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  HF3650/60 Sleep and Wake-Up Light Therapy Lamp Review

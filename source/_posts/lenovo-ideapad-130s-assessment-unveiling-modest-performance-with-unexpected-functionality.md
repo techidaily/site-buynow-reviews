@@ -1,7 +1,7 @@
 ---
 title: Lenovo IdeaPad 130S Assessment - Unveiling Modest Performance with Unexpected Functionality
-date: 2024-07-30 17:48:53
-updated: 2024-07-31 10:10:18
+date: 2024-08-03T22:58:10.034Z
+updated: 2024-08-04T22:58:10.034Z
 categories:
   - BestProducts
 description: This Article Describes Lenovo IdeaPad 130S Assessment - Unveiling Modest Performance with Unexpected Functionality
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/ueEN0Z1qz7m6qwbLLpfM5jej0M0=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ## CumulusPRO Commercial Couture Anti-Fatigue Standing Desk Mat
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ![CumulusPRO Standing Desk Mat](https://www.lifewire.com/thmb/8_oCDeNqZk6lsiRV1cDBkPIYIy4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cumulus-Pro-Comfort-Mat-1-369ebfd4ce0e4e30853a3649a0c6badb.jpg)
 
 Lifewire / Rebecca Isaacs
@@ -67,6 +73,9 @@ Lifewire / Rebecca Isaacs
 
  At 24 inches by 36 inches (LW), the CumulusPRO is a very wide mat, providing ample space for us to move and shift around in. It’s also very modern looking, as the top of the mat has a simple grey, wavy design that would accommodate most modern office spaces. This particular mat was very thin, at 0.75 inches. It wasn’t as slick on the bottom as some other mats we tested, which we felt was a huge perk. And on top of that, the edges are designed to taper downward, so that you needn’t worry about tripping as you step onto it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![CumulusPRO Standing Desk Mat](https://www.lifewire.com/thmb/BLF6wQLJynPpwT_zlr5rT_J-LiQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cumulus-Pro-Comfort-Mat-3-2612dc3d381c449d91d0eb0b9e4b2853.jpg)
 
  Lifewire / Rebecca Isaacs
@@ -85,10 +94,16 @@ In terms of versatility, the CumulusPRO mat is king.
 
  Another nice feature of the CumulusPRO is that we could wear heels and not damage it. While this may seem trivial, compared to other mats we tested, this was amazing for the ladies who like to wear heeled shoes.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## **Price: Pretty steep for a mat**
 
  At around $80 on Amazon, the CumulusPRO is expensive for a mat that doesn’t come with extra surface features. However, taking into context its versatility around the office and the home, the price is actually a solid investment. If you decide you don’t want it in your office, but say, in the kitchen, it can easily be transplanted into other areas of the house or workplace.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## **Ergodriven Topo vs. CumulusPRO Standing Desk Mat**
 
  We decided to compare the Ergodriven Topo against the CumulusPRO to see which we felt was the better bang for your buck. Price-wise, both the Topo and the CumulusPRO mats are similar in that the Topo retails for $100 while the CumulusPRO retails for around $80\. For a desk, the Topo mat we felt was superior to the CumulusPRO. The Ergodriven comes with basic wedges and a massage mound in the center to help alleviate foot pain during the day—features that the CumulusPRO doesn’t have.
@@ -103,6 +118,9 @@ In terms of versatility, the CumulusPRO mat is king.
 
  For a basic mat, the CumulusPRO is a solid choice. We especially liked how it hides dirt and can be used for those who prefer to wear high heels. Considering it’s a basic standing mat, its versatility is definitely worth the investment.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Commercial Couture Anti-Fatigue Standing Desk Mat

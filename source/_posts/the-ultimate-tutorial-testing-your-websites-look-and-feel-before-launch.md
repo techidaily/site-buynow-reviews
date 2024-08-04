@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Tutorial: Testing Your Website's Look and Feel Before Launch"
-date: 2024-07-30 10:48:33
-updated: 2024-08-02 12:22:55
+date: 2024-08-03T22:58:07.584Z
+updated: 2024-08-04T22:58:07.584Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate Tutorial: Testing Your Website's Look and Feel Before Launch"
@@ -69,6 +69,9 @@ Lifewire / Hayley Prokos
 
  Lifewire / Hayley Prokos
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Rugged looks**
 
  The UAG MacBook Pro 13-inch Laptop Case blows the competition out of the water in terms of sturdiness. When you look at this product, you see a thick, rubber-and-plastic frame that actually stands a chance of saving your delicate[MacBook](https://www.lifewire.com/best-laptops-to-buy-4043650) from a drop. A lot of budget cases feel cheap and flimsy both on and off of the laptop, but the UAG Laptop Case is more substantial.
@@ -83,10 +86,16 @@ Lifewire / Hayley Prokos
 
  The style of the case is naturally more utilitarian than it is sleek, but that’s usually the tradeoff for something that offers such protection. And despite the extra protection, there seems to be a sufficient amount of ventilation on the bottom of the case.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ![Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/thmb/8sq4AYsbhOuB90hMOUtdeXMcaFg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4153328-2-5987a4064c7a4932a172493350ec5000.jpg)
 
  Lifewire / Hayley Prokos
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ## **Setup Process: A one-time deal**
 
  On the UAG website, you’ll find a YouTube video designed to guide users through the installation of the case. You should watch it before installing it yourself in order to avoid scratching or otherwise damaging your MacBook Pro.
@@ -101,10 +110,16 @@ Lifewire / Hayley Prokos
 
  The only hassle we encountered when testing usability was the snap closure, which is great for keeping your laptop shut in transit but difficult to pry open when trying to use your computer.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/thmb/9Y7LLmqrhHo_Pbzks49nRtjt4ws=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4153328-4-49105513ae5d4a97ac284ce462185b5d.jpg)
 
  Lifewire / Hayley Prokos
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Durability: As tough as it gets**
 
  We found the UAG MacBook Pro 13-inch Laptop Case to be as resilient as it could be. We dropped the case from standing height on a variety of surfaces—on those as soft as carpet and as hard as hardwood and concrete—and it sustained virtually no damage (a few superficial scratches at most).
@@ -113,6 +128,10 @@ Lifewire / Hayley Prokos
 
  We dropped the case from standing height on a variety of surfaces … and it sustained virtually no damage (a few superficial scratches at most).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## **Price: A small sum to pay to protect such expensive hardware**
 
  The Urban Armor Gear MacBook Pro 13-Inch Laptop Case retails for $79.95, which is definitely on the more expensive end of the spectrum for a laptop case. But if you are taking your laptop into rugged conditions or you’re simply accident-prone, we think $80 seems a fair amount to pay to keep your far-more-pricey MacBook safe.
@@ -131,6 +150,18 @@ Lifewire / Hayley Prokos
 
  The Under Armor Gear (UAG) MacBook Pro 13-inch Laptop Case is an excellent option for those seeking maximum protection. This case may not be for you if you’ll need to remove and reinstall it regularly, which is both a hassle and a potential risk for damage.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)

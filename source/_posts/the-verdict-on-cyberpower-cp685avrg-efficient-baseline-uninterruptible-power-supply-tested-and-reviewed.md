@@ -1,7 +1,7 @@
 ---
 title: The Verdict on Cyberpower CP685AVRG – Efficient Baseline Uninterruptible Power Supply Tested and Reviewed
-date: 2024-07-28 18:20:49
-updated: 2024-07-31 11:49:18
+date: 2024-08-03T22:58:30.004Z
+updated: 2024-08-04T22:58:30.004Z
 categories:
   - BestProducts
 description: This Article Describes The Verdict on Cyberpower CP685AVRG – Efficient Baseline Uninterruptible Power Supply Tested and Reviewed
@@ -38,8 +38,14 @@ Lifewire / Rebecca Isaacs
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ## CubeFit TerraMat Standing Desk Mat
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![CubeFit TerraMat Standing Desk Mat](https://www.lifewire.com/thmb/9CVAFnK8V-ehyXb2suCiPISl_Fw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cubefit-Terramat-1-20ac600dd86d48c7a53a3ec4e3a1b127.jpg)
 
 Lifewire / Rebecca Isaacs
@@ -61,16 +67,25 @@ Lifewire / Rebecca Isaacs
 
  Standing desk mats are a vital home and workplace accessory if you also own a standing desk. A well-molded one can help relieve pressure on knees and joints, and avoid future back problems. One such desk mat is CubeFit’s TerraMat. Over the course of a week, we used it for a total of 21 hours. We found it to be well-spaced and comfortable, with a design that made it easy to slide under a desk and lots of ways to stay active.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ![CubeFit TerraMat Standing Desk Mat](https://www.lifewire.com/thmb/-lWKKX-37QxEqesUB_hq23oF-Nc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cubefit-Terramat-2-fb291af5328e4b9f8198bda860bb4126.jpg)
 
  Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Ample room**
 
  At 30 inches by 27 inches by 2.5 inches (LWH), the Ergomat is a large desk mat, allowing ample space for you to spread out and move around. The mat looks flat with some knobs and bars, but in reality, it has massage mounds, pressure peaks, power wedges, support tracks, and a balance bar. In adding these features, the mat allows eleven different positions in which to stand and stretch.
 
  The TerraMat was designed to maximize the desk workout without stepping away from your work.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![CubeFit TerraMat Standing Desk Mat](https://www.lifewire.com/thmb/bYv2ZieoCmljIagyQ74L0uCskZk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cubefit-Terramat-3-26ac3668958d4c0e926e3d3e643b6486.jpg)
 
  Lifewire / Rebecca Isaacs
@@ -93,6 +108,9 @@ Lifewire / Rebecca Isaacs
 
  At around $90 on Amazon, the TerraMat is one of the priciest standing desk mats out on the market. However, factoring in the various activities you can do and the sturdy surface, the price feels more reasonable.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **CubeFit TerraMat vs. Ergohead Standing Desk Mat**
 
  We decided to compare the TerraMat against the Ergohead for two reasons: price and the various surface features. In terms of price, the TerraMat and the Ergohead are very similar. The TerraMat retails for around $90, while the Ergohead will cost around $80\.

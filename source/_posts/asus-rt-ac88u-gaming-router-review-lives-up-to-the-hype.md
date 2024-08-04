@@ -1,7 +1,7 @@
 ---
 title: "Asus RT-AC88U Gaming Router Review: Lives Up to the Hype"
-date: 2024-07-31 15:41:37
-updated: 2024-08-01 11:40:46
+date: 2024-08-03T22:58:35.619Z
+updated: 2024-08-04T22:58:35.619Z
 categories:
   - BestProducts
 description: "This Article Describes Asus RT-AC88U Gaming Router Review: Lives Up to the Hype"
@@ -59,6 +59,9 @@ thumbnail: https://thmb.techidaily.com/e576cd8301018b2d3e3b69c8279df093bbbc31bad
 
  Lifewire/Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Small and easy to position**
 
  The Roku Express is a small package consisting of a palm-sized remote and the actual streaming box, which is half that size. It comes along with a power brick and micro USB to power the box, a battery for the remote, a two-foot HDMI cable, and an adhesive strip to stick your box to, say, the bottom of your television.
@@ -81,6 +84,9 @@ thumbnail: https://thmb.techidaily.com/e576cd8301018b2d3e3b69c8279df093bbbc31bad
 
  If you want to restrict the ability to download apps or make purchases on the Express, it’s easy to do so. Roku lets you set up a PIN that you’ll need to enter every time you try to download or buy something, which should deter your children or pets from buying anything without your permission.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ## **Streaming Performance: Solid 1080p content, but long buffer times**
 
  For $30, the Roku Express delivers[1080p content](https://www.lifewire.com/720p-1080i-1080p-explained-3276378) to your TV. The 2019 model has the same specs as the 2018 model, but it consumes less power (so little that you can power it from your TV directly).
@@ -89,10 +95,16 @@ thumbnail: https://thmb.techidaily.com/e576cd8301018b2d3e3b69c8279df093bbbc31bad
 
  However, we didn’t have any crashing issues with the Roku Express, and while slow, performance was smooth. Videos and channels did load, eventually. It’s a budget streamer with patient performance, but it’s serviceable if you can’t spend an extra twenty dollars on a more upgraded streamer.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Roku Express](https://www.lifewire.com/thmb/Kfml_LPtHefv5s-BdnKptfzmw3s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Roku_02-a744cef9b4b14025bcd288fca6b25f11.jpg)
 
  Lifewire/Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: One of the easiest to navigate**
 
  Roku Express runs with the same Roku interface as its more expensive cousins, and it’s well-loved for a reason. Compared to Fire TV, Chromecast, and[Apple TV](https://www.lifewire.com/what-is-apple-tv-1994193) , Roku has the widest selection of apps available, and it doesn’t favor one streaming service over another.
@@ -105,6 +117,9 @@ thumbnail: https://thmb.techidaily.com/e576cd8301018b2d3e3b69c8279df093bbbc31bad
 
  An interesting software perk from Roku that its competition doesn’t offer is its mobile app. You can use it as a remote for your Roku device, and that’s great, but more interestingly, you can also plug in your headphones and have the audio stream to your phone. If you like to stay up late and watch TV while your spouse sleeps, this is a great feature to have on hand.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Highly affordable**
 
  The Roku Express is only $30, but it’s easy to find it for even cheaper in physical stores and even online during sales seasons. It’s not hard to nab it for $25 or less.
@@ -129,6 +144,9 @@ thumbnail: https://thmb.techidaily.com/e576cd8301018b2d3e3b69c8279df093bbbc31bad
 
  The Roku Express is a cheap way to turn a dumb TV into a smart TV, or simply to access thousands of free shows that you may not have available directly from your TV’s apps. For only $30, it has a stellar library of content, and its clean unbiased interface makes it a pleasure to use. However, its lack of 4K support and slow performance may make it worth considering an upgrade to its $50 sibling, the Roku Streaming Stick+.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Express

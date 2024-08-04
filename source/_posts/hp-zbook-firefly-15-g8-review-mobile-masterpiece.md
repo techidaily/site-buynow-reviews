@@ -1,7 +1,7 @@
 ---
 title: "HP Zbook Firefly 15 G8 Review: Mobile Masterpiece"
-date: 2024-08-02 22:54:17
-updated: 2024-08-03 12:42:59
+date: 2024-08-03T22:58:40.404Z
+updated: 2024-08-04T22:58:40.404Z
 categories:
   - BestProducts
 description: "This Article Describes HP Zbook Firefly 15 G8 Review: Mobile Masterpiece"
@@ -68,12 +68,18 @@ Lifewire / Sascha Brodsky
 
  I’ve been using Apple portables ever since the Powerbook 100 was released in 1991\. After spending several weeks with the new MacBook Pro, it offers the responsiveness previously associated only with iPads and iPhones, matched with the refined form factor of Apple’s best laptops.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Design: Back to the future
 
  On the surface, the new MacBook Pro doesn’t look radically different from Apple’s previous Pro laptop models. It’s got a similar aluminum case, and the screen is about the same size as the 2019 model.
 
  However, the tiny details make all the difference in the design of the new MacBook. The Pro just feels nicer than any laptop Apple has ever made in many different ways starting with the incredibly smooth hinge mechanism when you open it up.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/dFndxams3xUoua0_gkYqRycgBdU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-1-db37ffedba744e8eb2070780c0d8de10.jpg)
 
 Lifewire / Sascha Brodsky
@@ -82,6 +88,9 @@ Lifewire / Sascha Brodsky
 
  Apple has also gone full circle and replaced the ports it removed in previous iterations of the MacBook. You get a MagSafe connector, headphone jack, SD card slot, HDMI port, and three Thunderbolt 4 ports, which should be enough for almost any user. There’s no USB-A port but most people won’t miss it.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
 ## Keyboard: Precision is everything
 
  The joy of using the MacBook Pro really becomes apparent when you start typing on the keyboard. It’s got a scissor key mechanism that feels precise and offers excellent feedback.
@@ -96,6 +105,9 @@ Lifewire / Sascha Brodsky
 
  There’s nothing not to like about the trackpad on the new MacBook Pro. It’s big and responsive, and you won’t notice it after a while, which is all you need in an input device.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/tD3rxlw9zH5xufV5ztJIZyrJc3Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-3-db6300639d8049d1862d0e4f25a35222.jpg)
 
 Lifewire / Sascha Brodsky
@@ -116,6 +128,18 @@ Lifewire / Sascha Brodsky
 
  Text looks terrific on the Pro, and I ended up spending time gazing at Word documents just to admire the way words look so crisp and defined. Video playback was equally impressive, with the Mini-LED screen revealing a level of detail that made me want to rewatch my favorite movies. The no-glare coating also works very well, even when using the Pro in direct sunlight.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Performance: Sizzling speed that stays cool
 
  The MacBook Pro uses the same cutting-edge M1 chip, designed by Apple, that’s been powering some of the company’s other machines over the past year.
@@ -124,6 +148,9 @@ Lifewire / Sascha Brodsky
 
  Apps start nearly instantly on the Pro. I have a bad habit of keeping too many browser tabs open while I’m working. But even when I had dozens of tabs open in both the Chrome and Safari web browsers, the Pro didn’t slow down.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/UM5_acSqOhRJtIaZE3CeAWp45y0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-2-2be1639ee44f489286cb43a53aaf6454.jpg)
 
 Lifewire / Sascha Brodsky
@@ -160,6 +187,11 @@ Lifewire / Sascha Brodsky
 
  A less expensive MacBook will be just fine for many users who just need a light work and fun machine. But for anyone who wants arguably the best laptop ever made, only the new MacBook Pro will do.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ## MacBook Pro (M1, 2021) vs. MacBook Air (M1, 2020)
 
  There’s an excellent case to be made that for many people, the much less expensive MacBook Air is a better option than the Pro model.
@@ -178,6 +210,10 @@ Lifewire / Sascha Brodsky
 
  As one of the newest and more expensive laptops on the market, it’s no surprise that I’m giving the MacBook Pro top marks in practice. Blazing speed, a great screen, and all day and then some battery life make this a great laptop for almost any use. However, the design is back to the basics and road warriors might want to consider a lighter, less bulky model. But, if you depend on your MacBook for demanding tasks, this is a must-buy.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Apple MacBook Pro 13-inch (M1, 2020)](https://www.lifewire.com/macbook-pro-13-inch-m1-2020-review-5092658)

@@ -1,7 +1,7 @@
 ---
 title: Roku vs Amazon Fire TV Stick - Choosing the Right Streaming Device
-date: 2024-08-01 11:10:29
-updated: 2024-08-04 10:57:13
+date: 2024-08-03T22:58:13.353Z
+updated: 2024-08-04T22:58:13.353Z
 categories:
   - BestProducts
 description: This Article Describes Roku vs Amazon Fire TV Stick - Choosing the Right Streaming Device
@@ -39,8 +39,14 @@ Lifewire/Emily Ramirez
 
 4.6
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Amazon Fire TV Cube
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Fire TV Cube (2nd Generation)](https://www.lifewire.com/thmb/WzC13ETTqm-8PU2bc8-jh9O3G7c=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FireCubeTV_HeroSquare-484d7d80c4354681968a1ff7d19b9676.jpg)
 
 Lifewire/Emily Ramirez
@@ -68,6 +74,9 @@ Lifewire/Emily Ramirez
 
  Lifewire/Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Futuristic design powered by Alexa**
 
  The Fire TV Cube is a cute, futuristic-looking block that will stand out on your home console despite its 4-inch sides. On the outside, it’s virtually unchanged from the first-generation model. Across the top, there’s a blue LED bar that lights up whenever the Cube takes action. The sides of the cube have a glossy black finish that’s a fingerprint magnet. There’s volume and menu buttons on the top, as well, but we don’t foresee a lot of use for them considering that the Cube comes with a remote. In the back, there’s an[HDMI connector](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) , a power adapter port, and a micro USB port.
@@ -82,12 +91,18 @@ Lifewire/Emily Ramirez
 
  My biggest pet peeve with the Cube’s design and features is its accessory bundle. For $120, Amazon could have afforded to throw in an HDMI cable—the $30 Roku Express has one, for instance. If you end up purchasing a Cube, remember to also get an[HDMI cable](https://www.lifewire.com/hdmi-cables-and-connectors-what-you-need-to-know-4685377) . I’ve found Blue Rigger strikes a great balance between affordability and quality, if you need a recommendation.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Setup Process: Some difficulty in getting ready**
 
  Compared to the[Fire TV Stick](https://www.lifewire.com/amazon-fire-tv-stick-4k-review-4691492) , the Cube is a little harder to set up— it doesn’t automatically boot like the Stick, and you need to take into consideration its IR receivers. It must have a clear line of sight to your remote, so place it somewhere you can see it. Additionally, if you want to take advantage of its 4K capabilities, you’ll likely want to use the included Ethernet adapter (and you’ll need to acquire an[Ethernet cable](https://www.lifewire.com/what-is-an-ethernet-cable-817548) ).
 
  Once you have your cables connected and power flowing to the Cube, you now need to go through the software side of setup. It’ll ask you to connect to Internet, pick out some apps/channels, and log into your Amazon account.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ## **Streaming Performance: Fast streaming and almost no buffering**
 
  With a hexa-core processor and an ARM Mali G52-MP2 GPU, the Fire TV Cube is blazing fast. Any trouble streaming 4K content is going to come from your internet connection. When I tested it, content loaded instantly, with little to no buffer time and instant thumbnail loading.
@@ -114,10 +129,16 @@ Lifewire/Emily Ramirez
 
  If you’re interested in a Cube because you love Amazon products and content, you’ll be pleased with Prime’s selection of video. There are many, many shows included with your Prime subscription, a lot of them with a stellar production team. Almost all Amazon originals are filmed in 4K, so you can get the most out of your Cube’s performance capabilities. If you haven’t already, you should watch The Expanse and The Marvelous Mrs. Maisel.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ![Fire TV Cube (2nd Generation)](https://www.lifewire.com/thmb/21Mjfh9xUyCrX05R6TQdh9JX64c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FireCubeTV_02-603b91304a21457c94312ceb97dfcf74.jpg)
 
 Lifewire/Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: On the expensive side**
 
  The Fire TV Cube costs $120, which is frankly a little expensive compared to the Fire TV Stick 4K or an Amazon Echo. However, if you want an Echo that’s also a media player, the Cube is your best option. It comes with excellent performance, control for IoT devices, built-in speaker and mic, and svelte looks. While it’s not the best value streaming device, it’s certainly a versatile and well-featured one.

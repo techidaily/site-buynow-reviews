@@ -1,7 +1,7 @@
 ---
 title: "Sony Xperia 5 Evaluation: Compact Yet Lofty Pricing"
-date: 2024-08-01 14:28:44
-updated: 2024-08-04 11:49:20
+date: 2024-08-03T22:58:43.726Z
+updated: 2024-08-04T22:58:43.726Z
 categories:
   - BestProducts
 description: "This Article Describes Sony Xperia 5 Evaluation: Compact Yet Lofty Pricing"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/41ff678b4dcc101622fd3ddb2b8cccf21c75e6fdb
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## New Bee LC-B41 Bluetooth Earpiece
 
 ![New Bee LC-B41](https://www.lifewire.com/thmb/xwUsYAgIVW9583_9I35ND4f0SsQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NewBee_BluetoothHeadsets_LCB41_HeroSquare-2ff9227981ee4cce88d0dccaf0bae6c7.jpg)
@@ -39,6 +42,9 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## New Bee LC-B41 Bluetooth Earpiece
 
 ![New Bee LC-B41](https://www.lifewire.com/thmb/vZtZ6RDws7OskTiDF9S3BkKxc_4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NewBee_BluetoothHeadsets_LCB41_HeroSquare-2ff9227981ee4cce88d0dccaf0bae6c7.jpg)
@@ -80,6 +86,9 @@ Lifewire / Erika Rawes
 
  The ear cushions are soft and comfortable, and they don’t feel “forced.” Each ear cushion has a loop that helps it stay in the ear, but the loop is flexible, so it doesn’t push against the curves in your ear.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Sound Quality: Better for calls than music**
 
  The New Bee features HD voice and CVC (clear voice capture) 6.0 noise cancellation. The[call quality on the Bluetooth headset](https://www.lifewire.com/what-to-know-about-bluetooth-3134591) is good overall, but I could hear a slight buzzing sound when I turned the headset on full volume. In spite of the slight buzzing and the fact that the microphone sits far away from the mouth when wearing the New Bee, the caller on the other end of the line could still hear my speech clearly through the microphone. I had no issues hearing the caller through the speaker either.
@@ -90,6 +99,10 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ## **Features: Accessories galore**
 
  The New Bee headset is compatible with several different devices, including Apple and Android phones, tablets, laptops, MP3 players, and other[Bluetooth](https://www.lifewire.com/what-is-bluetooth-2377412) \-enabled devices.
@@ -100,6 +113,9 @@ Lifewire / Erika Rawes
 
  New Bee features HD voice and CVC (clear voice capture) 6.0 noise cancellation.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ## **Price: A budget headset under $20**
 
  The price tag is insanely affordable. You can buy the New Bee LC-41 headset for around $17, which is an excellent value considering the battery life and all of the included accessories.
@@ -116,6 +132,9 @@ Lifewire / Erika Rawes
 
  The New Bee LC-41 isn’t perfect, but because it offers so much for so little, most people will be happy with the device.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  LC-B41 Bluetooth Earpiece

@@ -1,7 +1,7 @@
 ---
 title: Excellent Value with the Nokia 7.1 - Top-Notch Screen & Photography at a Budget
-date: 2024-07-29 23:16:36
-updated: 2024-08-01 11:59:32
+date: 2024-08-03T22:58:28.562Z
+updated: 2024-08-04T22:58:28.562Z
 categories:
   - BestProducts
 description: This Article Describes Excellent Value with the Nokia 7.1 - Top-Notch Screen & Photography at a Budget
@@ -69,6 +69,10 @@ thumbnail: https://www.lifewire.com/thmb/iAzainnoXtkQu8O-ZRGaILHjs1o=/400x300/fi
 
  Lifewire / Anton Galang
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ## **Design: An elegant addition to your décor**
 
  At a time when most digital frames are built with a similar black border and a basic tablet-esque design, the Iris is a style-conscious breath of fresh air. The frame I tested rocked a "burnished bronze" finish on its wide metallic border, giving the frame some nice visual pop while staying understated enough to fit in just about anywhere in my home. I imagine the "peach copper" and "silver" variants look equally elegant.
@@ -81,16 +85,25 @@ The Iris is a style-conscious breath of fresh air.
 
  Controlling the Iris and all its settings can be done via the Nixplay mobile app, which includes a virtual remote, but a physical remote is included as well. It's the same remote used by other Nixplay frames, so if you have multiple you can control them all with a single device—at the same time, confusingly, if they're close to each other. Overall, the remote works fine, but its square shape means frustration when you keep picking it up pointed the wrong way without realizing it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ## **Media: Nothing to plug in**
 
  The Iris doesn't support physical media like[USB flash drives](https://www.lifewire.com/best-usb-flash-drives-4141193) or SD cards, which can be a bummer if you already have stored files ready to load. But once you're set up with the web app, depending on your fluency with the software and the extent of your online photo collection, you may find it easier to load your pics from the cloud than to track down and plug in physical memory. With 6.18GB of internal storage available on the frame, there's enough for plenty of photos to cycle through, and it's easy to swap in fresh ones.
 
  Lifewire / Anton Galang​
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ## **Setup Process: Online presence not optional**
 
  The Iris should be relatively painless to set up for people used to working with wireless products and online accounts, but there's no denying it's a more involved process than with offline photo frames. To start, an internet connection is mandatory. After plugging in the frame and a bit of load time, you'll have to enter your Wi-Fi network information using the remote. You also need a Nixplay account to access any of the company's smart frames. Only when you have an account created and paired with your Iris can you start loading pictures and[using your picture frame](https://www.lifewire.com/learning-to-use-digital-photo-frames-492922) . Everything you can do with the app makes it worthwhile, but the setup process does include a few barriers.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ## **Display: Small but sharp**
 
  Going along with the visual appeal of the frame around it, the Iris's display itself is a pleasure to look at. Colors are vibrant and the picture is superb on its[in-plane switching (IPS)](https://www.lifewire.com/definition-of-ips-lcd-578662) panel, with wide viewing angles that let people enjoy it from anywhere in the room. The 8-inch diagonal screen is on the smaller end; visualize it slightly smaller than a 5x7-inch print. Its 1024x768 resolution also isn't the highest you'll find on a digital frame, but at its diminutive size you get enough[pixels per inch](https://www.lifewire.com/how-many-pixels-in-an-inch-4125185) for crisp, clear images.
@@ -111,12 +124,18 @@ The Iris is a style-conscious breath of fresh air.
 
  You can also control the Iris from anywhere with an internet connection. That includes setting up stuff like the vast selection of slideshow transition options, a sleep/wake schedule, or the noise-based activity sensor with ten levels of sensitivity. It's also compatible with[Amazon's Alexa voice assistant](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) , a feature not mentioned during setup but added as part of a recent software update. You can add Nixplay as an[Alexa skill](https://www.lifewire.com/alexa-skills-4126799) , but getting the voice commands to work is a bit cumbersome and may take some patience, practice, and customization.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: Paying for style and substance**
 
  Usually available between $150 and $180, the Iris costs significantly more than a regular offline digital frame, but is worth the cost if you're a fan of its aesthetics and array of modern features.
 
  It’s worth the cost if you're a fan of its aesthetics and array of modern features.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Competition: A prettier face**
 
 **_Nixplay Seed Ultra:_** Sharing the same suite of Nixplay cloud frame features, a lot of distinction between the Iris and the Seed Ultra that we tested comes in terms of design. The large frame on the Iris makes it about the same total size, but the Seed Ultra has a thinner plain black border with a 10-inch screen—slightly pricier for a bigger, higher-res display within a less elegant frame. The Seed Ultra also has a motion sensor, but no automatic brightness sensor.

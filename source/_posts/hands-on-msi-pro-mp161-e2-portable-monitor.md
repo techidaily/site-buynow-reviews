@@ -1,7 +1,7 @@
 ---
 title: "Hands-On: MSI PRO MP161 E2 Portable Monitor"
-date: 2024-07-29 14:35:47
-updated: 2024-08-01 11:26:54
+date: 2024-08-03T22:58:09.596Z
+updated: 2024-08-04T22:58:09.596Z
 categories:
   - BestProducts
 description: "This Article Describes Hands-On: MSI PRO MP161 E2 Portable Monitor"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/3371d97eae392c322e9b82d456ad7eef262a0a211
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Kootek Laptop Cooling Pad
 
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/7No_c3E_HUrSqeMtUM6UkfB2e9Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_HeroSquare-6441809b63624fe0a5eeff086503ee26.jpg)
@@ -64,6 +67,11 @@ _We purchased the Kootek Laptop Cooling Pad_   _so our reviewer could put it to 
 
  Kootek’s Laptop Cooling Pad isn’t the cheapest option around, nor is it the most premium—but it’s effective and sells for a reasonable price, and is large enough to accommodate larger laptops with 17-inch displays. A clunky height adjustment system is the main drawback, but it doesn’t stop the Kootek pad from working as expected.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ## Design: Clunky, but it works
 
  The Kootek Laptop Cooling Pad is a larger unit, measuring nearly 15 inches wide, 11.8 inches tall, and about 1.4 inches thick, with a weight of 2.6 pounds. It’s heavier and bulkier than the lightweight TopMate C302 Cooling Pad, for example, and feels more durable as a result.
@@ -86,10 +94,16 @@ Lifewire / Andrew Hayward
 
  The Kootek Laptop Cooling Pad doesn’t require any software or its own power unit to function. Simply place it under your laptop, adjust the height as desired, and then plug the built-in USB cable into your laptop to power it on. As mentioned, you can control the fans using the buttons at the back of the pad, and the USB ports can be used for additional accessories.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/A5iJ3c7mD8guT4DKXitqb3wlp6I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_03-9ec8e6afd494441f8ae20c38ae1fadbb.jpg)
 
 Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Performance: Cool and quiet
 
  I tested the Kootek Laptop Cooling Pad with the[Razer Blade 15 (2019)](https://www.lifewire.com/razer-blade-15-review-4845229) , featuring an Intel Core i7-9750H processor with 16GB RAM, along with the NVIDIA GeForce GTX 1660 Ti (6GB). It’s a solidly powerful gaming laptop, and I put it to the test with a couple of popular games as well as a graphics benchmark test.
@@ -102,6 +116,10 @@ Lifewire / Andrew Hayward
 
  Meanwhile, I saw a peak internal temperature of 196 degrees when playing Fortnite, along with an external temperature of 118 degrees. With the cooling pad equipped, I saw a slightly lower internal peak of 192 degrees, although it mostly hovered in the 160 to 170-degree range during testing. The external peak with the Kootek pad was 106 degrees. Curiously, I saw the exact same numbers with the Heaven graphics benchmark test with and without the cooling pad: 162 degrees internally and 109 degrees external.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/ppFnQ9kEpjbEV9cYbHzLRI5j-j8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_05-4a4d5ee065a94c3e984ae0c96f4916d8.jpg)
 
 Lifewire / Andrew Hayward
@@ -116,6 +134,9 @@ Lifewire / Andrew Hayward
 
 Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Kootek Laptop Cooling Pad vs. TopMate C302
 
  As mentioned above, the TopMate C302 is a lighter, simpler cooling pad option. It’s designed for laptops up to 15 inches in size and isn’t quite as thick or heavy, but it gets the job done with effective cooling and straightforward design. Kootek’s pad offers an additional USB port for accessories, though, and allows for more height variance than the TopMate’s basic pop-out feet.
@@ -126,6 +147,9 @@ Lifewire / Andrew Hayward
 
  A clunky design makes the Kootek Laptop Cooling Pad a bit awkward in use, but ultimately it does a solid job of cooling hot laptops and accommodating larger-sized devices. The extra USB ports are handy, especially for port-limited laptops, and the price is reasonable.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)

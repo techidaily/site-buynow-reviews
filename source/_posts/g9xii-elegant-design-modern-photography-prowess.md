@@ -1,7 +1,7 @@
 ---
 title: "G9XII: Elegant Design, Modern Photography Prowess"
-date: 2024-07-31 12:48:51
-updated: 2024-08-02 10:52:34
+date: 2024-08-03T22:58:24.151Z
+updated: 2024-08-04T22:58:24.151Z
 categories:
   - BestProducts
 description: "This Article Describes G9XII: Elegant Design, Modern Photography Prowess"
@@ -41,6 +41,9 @@ Lifewire / Benjamin Zeman
 
 ## Canon PowerShot SX530 HS Bundle
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Canon PowerShot SX530](https://www.lifewire.com/thmb/Z5L2j1djFMRpR7xHpEMl6i9s49g=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493499_HeroSquare-94fd3b5124c34d5b823cd1d24d364dfc.JPG)
 
 Lifewire / Benjamin Zeman
@@ -67,6 +70,9 @@ Lifewire / Benjamin Zeman
 
 Lifewire / Benjamin Zeman
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Looks like a mini DSLR**
 
  At 15.59 oz, the Canon PowerShot SX530 weighs in at just under a pound and measures 4.7 x 3.2 x 3.6 inches. This makes it remarkably light for a DSLR-like camera in this class. The SX530 isn’t a true DSLR but borrows design elements from[Canon’s other DSLR cameras](https://www.lifewire.com/best-new-canon-cameras-493499) . Its shape and user interface layout are very similar to Canon’s EOS Rebel series.
@@ -93,6 +99,9 @@ Lifewire / Benjamin Zeman
 
  Lifewire / Benjamin Zeman
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Image Quality: Decent with a great zoom**
 
  The Canon PowerShot SX530 doesn’t have a very powerful image processor and sensor. At 16 megapixels it’s similar to flagship mobile phones like the Samsung Note10\. We weren’t super impressed by the SX530’s image quality but it does perform better in low-light situations, and no smartphone is going to have the powerful zoom capabilities that the SX530 has.
@@ -105,12 +114,18 @@ Lifewire / Benjamin Zeman
 
  Lifewire / Benjamin Zeman
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Features: Powerful image stabilization**
 
  Besides its powerful 50x optical zoom lens, the Canon PowerShot SX530 has Intelligent IS optical image stabilization technology. The camera analyzes the image and its own movement and then applies the best correction method for whatever you are shooting. When taking still images the camera offers Normal, Panning, Macro (Hybrid), and Tripod stabilization modes. When recording video the Dynamic, Powered, Macro (Hyrbid), and Active Tripod modes help to steady whatever you are shooting.
 
  The SX530 also offers both Wi-Fi and NFC sharing features. With Wi-Fi you can get your images off the camera and onto your Android or iOS device using Canon’s mobile app called Camera Connect. You can also use your mobile device as a remote control for the camera. You can change settings and trigger both photos and video recording. The NFC radio capabilities allow Android users to connect to the camera quickly and easily by tapping the two devices together. The camera has a dedicated button used to connect to your compatible devices with just one touch, which we found to be a really nice feature.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ## **Software: Auto modes done right**
 
  The Canon PowerShot SX530 runs on Canon’s own software and although it’s not very feature rich, it’s easy to navigate and has everything a casual user would need. It’s worth reading through the manual to become familiar with all the modes and image stabilization options the camera has. Just looking through the menu options didn’t give us enough information to understand what everything did without the manual.
@@ -119,6 +134,9 @@ Lifewire / Benjamin Zeman
 
  The software allows for Hybrid Auto capture that records up to four seconds of video every time you shoot a photo. Smart Auto detects the type of photo you are shooting, analyzing both your subject and the background, then automatically chooses the best settings. There are many additional shooting modes for situations ranging from simple portraits to more creative filters like fisheye, toy camera, and monochrome effects. It even has settings for shooting snow scenes and fireworks.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## **Price: There are better options**
 
  The Canon PowerShot SX530 is $300 (MSRP) and has a common street price around $250\. This puts it into a lower price range than many other compact DSLR-like alternatives. Canon itself has some alternatives in that price range with very similar specs, and even some that outperform the SX530.

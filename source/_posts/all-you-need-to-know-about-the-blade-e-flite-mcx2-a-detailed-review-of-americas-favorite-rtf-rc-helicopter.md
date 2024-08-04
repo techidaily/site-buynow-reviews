@@ -1,7 +1,7 @@
 ---
 title: All You Need to Know About the Blade E-Flite mCX2 - A Detailed Review of America's Favorite RTF RC Helicopter
-date: 2024-08-02 18:53:18
-updated: 2024-08-05 12:42:38
+date: 2024-08-03T22:58:15.253Z
+updated: 2024-08-04T22:58:15.253Z
 categories:
   - BestProducts
 description: This Article Describes All You Need to Know About the Blade E-Flite mCX2 - A Detailed Review of America's Favorite RTF RC Helicopter
@@ -13,6 +13,10 @@ thumbnail: https://www.lifewire.com/thmb/tR1jJKBwxkt67USHWOapYd5ysK0=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ## Escort Max360 Laser Radar Detector with GPS
 
 ![Escort Max 360 Laser Radar Detector with GPS](https://www.lifewire.com/thmb/bHImXEngi7QSN1OMNbWkeW9b1l8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_Max360_0Herosquare-0cdd5b712ef0409cb0263171b30f3935.jpg)
@@ -39,6 +43,9 @@ Lifewire / Todd Braylor
 
 ## Escort Max360 Laser Radar Detector with GPS
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![Escort Max 360 Laser Radar Detector with GPS](https://www.lifewire.com/thmb/rDfi4btEBU-ni64IstBVGoFaaE0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_Max360_0Herosquare-0cdd5b712ef0409cb0263171b30f3935.jpg)
 
 Lifewire / Todd Braylor
@@ -62,6 +69,18 @@ Lifewire / Todd Braylor
 
  The Escort Max360 is a top of the line radar detector with a wide range of advanced features, including GPS capabilities, 360-degree protection, and IVT filter capabilities. Let’s take a closer look at the true performance of this premiere radar detector.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Big and heavy**
 
  The Escort Max360 is the biggest and heaviest radar detector I've tested. This is probably the first thing you'll notice right out of the box. The model comes with a single suction cup windshield mount that felt secure despite the unit's weight. A magnet secures the mounting arm bracket when latched in place on the radar detector, preventing any tumbles from bumps in the road.
@@ -84,6 +103,10 @@ The biggest and heaviest radar detector I've tested.
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## **Range: Mediocre Ka-band**
 
  The Max360 has a lot of advanced features but some work better than others. Escort’s Autolearn technology features 360 degrees of protection and can detect threats from any angle. The Max360’s display will then show you the signal’s location with directional arrows, which is a great feature and helps with quick identification.
@@ -104,12 +127,19 @@ The biggest and heaviest radar detector I've tested.
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ## **Price: Too expensive**
 
  The Escort Max 360 is quite pricey at $550 MSRP. This is a quality radar detector in terms of user experience, but the overall value is subpar. I appreciate Escort's inclusion of advanced filtering capabilities but the Max360's relatively short range Ka-band detection falls short of expectations for a $500+ product.
 
  This is a quality radar detector in terms of user experience, but the overall value is subpar.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Escort Max 360 Radar Detector vs. Radenso Pro M Radar Detector**
 
  Let's compare the Max 360 to a popular competitor model that's about a hundred bucks cheaper. The Radenso Pro M Radar Detector is a high-end model with an MSRP of $450\. The Pro M is designed with an equivalent level of advanced technology; it features GPS capabilities, IVT filtering, long-range detection, and red light and speed camera alerts. The major difference between these models is user experience. The Radenso Pro M has a stripped-down design with a much cheaper (albeit high-intensity) single color LED display and no mute button on its DC power adapter. If these are the features you think you can live without, this model can save you some cash.

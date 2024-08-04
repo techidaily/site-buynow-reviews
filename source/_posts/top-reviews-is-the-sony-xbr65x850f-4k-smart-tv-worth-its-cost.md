@@ -1,7 +1,7 @@
 ---
 title: "Top Reviews: Is the Sony XBR65X850F 4K Smart TV Worth Its Cost?"
-date: 2024-07-31 14:37:58
-updated: 2024-08-01 10:40:25
+date: 2024-08-03T22:58:18.625Z
+updated: 2024-08-04T22:58:18.625Z
 categories:
   - BestProducts
 description: "This Article Describes Top Reviews: Is the Sony XBR65X850F 4K Smart TV Worth Its Cost?"
@@ -39,8 +39,14 @@ Lifewire: Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Fitbit Charge 3
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Fitbit Charge 3](https://www.lifewire.com/thmb/siHMCWig3n5gEd3WdRW5mz322YE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Fitbit-Charge-3-Fitness-Tracker-1-74249021fe3e48f5b976abb5db6b1e9a.jpg)
 
 Lifewire: Erika Rawes
@@ -65,6 +71,9 @@ Lifewire: Erika Rawes
 
  The Fitbit Charge 3 hit the market in 2018, and now that its successor is available, the Charge 4, you can easily find the Charge 3 on sale. But, how does the Charge 3 stack up against the Charge 4 and other fitness trackers currently on the market? I tested the Fitbit Charge 3 alongside a few other fitness trackers to find how it compares.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Small and large bands included**
 
  The Charge 3 isn’t the slimmest tracker out there. It’s thick and bulky, with a silicone removable band that’s around 0.9 inches wide. On the plus side, you get both a large and small band in the package, so you don’t have to worry about finding the right fit. The Fitbit Charge 3 is one size fits all. Overall, Charge 3 is simple and fashionable, and you can wear it with anything. This is especially true when you purchase replacement bands, which sell on Amazon for less than $10\.
@@ -73,6 +82,9 @@ Lifewire: Erika Rawes
 
  Water-resistant up to 50 meters, the Fitbit is durable and rugged. You can wear it while swimming, showering, and exercising, and it will hold up to the demands of your busy everyday life.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Fitbit Charge 3](https://www.lifewire.com/thmb/Pkww3lP4Jf1AlbLlu-0MNQnavTI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-3-Fitness-Tracker-5-493abee35e9f4528ba0f49f98763be10.jpg)
 
  Lifewire / Erika Rawes
@@ -85,6 +97,9 @@ I found it uncomfortable after long periods of wear.
 
  I found other Fitbit replacement bands more comfortable, like the cloth band and sport band. Even with the replacement bands, the Fitbit Charge 3 isn’t as comfortable as a slimmer fitness tracker like the Garmin Vivosmart 4.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: Reliable sleep and activity tracking**
 
  The Fitbit Charge 3 is solid and reliable, with relatively accurate metrics and an array of useful data and helpful applications. As is the case with other Fitbit units and many other brands of fitness trackers, the step counter tends to overestimate the number of steps taken. It would even occasionally count steps when I would make slight hand movements (typing, washing my hands, etc.) The heart rate monitor is more accurate than other trackers I’ve tested in this price range. It’s typically accurate within five beats per minute when compared to a chest strap.
@@ -99,6 +114,9 @@ I found it uncomfortable after long periods of wear.
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ## **Software: The Fitbit App**
 
  The Fitbit app is comprehensive, and it has many features, including a tracker where you can keep a log of your food and water consumption, access to a number of different workout programs, a sleep analysis, and different communities you can join. You can further enhance the app by purchasing the premium version for $10/month. The premium version gives you additional perks like a fitness coach, additional sleep score details, access to additional programs, and customized tips to help you reach your goals.
@@ -117,10 +135,16 @@ I found it uncomfortable after long periods of wear.
 
  To charge the battery, you clip on a clamp charger and connect it to a USB plug or a computer. It charges quickly and reaches a full charge in about an hour.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ![Fitbit Charge 3](https://www.lifewire.com/thmb/U9Pj2yl-0tWIHYWG_6xWl8ZxX6g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-3-Fitness-Tracker-4-39a78f63143d4f46860f31cad17c841a.jpg)
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: Around $100**
 
  Charge 3 typically sells for $100, which is $50 down from its original retail price of $150\. This is a reasonable price for the device, which offers relatively accurate tracking, durability, and good build quality.

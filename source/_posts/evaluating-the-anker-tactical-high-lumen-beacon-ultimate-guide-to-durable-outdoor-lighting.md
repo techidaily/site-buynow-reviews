@@ -1,7 +1,7 @@
 ---
 title: "Evaluating the Anker Tactical High-Lumen Beacon: Ultimate Guide to Durable Outdoor Lighting"
-date: 2024-08-02 17:31:19
-updated: 2024-08-03 12:55:56
+date: 2024-08-03T22:58:09.533Z
+updated: 2024-08-04T22:58:09.533Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating the Anker Tactical High-Lumen Beacon: Ultimate Guide to Durable Outdoor Lighting"
@@ -39,6 +39,9 @@ thumbnail: https://thmb.techidaily.com/46bc9e67353768ac792e1534a64f3c2875130c736
 
 ## Anker USB 3.0 SuperSpeed 10-Port USB Data Hub
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ![Anker USB 3.0 SuperSpeed 10-Port Hub](https://www.lifewire.com/thmb/pBJOSnO1n_b2MqS-1_5tELF2Z3M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Anker_UsbHubs_4LW4142295_HeroSquare-4e0d4d2c9d45472d9dd2c8f06caed680.jpg)
 
  Lifewire / Jonno Hill
@@ -64,10 +67,16 @@ thumbnail: https://thmb.techidaily.com/46bc9e67353768ac792e1534a64f3c2875130c736
 
  If you need a no-frills solution to your USB port problem, the Anker is a pretty good choice. This straightforward solution does exactly what it sets out to with little fuss. Still, there is competition lurking out there, and some of it is coming from other Anker products. Let’s explore the pros and cons and determine if this is the right choice for your needs.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Anker USB 3.0 SuperSpeed 10-Port Hub](https://www.lifewire.com/thmb/kGkNOMrJekQ_xSVZJ4N4nLG1il0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Anker_UsbHubs_4LW4142295_02-dbb624f3c041432baecfa2701dbc933a.jpg)
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Lots of ports in a standard configuration**
 
  At 1.7 x 5.7 x 0.9 inches HWD), the Anker USB 3.0 SuperSpeed 10-Port Hub is just about as lean as one might reasonably expect for a device with this many ports. The design is relatively simple, featuring a long rectangular shape, rounded edges, and a thick plastic construction. The device feels very light, but it’s not flimsy.
@@ -76,6 +85,9 @@ thumbnail: https://thmb.techidaily.com/46bc9e67353768ac792e1534a64f3c2875130c736
 
  The top of the device includes the ten USB 3.0 ports, the last of which is marked with a charging icon. Each port has a number next to it that illuminates when a device is connected. Above the first port is a power LED to indicate a power connection. Around to the side from this LED is the power port and USB 3.0 type B port.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Anker USB 3.0 SuperSpeed 10-Port Hub](https://www.lifewire.com/thmb/tQ3zuDbd3YhyVxZS3iM0i5RcsOc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Anker_UsbHubs_4LW4142295_03-1167acd92ea14e1db605adf2154e0d60.jpg)
 
  Lifewire / Jonno Hill
@@ -88,10 +100,16 @@ thumbnail: https://thmb.techidaily.com/46bc9e67353768ac792e1534a64f3c2875130c736
 
  The Anker USB 3.0 SuperSpeed 10-Port Hub comes with a USB (A-to-B) cable to connect to your computer. An AC power adapter is included as well, and comes with a sizable power brick. The hub gives users ten USB 3.0 ports, offering a maximum transfer speed of 5Gbps. The charging port delivers more power than the other 9 making it ideal for charging more power hungry devices like phones and tablets.
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Anker USB 3.0 SuperSpeed 10-Port Hub](https://www.lifewire.com/thmb/LqAWiFxZU1YqrVq2KbjQzkz6xMI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Anker_UsbHubs_4LW4142295_04-0c115139eb2842759c6a8ceb22719901.jpg)
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: A few shortcomings**
 
  The Anker USB 3.0 SuperSpeed 10-Port Hub performed as promised in our tests, providing the expected 5Gbps speeds. The first nine ports supply the standard 0.9A of power, whereas the final charging port can supply up to 2.0A. If you neglect to connect the hub to a power source, the entire device will have to share the 0.9A of power supplied by your computer’s USB 3.0 port.
@@ -104,6 +122,9 @@ thumbnail: https://thmb.techidaily.com/46bc9e67353768ac792e1534a64f3c2875130c736
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ## **Price: A little steep for the features**
 
  At a list price of $52.99, the Anker USB 3.0 SuperSpeed 10-Port Hub is a little expensive for what it offers. We would have expected a price of around $10-13 less given the feature set. Anker itself offers cheaper, newer options that stand a good chance at luring shoppers away from this device.

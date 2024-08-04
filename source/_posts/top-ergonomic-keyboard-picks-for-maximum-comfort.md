@@ -1,7 +1,7 @@
 ---
 title: Top Ergonomic Keyboard Picks for Maximum Comfort
-date: 2024-07-30 16:39:35
-updated: 2024-08-01 10:35:31
+date: 2024-08-03T22:58:36.902Z
+updated: 2024-08-04T22:58:36.902Z
 categories:
   - BestProducts
 description: This Article Describes Top Ergonomic Keyboard Picks for Maximum Comfort
@@ -37,6 +37,9 @@ thumbnail: https://www.lifewire.com/thmb/ae8RaGxhezzEqpugk1_Oz8ylJxo=/400x300/fi
 
 4.6
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ## MoKo Universal Foldable Keyboard
 
 [View On Amazon](https://www.amazon.com/MoKo-Universal-Ultra-Thin-Bluetooth-Compatible/dp/B01EHSLFAY/?tag=lifewire-onsite-prod-20&ascsubtag=4780289%7Cn5042862dc88b4247855b5214c266875a05%7CB01EHSLFAY)
@@ -59,6 +62,9 @@ thumbnail: https://www.lifewire.com/thmb/ae8RaGxhezzEqpugk1_Oz8ylJxo=/400x300/fi
 
  Thanks to its compact, foldable design, it’s easy to throw in a purse, backpack, or pocket and take along on any adventure, making it an excellent Bluetooth keyboard for frequent travelers. With a general retail price of about $26, we found it to be well worth the investment during a week’s worth of testing.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ![MoKo Universal Foldable Bluetooth Keyboard](https://www.lifewire.com/thmb/gc10rUCSYdVdK9mjhhhyWwNX5Ns=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Moko_ErgoKeyboards_2LW4147386_02-6aa51e84e0c246f0987efcf9b7a55ffa.jpg)
 
  Lifewire / Emily Isaacs
@@ -73,10 +79,16 @@ thumbnail: https://www.lifewire.com/thmb/ae8RaGxhezzEqpugk1_Oz8ylJxo=/400x300/fi
 
  The hotkeys on the keyboard are located on the top row. These include several excellent built-in functions, such as cut, skipping forward or back in multimedia tracks, pausing music, increasing or decreasing volume, opening a new search, and several others. These are easy to use thanks to the function key on the lower-left hand side of the keyboard. One drawback, however, is the blue color used to identify these built-in functions is somewhat difficult to see in low-light conditions.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Setup Process and Connectivity: Broad Device Compatibility
 
  The MoKo Universal Foldable Bluetooth Keyboard arrives in a small box with the keyboard itself, a small one-year free warranty card, a pamphlet with setup instructions, and a micro USB charging cable. One piece we wish it included is a stand for smartphones. While it’s compatible with them, it’s not very convenient to type on them without one. We’d highly recommend getting a separate stand if you’re considering this keyboard for a smartphone.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ![MoKo Universal Foldable Bluetooth Keyboard](https://www.lifewire.com/thmb/kSFKzJNiMoWHKHqKIec3JqHwGpw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Moko_ErgoKeyboards_2LW4147386_04-0b2a547be6764125ab80c1db9df177bf.jpg)
 
  Lifewire / Emily Isaacs
@@ -87,6 +99,9 @@ thumbnail: https://www.lifewire.com/thmb/ae8RaGxhezzEqpugk1_Oz8ylJxo=/400x300/fi
 
  The MoKo is small—hardly larger than your hand when folded down to its collapsed size.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Battery: Plenty of Juice for Work
 
  The battery life of the MoKo is easy to fall in love with. The MoKo’s charge time is just under two hours and it can support up to 40 hours of uninterrupted work or 30 days of standby time. One added bonus of the keyboard being rechargeable was that we weren’t dependent upon having batteries when the keyboard inevitably ran out of charge. It also has the added benefit of entering a battery-saving mode after sitting idle for 30 minutes, so if you walk away and forget about it, it won’t continue to run out its charge. Reconnecting is easy, too. Simply press any key and, within 30 seconds or less, it’s ready for use.
@@ -99,6 +114,9 @@ thumbnail: https://www.lifewire.com/thmb/ae8RaGxhezzEqpugk1_Oz8ylJxo=/400x300/fi
 
  Lifewire / Emily Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## MoKo Universal Folding Keyboard vs. Jelly Comb B047
 
  The main competition for the MoKo Universal Folding Keyboard is the Jelly Comb B047\. Similar to the MoKo, the Jelly Comb is a foldable, Bluetooth keyboard. At its collapsed size the Jelly Comb is slightly smaller than the MoKo at an impressive 5.58 inches, so it’s just as easy to take along on a trip or adventure. It’s compatible with Android, iOS devices, and Windows. It also encourages your wrist to sit at a neutral, flat position, although it doesn’t employ the same U-shaped design as the MoKo.

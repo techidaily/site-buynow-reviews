@@ -1,7 +1,7 @@
 ---
 title: Expert Analysis of ErgoHead Mats for Steady Standing Desks – A User’s Perspective
-date: 2024-07-30 23:44:46
-updated: 2024-08-02 10:39:58
+date: 2024-08-03T22:58:04.589Z
+updated: 2024-08-04T22:58:04.589Z
 categories:
   - BestProducts
 description: This Article Describes Expert Analysis of ErgoHead Mats for Steady Standing Desks – A User’s Perspective
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/l3lcZFoyS_6034_LA-RAW0vz2ME=/400x300/fi
 
 4.7
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Linksys WRT3200ACM Tri-Stream Gigabit Wi-Fi Router
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/xOfa88ZepYRUnftpwYx2wCdtio8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_HeroSquare-e40aba90df584fa4ad4a1053eeb538e6.jpg)
 
 Lifewire / Benjamin Zeman
@@ -38,8 +44,14 @@ Lifewire / Benjamin Zeman
 
 4.7
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Linksys WRT3200ACM Tri-Stream Gigabit Wi-Fi Router
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/kijZwQ0wg7f3H2i3JR3-uGRi0kg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_HeroSquare-e40aba90df584fa4ad4a1053eeb538e6.jpg)
 
 Lifewire / Benjamin Zeman
@@ -90,10 +102,16 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
  At this point you can choose to click the “Manual Configuration” link in the bottom left corner of the setup welcome page or continue with the default setup. After finishing the initial setup, you get access to the dashboard user interface to configure your router at a more in-depth level. The browser interface on the left has a menu with a number of options. We’ll take a look at those options a little later in the software section since they aren’t part of the basic setup process.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/FS8mMgztL5cutF2feLNI4jorFig=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_03-bc6cced22d1c4e12b578da3f8b644d0c.jpg)
 
  Lifewire / Benjamin Zeman
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## **Connectivity: 3200ACM and MU-MIMO capable**
 
  The Linksys WRT3200ACM is a MU-MIMO Dual-Band Tri-Stream 160 router with 600+2600 Mbps speeds. It’s powered by a 1.8GHz dual-core processor and uses the latest 802.11ac network standards. The 2.4GHz band and 5GHz band run independently of each other, so the router can simultaneously reach theoretical speeds of 600 Mbps on 2.4GHz and a massive 2600 Mbps on the 5GHz band.
@@ -102,6 +120,9 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
  The Linksys WRT3200ACM also has four wired gigabit ethernet ports to directly connect devices like your[gaming console](https://www.lifewire.com/best-gaming-consoles-4154610) or[smart TV](https://www.lifewire.com/best-smart-tvs-4135681) . The[USB 3.0](https://www.lifewire.com/what-is-usb-3-0-2626038) and USB 2.0/eSata ports allow you to connect external storage devices and share things like your video collection across your network. The Linksys WRT3200ACM definitely covered all the connectivity bases that we needed.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Network Performance: Strong 5.4GHz but weak 2.4GHz**
 
  We tested throughput network performance on a Comcast Business plan, utilizing the 5ft/30ft technique, for both 2.4Ghz and 5GHz bands. The Linksys WRT3200ACM performed very well on the 5GHz band and we consistently got an average of 565Mbps at 5ft but a dip to 235Mbps at 30ft. The 2.4GHz band didn’t perform quite as well. We got about 75Mbps at 5ft and only 57Mbps at 20ft.
@@ -154,6 +175,9 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 * [Synology RT2600ac Wi-Fi Router](https://www.lifewire.com/synology-rt2600ac-wi-fi-router-review-4797390)
 * [Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  WRT3200ACM Tri-Stream Gigabit Wi-Fi Router

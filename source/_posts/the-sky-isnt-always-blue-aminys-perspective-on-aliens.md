@@ -1,7 +1,7 @@
 ---
 title: "The Sky Isn't Always Blue: Aminy’s Perspective on Aliens"
-date: 2024-07-31 10:15:13
-updated: 2024-08-01 11:32:23
+date: 2024-08-03T22:58:06.154Z
+updated: 2024-08-04T22:58:06.154Z
 categories:
   - BestProducts
 description: "This Article Describes The Sky Isn't Always Blue: Aminy’s Perspective on Aliens"
@@ -39,6 +39,9 @@ thumbnail: https://thmb.techidaily.com/23c1e788c86a1fe74b0e576c3c163c7e8cc36d0f7
 
 ## Blizzard Entertainment Overwatch (PlayStation 4)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Overwatch](https://www.lifewire.com/thmb/LaUzjpTgwxwFo0-lnntQeRQv-L4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4048739-HeroSquare-3ba39c6bd1cf4c198aed0f978fed3493.jpg)
 
  Lifewire / Kelsey Simon
@@ -64,24 +67,39 @@ thumbnail: https://thmb.techidaily.com/23c1e788c86a1fe74b0e576c3c163c7e8cc36d0f7
 
  Overwatch is a multiplayer, team-based[first-person shooter](https://www.lifewire.com/open-source-first-person-shooter-video-games-2532903) created by Blizzard. It focuses on three classes of heroes―support, damage, and tank―inviting players to focus on specific roles. With strong, slightly cartoony graphics, solid movement and gunplay, Overwatch is a well made and polished game. We played Overwatch on the PC, paying close attention to the plot, gameplay, and graphics.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ![Overwatch](https://www.lifewire.com/thmb/du-WrDnmkBuB234NdyuHGtRpllY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4048739-05-72f565385807492990a1484df4f5fbdc.jpg)
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Setup Process: Simple but requires a download manager**
 
  Overwatch requires you to create an account with Blizzard, and first download the Blizzard game manager. Once you’ve created an account and accomplished this, you’ll be able to download the game itself. This might take a while as the game is fairly large but once complete you’ll be able to jump right in. The main menu will have a lot to look at, such as an option to view the different heroes and read about their abilities, which can be good to do[before you start playing](https://www.lifewire.com/best-maps-in-overwatch-4126097) .
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Overwatch](https://www.lifewire.com/thmb/63laXnJxAlIsqKFf9Iy_Ht61Jfg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4048739-HeroHoriz-f006e20dae19441e8c667f43a4f0f232.jpg)
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Plot: Not provided in the game itself**
 
  Overwatch itself doesn’t have much of a plot built into the game―but Blizzard has released animated shorts to let fans learn more about the game’s backstory. The general plot of the game takes place on a different earth. In the past, something called an “Omnic Crisis” occurred. Humans developed AI (Omnics) which grew into sentience. But when the same people who created these Omnics, started to create killer AI, the people came together to form Overwatch.
 
  Overwatch is a task force created to destroy problematic AI. While this backstory and plot do exist, within the game itself, you don’t really get much of this information. What you’ll see is a variety of super beings who have special abilities, most of which are supported by sci-fi tech. But if you’re interested in knowing it all, be sure to catch up on the animated shorts.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Modes and Competition: A fun and flexible variety of styles and heroes**
 
  Overwatch has a few different game styles you can play. You’ll probably want to try quick play first—and if you’re looking to get into competitive gameplay, you’ll actually be required to play quick play until you reach a certain level. Quick play is the same as competitive, only there is no ranking system, so winning and losing comes with less pressure. That said, Overwatch is still built around measuring how well you do against other players, awarding medals if you do well, and even has a voting system after each map so people can tell you you’re good (or yell at you in chat if you’re doing badly).
@@ -92,6 +110,9 @@ thumbnail: https://thmb.techidaily.com/23c1e788c86a1fe74b0e576c3c163c7e8cc36d0f7
 
  No matter the mode, teams are made up of six heroes. Heroes come in three classes: tank, support, or damage. A good team is important in Overwatch, requiring you to use a mix of each class—a team of all damage isn’t going to be able to live long enough to make much of a break against a team with tanks and healers. It is this idea of team balance that is such a huge part of Overwatch. A lot of that balance comes from players picking the heroes they are strongest with, and you do have some amount of flexibility to change to a different hero should the game warrant it.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Overwatch](https://www.lifewire.com/thmb/geioFj1FYlUVuTIYb9JR3YauwGc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4048739-02-39f6f212190b4762a638be5f9fe9c1bf.jpg)
 
  Lifewire / Kelsey Simon
@@ -106,6 +127,9 @@ thumbnail: https://thmb.techidaily.com/23c1e788c86a1fe74b0e576c3c163c7e8cc36d0f7
 
  Beyond quick play and competitive, there is also an arcade mode, which rotates through different styles of gameplay. This can include capture-the-flag, Lucio ball, mystery heroes, 3 vs. 3 random heroes, and more. Arcade is the least competitive of any of the game modes, but can also be the most unpredictable.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Gameplay: Fun, fast, and balanced**
 
  Whether you’re playing quick play, competitive match-making or arcade, the handling and gunplay in Overwatch is smooth. Movements feel responsive and solid, guns feel accurate, and hero abilities are unique with a direct and immediate impact on gameplay. Blizzard also does their best to keep things fresh, putting out[new heroes and maps](https://www.lifewire.com/best-maps-in-overwatch-4126097) throughout the year, and keeping things balanced between the heroes. If you’re looking for a competitive game with an emphasis on team-play, Overwatch is a very well-made game.

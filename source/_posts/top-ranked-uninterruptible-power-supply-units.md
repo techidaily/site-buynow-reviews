@@ -1,7 +1,7 @@
 ---
 title: Top-Ranked Uninterruptible Power Supply Units
-date: 2024-07-31 19:50:26
-updated: 2024-08-03 12:23:58
+date: 2024-08-03T22:58:14.213Z
+updated: 2024-08-04T22:58:14.213Z
 categories:
   - BestProducts
 description: This Article Describes Top-Ranked Uninterruptible Power Supply Units
@@ -40,8 +40,14 @@ Lifewire / Jeremy Laukkonen
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## APC 600VA UPS BE600M1 Battery Backup
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![APC Back-UPS Battery Backup & Surge Protector with USB Charger](https://www.lifewire.com/thmb/FsLpJPrek0LDocpkloen4zKAWyg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_APC-UPS-600VA-Battery-Backup-Surge-Protector-1-e25fa239705945188d327ef0c206a563.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -81,6 +87,9 @@ Lifewire / Jeremy Laukkonen
 
  The outlets are all easy to reach, and the unit can fit nicely on an end table or bookshelf if you aren’t using it at your computer desk.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Initial Setup: Hooking up the battery is a little tricky**
 
  The BE600M1 comes with the battery disconnected for what I assume are safety reasons, although I’ve used plenty of UPS units that come already plugged in and ready to go. It’s a minor inconvenience, but your mileage will vary depending on how much trouble you have fishing out the positive battery lead.
@@ -89,12 +98,18 @@ Lifewire / Jeremy Laukkonen
 
  Once the battery is plugged in and the unit is charged, it’s technically ready to go. You can use the UPS as it stands without connecting it to a computer, although there is some more setup work involved if you decide to install the PowerChute software.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Display: No display**
 
  The BE600M1 doesn’t have a display, and the LED indicators are limited to a fairly bright light that indicates the unit is powered on. If you want any additional information about the state of the UPS, or additional control over its functionality, you need to install the PowerChute software and connect the unit to a computer via USB.
 
  With PowerChute installed, you can check the status of the battery, review a record of past issues like blackouts and electrical noise, choose to silence the power alarm at night, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Sockets and Ports: Nice number of outlets**
 
  The APC Back-UPS BE600M1 features a total of seven three-pronged power outlets, which is a significant improvement over the older BGE90M. Five of the outlets are both surge protected and battery backed up, while two only provide surge protection. That’s a really good mix, as a lot of UPS units provide battery backup on half or even fewer of their outlets.
@@ -107,6 +122,23 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ## **Battery: Good capacity for the size**
 
  This is a 330 watt/600VA UPS, but those numbers all refer to the ability of the UPS to put out power, not the storage capacity when the power goes out. The actual battery in this device is rated at 66 Volt-Amp-Hours, and you can get a replacement from APC that’s rated at a slightly higher 78 Volt-Amp-Hours.
@@ -131,6 +163,9 @@ Lifewire / Jeremy Laukkonen
 
  Since the BE600M1 includes a large number of outlets, including two that aren’t connected to the battery, just using the charger that came with your device will almost always provide superior results. The battery itself isn’t big enough to provide a whole lot of charge when the power is out, but the UPS itself is capable of providing enough wattage to satisfy even the most demanding of high wattage USB chargers.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Decent price for what you get**
 
  With an MSRP of $75 and actual pricing that is typically much lower, the APC Back-UPS BE600M1 represents a fairly good value. This unit is usually available in the $40 to $60 range, and it’s a fantastic deal at the low end of that scale. You can find slightly cheaper units that provide a similar amount of backup power, but not with this many outlets and a USB charging port.

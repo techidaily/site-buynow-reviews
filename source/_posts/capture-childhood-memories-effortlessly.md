@@ -1,7 +1,7 @@
 ---
 title: Capture Childhood Memories Effortlessly
-date: 2024-07-30 15:31:52
-updated: 2024-08-01 11:15:14
+date: 2024-08-03T22:58:07.213Z
+updated: 2024-08-04T22:58:07.213Z
 categories:
   - BestProducts
 description: This Article Describes Capture Childhood Memories Effortlessly
@@ -13,6 +13,11 @@ thumbnail: https://www.lifewire.com/thmb/ZidOtK5MwmJvMJHX25UffB7PUvI=/400x300/fi
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ## TP-Link Deco P9 Hybrid Mesh WiFi System
 
 ![TP-Link Deco](https://www.lifewire.com/thmb/mwnSZX-y0iHxAEP3l5ftTT9udk4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_TP-Link-Deco-P9-Mesh-Wifi-1-23cc25aa00f3430b83ff0340b920773a.jpg)
@@ -36,6 +41,9 @@ Lifewire / Andy Zahn
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## TP-Link Deco P9 Hybrid Mesh WiFi System
 
 ![TP-Link Deco](https://www.lifewire.com/thmb/WZYnF7YQLQF-DCDfMJj9b7oam0s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_TP-Link-Deco-P9-Mesh-Wifi-1-23cc25aa00f3430b83ff0340b920773a.jpg)
@@ -67,10 +75,16 @@ Lifewire / Andy Zahn
 
  It’s not perfect though; the solid plastic walls of the router nodes trap heat, so the system gets quite hot. I had my three units running for a few weeks, and though it was never actually dangerous, it was worrying, and a device that overheats may experience a decreased lifespan.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ![TP-Link Deco](https://www.lifewire.com/thmb/hQrZfiOB9gvTAZ0DCbazOfIA5Mo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link-Deco-P9-Mesh-Wifi-3-8aced2245e2243509bc5a32a6dca49cc.jpg)
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup process: Remarkably streamlined**
 
  After plugging in each of the Deco P9 units, I downloaded the TP-Link Deco app to continue the setup process. The included instruction booklet contains little more than a key for deciphering the color-coded lights on the device and a message telling you to download the app. After setting up a TP-Link account, the app guided me through the setup process with clear instructions that made getting my 3 units up and running a breeze.
@@ -79,6 +93,9 @@ Lifewire / Andy Zahn
 
  The only hiccup occurred when I set up the third and final unit. For some reason this caused the second unit to disconnect. Fortunately, the troubleshooting menu built into the app helped me to quickly solve the issue. Overall, this was one of the most painless network setup processes I have ever encountered.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TP-Link Deco](https://www.lifewire.com/thmb/nzwt5K19xY4baIDcJC9aglOpo9k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link-Deco-P9-Mesh-Wifi-2-a1c339e4cb31445982c06a96f7b9e290.jpg)
 
  Lifewire / Andy Zahn
@@ -107,6 +124,18 @@ Lifewire / Andy Zahn
 
  With an MSRP of $229, the Deco P9 provides a robust three-node[mesh Wi-Fi network](https://www.lifewire.com/what-is-a-mesh-network-4842178) at a very reasonable price point. Though it’s pricier than your average ISP-provided router, if you have a large, multi-story home it’s certainly worth the extra expense. For buildings with very thick walls, the powerline signal transmission capability of the Deco P9 adds a whole extra level of value to the system.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **TP-Link Deco P9 vs. Razer Portal**
 
  The TP-Link Deco P9 is great for large homes in neighbors without too many competing for Wi-Fi networks. However, the Razer Portal is a better choice if you’re looking for top performance in an area with a lot of interference from your neighbor's routers. It’s also significantly cheaper and can be used on its own or expanded into a mesh network with additional units. It’s worth noting, though, that the Deco P9 has a much slimmer profile than the Razer Portal, and is easier to place on a table or shelf.
@@ -117,6 +146,9 @@ Lifewire / Andy Zahn
 
  The TP-Link Deco P9 might be the least troublesome router to set up and control that I have ever used. On top of that, this mesh network is large and powerful enough to provide strong and consistent internet throughout even the largest homes.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Deco P9 Hybrid Mesh WiFi System

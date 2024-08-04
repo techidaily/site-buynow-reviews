@@ -1,7 +1,7 @@
 ---
 title: "Restrictive Covenant Conundrums in the Smith Vs. Jones Dispute: Balancing Historical Precedents with Modern Neighborhood Design"
-date: 2024-07-31 13:33:12
-updated: 2024-08-01 11:28:58
+date: 2024-08-03T22:58:18.056Z
+updated: 2024-08-04T22:58:18.056Z
 categories:
   - BestProducts
 description: "This Article Describes Restrictive Covenant Conundrums in the Smith Vs. Jones Dispute: Balancing Historical Precedents with Modern Neighborhood Design"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/fd5c5fb492328cdc04de64e70980911350de51156
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Roku Express
 
  What We Like
@@ -55,10 +58,16 @@ thumbnail: https://thmb.techidaily.com/fd5c5fb492328cdc04de64e70980911350de51156
 
  With the ubiquity of[smart TVs](https://www.lifewire.com/best-smart-tvs-4135681) preloaded with premium streaming apps, what’s the purpose of[streaming devices](https://www.lifewire.com/best-devices-to-buy-for-streaming-tv-4061016) like the Roku Express? When you tune in to the Express, you get access to thousands of free and premium shows you may never have discovered on the choice few apps of your smart TV, or on the same reruns that show up on your cable subscription. If you’re afraid of leaving cable, know that many primetime shows are on some streaming platform out there, and for much less money. You can get started with a $30 streaming device and a $10 subscription.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ![Roku Express](https://www.lifewire.com/thmb/5BliKk_HCRh9uM25VqPW6CH1Aeo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Roku_HeroHoriz-d20f17de8595463eb5e4bdf55a2f3387.jpg)
 
  Lifewire/Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Small and easy to position**
 
  The Roku Express is a small package consisting of a palm-sized remote and the actual streaming box, which is half that size. It comes along with a power brick and micro USB to power the box, a battery for the remote, a two-foot HDMI cable, and an adhesive strip to stick your box to, say, the bottom of your television.
@@ -81,6 +90,9 @@ thumbnail: https://thmb.techidaily.com/fd5c5fb492328cdc04de64e70980911350de51156
 
  If you want to restrict the ability to download apps or make purchases on the Express, it’s easy to do so. Roku lets you set up a PIN that you’ll need to enter every time you try to download or buy something, which should deter your children or pets from buying anything without your permission.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Streaming Performance: Solid 1080p content, but long buffer times**
 
  For $30, the Roku Express delivers[1080p content](https://www.lifewire.com/720p-1080i-1080p-explained-3276378) to your TV. The 2019 model has the same specs as the 2018 model, but it consumes less power (so little that you can power it from your TV directly).
@@ -89,10 +101,16 @@ thumbnail: https://thmb.techidaily.com/fd5c5fb492328cdc04de64e70980911350de51156
 
  However, we didn’t have any crashing issues with the Roku Express, and while slow, performance was smooth. Videos and channels did load, eventually. It’s a budget streamer with patient performance, but it’s serviceable if you can’t spend an extra twenty dollars on a more upgraded streamer.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ![Roku Express](https://www.lifewire.com/thmb/Kfml_LPtHefv5s-BdnKptfzmw3s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Roku_02-a744cef9b4b14025bcd288fca6b25f11.jpg)
 
  Lifewire/Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: One of the easiest to navigate**
 
  Roku Express runs with the same Roku interface as its more expensive cousins, and it’s well-loved for a reason. Compared to Fire TV, Chromecast, and[Apple TV](https://www.lifewire.com/what-is-apple-tv-1994193) , Roku has the widest selection of apps available, and it doesn’t favor one streaming service over another.

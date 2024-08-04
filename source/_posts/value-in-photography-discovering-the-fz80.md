@@ -1,7 +1,7 @@
 ---
 title: Value in Photography - Discovering the FZ80
-date: 2024-08-01 23:47:46
-updated: 2024-08-02 12:36:27
+date: 2024-08-03T22:58:45.716Z
+updated: 2024-08-04T22:58:45.716Z
 categories:
   - BestProducts
 description: This Article Describes Value in Photography - Discovering the FZ80
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/P0Z-EiIsLrbIygF_tvrq0-blP1k=/400x300/fi
 
  We recommend buying the[Fujifilm Instax Mini 11](https://www.amazon.com/dp/B085286JCJ?linkCode=ogi&th=1&ascsubtag=6753002%7Cn12478a107f3648588d94d063fc7da8f321%7C&tag=lifewire-onsite-prod-20) since it's a great deal and easy to use. We also like the[Polaroid Now I-Type Instant Camera](https://www.amazon.com/dp/B08W9LHG4N?linkCode=ogi&th=1&ascsubtag=6753002%7Cn12478a107f3648588d94d063fc7da8f321%7C&tag=lifewire-onsite-prod-20) because it offers full-size prints and that classic Polaroid look.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ### Why Trust Us
 
  I've been a freelance writer and photographer since 2017 and have shot everything from street scenes to sports. I've used brands from Nikon to Canon and beyond, mirrorless and DSLR systems, and shot analog film. My professional photo clients include universities, local businesses, and people who need a good headshot. As a writer, I've also researched various tech products to compile best-of lists, from DSLRs to photo printers to camera straps—[John Bogna](https://www.lifewire.com/john-bogna-5705941) .
@@ -58,6 +61,9 @@ Lifewire/John Bogna
 * **Who else recommends it?** [The Verge](https://www.theverge.com/23133103/best-instant-cameras-fujifilm-polaroid-kodak) and[TechRadar](https://www.techradar.com/reviews/fujifilm-instax-mini-11) both recommend the Fujifilm Instax Mini 11.
 * **What do buyers say?** 84% of Amazon reviewers rate this camera five stars from an average of over 23,000 reviews.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bigger Prints
 
 [Polaroid Now I-Type Instant Camera](https://www.walmart.com/ip/Polaroid-Originals-Now-i-Type-Instant-Film-Camera-Black-and-White/577526457)
@@ -99,12 +105,18 @@ Lifewire/John Bogna
 
 Lifewire/John Bogna
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## Or Maybe These?
 
 * **I want Bluetooth.** The[Fujifilm Instax Mini Evo Instant Film Camera](https://www.amazon.com/Fujifilm-Instax-Mini-Instant-Camera/dp/B0C6D6GL2Q?tag=lifewire-onsite-prod-20&ascsubtag=6753002%7Cn12478a107f3648588d94d063fc7da8f321%7C) has all the cool stuff you get with the Mini 11, Bluetooth, and a preview screen.
 * **What about color filters?** The[Polaroid Now+](https://www.amazon.com/dp/B09CQFRKD7?tag=lifewire-onsite-prod-20&ascsubtag=6753002%7Cn12478a107f3648588d94d063fc7da8f321%7C) has all the features of the Polaroid Now and adds a Bluetooth-connected app and a pack of color filters.
 * **Is there an instant camera that offers more than one print size?** The[Fujifilm Instax Wide 300](https://www.amazon.com/Fujifilm-Instax-Wide-300-Instant/dp/B00TGOWK3Q?tag=lifewire-onsite-prod-20&ascsubtag=6753002%7Cn12478a107f3648588d94d063fc7da8f321%7C) is an excellent instant camera that outputs small prints and photos two times as wide.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ## How We Test and Rate Instant Cameras
 
  Each camera was evaluated in the following categories:
@@ -117,6 +129,9 @@ Lifewire/John Bogna
 
  Considering these factors, I tested each camera in multiple situations, from indoor portrait shoots to bright daylight to dusk.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Instant Cameras We Tested
 
 * Canon IVY CLIQ 2
@@ -168,6 +183,9 @@ Lifewire/John Bogna
 
  You'll want to consider the price of each type of film, as some will be more expensive than others and add to the overall price of whatever camera you select. If you're working on a budget, find a film that delivers the look you want without costing too much per shot.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Controls and Ergonomics
 
  Look for a lightweight camera with controls that are easy to access when taking a photo and a design that won't get in the way. The shutter button should be unobtrusive and easy to reach, as should any other relevant controls like the flash switch or self-timer.

@@ -1,7 +1,7 @@
 ---
 title: The Best Radio Gear for Police in '24
-date: 2024-07-30 20:21:15
-updated: 2024-08-01 11:49:29
+date: 2024-08-03T22:58:10.191Z
+updated: 2024-08-04T22:58:10.191Z
 categories:
   - BestProducts
 description: This Article Describes The Best Radio Gear for Police in '24
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/zevf7E2ATXxSN1Qvq0BegHrnbp0=/540x405/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ## New Bee LC-B41 Bluetooth Earpiece
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![New Bee LC-B41](https://www.lifewire.com/thmb/xwUsYAgIVW9583_9I35ND4f0SsQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NewBee_BluetoothHeadsets_LCB41_HeroSquare-2ff9227981ee4cce88d0dccaf0bae6c7.jpg)
 
 Lifewire / Erika Rawes
@@ -41,6 +47,9 @@ Lifewire / Erika Rawes
 
 ## New Bee LC-B41 Bluetooth Earpiece
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![New Bee LC-B41](https://www.lifewire.com/thmb/vZtZ6RDws7OskTiDF9S3BkKxc_4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NewBee_BluetoothHeadsets_LCB41_HeroSquare-2ff9227981ee4cce88d0dccaf0bae6c7.jpg)
 
 Lifewire / Erika Rawes
@@ -72,6 +81,9 @@ Lifewire / Erika Rawes
 
  There are three hard button controls on the New Bee, which are ideally located for the easiest possible access. On one side sits a physical on and off slider switch, and the other side has a volume control switch. The brand name “New Bee” is printed along the front of the glossy surface, and you press on the front glossy surface of the headset to answer and end calls. Since the call button is so large, it’s easier to answer a call while you’re performing other tasks.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ## **Comfort: Wears well for long periods**
 
  The New Bee LC-41 is lightweight and comfortable to wear for long time periods, but it’s more comfortable without the addition of the ear hook. If you’re not partaking in heavy activity, the New Bee stays in the ear pretty well, but if you’re going to the gym or going for a run, you’ll want the added support of the ear hook.
@@ -80,6 +92,9 @@ Lifewire / Erika Rawes
 
  The ear cushions are soft and comfortable, and they don’t feel “forced.” Each ear cushion has a loop that helps it stay in the ear, but the loop is flexible, so it doesn’t push against the curves in your ear.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Sound Quality: Better for calls than music**
 
  The New Bee features HD voice and CVC (clear voice capture) 6.0 noise cancellation. The[call quality on the Bluetooth headset](https://www.lifewire.com/what-to-know-about-bluetooth-3134591) is good overall, but I could hear a slight buzzing sound when I turned the headset on full volume. In spite of the slight buzzing and the fact that the microphone sits far away from the mouth when wearing the New Bee, the caller on the other end of the line could still hear my speech clearly through the microphone. I had no issues hearing the caller through the speaker either.
@@ -116,6 +131,9 @@ Lifewire / Erika Rawes
 
  The New Bee LC-41 isn’t perfect, but because it offers so much for so little, most people will be happy with the device.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  LC-B41 Bluetooth Earpiece

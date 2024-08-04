@@ -1,7 +1,7 @@
 ---
 title: Bluetooth-Enabled MoKo Collapsible Keyboard for On-the-Go Typists
-date: 2024-07-31 19:47:40
-updated: 2024-08-03 12:54:27
+date: 2024-08-03T22:58:05.817Z
+updated: 2024-08-04T22:58:05.817Z
 categories:
   - BestProducts
 description: This Article Describes Bluetooth-Enabled MoKo Collapsible Keyboard for On-the-Go Typists
@@ -13,6 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/wHZ-ZuGaBn8D_tIZ9YtAursona4=/400x300/fi
 
 4.6
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## MoKo Universal Foldable Keyboard
 
  What We Like
@@ -63,6 +66,9 @@ thumbnail: https://www.lifewire.com/thmb/wHZ-ZuGaBn8D_tIZ9YtAursona4=/400x300/fi
 
  Lifewire / Emily Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Design: Small, Compact, and Light
 
  Unlike traditional, full-size ergonomic keyboards, the MoKo is small—hardly larger than your hand when folded down to its collapsed size. Extended out, it’s only about a foot in length. It’s perfect for tossing in a purse, backpack,[laptop bag](https://www.lifewire.com/best-laptop-bags-to-buy-4072282) , or pocket and taking along on any commute or adventure. Better yet, thanks to a convenient magnet along the edges of the frame, there’s no fear of it accidentally opening up and being damaged in transit. The soft-grip back not only offers additional protection but also ensures that it’s not likely to shift on any surface upon which you’re typing. With these combined features, it’s a wonderful little travel companion.
@@ -77,6 +83,13 @@ thumbnail: https://www.lifewire.com/thmb/wHZ-ZuGaBn8D_tIZ9YtAursona4=/400x300/fi
 
  The MoKo Universal Foldable Bluetooth Keyboard arrives in a small box with the keyboard itself, a small one-year free warranty card, a pamphlet with setup instructions, and a micro USB charging cable. One piece we wish it included is a stand for smartphones. While it’s compatible with them, it’s not very convenient to type on them without one. We’d highly recommend getting a separate stand if you’re considering this keyboard for a smartphone.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ![MoKo Universal Foldable Bluetooth Keyboard](https://www.lifewire.com/thmb/kSFKzJNiMoWHKHqKIec3JqHwGpw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Moko_ErgoKeyboards_2LW4147386_04-0b2a547be6764125ab80c1db9df177bf.jpg)
 
  Lifewire / Emily Isaacs
@@ -91,14 +104,28 @@ thumbnail: https://www.lifewire.com/thmb/wHZ-ZuGaBn8D_tIZ9YtAursona4=/400x300/fi
 
  The battery life of the MoKo is easy to fall in love with. The MoKo’s charge time is just under two hours and it can support up to 40 hours of uninterrupted work or 30 days of standby time. One added bonus of the keyboard being rechargeable was that we weren’t dependent upon having batteries when the keyboard inevitably ran out of charge. It also has the added benefit of entering a battery-saving mode after sitting idle for 30 minutes, so if you walk away and forget about it, it won’t continue to run out its charge. Reconnecting is easy, too. Simply press any key and, within 30 seconds or less, it’s ready for use.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## Price: Highly Affordable
 
  Travel-size ergonomic keyboards generally retail for anywhere from $20-$50\. The MoKo retails for around $27 on Amazon. With its low price point, compact build, excellent portability, and great battery life, it’s well worth the price for commuters and frequent flyers who have limited space.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
 ![MoKo Universal Foldable Bluetooth Keyboard](https://www.lifewire.com/thmb/_ZZ5LMz0jlm5vldVU2UTdDoXbeA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Moko_ErgoKeyboards_2LW4147386_05-fc37bb4154314025a1a1bfae6c6f5e24.jpg)
 
  Lifewire / Emily Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## MoKo Universal Folding Keyboard vs. Jelly Comb B047
 
  The main competition for the MoKo Universal Folding Keyboard is the Jelly Comb B047\. Similar to the MoKo, the Jelly Comb is a foldable, Bluetooth keyboard. At its collapsed size the Jelly Comb is slightly smaller than the MoKo at an impressive 5.58 inches, so it’s just as easy to take along on a trip or adventure. It’s compatible with Android, iOS devices, and Windows. It also encourages your wrist to sit at a neutral, flat position, although it doesn’t employ the same U-shaped design as the MoKo.
