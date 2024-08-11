@@ -1,7 +1,7 @@
 ---
 title: Manning's Equation Uses Hydraulic Radius to Calculate Velocity and Discharge in Open Channels.
-date: 2024-08-03T22:59:05.175Z
-updated: 2024-08-04T22:59:05.175Z
+date: 2024-08-10T23:42:12.612Z
+updated: 2024-08-11T23:42:12.612Z
 categories:
   - BestProducts
 description: This Article Describes Manning's Equation Uses Hydraulic Radius to Calculate Velocity and Discharge in Open Channels.
@@ -191,3 +191,75 @@ Lifewire / Andrew Hayward
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-reviews.techidaily.com/7-days-to-die-reborn-how-the-developers-facelifted-zombies-for-an-exciting-sandbox-adventure/"><u>'7 Days to Die' Reborn: How the Developers Facelifted Zombies for an Exciting Sandbox Adventure!</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-thorough-examination-an-in-depth-review-of-gecata-log/"><u>[New] 2024 Approved  Thorough Examination  An In-Depth Review of Gecata Log</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-optimized-approach-to-delete-unwanted-youtube-posts/"><u>[New] Optimized Approach to Delete Unwanted YouTube Posts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-websites-for-downloading-copyright-free-gaming-music/"><u>[Updated] 2024 Approved  Websites for Downloading Copyright -Free Gaming Music</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-explore-11-budget-friendly-title-generators-for-yt-for-2024/"><u>[Updated] Explore 11 Budget-Friendly Title Generators for YT for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-quick-guide-personalized-youtube-shorts-images-without-hassle/"><u>[Updated] Quick Guide  Personalized YouTube Shorts Images Without Hassle</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-rotation-revelation-manual-transform-your-visual-content-on-social-media-sites-for-2024/"><u>[Updated] The Rotation Revelation Manual  Transform Your Visual Content on Social Media Sites for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-expert-tips-for-penning-engaging-vlogger-scripts/"><u>2024 Approved  Expert Tips for Penning Engaging Vlogger Scripts</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-guide-to-the-best-auto-tracking-cameras/"><u>2024 Approved  Guide to the Best Auto Tracking Cameras</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-timeless-telephony-a-compilation-of-calls/"><u>2024 Approved  Timeless Telephony  A Compilation of Calls</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-most-effective-wi-fi-network-boosters-a-comprehensive-review/"><u>2024'S Most Effective Wi-Fi Network Boosters: A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-top-choices-in-enhancing-your-wi-fi-coverage/"><u>2024'S Top Choices in Enhancing Your Wi-Fi Coverage</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>3 Ways to Change Location on Facebook Marketplace for Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/5-highly-rated-power-converters-to-look-out-for-ecofriendlytech/"><u>5 Highly Rated Power Converters to Look Out for #EcoFriendlyTech</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-nhl-2019s-compelling-internet-game-dynamics/"><u>A Closer Look at NHL 2019'S Compelling Internet Game Dynamics</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-guide-to-vyncs-analytics-suite-trustworthy-features-met-with-convoluted-payment-plans/"><u>A Comprehensive Guide to Vyncs Analytics Suite: Trustworthy Features Met with Convoluted Payment Plans</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/a-deep-dive-into-zdsoft-recorder-features-for-2024/"><u>A Deep Dive Into ZDSoft Recorder Features for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-taste-of-sophistication-exploring-the-skagen-falster-2-as-an-upscale-alternative-to-apples-offerings/"><u>A Taste of Sophistication: Exploring the Skagen Falster 2 as an Upscale Alternative to Apple's Offerings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/acurite-pro-weather-station-01036m-review-simple-setup-robust-design/"><u>AcuRite Pro Weather Station 01036M Review: Simple Setup, Robust Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-caixun-75/"><u>Affordable Caixun 75</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-excellence-with-asus-chromebook-flip-c3e-ca-a-comprehensive-review/"><u>Affordable Excellence with Asus Chromebook Flip C3e CA: A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-mobvoi-ticwatch-e2-analysis-bargain-price-vs-quality-concerns/"><u>Affordable Mobvoi TicWatch E2 Analysis: Bargain Price vs Quality Concerns</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722798619303-affordable-portable-electric-car-chargers-discover-why-powerdrive-is-the-best-option-in-this-comprehensive-guide/"><u>Affordable Portable Electric Car Chargers - Discover Why PowerDrive Is the Best Option in This Comprehensive Guide!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-truckers-audio-companion-bluetooth-hearing-device-explored/"><u>Affordable Truckers' Audio Companion: Bluetooth Hearing Device Explored</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/all-in-one-tech-on-your-wrist-in-depth-analysis-of-samsung-gear-s3-frontier-features-and-functionality/"><u>All-in-One Tech on Your Wrist: In-Depth Analysis of Samsung Gear S3 Frontier Features and Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazfit-helio-ring-an-insight-into-its-pricing-strategy-market-debut-and-technical-details/"><u>Amazfit Helio Ring - An Insight Into Its Pricing Strategy, Market Debut, and Technical Details</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/at-127-antenna-review-experience-cable-free-viewing-with-elegance/"><u>AT-127 Antenna Review: Experience Cable-Free Viewing with Elegance</u></a></li>
+<li><a href="https://network-issues.techidaily.com/atheros-qca61x4-wi-fi-driver-fix-confirmed-for-windows-11/"><u>Atheros QCA61x4 Wi-Fi Driver Fix Confirmed for Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-roku-reviews-expansive-content-at-wallet-friendly-prices/"><u>Budget-Friendly Roku Reviews: Expansive Content at Wallet-Friendly Prices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/can-the-asus-rt-ac88u-meet-your-gaming-needs-find-out-in-our-in-depth-review/"><u>Can the Asus RT-AC88U Meet Your Gaming Needs? Find Out in Our In-Depth Review!</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/can-you-stream-fb-videos-on-your-living-room-screen-this-year-for-2024/"><u>Can You Stream FB Videos On Your Living Room Screen This Year for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-mobile-experience-expert-opinions-on-the-samsung-galaxy-tab-s4s-versatility-and-performance/"><u>Elevate Your Mobile Experience: Expert Opinions on the Samsung Galaxy Tab S4's Versatility and Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/engaging-with-fortnites-latest-season-an-exciting-new-chapter-in-the-battle-royale-universe/"><u>Engaging with Fortnite's Latest Season: An Exciting New Chapter in the Battle Royale Universe</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhanced-range-with-netgear-nighthawk-x6s-the-ultimate-wifi-booster/"><u>Enhanced Range with Netgear Nighthawk X6S - The Ultimate WiFi Booster</u></a></li>
+<li><a href="https://windows11.techidaily.com/essential-tips-for-restarting-windows-update-process/"><u>Essential Tips for Restarting Windows Update Process</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exclusive-softbox-kit-reviews-photographers-favorites-2024/"><u>Exclusive Softbox Kit Reviews - Photographers' Favorites 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722791997060-extension-headers-in-ipv6-must-be-carefully-managed-and-inspected-as-they-could-potentially-be-exploited-for-malicious-purposes/"><u>Extension Headers in IPv6 Must Be Carefully Managed and Inspected as They Could Potentially Be Exploited for Malicious Purposes</u></a></li>
+<li><a href="https://driver-download.techidaily.com/find-and-get-the-most-recent-intel-iris-gfx-655-driver-for-a-seamless-windows-11-experience/"><u>Find and Get the Most Recent Intel Iris GFX 655 Driver for a Seamless Windows 11 Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/from-dark-fantasy-to-dazzling-display-demons-souls-in-a-graphic-overhaul/"><u>From Dark Fantasy to Dazzling Display - Demon's Souls in a Graphic Overhaul!</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/from-the-heart-a-beginners-guide-to-making-a-valentines-day-video-for-your-loved-one-for-2024/"><u>From the Heart A Beginners Guide to Making a Valentines Day Video for Your Loved One for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/holy-stone-rc-toys-unleashed-top-reviews-and-insights-on-cartoon-inspired-race-cars/"><u>Holy Stone RC Toys Unleashed: Top Reviews and Insights on Cartoon-Inspired Race Cars</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-realme-10t-5g-by-drfone-android/"><u>How to Bypass FRP on Realme 10T 5G?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-asus-rog-phone-7-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Asus ROG Phone 7 Contacts  An Easy Method Explained.</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Motorola G24 Power | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-successfully-bypass-icloud-activation-lock-on-iphone-13-pro-max-by-drfone-ios/"><u>How to Successfully Bypass iCloud Activation Lock on iPhone 13 Pro Max</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-honor-play-40c-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Honor Play 40C to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-samsung-galaxy-m14-4g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Samsung Galaxy M14 4G to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-hot-tiktok-stuff-you-need-to-check-out-in-amazon-deals/"><u>In 2024, Hot TikTok Stuff You Need to Check Out in Amazon Deals</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-12-pro-max-official-method-to-unlock-your-apple-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone 12 Pro Max Official Method to Unlock Your Apple iPhone 12 Pro Max</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-activation-lock-and-icloud-account-from-iphone-6s-plus-by-drfone-ios/"><u>In 2024, How to Unlock iCloud Activation Lock and iCloud Account From iPhone 6s Plus?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-midnight-tales-in-motion-evaluating-parental-choices-for-kids/"><u>In 2024, Midnight Tales in Motion  Evaluating Parental Choices for Kids</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-vlc-analysis-and-substitutes-revisited/"><u>In 2024, VLC Analysis & Substitutes Revisited</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/innovative-morning-ritual-transformation-with-the-heimvision-sunrise-a80s-reviewed/"><u>Innovative Morning Ritual Transformation with the HeimVision Sunrise A80S Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/insightful-review-of-the-mohu-blade-hdtv-antenna-standout-features-and-impressive-indoor-performance/"><u>Insightful Review of the Mohu Blade HDTV Antenna: Standout Features & Impressive Indoor Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-it-time-for-an-ios-17-update/"><u>Is It Time for an iOS 17 Update?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/linkedin-premium-weighing-its-value-proposition-for-professionals/"><u>LinkedIn Premium: Weighing Its Value Proposition for Professionals</u></a></li>
+<li><a href="https://driver-download.techidaily.com/obtain-the-official-samsung-m2020-drivers-without-hassle-free-download-now/"><u>Obtain the Official Samsung M2020 Drivers Without Hassle - Free Download Now!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pod-battle-royale-does-apple-outperform-samsung-in-hearing-tech/"><u>Pod Battle Royale: Does Apple Outperform Samsung in Hearing Tech?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/propella-7s-40-board-unveiled-your-next-affordable-adventure-companion-awaits/"><u>Propella 7S 4.0 Board Unveiled: Your Next Affordable Adventure Companion Awaits!</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-music-after-honor-100-pro-has-been-deleted-by-fonelab-android-recover-music/"><u>Recover your music after Honor 100 Pro has been deleted</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722740216907-take-your-outdoor-viewing-experience-to-new-heights-with-the-55-inch-sealoc-coastal-silver-4k-tv-the-ultimate-guide-and-review/"><u>Take Your Outdoor Viewing Experience to New Heights with the 55-Inch Sealoc Coastal Silver 4K TV - The Ultimate Guide and Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-selection-of-premium-servers-and-rack-systems/"><u>The Ultimate Selection of Premium Servers and Rack Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tp-link-archer-a9-assessment-high-quality-internet-gateway-for-less-than-hundred-dollars/"><u>TP-Link Archer A9 Assessment: High-Quality Internet Gateway for Less Than Hundred Dollars</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/troubleshoot-non-playing-apple-videos/"><u>Troubleshoot Non-Playing Apple Videos</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-lava-blaze-2-pro-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Lava Blaze 2 Pro Screen | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/turning-off-two-factor-authentication-on-apple-iphone-12-pro-5-tips-you-must-know-by-drfone-ios/"><u>Turning Off Two Factor Authentication On Apple iPhone 12 Pro? 5 Tips You Must Know</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/user-review-and-price-breakdown-for-amazonbasics-budget-cross-cut-shredder-6-sheets/"><u>User Review and Price Breakdown for AmazonBasics' Budget Cross-Cut Shredder (6 Sheets)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-pay-for-amazon-prime-discover-3-key-advantages/"><u>Why Pay for Amazon Prime: Discover 3 Key Advantages</u></a></li>
+</ul></div>

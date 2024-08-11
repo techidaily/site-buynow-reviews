@@ -1,7 +1,7 @@
 ---
 title: Additional Paid-In Capital (APIC) = The Amount Paid by Investors Above the Par Value for Shares when They Are Issued.
-date: 2024-08-03T22:58:57.149Z
-updated: 2024-08-04T22:58:57.149Z
+date: 2024-08-10T23:46:43.337Z
+updated: 2024-08-11T23:46:43.337Z
 categories:
   - BestProducts
 description: This Article Describes Additional Paid-In Capital (APIC) = The Amount Paid by Investors Above the Par Value for Shares when They Are Issued.
@@ -209,3 +209,58 @@ thumbnail: https://www.lifewire.com/thmb/nRScZfZVQWaoiNcc0W9_9SRRzv8=/400x300/fi
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-reviews.techidaily.com/mario-on-the-go-exploring-the-iconic-super-mario-bros-version-in-the-original-game-and-watch-format/"><u>'Mario on the Go': Exploring the Iconic Super Mario Bros. Version in the Original Game & Watch Format</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-free-yourself-from-fringe-a-youtube-video-fix-guide/"><u>[New] 2024 Approved  Free Yourself From Fringe  A YouTube Video Fix Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-how-to-change-screenshot-file-formats-on-a-mac/"><u>[New] 2024 Approved  How to Change Screenshot File Formats on a Mac</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-secrets-of-effective-powerpoint-presentation-recordings-for-2024/"><u>[New] Secrets of Effective PowerPoint Presentation Recordings for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-ultimate-youtube-conclusion-handbook-creators-choice/"><u>[New] The Ultimate YouTube Conclusion Handbook [Creators' Choice]</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-lunapic-ultimate-guide-for-professionals/"><u>[Updated] Mastering LunaPic  Ultimate Guide for Professionals</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-perfecting-audio-on-iphone-select-the-best-6-free-software-choices/"><u>[Updated] Perfecting Audio on iPhone  Select the Best 6 Free Software Choices</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-join-the-hilarity-tearfulness-spectacle-of-top-memes-on-ig/"><u>2024 Approved  Join the Hilarity-Tearfulness Spectacle of Top Memes on IG</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-mastering-background-replacement-on-instagrams-platform/"><u>2024 Approved  Mastering Background Replacement on Instagram's Platform</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-xiaomi-redmi-13c-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-guide-to-the-surprises-in-yokus-epic-quest-for-adventure/"><u>A Comprehensive Guide to the Surprises in Yoku's Epic Quest for Adventure</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-wellness-tracking-with-the-fitbit-versa-lite-comprehensive-product-evaluation/"><u>Affordable Wellness Tracking with the Fitbit Versa Lite: Comprehensive Product Evaluation</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/anti-fog-strategies-optimal-gopro-video-quality-for-2024/"><u>Anti-Fog Strategies  Optimal GoPro Video Quality for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-watch-series-9-versus-fitbit-charge-6-a-comparative-review/"><u>Apple Watch Series 9 versus Fitbit Charge 6: A Comparative Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-zenbook-pro-duo-comprehensive-analysis-of-a-large-display-compromise-rich-portable-computer/"><u>Asus ZenBook Pro Duo - Comprehensive Analysis of a Large-Display, Compromise-Rich Portable Computer</u></a></li>
+<li><a href="https://win-able.techidaily.com/boosting-pc-performance-fixing-resident-evil-village-lags-without-compromise/"><u>Boosting PC Performance: Fixing Resident Evil Village Lags Without Compromise</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-the-perfect-wrist-rest-the-best-picks-of-2e4/"><u>Choosing the Perfect Wrist Rest: The Best Picks of 2E4</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-apple-iphone-ses-features-and-performance/"><u>Comprehensive Analysis of the Apple iPhone SE's Features & Performance</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-updated-canon-inkjet-mx340-drivers-for-smooth-operation-on-windows-1187-pcs/"><u>Download Updated Canon Inkjet MX340 Drivers for Smooth Operation on Windows 11/8/7 PCs</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/elevate-your-gameplay-discover-the-top-tier-performance-of-asus-vg245h-monitors-for-consoles/"><u>Elevate Your Gameplay: Discover the Top-Tier Performance of Asus VG245H Monitors for Consoles</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-effortless-reading-in-depth-analysis-of-amazons-latest-kindle-paperwhite-gen/"><u>Experience Effortless Reading: In-Depth Analysis of Amazon's Latest Kindle Paperwhite (Gen )</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-photoscape-ultimate-guide-on-top-rated-free-image-editor/"><u>Expert Analysis: PhotoScape Ultimate Guide on Top-Rated Free Image Editor</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-value-of-acer-aspire-e-15-why-its-a-smart-investment-for-budget-buyers/"><u>Exploring the Value of Acer Aspire E 15: Why It's a Smart Investment for Budget Buyers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fashionable-tech-on-your-wrist-pros-and-cons-of-the-amazfit-gts-smartwatch/"><u>Fashionable Tech on Your Wrist: Pros and Cons of the Amazfit GTS Smartwatch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/has-the-era-of-your-ipads-relevance-passed/"><u>Has the Era of Your iPad's Relevance Passed?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-infinix-smart-7-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Infinix Smart 7 Phone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-locked-out-of-iphone-8-5-ways-to-get-into-a-locked-iphone-8-by-drfone-ios/"><u>In 2024, Locked Out of iPhone 8? 5 Ways to get into a Locked iPhone 8</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-iphone-13-features-performance-and-more/"><u>In-Depth Analysis of iPhone 13: Features, Performance & More</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-hp-omen-obelisk-top-tier-performance-at-an-amazing-cost/"><u>In-Depth Analysis of the HP Omen Obelisk - Top-Tier Performance at an Amazing Cost</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-tp-links-re305-range-extender-a-simple-approach-to-enhanced-connectivity/"><u>In-Depth Review of TP-Link's RE305 Range Extender: A Simple Approach to Enhanced Connectivity</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/inside-track-on-calculating-your-youtube-impact-and-income-for-2024/"><u>Inside Track on Calculating Your YouTube Impact and Income for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-it-worth-the-upgrade-a-comprehensive-guide-to-samsung-galaxy-s24-ultra-and-s23-ultra/"><u>Is It Worth the Upgrade? A Comprehensive Guide to Samsung Galaxy S24 Ultra and S23 Ultra</u></a></li>
+<li><a href="https://win-dash.techidaily.com/keep-your-pc-up-to-date-with-the-newest-rtx-2060-drivers-compatible-with-windows-11/"><u>Keep Your PC Up-To-Date with the Newest RTX 2060 Drivers - Compatible With Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-innovative-smart-spectacles-2024-edition/"><u>Leading Innovative Smart Spectacles - 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/netgear-nighthawk-x10-router-review-the-gateway-to-exceptional-wi-fi-speeds-and-performance/"><u>Netgear Nighthawk X10 Router Review - The Gateway to Exceptional Wi-Fi Speeds and Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/next-level-gaming-experience-awaits-with-the-ultra-efficient-and-creative-corsair-one-pro-pc/"><u>Next-Level Gaming Experience Awaits with the Ultra-Efficient and Creative Corsair One Pro PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reasons-supporting-the-value-of-walmartplus-for-consumers/"><u>Reasons Supporting the Value of Walmart+ for Consumers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-kobo-libra-h2o-the-ultimate-water-resistant-ereader-with-enhanced-user-experience/"><u>Review of Kobo Libra H2O: The Ultimate Water-Resistant eReader with Enhanced User Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/selecting-a-superior-tablet-pc-the-role-of-central-units-inside/"><u>Selecting a Superior Tablet PC: The Role of Central Units Inside</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/simplifying-your-wireless-networks-with-tp-link-deco-p9-a-comprehensive-guide/"><u>Simplifying Your Wireless Networks with TP-Link Deco P9 - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-dos-and-donts-of-graphics-card-upgrades-for-gamers/"><u>The Do's and Don'ts of Graphics Card Upgrades for Gamers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-face-off-between-ring-and-nest-doorbells-which-won-my-approval/"><u>The Ultimate Face-Off Between Ring and Nest Doorbells – Which Won My Approval?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-nokia-nokia-72-showcase-impeccable-display-exceptional-photography-and-competitive-pricing/"><u>The Ultimate Guide to the Nokia Nokia 7.2 Showcase: Impeccable Display, Exceptional Photography, and Competitive Pricing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-review-of-the-syma-s111g-rc-helicopter-your-perfect-low-cost-gadget-for-indoor-fun/"><u>Top Review of the Syma S111G RC Helicopter: Your Perfect Low-Cost Gadget for Indoor Fun</u></a></li>
+<li><a href="https://win-forum.techidaily.com/1722915342597-top-social-networking-sites-exploring-facebook-twitter-instagram-and-youtube/"><u>Top Social Networking Sites: Exploring Facebook, Twitter, Instagram and YouTube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-lightweight-and-economical-propella-7s-40-paddleboard/"><u>Ultimate Guide to the Lightweight and Economical Propella 7S 4.0 Paddleboard</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-why-apples-201n-pad-pro-with-retina-display-reigns-supreme-in-2018/"><u>Ultimate Guide: Why Apple's 201N Pad Pro With Retina Display Reigns Supreme in 2018</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-testing-of-the-samsung-55-inch-ru7300-smart-tv-a-review-for-curved-screen-enthusiasts/"><u>Unboxing and Testing of the Samsung 55-Inch RU7300 Smart TV: A Review for Curved Screen Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unfolding-narratives-in-a-modern-photo-framed-display/"><u>Unfolding Narratives in a Modern Photo Framed Display</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleash-next-level-gaming-why-the-asus-vg245h-is-a-must-have/"><u>Unleash Next-Level Gaming: Why the Asus VG245H Is a Must-Have</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/value-in-photography-discovering-the-fz80/"><u>Value in Photography - Discovering the FZ80</u></a></li>
+</ul></div>

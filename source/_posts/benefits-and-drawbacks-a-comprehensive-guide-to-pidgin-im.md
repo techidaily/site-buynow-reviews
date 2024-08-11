@@ -1,0 +1,219 @@
+---
+title: "Benefits and Drawbacks: A Comprehensive Guide to Pidgin IM"
+date: 2024-08-10T23:50:50.724Z
+updated: 2024-08-11T23:50:50.724Z
+categories:
+  - BestProducts
+description: "This Article Describes Benefits and Drawbacks: A Comprehensive Guide to Pidgin IM"
+excerpt: "This Article Describes Benefits and Drawbacks: A Comprehensive Guide to Pidgin IM"
+thumbnail: https://thmb.techidaily.com/45524aa106a4105324652bc7bc955b6e88f7e35d58f6ea88aa55d127c382693d.jpg
+---
+
+## Ultimate Guide to Kensun Portable Air Compressor: Durability and Mobility Tested
+
+4.2
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
+## Kensun AC/DC Portable Air Pump Tire Inflator
+
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
+![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/NWhMBmuK3pkL9EGvdNCEAF8sWEo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
+
+Lifewire / Jeffrey Daniel Chadwick
+
+ What We Like
+
+* Easy to lift, carry, and store
+* Intuitive controls and connections
+* AC wall plug included
+* Bright built-in LED working light
+
+ What We Don't Like
+
+* Awful cord and hose management
+* Short air hose
+
+ If you want a portable air compressor that will work in the car and your home, the Kensun Portable Tire Inflator is your best choice.
+
+[View On Amazon $100](https://www.amazon.com/Kensun-Performance-Portable-Compressor-Inflator/dp/B01J8Y91GC/?tag=lifewire-onsite-prod-20&ascsubtag=4776821%7Cn7137248c5e6f4b0b979879dcac87fc7908%7CB01J8Y91GC)
+
+4.2
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
+## Kensun AC/DC Portable Air Pump Tire Inflator
+
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
+
+Lifewire / Jeffrey Daniel Chadwick
+
+[View On Amazon $100](https://www.amazon.com/Kensun-Performance-Portable-Compressor-Inflator/dp/B01J8Y91GC/?tag=lifewire-onsite-prod-20&ascsubtag=4776821%7Cn7137248c5e6f4b0b979879dcac87fc7908%7CB01J8Y91GC)
+
+ in this article
+
+ Expand
+
+* [Design and Features](https://getlyla.pxf.io/ek9gkg)
+* [Setup Process](https://cowinaudio.pxf.io/pyx40e)
+* [Performance](https://laganoo.pxf.io/5g6ygn)
+* [Price](https://laganoo.pxf.io/5g6ygn)
+* [Competition](https://atezr.pxf.io/752omg)
+* [Final Verdict](https://bluettide.pxf.io/ekmjb2)
+* [Specs](https://turtlebeacheu.sjv.io/1r0r59)
+
+ _We purchased the Kensun Portable Tire Inflator so our expert reviewer could thoroughly test and assess it. Keep reading for our full product review._
+
+ The Kensun Portable Tire Inflator made a good showing when we tested it. It gets high marks for accuracy, portability, and convenience, but it does fall down in some areas such as storing the air hose and power cable. Nevertheless, it’s a handy, nifty device that delivers the air you need when you need it.
+
+ Lifewire / Jeffrey Daniel Chadwick
+
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
+## **Design and Features: Maximum portability, but not maximum flexibility**
+
+ The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
+
+ Unlike other portable air compressors that draw their power from your car’s[12V socket](https://www.lifewire.com/car-cigarette-lighter-12v-socket-534754) (cigarette lighter) or directly from the battery, the Kensun Portable Tire Inflator gives you the option of connecting it to a standard wall outlet. This makes it a very nice item to have in your garage or basement for the occasion where you have to fill up items such as sporting equipment, party balloons, and inflatable swimming pools.
+
+ The[digital LCD](https://www.lifewire.com/what-is-liquid-crystal-display-lcd-2625913) is small—just 2 inches—but it gives an at-a-glance view of all the info you need to operate the pump. It’s nice, bright, and can be read both in direct sunlight and on dark nights. It displays pressure in PSI (pounds per square inch), BAR (atmospheric pressure), and kPA (kilopascal). If you’re going to use this pump mainly with American cars, you might never use units other than PSI, but it’s very convenient if you ever need to measure pressure in metric or SI (International System of Units).
+
+ The digital LCD is small—just 2 inches—but it gives an at-a-glance view of all the info you need to operate the pump.
+
+ The maximum PSI of this portable tire inflator is 90 PSI. This is more than enough to inflate your car tires, sports equipment, and anything else you need. Most car and truck tires have a recommended PSI between 30 and 32 PSI. The Kensun will get the job done, but other car air compressors we tested can reach a maximum of up to 150 PSI.
+
+ This car tire inflator only has a 21-inch air-hose. So you’ll need to place it less than two feet away from the tire you want to inflate. The 10.9-foot power cord gives you some range, but a good deal of it will be running from your dashboard and out your car window. This is about the same hose length you can expect similar products, but it pales in comparison to the Viair 88P Portable Compressor which has a 16-foot air hose.
+
+ The integrated flashlight on the Kensun Portable Tire Inflator is pretty bright and illuminates the pump’s working area well. This also makes it more visible to passing cars if you happened to be filling up on the side of the road late at night.
+
+ One of the more annoying aspects of this portable air compressor is how it stores its cords while not in use. Both the air-hose and 12V adapter cord share one big compartment in the bottom of the pump. This would be fine if there was a clear way to fit them in there. When we received our test unit, we were surprised to see that it looked like the power cord was jammed in with no cable management at all.
+
+ When you do finally get it wrapped up, the pump fits nicely in its included carrying case. It’s made of gore-tex, a fairly durable material, so it can take the punishment of being stored long-term in your trunk, and it’s compact enough that it won’t take up much room.
+
+ Lifewire / Jeffrey Daniel Chadwick
+
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Setup Process: T-minus one minute**
+
+ Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
+
+ Lifewire / Jeffrey Daniel Chadwick
+
+## **Performance: Reliable, accurate, quick and loud**
+
+ When we tested the tire inflator, we took it on a road trip that took us to the states of Nevada, Utah, Idaho, and Wyoming. Along the way, we stopped at rural rest areas and gas stations. In order to use them in the circumstances, they were designed for. Throughout it all, the Kensun Portable Tire Inflator never failed to work when we needed it.
+
+ We timed how long it took the air compressor to inflate back up to the recommended pressure and got an average of 1 minute, 50 seconds.
+
+ We deflated all four tires on our 2014 Kia Rio to 20 PSI—the recommended PSI for that model is 32 PSI, meaning 20 PSI was dangerously low to drive on. We timed how long it took the air compressor to inflate back up to the recommended pressure and got an average of 1 minute, 50 seconds.
+
+ This is a bit longer than the average fill time of the other models we tested like the Viair 88P Portable Compressor pump, which consistently filled our tires in under a minute.
+
+ Any portable tire inflator you use will generate a good deal of noise. Using a decibel meter, we measured how loud this compressor gets while it’s in use. The highest level we recorded was 90 decibels, but it usually hovered at about 88 decibels. That’s not loud enough to damage your hearing, but you’ll have to step away if you want to take a phone call.
+
+ The accuracy was the best of all the air compressors we tested. We compared the air pressure on the digital display with that of a plain pencil-style tire pressure gauge. We found that it was consistently accurate to within a 5 PSI range. Four times more accurate than the 2 PSI range we observed on some other inflators.
+
+ This air compressor can run for about half an hour before you have to cycle it down, and given how quickly it inflates your tires, you’re unlikely to use it that long. However, if you’re using it to inflate multiple objects or larger items, you’ll have to take a periodic break while it cools down.
+
+ This air compressor can run for about half an hour before you have to cycle it down, and given how quickly it inflates your tires, you’re unlikely to use it that long.
+
+ One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
+
+## **Price: A decent buy considering its versatility**
+
+ The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
+
+## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
+
+ The Kensun Portable Tire Inflator is similar to the Jaco Digital Tire Inflator, they have similar cord and hose lengths, and can continually run for about half an hour. But the Kensun is more than twice the size of the Jaco, so it can deliver more power to fill your tires faster. Additionally, the Jaco lacks the ability to plug into an AC socket, so you can only use it in your car.
+
+ But the Jaco does offer some benefits the Kensun doesn’t. Its built-in light is just as bright as the Kensun’s, but it also has the ability to flash hazard signals for oncoming traffic, and even put out an SOS in Morse Code in the event of real emergencies. Plus, its small form factor makes it much easier to put away and store.
+
+[Jaco SmartPro Digital Tire Inflator Review](https://www.lifewire.com/jaco-smartpro-digital-tire-inflator-review-4776811)
+
+ Final Verdict
+
+ **A portable tire inflator that can work well in a car or at home.**
+
+ The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
+
+## Specs
+
+* Product Name  AC/DC Portable Air Pump Tire Inflator
+* Product Brand  Kensun
+* Price  $79.99
+* Release Date  July 2016
+* Weight  5 lbs.
+* Product Dimensions  11.8 x 4.3 x 6.7 in.
+* Warranty  2 Years
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-the-techno-conductors-playbook-mastering-windows-pc-for-capturing-live-broadcasts/"><u>[New] In 2024, The Techno Conductor's Playbook  Mastering Windows PC for Capturing Live Broadcasts</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-making-sense-of-typical-podcaster-profits/"><u>[New] Making Sense of Typical Podcaster Profits</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-transform-ordinary-snaps-the-top-10-snapshot-enhancers-apps/"><u>[New] Transform Ordinary Snaps  The Top 10 Snapshot Enhancers Apps</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-translate-speech-to-text-with-ultimate-accuracy-thanks-to-google-for-2024/"><u>[New] Translate Speech to Text with Ultimate Accuracy, Thanks to Google for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-visualizing-the-spectrum-of-curves-in-photoshop/"><u>[Updated] 2024 Approved  Visualizing the Spectrum of Curves in Photoshop</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-freesync-freedom-meets-4k-excellence-in-samsung-ue590/"><u>[Updated] FreeSync Freedom Meets 4K Excellence in Samsung UE590</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-best-14-text-animation-examples/"><u>[Updated] In 2024, Best 14 Text Animation Examples</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-unveiling-hidden-tiktok-ban-criteria/"><u>[Updated] In 2024, Unveiling Hidden TikTok Ban Criteria</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-top-end-video-refresher-resolution-renaissance-for-2024/"><u>[Updated] Top-End Video Refresher  Resolution Renaissance for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/conquer-zombie-apocalypse-as-a-rebel-motorcyclist-in-days-gone-in-depth-critique/"><u>Conquer Zombie Apocalypse as a Rebel Motorcyclist in 'Days Gone': In-Depth Critique</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cutting-edge-insight-on-apple-tv-4k-third-gen-version-assessment/"><u>Cutting-Edge Insight on Apple TV 4K - Third Gen Version Assessment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cutting-edge-razer-blade-stealth-amoultrabook-13-review-surpassing-expectations/"><u>Cutting-Edge Razer Blade Stealth amoUltrabook 13 Review: Surpassing Expectations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/decision-time-choosing-your-champion-apple-tv-4k-or-roku-ultra-unveiled/"><u>Decision Time: Choosing Your Champion – Apple TV 4K or Roku Ultra Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-the-best-value-in-tablets-the-2020-lenovo-tab-m10s-lush-high-definition-view/"><u>Discovering the Best Value in Tablets: The 2020 Lenovo Tab M10's Lush High-Definition View</u></a></li>
+<li><a href="https://extra-information.techidaily.com/dissecting-magixs-visual-archiving-system/"><u>Dissecting MAGIX's Visual Archiving System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insights-into-the-blade-e-flite-mcx2-rc-helicopter-the-prime-pick-in-ready-to-fly-models/"><u>Expert Insights Into the Blade E-Flite mCX2 RC Helicopter - The Prime Pick in Ready-To-Fly Models</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/getting-the-most-out-of-your-money-with-the-fitbit-versa-lite-a-detailed-review/"><u>Getting the Most Out of Your Money with the Fitbit Versa Lite - A Detailed Review</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/guide-on-purging-stored-videos-from-youtube-watchlater/"><u>Guide on Purging Stored Videos From YouTube Watchlater</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-easy-routines-for-capturing-youtube-streams/"><u>In 2024, Easy Routines for Capturing YouTube Streams</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-unveiling-the-secrets-of-fisheye-imaging/"><u>In 2024, Unveiling the Secrets of Fisheye Imaging</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-nintendos-cost-friendly-handheld-converter-the-switch-lite/"><u>In-Depth Look at Nintendo's Cost-Friendly Handheld Converter - The Switch Lite</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-ultimate-microsoft-surface-laptop-4-experience/"><u>In-Depth Look at the Ultimate Microsoft Surface Laptop 4 Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/insiders-take-on-overwatch-thrilling-squad-warfare-with-a-twist-of-fun/"><u>Insider's Take on Overwatch: Thrilling Squad Warfare with a Twist of FUN</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/large-studiofx-softbox-review-robust-brightness/"><u>Large StudioFX Softbox Review: Robust Brightness</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/next-level-gaming-a-detailed-look-at-the-nintendo-switch-lite-vs-oled-comparison/"><u>Next-Level Gaming: A Detailed Look at the Nintendo Switch Lite vs OLED Comparison</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/photonest-frame-prox-top-quality-questionable-value/"><u>PhotoNest Frame ProX: Top Quality, Questionable Value</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pioneer-bdr-xs06-slot-loading-portable-blu-ray-burner-review/"><u>Pioneer BDR-XS06 Slot Loading Portable Blu-Ray Burner Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pros-and-cons-of-lg-k92-with-5g-technology-buy-or-skip/"><u>Pros and Cons of LG K92 with 5G Technology - Buy or Skip?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/protect-your-apple-device-with-these-6-superior-antivirus-apps/"><u>Protect Your Apple Device with These 6 Superior Antivirus Apps</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ps5s-lackluster-launch-title-godfall-an-uninspiring-adventure-in-vain/"><u>PS5's Lackluster Launch Title Godfall: An Uninspiring Adventure in Vain</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-active-smartwatch-review-your-ultimate-health-and-fitness-companion/"><u>Samsung Galaxy Active Smartwatch Review - Your Ultimate Health and Fitness Companion</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/skyrim-on-switch-a-deep-dive-into-an-enthralling-rpg-experience/"><u>Skyrim on Switch: A Deep Dive Into an Enthralling RPG Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smart-shooting-smarter-spending-elph-190-review/"><u>Smart Shooting, Smarter Spending: ELPH 190 Review</u></a></li>
+<li><a href="https://techidaily.com/solutions-to-restore-deleted-files-from-storm-5g-by-fonelab-android-recover-data/"><u>Solutions to restore deleted files from Storm 5G</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/speed-demon-or-photography-flop-a-comprehensive-look-at-the-oneplus-amo-8t/"><u>Speed Demon or Photography Flop? A Comprehensive Look at the OnePlus Amo 8T</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-guide-to-embracing-true-android-on-google-pixel-3a-max-an-in-depth-review/"><u>The Definitive Guide to Embracing True Android on Google Pixel 3A Max: An In-Depth Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-dell-xps-13-7390-convertible-laptop-exquisite-design-meets-versatile-functionality-in-an-ultrabook-package/"><u>The Dell XPS 13 7390 Convertible Laptop - Exquisite Design Meets Versatile Functionality in an Ultrabook Package</u></a></li>
+</ul></div>
