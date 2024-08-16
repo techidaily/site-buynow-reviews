@@ -1,0 +1,194 @@
+---
+title: "Prime Day Specials: Save Big on Popular Samsung Gadgets Today"
+date: 2024-08-15T09:32:43.714Z
+updated: 2024-08-16T09:32:43.714Z
+categories:
+  - BestProducts
+description: "This Article Describes Prime Day Specials: Save Big on Popular Samsung Gadgets Today"
+excerpt: "This Article Describes Prime Day Specials: Save Big on Popular Samsung Gadgets Today"
+thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf362104fe97ee34bca7557147f02e.jpg
+---
+
+## Best Prime Day Ever: Score Amazing Deals on All Your Favorite Apple Products
+
+[Amazon's 2024 Prime Day](https://www.amazon.com/primeday?ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C&tag=lifewire-onsite-prod-20) has come and gone, and we are no longer updating this article.
+
+[Prime Day deals](https://www.lifewire.com/best-amazon-prime-day-deals-8623860) are always exciting; finding a deal on Apple gear is always nice.
+
+ These are the best Prime Day Apple deals we saw this year.
+
+## Apple Accessories
+
+* [Apple AirTag](https://www.amazon.com/Apple-MX532LL-A-AirTag-dp-B0CWXNS552/dp/B0CWXNS552?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $24 (was $29)
+* [Apple AirTag 4 Pack](https://www.amazon.com/Apple-MX542LL-A-AirTag-pack-dp-B0D54JZTHY/dp/B0D54JZTHY/?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $75 (was $99)
+* [Apple Pencil (2nd generation)](https://www.amazon.com/Apple-MU8F2AM-A-Pencil-Generation/dp/B07K1WWBJK?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $79 (was $129)
+* [Apple Wireless Charging Case for AirPods](https://www.amazon.com/Apple-Wireless-Charging-Case-AirPods/dp/B07PYLKTD8?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $63 (was $79)
+* [Apple Smart Folio (for 11-inch iPad Pro 2nd Gen and iPad Air 4th Gen) Deep Navy](https://www.amazon.com/dp/B08J5G34Q7?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $38 (was $79)
+* [Apple iPhone 15 Plus Silicone Case with MagSafe - Storm Blue](https://www.amazon.com/dp/B0CHX47SYS?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $29 (was $49)
+* [Apple Watch Band - Sport Band (41mm) - Bright Green - Regular](https://www.amazon.com/dp/B09V4QP9FL?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $25 (was $49)
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
+## Apple Watches
+
+* [ Apple Watch Series 9 \[GPS 41mm\] Smartwatch](https://www.amazon.com/Apple-Smartwatch-Aluminum-Fitness-Resistant/dp/B0CSV9Y331?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $280 (was $399)
+* [ Apple Watch SE (2nd Gen) \[GPS 40mm\] Smartwatch](https://www.amazon.com/dp/B0CHX7R6WJ?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $169 (was $249)
+
+## AirPods
+
+* [Apple AirPods Pro (2nd Generation)](https://www.amazon.com/Apple-Generation-Cancelling-Transparency-Personalized-dp-B0D1XD1ZV3/dp/B0D1XD1ZV3?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $169 (was $249)
+* [Apple AirPods Max Wireless Over-Ear Headphones](https://www.amazon.com/dp/B08PZHYWJS?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $395 (was $549)
+* [Apple AirPods (2nd Generation)](https://www.amazon.com/dp/B07PXGQC1Q?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $69 (was $129)
+* [Apple AirPods (3rd Generation) Wireless Ear Buds](https://www.amazon.com/dp/B0D1WXVQTN?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $120 (was $169)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## iPads & MacBooks
+
+* [Apple iPad Pro (10.5-inch, Wi-Fi + Cellular, 64GB) - Rose Gold](https://www.amazon.com/dp/B071GGB84Y?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $505 (was $779)
+* [Apple iPad 10.2-inch (9th Generation)](https://www.amazon.com/dp/B09G96TFF7?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $379 (was $479)
+* [Apple iPad Mini 8.3-inch (6th generation)](https://www.amazon.com/2021-Apple-iPad-Mini-Wi-Fi/dp/B09G91LXFP?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $380 (was $499)
+* [Apple 2024 MacBook Air 13-inch Laptop with M3 chip](https://www.amazon.com/dp/B071GGB84Y?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $899 (was $1099)
+* [Apple 2022 MacBook Air Laptop with M2 chip](https://www.amazon.com/2022-Apple-MacBook-Laptop-chip/dp/B0B3CDZLTB?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $799 (was $999)
+
+## Apple AirTag
+
+![Apple AirTag, Amazon Apple](https://www.lifewire.com/thmb/FipFdA6HAHhnqkyPxPSxtPkhMbA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/amazon-apple-after-christmas-deals-121923-8-34d5dafd52504e70ac9e89bc39b8aed6.jpg)
+
+Amazon
+
+ Orig.$29 [$24 at Amazon](https://electronicx.pxf.io/xkwqkk)
+
+ Keep track of your Apple gear and other prized belongings with an AirTag. It has a built-in speaker so you can play a sound if you think your stuff is nearby, or you can use the Find My app if you need help finding where to look.
+
+ Need more? Grab a four-pack below.
+
+## AirTag 4 Pack
+
+![A set of four Apple AirTags](https://www.lifewire.com/thmb/oSijRZK4BqdndZJLrET-tiN-Kp0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleAirTag-6c3832f854c24710890ba380ef01ff86.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
+
+Amazon
+
+ Orig.$99 [$75 at Amazon](https://united.elfm.net/zqobdx)
+
+## Apple Pencil (2nd generation)
+
+![Apple Pencil (2nd Generation)](https://www.lifewire.com/thmb/s0BIvaUqu6ZcjV4a9mIbMddr6Hw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ApplePencil2ndGeneration-c36a1762bd384a35bd468ba37708e1a3.jpg)
+
+Apple
+
+ Orig.$129 [$79 at Amazon](https://lenovo-in.zlvv.net/kj14kn)
+
+ The 2nd-generation Apple Pencil attaches, charges, and pairs magnetically with your iPad, so it's always ready to use.
+
+ Do you already have an iPad? If so, check our[Apple Pencil compatibility chart](https://www.lifewire.com/apple-pencil-compatibility-with-ipad-5189841) to make sure they'll work together.[](https://www.amazon.com/Apple-Wireless-Charging-Case-AirPods/dp/B07PYLKTD8?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C)
+
+## Apple AirPods Pro (2nd Generation)
+
+![Apple AirPods Pro (2nd Generation) Wireless Earbuds MagSafe Charging Case Bluetooth](https://www.lifewire.com/thmb/9LYkEpw7wOpkz--AFsFl9hcufdk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/apple-airpods-pro-2nd-generation-wireless-earbuds-magsafe-charging-case-bluetooth-9ab1bb1064b048788597d1478ff047d8.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+
+Amazon
+
+ Orig.$249 [$169 at Amazon](https://printrendy.pxf.io/xyboy5)
+
+ Apple's AirPods Pro (2nd gen) offer excellent wireless sound, active noise cancellation, and four pairs of silicone tips so you can get the perfect fit. (And keep them in your ears!)
+
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Apple iPad 10.2-inch (9th Generation)
+
+![Apple 10.2-inch iPad 64GB (9th generation).](https://www.lifewire.com/thmb/Fz5fzdr5T2V7XBiWdboOc99fwHc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleiPad9thGeneration_Amazon-0fbd83ca454840278d06c4a85943f974.jpg)
+
+Amazon
+
+ Orig.$479 [$379 at Amazon](https://oneplusfr.sjv.io/lxv4am)
+
+ Need a tablet but don't want to break the bank? This 9th gen iPad is fast, with ample storage (256 GB), and is compatible with popular accessories including Apple's Smart Keyboard case.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Apple Watch Series 9 \[GPS 41mm\] Smartwatch
+
+![Three Apple Watches in a row. Starting on the left is the Apple Watch SE (gen 2), Apple Watch Series 9 in the middle, and the Apple Watch Ultra 2 on the right.](https://www.lifewire.com/thmb/2xI4aMDe_iS79cxcVVcfvcWyMq0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleWatchlineup-b20fe549d8374cac9ec8afd8e08118a2.jpg)
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
+
+Apple, Inc.
+
+ Orig.$399 [$280 at Amazon](https://appsumo.8odi.net/gmezyk)
+
+ The[Series 9 Apple Watch](https://www.lifewire.com/apple-watch-series-9-review-8415760) is a thing of beauty. It keeps you connected and helps you start or continue a fitness routine. Its many watch faces and interchangeable bands mean you can wear it anywhere! (Even in the shower, but Apple recommends not making a habit of it.)
+
+Was this page helpful?
+
+Thanks for letting us know!
+
+ Get the Latest Tech News Delivered Every Day
+
+[Subscribe](https://www.lifewire.com/#)
+
+Tell us why!
+
+ Other  Not enough details  Hard to understand
+
+ Submit
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-unveiling-the-most-exceptional-podcast-microphones-for-2024/"><u>[New] Unveiling the Most Exceptional Podcast Microphones for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-step-into-the-future-metavisors-for-the-ultimate-experience/"><u>[Updated] Step Into the Future  Metavisors for the Ultimate Experience</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-conquer-kinemaster-efficient-use-plus-top-online-gaming-platforms-reviewed/"><u>2024 Approved  Conquer KineMaster  Efficient Use + Top Online Gaming Platforms Reviewed</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-the-art-of-podcast-name-creation-and-50plus-dynamic-example-titles/"><u>2024 Approved  Mastering the Art of Podcast Name Creation & 50+ Dynamic Example Titles</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-uniting-voices-for-virtual-fame-on-tiktok/"><u>2024 Approved  Uniting Voices for Virtual Fame on TikTok</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/430ex-iii-rt-speeds-past-competitors-test-review/"><u>430EX III-RT Speeds Past Competitors: Test Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/5-must-have-innovative-eyewear-technologies-debuting-s-smart-glasses-market/"><u>5 Must-Have Innovative Eyewear Technologies Debuting 'S Smart Glasses Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-examination-sonys-stunning-49-ultra-hd-smart-led-tv-xbr49x900f/"><u>A Comprehensive Examination: Sony's Stunning 49 Ultra HD Smart LED TV (XBR49X900F)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-guide-to-masterful-mileage-in-the-ultra-realistic-visuals-of-x-plane-global-flight-simulator/"><u>A Comprehensive Guide to Masterful Mileage in the Ultra-Realistic Visuals of X-Plane Global Flight Simulator</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-review-the-strengths-and-weaknesses-of-microsofts-webex-platform/"><u>A Comprehensive Review: The Strengths & Weaknesses of Microsoft's WebEx Platform</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-walkthrough-of-the-arlo-defense-system/"><u>A Comprehensive Walkthrough of the Arlo Defense System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/achieve-more-with-fitbit-versa-3-seamless-tracking-via-built-in-gps-and-a-variety-of-wellness-applications-to-keep-you-inspired/"><u>Achieve More with Fitbit Versa 3 - Seamless Tracking Via Built-In GPS and a Variety of Wellness Applications to Keep You Inspired</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/adaptable-brightness-discover-spk10-037-softbox-kick-assassin/"><u>Adaptable Brightness - Discover SPK10-037 Softbox Kick Assassin</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/advances-in-genome-editing-technologies-have-enabled-precise-manipulations-of-bacterial-genomes-allowing-for-targeted-studies-on-the-function-of-specific-ge17/"><u>Advances in Genome Editing Technologies Have Enabled Precise Manipulations of Bacterial Genomes, Allowing for Targeted Studies on the Function of Specific Genes Involved in Sporulation.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-and-efficient-topmate-c302-companion-a-comprehensive-laptop-cooler-guide/"><u>Affordable & Efficient TopMate C302 Companion - A Comprehensive Laptop Cooler Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-apple-smartwatch-se-assessment-and-analysis/"><u>Affordable Apple Smartwatch SE Assessment and Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-brilliance-detailed-look-at-the-impressive-zte-blade-a3y-smartphone/"><u>Affordable Brilliance: Detailed Look at the Impressive ZTE Blade A3Y Smartphone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-excellence-comprehensive-oneplus-nord-n1-revealed-review/"><u>Affordable Excellence: Comprehensive OnePlus Nord N1# Revealed Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazon-fire-versus-samsung-tab-a-comprehensive-guide-for-your-decision/"><u>Amazon Fire Versus Samsung Tab: A Comprehensive Guide for Your Decision</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazon-halo-review-the-newly-emerging-and-boldly-innovative-health-monitor/"><u>Amazon Halo Review: The Newly Emerging and Boldly Innovative Health Monitor</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazonbasics-7-port-usb-30-hub-review/"><u>AmazonBasics 7 Port USB 3.0 Hub Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazonbasics-helioring-pricing-guide-launch-details-and-technical-specifications/"><u>AmazonBasics HelioRing - Pricing Guide, Launch Details & Technical Specifications</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722732325808-build-bonds-and-exchange-games-seamlessly-amongst-pals-on-xbox-one/"><u>Build Bonds & Exchange Games Seamlessly Amongst Pals on Xbox One.</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-14-pro-to-others-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 14 Pro To Others Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-artful-alterations-crafting-distorted-images-to-dazzle/"><u>In 2024, Artful Alterations  Crafting Distorted Images to Dazzle</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-media-lens-adjustment-software/"><u>In 2024, Media Lens Adjustment Software</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722670727145-kensuns-compact-tire-pump-a-durable-dependable-and-easy-to-carry-solution/"><u>Kensun's Compact Tire Pump: A Durable, Dependable & Easy-to-Carry Solution</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/trippy-techniques-secrets-to-excellent-tripod-use-in-vlogging-for-2024/"><u>Trippy Techniques  Secrets to Excellent Tripod Use in Vlogging for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/troubleshooting-resolving-nvidia-cp-access-denied-on-ws1110/"><u>Troubleshooting: Resolving Nvidia CP Access Denied on WS11/10</u></a></li>
+</ul></div>

@@ -1,0 +1,207 @@
+---
+title: Netgear Nighthawk C7000 Review
+date: 2024-08-15T09:34:02.900Z
+updated: 2024-08-16T09:34:02.900Z
+categories:
+  - BestProducts
+description: This Article Describes Netgear Nighthawk C7000 Review
+excerpt: This Article Describes Netgear Nighthawk C7000 Review
+thumbnail: https://www.lifewire.com/thmb/u28QJwO8P8d4SJKP5ALsv-qP0Ao=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4082541-4-9cd1eee50edf4975a739591263d7f54d.jpg
+---
+
+## ZMI PowerPack 2ˈ0000 Review: Unleash the Might of a Tiny, Portable Charger
+
+4.9
+
+## ZMI PowerPack 20000
+
+![ZMI PowerPack 20000](https://www.lifewire.com/thmb/A__IgeAPd2C0e_2iExqDqXJAGB8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-HeroSquare-492efa01c9e54737bfa9d16223ff9d82.jpg)
+
+ Lifewire / Andrew Hayward
+
+ What We Like
+
+* Sleek, compact size
+* Good capacity, long-lasting power
+* Great for laptops, phones, more
+* Doubles as USB hub
+* Excellent value
+
+ What We Don't Like
+
+* No AC power port
+
+ If you need high-capacity USB-C charging at a great price, it’s hard to think of a better option than the ZMI PowerPack 20000.
+
+[Buy on Amazon](https://www.amazon.com/dp/B072BD98CM?tag=lifewire-onsite-prod-20&%2F=&ascsubtag=5071991%7Cn210c12f6fa164d19b551ef300c5549c018%7C)
+
+4.9
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## ZMI PowerPack 20000
+
+![ZMI PowerPack 20000](https://www.lifewire.com/thmb/FttxoftMtHF3B2ZGmP2QubmOp3I=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-HeroSquare-492efa01c9e54737bfa9d16223ff9d82.jpg)
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
+
+ Lifewire / Andrew Hayward
+
+ in this article
+
+ Expand
+
+* [Design](https://www.lifewire.com/#toc-design-small-but-powerful)
+* [Setup Process](https://www.lifewire.com/#toc-setup-process-easy-does-it)
+* [Charging Speed and Battery](https://www.lifewire.com/#toc-charging-speed-and-battery-it-keeps-going)
+* [Price](https://www.lifewire.com/#toc-price-its-a-bargain)
+* [Competition](https://www.lifewire.com/#toc-zmi-powerpack-20000-vs-mophie-powerstation-ac)
+* [Final Verdict](https://www.lifewire.com/#toc-final-verdict)
+* [Specs](https://www.lifewire.com/#toc-full-spec)
+
+ _We purchased the ZMI PowerPack 20000 so our expert reviewer could thoroughly test and assess it. Keep reading for our full product review._
+
+ If you travel with any regularity or use your devices considerably outside of the home or an office, then it’s well worth having a[portable laptop battery charger](https://www.lifewire.com/best-portable-laptop-battery-4050506) around for when your phone runs low or you need a little more work time before your laptop shuts off. ZMI’s PowerPack 20000 is one of the best all-around options on the market today, providing a sizable cell with speedy charging across phones, tablets, laptops, portable game systems, and more, plus a slim design and great price.
+
+ I tested ZMI’s PowerPack 20000 time and again over more than a week across multiple devices, measuring the charging speeds and comparing it to other similar power banks.
+
+![ZMI PowerPack 20000](https://www.lifewire.com/thmb/jITowxAWHBUo5WF3Y-XI6lKQNQE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-05-02d76c869b864ef0abddfe824cfbf53a.jpg)
+
+ Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
+## **Design: Small but powerful**
+
+ The ZMI PowerPack 20000’s size is easily one of its biggest selling points. While it is a little heavy at 14.3 ounces, this power bank is the approximate width and height of a large smartphone, measuring up very closely to the size of my Apple iPhone 11 Pro at 6.3 x 3.2 inches (HWD). Of course, the 0.8-inch thickness is quite a bit larger than any phone today, but unlike most laptop-friendly charging banks, ZMI’s can still fit into a pocket or handbag with ease.
+
+ It’s smooth navy blue aluminum on the outside with a black plastic strip running along the entire frame, with one[USB-C](https://www.lifewire.com/usb-c-4149490) Power Delivery 2.0 port and two USB-A ports on one end. Nearby on the upper right side frame is a power button and four small lights that indicate how much power the bank is currently holding.
+
+ Unlike most laptop-friendly charging banks, ZMI’s can still fit into a pocket or handbag with ease.
+
+ The button also serves another very handy purpose: press it twice in a row and you’ll enable USB devices to be used by a connected computer. I plugged the ZMI PowerPack 20000 into a[Huawei MateBook X Pro](https://www.lifewire.com/huawei-matebook-x-pro-signature-edition-review-4845244) laptop and then plugged a USB mouse into the power bank, pressed the button twice, and then was able to use the mouse on the laptop. That’s incredibly helpful for slim, premium laptops that have very few ports.
+
+ This power bank doesn’t have an AC port for full-sized power plugs, as some competing power banks do, but it also costs less and is much smaller than those alternatives typically are.
+
+![ZMI PowerPack 20000](https://www.lifewire.com/thmb/vaINPELrwcWnOZDsX1ztKkCouww=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-03-1530f666df824f6281040c2ae3285eb2-2e7956941b91403aa888795a7e5e2e33.jpeg)
+
+Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
+## **Setup Process: Easy does it**
+
+ There’s not much to the setup process here. Using the included USB-C to USB-C cable, simply plug one end into the power bank and the other into an AC adapter that you have handy—like one for a laptop, tablet, or[smartphone](https://www.lifewire.com/best-smartphones-4043781) . Once the four lights on the side are fully illuminated, then the battery pack is fully charged. Simply plug in devices using their respective cables to charge them using the power within the ZMI PowerPack 20000.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
+## **Charging Speed and Battery: It keeps going**
+
+ The ZMI PowerPack 20000 has a hearty 20,000mAh cell within, and it charged my devices quickly without fully depleting the brick. I charged a[2019 MacBook Pro](https://www.lifewire.com/apple-macbook-pro-13-inch-2019-review-4770116) (13-inch) laptop from 0 percent to 100 percent in just 1 hour, 53 minutes using the ZMI PowerPack 20000’s USB-C PD port, with an effective charging rate of 42.92W (14.8Vx2.9A). When the charging process was complete, the PowerPack still had one light illuminated, indicating that there was still a little bit of battery life remaining.
+
+ In a separate test, I had the ZMI PowerPack 20000 power the MacBook Pro as it played a locally-downloaded movie on loop at full brightness. With the PowerPack plugged in, the laptop maintained its 100 percent charge for 8 hours, 4 minutes before the power bank ran out of juice.
+
+ The PowerPack 20000 also charged a[Samsung Galaxy S10](https://www.lifewire.com/samsung-galaxy-s10-review-4685690) smartphone from nothing to 100 percent in 1 hour, 47 minutes using the USB-C PD port, with four lights still remaining on the power bank. This sizable power bank should be able to charge an average smartphone a few times over, not to mention a[Nintendo Switch](https://www.lifewire.com/nintendo-switch-review-4707563) . Larger laptop batteries will naturally suck away more of the battery capacity on a full charge.
+
+![ZMI PowerPack 20000](https://www.lifewire.com/thmb/asGVK-moJ54HvqyY9N6Kb-KM8hw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-04-828899fb01024cd4a0e35980251c04b4.jpg)
+
+ Lifewire / Andrew Hayward
+
+## **Price: It’s a bargain**
+
+ With larger laptop-friendly battery packs sometimes selling for well north of $100, the $70 price point of the ZMI PowerPack 20000 is an incredibly attractive deal. Granted, the maximum USB-C PD output of 45W won’t charge some super-powered laptops—but for compatible laptops, as well as smartphones, tablets, and other portable electronics, it’s very well priced.
+
+ With larger laptop-friendly battery packs sometimes selling for well north of $100, the $70 price point of the ZMI PowerPack 20000 is an incredibly attractive deal.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
+## **ZMI PowerPack 20000 vs Mophie Powerstation AC**
+
+ ZMI’s PowerPack 20000 is about half the size and weight of the[Mophie Powerstation AC](https://www.lifewire.com/mophie-powerstation-ac-review-5071990) (see on[Amazon](https://www.amazon.com/dp/B078GYSBVR?linkCode=ogi&th=1&psc=1&tag=lifewire-onsite-prod-20&ascsubtag=5071991%7Cn210c12f6fa164d19b551ef300c5549c018%7C) ), which has a AC power port on one end, not to mention a larger 24,000mAh cell. Those are both stellar benefits, plus the fabric-lined exterior gives it a distinctive allure. That said, Mophie’s pack sells for $200, and we’d only recommend it if you must have the AC power outlet for charging a power-hungry laptop. If the ZMI PowerPack 20000 will meet your charging needs, however, it’s a much better bargain.
+
+ Final Verdict
+
+ **A fantastic portable laptop battery charger for nearly everyone.**
+
+ It’s honestly difficult to find anything to complain about with the ZMI PowerPack 20000\. It’s powerful and does a great job of charging laptops and phones, it has enough capacity to handle those tasks with ease, it’s compact and well-designed, and the price is fantastic. It’s half the size of the giant Anker power brick that I’ve brought on my last two international trips and can handle all of the same tasks. In other words,_this_ is the power brick I’m bringing on my next trip.
+
+## Specs
+
+* Product Name  PowerPack 20000
+* Product Brand  ZMI
+* SKU  X001ESM8MV
+* Price  $70.00
+* Product Dimensions  6.3 x 3.2 x 0.8 in.
+* Warranty  18 months
+* Ports  1x USB-C, 2x USB-A
+* Waterproof  N/A
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-how-can-i-go-live-on-facebook/"><u>[New] How Can I Go Live on Facebook?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-techniques-for-extracting-and-storing-instagram-video-files-pcmac-systems-for-2024/"><u>[New] Techniques for Extracting and Storing Instagram Video Files (PC/Mac Systems) for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-space-to-nature-yts-guide-for-dynamic-green-screen-filmmaking/"><u>[Updated] 2024 Approved  From Space to Nature  YT's Guide for Dynamic Green Screen Filmmaking</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-accelerate-follower-count-key-strategies-unlocked/"><u>[Updated] In 2024, Accelerate Follower Count  Key Strategies Unlocked</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-pivot-from-srt-to-professional-audio-standards-with-confidence/"><u>2024 Approved  Pivot From SRT to Professional Audio Standards with Confidence</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-segment-screen-showdown-recorders-leader-status/"><u>2024 Approved  Segment Screen Showdown  Recorder's Leader Status</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-vivo-y78plus-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Vivo Y78+ without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-touchscreen-perfection-the-moto-g-stylus-phones-unboxed/"><u>Affordable Touchscreen Perfection: The Moto G Stylus Phones Unboxed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazon-echo-dot-gen-4-unveiled-innovative-design-meets-advanced-capabilities/"><u>Amazon Echo Dot Gen 4 Unveiled: Innovative Design Meets Advanced Capabilities</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/expert-video-lighting-advice-maximizing-visual-impact-for-2024/"><u>Expert Video Lighting Advice  Maximizing Visual Impact for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-incredible-performance-of-the-xbox-series-x-an-expert-review-on-its-impressive-cuj026k-360-gaming-capabilities/"><u>Exploring the Incredible Performance of the Xbox Series X: An Expert Review on Its Impressive Cuj026k-360 Gaming Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fossil-sport-collection-reviewed-exceptional-quality-meets-budget-friendly-prices/"><u>Fossil Sport Collection Reviewed: Exceptional Quality Meets Budget-Friendly Prices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fovitec-spk10-037-softbox-lighting-kit-review-bright-and-versatile/"><u>Fovitec SPK10-037 Softbox Lighting Kit Review: Bright and Versatile</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/godfall-and-the-ps5-conundrum-why-sonys-first-party-title-falls-short-of-expectations/"><u>Godfall and the PS5 Conundrum: Why Sony's First-Party Title Falls Short of Expectations</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-augmentation-changes-our-reality-view-for-2024/"><u>How Augmentation Changes Our Reality View for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-concoct-laughter-in-image-format-giphy-style/"><u>In 2024, Concoct Laughter in Image Format, Giphy Style</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Nokia G22 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-samsung-galaxy-m34-5g-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Samsung Galaxy M34 5G? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-docooler-12-mp-usb-webcam-as-impressive-as-it-seems-a-complete-guide/"><u>Is the Docooler 12 MP USB Webcam as Impressive as It Seems? A Complete Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/keep-your-gaming-laptop-iced-out-the-havit-five-fan-cooler-reviewed-and-tested/"><u>Keep Your Gaming Laptop Iced Out: The HAVIT Five-Fan Cooler Reviewed and Tested</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/marvels-spider-man-miles-morales-analysis-a-compact-hero-with-major-influence/"><u>Marvel's Spider-Man: Miles Morales Analysis - A Compact Hero with Major Influence</u></a></li>
+<li><a href="https://techtrends.techidaily.com/maximize-productivity-on-your-macbook-air-with-splitscreen-functionality/"><u>Maximize Productivity on Your MacBook Air with Splitscreen Functionality</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mending-a-singular-audio-unit/"><u>Mending a Singular Audio Unit</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/retro-charm-meets-modern-marvels-in-the-latest-ratchet-and-clank-adventure/"><u>Retro Charm Meets Modern Marvels in the Latest Ratchet & Clank Adventure</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-insights-on-mobvoi-ticwatch-pro-3-enhanced-battery-performance-throughout-with-gps-and-two-screens/"><u>Review Insights on Mobvoi TicWatch Pro 3: Enhanced Battery Performance Throughout with GPS & Two Screens</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-romers-high-powered-battery-charging-outdoor-beam-lamp/"><u>Review of Romer's High-Powered, Battery-Charging Outdoor Beam Lamp</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-chromebook-2-assessment-a-perfect-blend-of-portability-and-efficiency/"><u>Samsung Chromebook 2 Assessment: A Perfect Blend of Portability and Efficiency</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-chromebook-2-analysis-a-portable-powerhouse-for-workflows/"><u>Samsung Galaxy Chromebook 2 Analysis: A Portable Powerhouse for Workflows</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/scorecard-for-the-apple-watch-se-premium-features-at-a-lower-price-point/"><u>Scorecard for the Apple Watch SE: Premium Features at a Lower Price Point</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/seamless-integration-with-your-devices-exploring-the-chic-and-practical-netatmo-weather-system/"><u>Seamless Integration with Your Devices: Exploring The Chic and Practical Netatmo Weather System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/seamless-protection-with-arlos-video-doorbell-alarm-solution/"><u>Seamless Protection with Arlo's Video Doorbell Alarm Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sonys-nw-ws623-critical-eye-on-style-choices/"><u>Sony's NW-WS623: Critical Eye on Style Choices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/syma-x5c-rc-quadcopter-analysis-value-for-money-in-consumer-drones/"><u>SYMA X5C R/C Quadcopter Analysis: Value for Money in Consumer Drones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-art-of-worldbuilding-in-gaming-a-detailed-review-of-the-sci-fi-rpg-torment-tides-of-numenera/"><u>The Art of Worldbuilding in Gaming: A Detailed Review of the Sci-Fi RPG 'Torment: Tides of Numenera'</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-compact-guide-to-amazon-echo-dot-3rd-generation-all-alexa-features-in-one-small-speaker/"><u>The Ultimate Compact Guide to Amazon Echo Dot (3Rd Generation): All Alexa Features in One Small Speaker</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-10-must-play-titles-on-your-steam-deck/"><u>Top 10 Must-Play Titles on Your Steam Deck</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-performing-alienware-aurora-r11-gaming-desktop-expert-review/"><u>Top-Performing Alienware Aurora R11 Gaming Desktop - Expert Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/torment-navigating-the-tides-of-numenera-a-deep-dive-into-its-rich-worldbuilding-and-rpg-mechanics/"><u>Torment: Navigating the Tides of Numenera - A Deep Dive Into Its Rich Worldbuilding and RPG Mechanics</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tp67-thermometer-by-thermopro-a-budget-friendly-choice-with-durability-concerns/"><u>TP67 Thermometer by ThermoPro - A Budget-Friendly Choice with Durability Concerns</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-collection-leading-usb-thumb-drives-2024-edition/"><u>Ultimate Collection: Leading USB Thumb Drives 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-list-of-places-to-find-movie-teasers-online/"><u>Ultimate List of Places to Find Movie Teasers Online</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-potential-comprehensive-review-of-playstation-er-4-pros-4k-visual-fidelity/"><u>Unlocking the Potential: Comprehensive Review of PlayStation Er 4 Pro's 4K Visual Fidelity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-powerful-duo-in-depth-review-of-mobvois-ticwatch-pro-3-with-extended-battery-via-dual-screens-and-reliable-gps/"><u>Unveiling the Powerful Duo: In-Depth Review of Mobvoi's TicWatch Pro 3 with Extended Battery via Dual Screens and Reliable GPS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-strengths-of-kooteks-multi-purpose-laptop-cooler-pad-a-detailed-review/"><u>Unveiling the Strengths of Kootek's Multi-Purpose Laptop Cooler Pad - A Detailed Review</u></a></li>
+</ul></div>

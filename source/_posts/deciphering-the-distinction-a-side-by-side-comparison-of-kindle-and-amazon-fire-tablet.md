@@ -1,0 +1,213 @@
+---
+title: "Deciphering the Distinction: A Side-by-Side Comparison of Kindle and Amazon Fire Tablet."
+date: 2024-08-15T09:34:07.297Z
+updated: 2024-08-16T09:34:07.297Z
+categories:
+  - BestProducts
+description: "This Article Describes Deciphering the Distinction: A Side-by-Side Comparison of Kindle and Amazon Fire Tablet."
+excerpt: "This Article Describes Deciphering the Distinction: A Side-by-Side Comparison of Kindle and Amazon Fire Tablet."
+thumbnail: https://thmb.techidaily.com/4e313b1018e0c2499cbd20182728d1887cb747f9b7e2192f6f1e12c2015f85ae.jpg
+---
+
+## Fun in the Cosmos: Constructing Cities on Mars with a Side of Interplanetary Gusts
+
+3
+
+## Paradox Interactive Surviving Mars
+
+![Surviving Mars](https://www.lifewire.com/thmb/AjVVBONBD_MfQeA3voTlfDA2Jrc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
+
+ Lifewire / Rebecca Isaacs
+
+ What We Like
+
+* Fun Graphics
+* Creative gameplay
+* Fun music
+* Multiple city-building options
+
+ What We Don't Like
+
+* Slow gameplay speeds
+* Micromanagement necessary
+* Dust Storms
+
+ Surviving Mars gives new life to city-building games, but sometimes grows tedious.
+
+[View On Steampowered.com](https://store.steampowered.com/app/464920/Surviving%5FMars/) [View On G2a.com](https://www.g2a.com/en-us/surviving-mars-first-colony-edition-steam-key-global-i10000147752001?)
+
+3
+
+## Paradox Interactive Surviving Mars
+
+![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
+
+ Lifewire / Rebecca Isaacs
+
+[View On Steampowered.com](https://store.steampowered.com/app/464920/Surviving%5FMars/) [View On G2a.com](https://www.g2a.com/en-us/surviving-mars-first-colony-edition-steam-key-global-i10000147752001?)
+
+ in this article
+
+ Expand
+
+* [Plot](https://www.lifewire.com/#toc-plot-lots-of-options)
+* [Performance](https://www.lifewire.com/#toc-performance-humans-have-never-been-so-annoying)
+* [Price](https://www.lifewire.com/#toc-price-decent-for-what-you-get)
+* [Competition](https://www.lifewire.com/#toc-competition-other-city-building-games)
+* [Final Verdict](https://www.lifewire.com/#toc-final-verdict)
+* [Specs](https://www.lifewire.com/#toc-full-spec)
+
+ I’ve always been drawn to sandbox building games, from Roller Coaster Tycoon to[SimCity](https://www.lifewire.com/simcity-4-starting-new-city-840147) to Pharaoh. While I’ve built up great cities on earth, there is one place I haven’t been to: outer space. Surviving Mars fills this planet-sized hole.
+
+ Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
+
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
+## **Plot: Lots of options**
+
+ For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
+
+ As for a real plotline, there isn’t really one—the only kind of plot in the game is the objective to colonize Mars. There are challenges which you can do if you’re feeling particularly adventurous, which is nice, but they’re not a real plotline, and only serve to give you a different angle to colonizing the planet.
+
+![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
+
+ Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
+## **Performance: Humans have never been so annoying**
+
+ The game begins with a multi-hour long tutorial program, which I highly recommend you undertake before playing the game. There are so many various aspects to the game—basic needs, threats to your colony, resources to import and export—that it would be disastrous not to get caught up to speed. It took me a total of five hours to complete these tutorials, but I had to restart a couple after a couple operator error moments when I accidentally destroyed my only water vaporizer and had no idea how to rebuild it. So, it will probably take you less.
+
+ One of the biggest upsides to Surviving Mars is that you can choose anywhere on the planet to build your colony. You can build in a more stable area of the planet, at the cost of valuable resources like water and metals. Alternately, if you prefer to throw caution to the Mars winds, you can settle for a more resource-rich area. However, when I mention those Mars winds, I really mean it. In the midst of building your colony, you’ll have to beware the dangers of dust storms. Normally, I would brush these dangers aside in a video game. After experiencing them, however, they’re catastrophic, especially after you start adding humans into the mix. Besides dust storms, you’ll have to face off against cold waves and meteors, adding a fun layer to the game.
+
+ Once you get humans on the planet, it turns into a battle for your life. A cold wave can come around and knock out the entire water supply. A dust storm can malfunction all the machines that make oxygen. And a lack of resources aimed to relax humans—dining, shopping, and of course, that famous space bar—can send them teetering over the edge in terms of their mental health. It’s your job to ensure that not only are the humans on Mars healthy, but also happy.
+
+ One of the biggest upsides to Surviving Mars is that you can choose anywhere on the planet to build your colony.
+
+ In over twenty hours of gameplay, I learned the hard way that humans in this game are not only picky, but they demand the life of luxury the second they step off the rocket and into the dome. It didn’t matter that only twelve called a single dome home. It didn’t matter that there was barely enough of them to cover operating the grocery store and space bar. A lack of space for these amenities fell upon deaf ears. They wanted access to their art stores, electronics, and fine dining immediately. In that regard, I’m a little conflicted; as much as I wanted more shopping options for Mars, I realized not long after humans arrived that Haemimont Games, in reality, gave me a blessing by keeping a bland palate. Plus, more buildings and items become available as research, funding, and planetary discoveries allow.
+
+![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
+
+ Lifewire / Rebecca Isaacs
+
+ The colonists also come with their own unique personality traits, from veganism to survivalist to alcoholic, so they all have their own service needs. You’ll have to factor this into your game as you build up your population. If someone doesn’t get their needs met, it can land them in the hospital, or worse, on a rocket back home. And don’t get me started on the chaos that erupts when humans start freezing during a cold spell or complain when they don’t have enough oxygen. The nerve of some colonists!
+
+ As my domes grew larger and the population started expanding, engineers would find themselves working in daycares and doctors would be working as security guards. They wouldn’t automatically shift over to open positions at facilities requiring colonists with these backgrounds.
+
+ Thus, the need for micromanagement began, and grew into a big thorn in my side during gameplay.
+
+ While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat.
+
+ I would have to manually go in and evict them from their homes and shift them to other domes where specialized positions would be. It became frustrating as I built up my population. I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
+
+ If it wasn’t the micromanagement, the gameplay foreshadowed the slowness of play speed in the beginning. Going into the game, I had no idea how slow it could be. The tutorial said that gameplay can be slow and encouraged the use of the speed buttons at the bottom of the screen. Admittedly, I’m impatient and like to speed up city-builders.
+
+ A good chunk of gameplay before the colonists arrived focused on speeding through slower parts of the game. Once the colonists arrived though, gameplay changed, and I found myself wishing for more hours during Sols, or days, on Mars. It’s a problem at the beginning; later on, not so much, especially when your population grows and you have to mitigate various issues that crop up. Many thanks to the creators for putting in Mars Radio and two other channel options with fun, futuristic music to help get me through until the humans arrive.
+
+ I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
+
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Price: Decent for what you get**
+
+ For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
+
+![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
+
+ Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
+## **Competition: Other city-building games**
+
+ What makes Surviving Mars unique is that technically it is a city-[building game](https://www.lifewire.com/best-offline-building-games-4580415) , but instead of building bus lines, you have to build oxygen and water lines to ensure colony survival. However, just like city-building games, you are building infrastructure. If you’re solely focused on building up a city, Surviving Mars would be a great addition to your library, but so would[Cities: Skylines](https://store.steampowered.com/app/255710/Cities%5FSkylines/) (view on Steam). Both focus on creating a habitat from scratch—one just happens to be hundreds of thousands of miles away while the other could be in a tropical or a Midwestern climate.
+
+ If you like to worry about whether or not you are meeting commercial lot demand, or whether you will have to raise taxes to cover the construction of a new fire station, Cities: Skylines is a great option. But it focuses on the present on Earth, so some may feel it’s the same spin on games like the SimCity line that have been around for a while. While you’ll have to worry about budget balancing and fixing congested roadways in Cities: Skylines, you won’t have to worry about ensuring the survival of your people over a malfunctioning water vaporiser.
+
+ Final Verdict
+
+ **A interesting new take on city-builders, if you can stomach the micromanagement.**
+
+ While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
+
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Specs
+
+* Product Name  Surviving Mars
+* Product Brand  Paradox Interactive
+* Price  $29.99
+* Release Date  March 2018
+* Available Platforms  Windows, Mac, PS4, Xbox
+* Processor Minimum  4th Generation Intel i3 CPU or equivalent
+* Memory Minimum  4 GB RAM
+* Graphics  HD 4600/Geforce 620/Radeon 6450 or equivalent GPUs with 1 GB of video RAM
+* Game Updates  Green Planet, Project Laika, Space Race, Colony Design Set, Marsvision Song Contest
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-lightroom-workflow-creating-and-merging-professional-hdr-images/"><u>[New] Lightroom Workflow  Creating & Merging Professional HDR Images</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-step-by-step-obs-skype-screen-recording/"><u>[New] Step-by-Step  OBS Skype Screen Recording</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-visual-virtuosos-the-ultimate-resource-for-filters-perfection-for-2024/"><u>[New] Visual Virtuosos  The Ultimate Resource for Filters Perfection for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-zoom-with-precision-using-videoleap-software/"><u>[New] Zoom with Precision Using Videoleap Software</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-next-gen-discover-8-leading-tablets-pushing-beyond-filmoras-limits/"><u>[Updated] The Next Gen  Discover 8 Leading Tablets Pushing Beyond Filmora's Limits</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-in-depth-analysis-our-selection-of-premium-21-hdmi-tvs/"><u>2024 Approved  In-Depth Analysis  Our Selection of Premium 2.1 HDMI TVs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-critical-exploration-of-google-wifi-the-all-in-one-wi-fi-networking-game-changer/"><u>A Critical Exploration of Google WIFI - The All-in-One Wi-Fi Networking Game Changer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ace-your-mobile-signals-the-premier-selection-of-signal-amplifiers-for-the-year-2024/"><u>Ace Your Mobile Signals: The Premier Selection of Signal Amplifiers for the Year 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-apeman-c450-dashcam-evaluation-ideal-for-your-daily-commute/"><u>Affordable Apeman C450 Dashcam Evaluation - Ideal for Your Daily Commute</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assassins-creed-evaluation-hitman-3-the-definitive-finale-review/"><u>Assassin's Creed Evaluation: Hitman 3, The Definitive Finale Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ath-m50x-review-top-choice-for-studios/"><u>ATH-M50x Review: Top Choice for Studios</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/battery-powered-google-nest-doorbell-in-depth-review-and-comparison/"><u>Battery-Powered Google Nest Doorbell: In-Depth Review & Comparison</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/beginners-guide-amazonbasics-tripod-test/"><u>Beginner's Guide: AmazonBasics Tripod Test</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-softbox-innovations-for-dynamic-photography/"><u>Best Softbox Innovations for Dynamic Photography</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-meets-style-the-ultimate-showdown-between-motorola-one-and-the-iphone/"><u>Budget Meets Style: The Ultimate Showdown Between Motorola One and the iPhone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-google-nest-audio-and-nest-mini-features-performance-and-value/"><u>Comparing Google Nest Audio and Nest Mini: Features, Performance & Value</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/criacrs-bluetooth-fm-transmitter-model-cp2e-space-saving-but-not-without-issues-reviewed/"><u>Criacr's Bluetooth FM Transmitter, Model CP2e: Space-Saving but Not Without Issues Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dominating-a-dream-island-in-tropico-6-an-in-depth-review/"><u>Dominating a Dream Island in Tropico 6: An In-Depth Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dont-miss-out-ace-your-office-with-affordable-benq-tech-on-prime-day-bonanza/"><u>Don't Miss Out: Ace Your Office with Affordable BenQ Tech on Prime Day Bonanza!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/early-insights-into-the-power-and-performance-of-the-samsung-galaxy-s2-ultra/"><u>Early Insights Into the Power and Performance of the Samsung Galaxy S2# Ultra</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/eco-friendly-assistants-unveiled-how-does-the-amazon-echo-dot-stack-up-against-the-apple-homepod-mini/"><u>Eco-Friendly Assistants Unveiled – How Does the Amazon Echo Dot Stack Up Against the Apple HomePod Mini?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-miniature-marvel-the-amazon-echo-dot-3rd-gen-is-it-the-best-alexa-offering-yet/"><u>Experience Miniature Marvel: The Amazon Echo Dot 3Rd Gen – Is It the Best Alexa Offering Yet?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-budget-electric-vehicle-charge-stations-high-performance-at-lower-prices-with-powerdrive-by-anker/"><u>Exploring Budget Electric Vehicle Charge Stations - High Performance at Lower Prices with PowerDrive by Anker</u></a></li>
+<li><a href="https://network-issues.techidaily.com/fixed-glitch-full-screen-not-displayed-in-windows-10-monitors/"><u>Fixed Glitch: Full Screen Not Displayed in Windows 10 Monitors</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-use-special-features-virtual-location-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Oppo A58 4G? | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/implement-these-6-techniques-to-outsmart-iphone-autocorrect-errors/"><u>Implement These 6 Techniques to Outsmart iPhone Autocorrect Errors</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-hacks-averted-restore-your-facebook-account-safely/"><u>In 2024, Hacks Averted! Restore Your Facebook Account Safely</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-photoquarter-analysis/"><u>In 2024, PhotoQuarter Analysis</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-creators-lab-building-an-unstoppable-channel/"><u>In 2024, The Creator's Lab  Building an Unstoppable Channel</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/kobo-libra-h2o-waterproof-tablet-ultimate-guide-and-comprehensive-review/"><u>Kobo Libra H2O Waterproof Tablet - Ultimate Guide & Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-phone-purchase-destinations-expert-recommendations-inside/"><u>Leading Phone Purchase Destinations: Expert Recommendations Inside</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/light-as-a-feather-strong-as-ever-in-depth-look-at-the-revolutionary-lg-gram-laptop/"><u>Light as a Feather, Strong as Ever: In-Depth Look at the Revolutionary LG Gram Laptop</u></a></li>
+<li><a href="https://extra-support.techidaily.com/nexus-nightlife-virtual-theater-realm-for-2024/"><u>Nexus Nightlife  Virtual Theater Realm for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-amazonbasics-7-port-usb-30-hub-your-perfect-connection-solution/"><u>Ultimate Guide to the AmazonBasics 7-Port USB 3.0 Hub - Your Perfect Connection Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-benefits-and-drawbacks-of-ankers-roav-dashcam-c1-a-comprehensive-evaluation/"><u>Unpacking the Benefits and Drawbacks of Anker's Roav Dashcam C1 – A Comprehensive Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-2024s-finest-sound-delivering-gear/"><u>Unveiling 2024'S Finest Sound-Delivering Gear</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-performance-of-the-netgear-nighthawk-ax8-as-a-next-gen-wi-fi-6-mesh-extender-solution/"><u>Unveiling the Performance of the Netgear Nighthawk AX8 as a Next-Gen Wi-Fi 6 Mesh Extender Solution.</u></a></li>
+</ul></div>
