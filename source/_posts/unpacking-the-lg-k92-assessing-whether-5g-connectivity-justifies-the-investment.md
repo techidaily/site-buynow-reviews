@@ -1,0 +1,226 @@
+---
+title: Unpacking the LG K92 – Assessing Whether 5G Connectivity Justifies the Investment
+date: 2024-08-22T16:21:54.274Z
+updated: 2024-08-23T16:21:54.274Z
+categories:
+  - BestProducts
+description: This Article Describes Unpacking the LG K92 – Assessing Whether 5G Connectivity Justifies the Investment
+excerpt: This Article Describes Unpacking the LG K92 – Assessing Whether 5G Connectivity Justifies the Investment
+thumbnail: https://www.lifewire.com/thmb/jpRz9Z0aGMpybnj7vKEuHLfMs0U=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG_K92_5G_HeroSquare-5969609c8f9d4a3294102462f0278d8f.jpg
+---
+
+## Approach: Recall the Imaging Techniques Mentioned and Their Sensitivity to Changes in Bone
+
+4.2
+
+## TopMate C302 Laptop Cooling Pad
+
+![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/aiCouzmBGM4njr9Ovpa0MfLae4E=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
+
+Lifewire / Andrew Hayward
+
+ What We Like
+
+* Excellent price
+* Good cooling power
+* Solidly quiet fans
+* USB pass-through port
+
+ What We Don't Like
+
+* Feels pretty flimsy
+* Not for larger laptops
+
+ The TopMate C302 is an ideal budget pick for a simple and straightforward cooling pad, although it may not withstand extensive wear and tear.
+
+[View On Amazon $17](https://www.amazon.com/dp/B01L8M215A?tag=lifewire-onsite-prod-20&ascsubtag=5193471%7Cn3d06d6a443e14152b7728753066731b712%7CB01L8M215A)
+
+4.2
+
+## TopMate C302 Laptop Cooling Pad
+
+![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
+
+Lifewire / Andrew Hayward
+
+[View On Amazon $17](https://www.amazon.com/dp/B01L8M215A?tag=lifewire-onsite-prod-20&ascsubtag=5193471%7Cn3d06d6a443e14152b7728753066731b712%7CB01L8M215A)
+
+ in this article
+
+ Expand
+
+* [Design](https://www.lifewire.com/#toc-design-light-and-a-little-flimsy)
+* [Setup Process](https://www.lifewire.com/#toc-setup-process-plug-and-play)
+* [Performance](https://www.lifewire.com/#toc-performance-it-makes-a-difference)
+* [Price](https://www.lifewire.com/#toc-price-its-very-affordable)
+* [TopMate C302 vs. Kootek Laptop Cooling Pad](https://www.lifewire.com/#toc-topmate-c302-vs-kootek-laptop-cooling-pad)
+* [Final Verdict](https://www.lifewire.com/#toc-final-verdict)
+* [Specs](https://www.lifewire.com/#toc-full-spec)
+
+ _We purchased the TopMate C302 Laptop Cooling Pad so our reviewer could put it to the test. Keep reading for their full product review._
+
+ Although the core functionality is typically the same, laptop cooling pads come in a variety of designs and with different features. Some are robust and durable and may pack in additional perks, while some stick to the absolute basics, aiming to win out on pure bang for buck.
+
+ The TopMate C302 is a strong example of the latter. It’s affordable and solidly effective, but the plastic design feels a bit flimsy. I wouldn’t bet on it lasting for the long haul without gentle handling, but given the price, you might not worry about it too much.
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
+## Design: Light and a little flimsy
+
+ The C302 measures just over 14 inches wide and is designed for laptops with screens up to 15.6 inches diagonal. It’s primarily made of lightweight plastic, with a thin metal grate on the top above the two 4.9-inch fans to help dissipate heat.
+
+ The entire pad weighs only 1.1 pounds, but the downside to it being so lightweight is that it feels a bit flimsy and rickety. It’ll do just fine holding your laptop and sitting on a desk, but I wouldn’t bet on it surviving a hard fall without some damage.
+
+![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3qjwZzxQ2KVhmQJOdD2R9jBegvI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_03-ed7074949b6f4e4794ce30be2d582058.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
+Lifewire / Andrew Hayward
+
+ It has two little flip-up stopper nubs at the bottom to hold your laptop in place, and they can be gradually adjusted to avoid having them stick up and press into your wrists while typing. Meanwhile, a pair of feet on the bottom of the pad flip out to elevate your laptop about an inch upward to improve air circulation.
+
+ A single cable comes from the back of the pad to plug into a USB-A port on your computer, and it has a pass-through so that you can plug in another accessory, so as to not sacrifice a port simply to use the cooling pad. That’s handy.
+
+ It’ll do just fine holding your laptop and sitting on a desk, but I wouldn’t bet on it surviving a hard fall without some damage.
+
+ The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
+
+## Setup Process: Plug and play
+
+ The C302 is a purely plug-and-play accessory with no flashy perks or settings to deal with, nor any need for software on your computer. Simply place it under your laptop, adjust the feet and holding nubs as desired, and plug the USB port into your computer to power on the pad. The fans will then activate and run at the only available speed, and you can unplug it when you’re done or don’t need it anymore.
+
+![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
+
+Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
+## Performance: It makes a difference
+
+ I tested the C302 using the[Razer Blade 15 (2019) gaming laptop](https://www.lifewire.com/razer-blade-15-review-4845229) , which is equipped with an Intel Core i7-9750H processor and 16GB RAM, as well as a NVIDIA GeForce GTX 1660 Ti GPU (6GB).
+
+ This lightweight and affordable pad delivered solid cooling power that helped cut down on both the internal and external temperature of the laptop while under significant stress.
+
+ Across two recent, popular games and a graphics-intensive benchmark test, I first tested the laptop on its own and recorded the internal processor temperature using the NZXT CAM app, as well as the external temperature of the laptop using an infrared thermometer. After allowing the laptop to cool down, I repeated the process with the cooling pad in use.
+
+ In Fortnite, the Razer Blade 15 recorded a peak internal temperature of 196 degrees Fahrenheit and 118 degrees externally, while the cooling pad dropped those numbers to 179 degrees internal and 115 degrees external.
+
+ In Dirt 5’s built-in benchmark test, the Razer Blade 15 hit 184 degrees internally and 117° externally, and those figures dropped to 175 degrees internally and 100 degrees externally with the cooling pad. There was no significant performance difference in the Dirt 5 benchmark when using the cooling pad: The average FPS mark was within one frame with or without the pad in use.
+
+![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Xs71AyeThjZwy-vZJ9LfxIhuXJc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_04-eadbaf270b874af9bb8843b95efe8ca7.jpg)
+
+Lifewire / Andrew Hayward
+
+ Lastly, UNIGINE’s Heaven Benchmark hit 162 degrees internally and 109 degrees externally on the Razer Blade 15 alone, and dropped to 154 degrees internally and 105 degrees externally when using the C302\. All told, this lightweight and affordable pad delivered solid cooling power that helped cut down on both the internal and external temperature of the laptop while under significant stress.
+
+ Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
+
+## Price: It’s very affordable
+
+ At $30, this is one of the most affordable laptop cooling pads on the market right now. While results varied across multiple tests and games/apps, the C302 was pretty well in line with some of the pricier options I tested. It feels a little flimsy and doesn’t have any premium features, but the C302 is a very good entry-level option.
+
+![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
+Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## TopMate C302 vs. Kootek Laptop Cooling Pad
+
+ At $27, the Kootek Laptop Cooling Pad is a bit more robust. It gives you the ability to power the fans on and off—either the one large fan, or the group of four smaller fans around it—plus it runs a little quieter in use. The unit feels more durable overall, although the Kootek’s height adjustment system feels clunky, as you slide a hanging metal bar into plastic ridges to keep it upright. Kootek’s pad is larger and designed for laptops as large at 17 inches, but if you don’t need the extra size, the TopMate C302 gets the job done for less cash.
+
+ Final Verdict
+
+**An ideal entry-level pick.**
+
+ Durability questions aside, the TopMate C302 Laptop Cooling Pad ultimately worked about as well as the other, pricier pads I tested, helping to offset some of the heat generated by a very hot gaming laptop. If you’re concerned about long-term damage or performance degradation from an overheating laptop, the C302 is a cost-efficient way to help keep your notebook from reaching extreme heat peaks.
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
+### Similar Products We've Reviewed
+
+* [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
+* [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
+* [North Face Pivoter Backpack](https://www.lifewire.com/north-face-pivoter-backpack-review-4690198)
+
+## Specs
+
+* Product Name  C302 Laptop Cooling Pad
+* Product Brand  TopMate
+* MPN  C302
+* Price  $30.99
+* Release Date  August 2016
+* Weight  1.09 lbs.
+* Product Dimensions  14.2 x 10.43 x 1 in.
+* Color  Black
+* Ports  USB-A
+* Waterproof  N/A
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-giggle-genesis-conceptualizing-7-funny-youtube-sessions/"><u>[New] 2024 Approved  Giggle Genesis  Conceptualizing 7 Funny YouTube Sessions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-innovative-image-transformation-hacks/"><u>[New] In 2024, Innovative Image Transformation Hacks</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-easy-screen-capture-in-vlc-player/"><u>[Updated] Easy Screen Capture in VLC Player</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-evaluating-vlc-for-screen-recordings/"><u>[Updated] Evaluating VLC for Screen Recordings</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-navigating-netflixs-video-playback-controls/"><u>[Updated] Navigating Netflix's Video Playback Controls</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-perfecting-distance-remote-podcast-capture-techniques/"><u>[Updated] Perfecting Distance  Remote Podcast Capture Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-utilizing-free-clip-art-for-graphic-designs/"><u>[Updated] Utilizing Free Clip Art for Graphic Designs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-perfecting-your-fisheye-lens-techniques-stepwise/"><u>2024 Approved  Perfecting Your Fisheye Lens Techniques Stepwise</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-audio-equipment-reviewed-cops-gear/"><u>Best Audio Equipment Reviewed - Cops' Gear</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/boost-your-internet-reach-with-the-user-friendly-ac1200-wifi-expander-tp-link-re3eview/"><u>Boost Your Internet Reach with the User-Friendly AC1200 WiFi Expander, TP-Link RE3eview</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/boost-your-retro-gaming-experience-by-adding-new-titles-to-the-nes-classic/"><u>Boost Your Retro Gaming Experience by Adding New Titles to the NES Classic</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/compact-convenient-jumpstart-solutions-2024/"><u>Compact, Convenient Jumpstart Solutions 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-microsoft-sculpt-keyboard-evaluation-exceptional-affordability-and-comfort/"><u>Comprehensive Microsoft Sculpt Keyboard Evaluation: Exceptional Affordability & Comfort</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-balancing-learning-work-and-leisure-on-the-hp-chromebook-11/"><u>Comprehensive Review: Balancing Learning, Work & Leisure on the HP Chromebook 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cutting-edge-screen-meets-style-with-samsungs-ru800t-a-full-review/"><u>Cutting-Edge Screen Meets Style with Samsung's RU800T: A Full Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-mobile-conversations-with-uc/"><u>Elevate Your Mobile Conversations with UC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-value-why-you-should-consider-applecareplus/"><u>Evaluating the Value: Why You Should Consider AppleCare+</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exceptional-lg-24lh4830-screen-experience-without-breaking-your-wallet/"><u>Exceptional LG 24LH4830 Screen Experience Without Breaking Your Wallet</u></a></li>
+<li><a href="https://driver-download.techidaily.com/free-download-official-amd-ryzen-chipset-drivers/"><u>Free Download: Official AMD Ryzen Chipset Drivers</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-6-methods-to-protect-yourself-from-location-tracking-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, 6 Methods to Protect Yourself from Location Tracking on Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-honor-x8b-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Honor X8b Is Unlocked</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Honor Play 40C? | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/instagrams-most-effective-tags-to-increase-engagement/"><u>Instagram's Most Effective Tags to Increase Engagement</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-oneplus-11-5g-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On OnePlus 11 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcome-file-explorer-lag-and-non-responsiveness-in-windows-10-expert-tips/"><u>Overcome File Explorer Lag and Non-Responsiveness in Windows 10: Expert Tips</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/say-goodbye-to-data-limits-explore-the-best-of-30-free-clouds-offering-1tbplus-included/"><u>Say Goodbye to Data Limits - Explore the Best of 30 Free Clouds Offering 1TB+ Included</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/survival-in-mc-top-house-ideas-and-plans-for-2024/"><u>Survival in MC  Top House Ideas & Plans for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722723014001-the-ultimate-guide-to-the-urban-armor-gear-macbook-pro-carrier-tough-meets-functional-design/"><u>The Ultimate Guide to the Urban Armor Gear MacBook Pro Carrier – Tough Meets Functional Design</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/toms-hardware-review-the-definitive-guide/"><u>Tom's Hardware Review: The Definitive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-family-friendly-router-security-systems-in-2e24/"><u>Top-Rated Family-Friendly Router Security Systems in 2E24</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-sealocus-silver-55-inch-4k-smart-tv-perfect-for-an-outdoorsy-lifestyle/"><u>Ultimate Guide to the Sealocus Silver 55-Inch 4K Smart TV: Perfect for an Outdoorsy Lifestyle</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-selecting-prime-positioning-for-your-ps4-cam/"><u>Ultimate Guide: Selecting Prime Positioning for Your PS4 Cam</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-leading-running-timepieces-and-fitness-bracelets-of-2024/"><u>Ultimate Selection: Leading Running Timepieces & Fitness Bracelets of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-joy-with-the-budget-friendly-syma-s111g-rc-helicopter-an-in-depth-assessment/"><u>Unleashing Joy with the Budget-Friendly Syma S111G RC Helicopter: An In-Depth Assessment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unraveling-status-bts-merits-cost-economic-but-not-ideal/"><u>Unraveling Status BT's Merits: Cost-Economic but Not Ideal</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722795887489-unveiling-the-features-of-samsungs-4k-wide-curved-tv-the-ru7300-model-reviewed/"><u>Unveiling the Features of Samsung's 4K Wide Curved TV - The RU7300 Model Reviewed!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/user-guide-and-feature-breakdown-google-maps-on-iphone-and-ipad/"><u>User Guide & Feature Breakdown: Google Maps on iPhone and iPad</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/venturing-through-yokus-world-the-surprising-depths-of-an-unforgettable-adventure-game/"><u>Venturing Through Yoku's World: The Surprising Depths of an Unforgettable Adventure Game</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/yokus-island-express-how-a-classic-game-evolved-into-an-unexpectedly-grand-odyssey/"><u>Yoku's Island Express – How a Classic Game Evolved Into an Unexpectedly Grand Odyssey</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/zte-blade-a3y-review/"><u>ZTE Blade A3Y Review</u></a></li>
+</ul></div>

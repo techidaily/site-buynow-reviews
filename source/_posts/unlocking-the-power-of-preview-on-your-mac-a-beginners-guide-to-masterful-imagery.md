@@ -1,0 +1,221 @@
+---
+title: "Unlocking the Power of Preview on Your Mac: A Beginner's Guide to Masterful Imagery"
+date: 2024-08-22T16:25:20.816Z
+updated: 2024-08-23T16:25:20.816Z
+categories:
+  - BestProducts
+description: "This Article Describes Unlocking the Power of Preview on Your Mac: A Beginner's Guide to Masterful Imagery"
+excerpt: "This Article Describes Unlocking the Power of Preview on Your Mac: A Beginner's Guide to Masterful Imagery"
+thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977aace37b8f0906719738cd6b.jpg
+---
+
+## Unlocking the Potential of On-the-Go Charging with Halo Bolt's Dual-Purpose Power Unit Reviewed
+
+3.7
+
+## Halo Bolt Portable Charger/Jump Starter
+
+![Halo Bolt Portable Charger/Jump Starter](https://www.lifewire.com/thmb/VanJTMWZjo_p7o3jv1uHBa1hAf8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-HeroSquare-889ebc2fc6b54573a26c09cabb34bd5c.jpg)
+
+Lifewire / Andrew Hayward
+
+ What We Like
+
+* Versatile portable battery
+* It’ll jump-start a car
+* Powerful AC port
+* Bright LED lamp
+* Comes with accessories
+
+ What We Don't Like
+
+* Limited capacity
+* No USB-C PD port
+* Bulky and heavy
+
+ While not the best laptop battery brick, the versatile Halo Bolt is a convenient backup for charging devices and jump-starting vehicles.
+
+[Buy on Amazon](https://www.amazon.com/dp/B079FSPRXM?tag=lifewire-onsite-prod-20&ascsubtag=5071993%7Cn35698be70c304b229c7a194255ab2d3620%7C) [Buy on QVC](https://www.qvc.com/qvc.product.E235435.html)
+
+3.7
+
+## Halo Bolt Portable Charger/Jump Starter
+
+![Halo Bolt Portable Charger/Jump Starter](https://www.lifewire.com/thmb/wNeN4Rq5GyM9MuDOzyg5QlRT-U4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-HeroSquare-889ebc2fc6b54573a26c09cabb34bd5c.jpg)
+
+Lifewire / Andrew Hayward
+
+ in this article
+
+ Expand
+
+* [Design](https://www.lifewire.com/#toc-design-the-shiny-brick)
+* [Setup Process](https://www.lifewire.com/#toc-setup-process-load-it-up)
+* [Charging Speed and Battery](https://www.lifewire.com/#toc-charging-speed-and-battery-not-so-long-lasting)
+* [Price](https://www.lifewire.com/#toc-price-its-priced-right)
+* [Competition](https://www.lifewire.com/#toc-halo-bolt-acdc-58830-vs-zmi-powerpack-20000)
+* [Final Verdict](https://www.lifewire.com/#toc-final-verdict)
+* [Specs](https://www.lifewire.com/#toc-full-spec)
+
+ There are all sorts of[portable laptop chargers](https://www.lifewire.com/best-portable-laptop-battery-4050506) designed for smartphones, tablets, laptops, and mobile game systems, but the Halo Bolt one-ups them in one fundamental respect: it can also jump-start your car. This heavy brick of a portable charger proves to be a handy tool, especially in the car—whether for emergencies or when you need to top up a device while you’re away from home.
+
+ Granted, it doesn’t pack as much power as some dedicated laptop chargers, which may be a better option for that need. Still, the added versatility gives the Halo Bolt a unique edge in the market. I tested the Halo Bolt for a week with multiple devices, including laptops and smartphones.
+
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Design: The shiny brick**
+
+ While certainly portable, the Halo Bolt isn’t designed to be pocket-friendly. This big brick of a battery pack comes in at 7.2 x 1.6 x 3.8 inches (HWD) with a weight of more than 1.5 pounds. Smaller, cheaper battery packs are available for smartphones, but this beast is made for heavier-duty needs and is designed accordingly.
+
+ It’s made of mostly thick black plastic outside, including a glossy brushed silver top layer with an imprinted Halo logo. The front face is where most of the ports sit, including two USB-A ports (5V/2.4A), a DC input for the charging adapter, and jump-start inputs hidden behind a small door. The right side, meanwhile, has the 115V AC/65W max AC power plug input for laptop chargers and other plug-in devices.
+
+ Smaller, cheaper battery packs are available for smartphones, but this beast is made for heavier-duty needs and is designed accordingly.
+
+ Each set of inputs has a power button to activate the ports, and you can use the AC input and USB ports simultaneously, but the Jump Starter can only function independently. Meanwhile, the left side of the device has a bright built-in LED flashlight with a power button, giving you another handy tool during car emergencies.
+
+ The Halo Bolt also comes with an array of accessories, including a wall charging adapter, a car charging adapter, jumper cables, a USB-to-micro USB cable, and a cinching pouch for quick storage of all the above. All of the cables and accessories are a welcome bonus.
+
+![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/nYYltjJN71EGK1Dwv2_XABixuhs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-04-85b590a9939a4f44b0c7a510a456b80f.jpg)
+
+ Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
+## **Setup Process: Load it up**
+
+ You’ll need to charge the brick to total capacity before using it, and the four green battery lights on the right side of the front face indicate how much capacity is currently left. The battery is fully charged when all four are illuminated when pressing any of the power buttons. Otherwise, for the AC and USB ports, the Halo Bolt is a plug-and-play charger.
+
+ The whole process for jump-starting a car is detailed in the included instructions. The Halo Bolt has built-in safety features that ensure you have correctly aligned the jumper cables before starting the connected car, boat, lawnmower, or other vehicles.
+
+![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/mUdXUjWxeupVqNR_y43_eFTC0ic=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-02-69b93dc934684ef5b71a40215f6162f2.jpg)
+
+ Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Charging Speed and Battery: Not so long-lasting**
+
+ The Halo Bolt has 58,830mWh of battery power within, and the official description suggests that it can provide up to several hours of additional usage for a MacBook Pro or[iPad Air](https://www.lifewire.com/apple-ipad-air-2019-review-4688969) . In my testing, the results didn’t quite match those targets.
+
+ Plugging in a[mid-2019 MacBook Pro](https://www.lifewire.com/apple-macbook-pro-13-inch-2019-review-4770116) (13-inch) with its own AC adapter, the Halo Bolt charged it quickly but ran out of juice before the battery could fully recharge. It went from 0 percent to 88 percent in 1 hour and 30 minutes, at a maximum recorded charging rate of 58.29W (20.1V/1.9A).
+
+ In a separate test, I played a locally-downloaded movie on loop at 100 percent brightness on the laptop, with the Halo Bolt plugged in to sustain the laptop’s fully-charged battery. The Halo Bolt provided power to the computer for 5 hours, 14 minutes before running out of battery, but that’s a fair bit less than the Mophie Powerstation AC (6 hours, 22 minutes) and ZMI PowerPort 20000 (8 hours, 4 minutes) in the same test.
+
+ Plugging in a mid-2019 MacBook Pro (13-inch) with its own AC adapter, the Halo Bolt charged it quickly but ran out of juice before the battery could fully recharge.
+
+ Not having a USB-C Power Delivery port on the Halo Bolt is disappointing, as many modern devices rely on the standard for speedy charging. You’ll need to bring your own AC adapters to plug into the AC port to get maximum speeds.
+
+ For example, charging a[Samsung Galaxy S10](https://www.lifewire.com/samsung-galaxy-s10-review-4685690) smartphone using one of the Halo Bolt’s USB-A ports took 2 hours and 56 minutes to complete at a paltry 5.19W (4.76V x 1.09A), starting from 0 percent. However, when I repeated the test using Samsung’s charger via the AC port, it finished in 1 hour and 34 minutes thanks to fast charging—nearly half the total time.
+
+![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/MNFqifirQ0sn61GPO1e-bLQ1t8s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-06-8bc3449bd35243aaaf67272c1d3774a6-bc803e0a114b4116adf3078af6a2de00.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Lifewire / Andrew Hayward
+
+## **Price: It’s priced right**
+
+ For a jack-of-all-trades power brick that can jump-start your car and charge its battery, serve as a bright flashlight for roadside emergencies, and charge a wide array of portable devices, the $100 price seen on Amazon looks pretty reasonable. However, given that it couldn’t charge my laptop to total capacity and lacks a USB-C port, handier, higher-capacity charging bricks are available specifically for laptop and smartphone charging needs.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
+## **Halo Bolt ACDC 58830 vs. ZMI PowerPack 20000**
+
+ Here’s a prime example. The[ZMI PowerPack 20000](https://www.lifewire.com/zmi-powerpack-20000-review-5071991) (see on[Amazon](https://www.amazon.com/dp/B072BD98CM?linkCode=ogi&th=1&psc=1&tag=lifewire-onsite-prod-20&ascsubtag=5071993%7Cn35698be70c304b229c7a194255ab2d3620%7C) ) doesn’t have an AC port. However, it’s pocket-friendly, packs a lot of capacity (20,000mAh), and can quickly recharge laptops with its included USB-C port. It also has two USB-A ports and sufficient juice to recharge the same MacBook Pro from empty. Best of all, it only costs $70.
+
+ But that smaller, cheaper power brick is only meant for portable devices such as laptops, smartphones, tablets, and handheld game systems. It has no jump-start capabilities nor an AC port to accommodate a wider array of devices.
+
+ Final Verdict
+
+ **Final Verdict: A convenient backup battery and jump starter.**
+
+ The Halo Bolt isn’t the best option for charging laptops, but it is a solid all-around device for providing backup power to a broader array of gadgets, not to mention jump-starting a car. This versatile device is smart to have around if you drive a car and are frequently mobile with your portable gadgets. I wouldn’t bring it with me on vacation, but it could prove useful before long as a backup device to keep handy.
+
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Specs
+
+* Product Name  Bolt ACDC 58830 mWh Portable Charger/Jump Starter
+* Product Brand  Halo
+* SKU  811279030120
+* Price  $100.00
+* Product Dimensions  7.2 x 3.8 x 1.5 in.
+* Warranty  90 Days
+* Ports  2x USB-A. 1x AC, 1x Jump Start
+* Waterproof  N/A
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-ace-your-videos-essential-editors-for-youtube/"><u>[New] 2024 Approved  Ace Your Videos  Essential Editors for YouTube</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-a-novices-guide-to-making-unforgettable-snaps-on-snapchat-for-2024/"><u>[New] A Novice's Guide to Making Unforgettable Snaps on Snapchat for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-free-top-10-tiktok-ideas-to-make-your-videos-go-viral/"><u>[New] FREE Top 10 TikTok Ideas to Make Your Videos Go Viral</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-dive-into-crossfade-excellence-with-audacitys-comprehensive-tutorials/"><u>[New] In 2024, Dive Into Crossfade Excellence with Audacity's Comprehensive Tutorials</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-how-to-screen-record-on-iphone-in-an-easy-way/"><u>[New] In 2024, How to Screen Record on Iphone in An Easy Way?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-into-the-future-jaunt-vrs-potential-explored/"><u>[Updated] 2024 Approved  Into the Future  Jaunt VR's Potential Explored</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-resuscitating-dormant-connections-with-your-obs-cam-for-2024/"><u>[Updated] Resuscitating Dormant Connections with Your OBS Cam for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-cutting-edge-drone-footage-for-movies-and-tv/"><u>2024 Approved  Cutting-Edge Drone Footage for Movies and TV</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/28-top-10-ai-tools-for-professional-email-writing-and-management/"><u>28 Top 10 AI Tools for Professional Email Writing and Management</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-complete-guide-on-previewing-sites-before-they-hit-the-internet/"><u>A Complete Guide on Previewing Sites Before They Hit the Internet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/aggressive-lighting-for-aspiring-set-designers/"><u>Aggressive Lighting for Aspiring Set Designers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/all-about-fitbit-inspire-hr-review-a-wristband-for-persistent-workout-companionship-and-vital-statistics-tracking/"><u>All About Fitbit Inspire HR Review: A Wristband for Persistent Workout Companionship and Vital Statistics Tracking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bassdrop-pro-earmuffs-feedback-analysis/"><u>BassDrop Pro Earmuffs Feedback Analysis</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-oppo-a59-5g-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Oppo A59 5G Fingerprint Lock</u></a></li>
+<li><a href="https://driver-install.techidaily.com/boost-your-printing-experience-update-hp-officejet-pro-8620-in-windows-pcs/"><u>Boost Your Printing Experience - Update HP OfficeJet Pro 8620 in Windows PCs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bt-status-review-highlights-cost-effective-needs-tweaking/"><u>BT Status Review Highlights: Cost-Effective, Needs Tweaking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-caixun-75-4k-smart-tv-android-cost-effective-quality-on-screen/"><u>Comprehensive Caixun 75 4K Smart TV (Android) - Cost Effective Quality on Screen</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/elevating-user-experience-with-cookiebots-innovative-data-collection-tools/"><u>Elevating User Experience with Cookiebot's Innovative Data Collection Tools</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-technology-in-depth-analysis-from-toms-world-of-hardware/"><u>Exploring Technology: In-Depth Analysis From Tom's World of Hardware</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/grid-gurus-the-leading-photo-organizers-reviewed/"><u>Grid Gurus - The Leading Photo Organizers Reviewed</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/how-to-archive-your-favorite-movies-mac-screenshots-for-netflix-for-2024/"><u>How to Archive Your Favorite Movies  Mac Screenshots for Netflix for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722970878588-how-to-quickly-secure-latest-nvidia-drivers-for-your-windows-10-pc-step-by-step-instructions-and-links/"><u>How to Quickly Secure Latest NVIDIA Drivers for Your Windows 10 PC: Step-by-Step Instructions and Links!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Motorola Razr 40 Ultra | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-itel-by-drfone-android/"><u>In 2024, How to Bypass FRP on Itel?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-realme-gt-5-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Realme GT 5 Phone?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-pc-sound-solutions-a-look-at-the-ultimate-models/"><u>Leading PC Sound Solutions: A Look at the Ultimate Models</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maintenance-requirements-may-be-higher-due-to-mechanical-wear-in-some-displacement-pump-types/"><u>Maintenance Requirements May Be Higher Due to Mechanical Wear in some Displacement Pump Types</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-your-mobile-battery-life-with-halo-bolt-the-top-portable-charger-and-jump-starter/"><u>Maximize Your Mobile Battery Life with Halo Bolt - The Top Portable Charger and Jump Starter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nintendo-switch-breakdown-a-cut-above-portable-gaming-experience/"><u>Nintendo Switch Breakdown: A Cut-Above Portable Gaming Experience</u></a></li>
+<li><a href="https://win-blog.techidaily.com/pc-troubleshooting-top-5-fixes-for-world-of-warships-crashes/"><u>PC Troubleshooting: Top 5 Fixes for World of Warships Crashes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/precision-and-durability-sabrents-compact-travel-mouse-with-optimized-cord-set/"><u>Precision & Durability: Sabrent's Compact Travel Mouse with Optimized Cord Set</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-motorola-one-5g-ace-unmatched-5g-connectivity-and-long-lasting-battery-performance/"><u>Review of Motorola One 5G Ace: Unmatched 5G Connectivity and Long-Lasting Battery Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/thorough-exploration-of-the-eero-pro-mesh-router-for-ultimate-home-wireless-range/"><u>Thorough Exploration of the Eero Pro Mesh Router for Ultimate Home Wireless Range</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-prime-day-bargains-on-acer-laptops-and-tablets/"><u>Top Prime Day Bargains on Acer Laptops & Tablets</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-mouse-options-compatible-with-your-ipad/"><u>Top-Rated Mouse Options Compatible with Your iPad</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transforming-workspaces-with-the-new-samsung-galaxy-chromebook-a-thorough-review/"><u>Transforming Workspaces with the New Samsung Galaxy Chromebook - A Thorough Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleash-blisteringly-fast-media-playback-with-the-amazon-fire-tv-cube-in-depth-review/"><u>Unleash Blisteringly Fast Media Playback with the Amazon Fire TV Cube – In-Depth Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-the-potential-in-depth-look-at-the-beatit-jump-starter-d11/"><u>Unleashing the Potential: In-Depth Look at the Beatit Jump Starter D11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-charm-of-the-flexispot-theodore-elevating-your-workspace-with-a-modern-standing-desk/"><u>Unveiling the Charm of the Flexispot Theodore: Elevating Your Workspace with a Modern Standing Desk</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-experts-rate-apple-ipad-pro-11-as-the-pinnacle-of-performance-in-2018/"><u>Why Experts Rate Apple iPad Pro (11) as the Pinnacle of Performance in 2018</u></a></li>
+</ul></div>

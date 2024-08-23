@@ -1,0 +1,227 @@
+---
+title: User Guide & Review for the Ultra-Slim Anker PowerCore+ 26800 Pack
+date: 2024-08-22T16:21:47.402Z
+updated: 2024-08-23T16:21:47.402Z
+categories:
+  - BestProducts
+description: This Article Describes User Guide & Review for the Ultra-Slim Anker PowerCore+ 26800 Pack
+excerpt: This Article Describes User Guide & Review for the Ultra-Slim Anker PowerCore+ 26800 Pack
+thumbnail: https://www.lifewire.com/thmb/xomn4fOwspGABiC-og6gHsRlGnE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_HEROWebSQUARE-5c90fd70c9e77c0001eb1cc6.jpg
+---
+
+## Sleek & Durable? Discover the Full Potential of Anker'e PowerCore+ 26800 Battery Pack - Expert Review Inside
+
+4.8
+
+## Anker PowerCore+ 26800 Battery Pack
+
+![Anker](https://www.lifewire.com/thmb/lNQbd16pbRC0R9DGxN2t8vYzL7o=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_HEROWebSQUARE-5c90fd70c9e77c0001eb1cc6.jpg)
+
+Lifewire / Gannon Burgett
+
+ What We Like
+
+* Sleek design
+* Powerful connections
+* Included accessories
+* Great value
+
+ What We Don't Like
+
+* No AC plugin
+* One USB Type-C port
+
+ The Anker PowerCore+ 26800 Battery Pack Bundle is a simple solution to making sure your gadgets are charged on the go thanks to its 30W USB Type-C power delivery and two additional USB ports.
+
+[View On Amazon $100](https://www.amazon.com/dp/B07XRJZXKY?tag=lifewire-onsite-prod-20&ascsubtag=4589459%7Cne013ed3beb0f470caee172c55826658d22%7CB07XRJZXKY)
+
+4.8
+
+## Anker PowerCore+ 26800 Battery Pack
+
+![Anker](https://www.lifewire.com/thmb/B8fIpC1_9JQjWCu_QhJoNePOP2Y=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_HEROWebSQUARE-5c90fd70c9e77c0001eb1cc6.jpg)
+
+Lifewire / Gannon Burgett
+
+[View On Amazon $100](https://www.amazon.com/dp/B07XRJZXKY?tag=lifewire-onsite-prod-20&ascsubtag=4589459%7Cne013ed3beb0f470caee172c55826658d22%7CB07XRJZXKY)
+
+ in this article
+
+ Expand
+
+* [Design](https://www.lifewire.com/#toc-design-plush-and-light-for-travelers)
+* [Setup Process](https://www.lifewire.com/#toc-setup-process-simple-to-start-but-theres-yet-another-adapter-to-carry-around)
+* [Charging Speed and Battery](https://www.lifewire.com/#toc-charging-speed-and-battery-slow-and-steady-wins-this-race)
+* [Price](https://www.lifewire.com/#toc-price-perfectly-priced-for-its-power)
+* [Competition](https://www.lifewire.com/#toc-anker-powercore-26800-vs-ravpower-26800)
+* [Final Verdict](https://www.lifewire.com/#toc-final-verdict)
+* [Specs](https://www.lifewire.com/#toc-full-spec)
+
+ The product reviewed here is largely out of stock or has been discontinued, which is reflected in the links to product pages. However, we've kept the review live for informational purposes.
+
+ _We purchased the Anker PowerCore+ 26800 Battery Pack Bundle so our expert reviewer could thoroughly test and assess it. Keep reading for our full product review._
+
+ Anker has made a name for itself as one of the most reliable gadgets and accessories manufacturers in the game. Despite their reasonable prices, the quality continues to impress and its Anker PowerCore+ 26800 PD with 30W Power Delivery Charger is no exception. We've spent some time with this laptop battery charger and put it to the test to see just how well Anker's compact battery pack holds up against a variety of gadgets.
+
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Design: Plush and light for travelers**
+
+ If you've owned any Anker products, you'll immediately recognize the PowerCore+ 26800\. It features a minimal rectangular design made of extruded aluminum with rounded edges for a very smooth look and feel. It weighs roughly 1.3 pounds, which gives it a premium feel without feeling too heavy.
+
+![Anker](https://www.lifewire.com/thmb/brfc42RYlVrJLOHjyc0IbNzEQ0k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_5Web-5c90fc18c9e77c0001ac191d.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
+ Lifewire / Gannon Burgett
+
+ The PowerCore+ 26800 features a single button on the top of the device to show remaining battery life and three ports on one of the two flat sides: two 5V/3A PowerIQ USB ports (Power IQ is Anker's proprietary smart-charging standard) and a power delivery[USB Type-C](https://www.lifewire.com/usb-c-4149490) port. It's a no-frills design that gets to the point without any unnecessary details or frills and it looks great when paired with any clean, modern device if you care about form as much as function.
+
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Setup Process: Simple to start, but there’s yet another adapter to carry around**
+
+ As with most battery chargers, there's not much to the Anker PowerCore+ 26800\. Inside the box is the battery pack, a 30W USB Type-C wall charger, and two cables: a USB Type-C to USB Type-C and a micro USB to USB Type-C.
+
+![Anker](https://www.lifewire.com/thmb/Ps-fDFicjMGSS8OppN-xw5yn_mg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_1-Web-5c90fc3dc9e77c0001eb1cc5.jpg)
+
+ Lifewire / Gannon Burgett
+
+ Our device came approximately 50% charged based on the battery life indicator lights on the top. We immediately burned through what battery life it had so we could start fresh with testing to see how quickly the 30W wall charger could fill the 26800mAh capacity.
+
+ It's a no-frills design that looks great when paired with any clean, modern device if you care about form as much as function.
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Charging Speed and Battery: Slow and steady wins this race**
+
+ From zero percent battery life, the PowerCore+ 26800 charged to 100% in four hours flat, both in our initial test and our eight additional battery cycles, with only ten or fifteen-minute variances. This time lines up perfectly with Anker's given timeframe, which states it will charge in four hours when using the included 30W[USB](https://www.lifewire.com/universal-serial-bus-usb-2626039) wall charger and USB Type-C cable.
+
+ The Anker PowerCore+ 26800 retails for $129.99\. That alone is a deal in terms of power output, but add in the accessories and it's an absolute steal.
+
+ We tested the PowerCore+ 26800's charging abilities using three different devices: two smartphones and a laptop. The smartphones we used were an iPhone XS and a Samsung Galaxy S8 Active and the laptop we had on hand was a 2016 MacBook Pro 15-inch.
+
+ For the smartphones, we made sure the PowerCore+ 26800 was charged up entirely and ran both the iPhone XS and Samsung Galaxy S8 Active through complete battery cycles until the battery pack was out of juice. The iPhone XS was charged six and a half times with an average time of an hour and a half using the PowerIQ USB port with a Lightning cable. The Samsung Galaxy S8 Active, on the other hand, managed seven and a half charges with an average charge time of an hour and fifteen minutes using the included USB Type-C to USB Type-C cable.
+
+![Anker](https://www.lifewire.com/thmb/tJwshohQXfV-U0_iKVTCkHEhFLU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_6Web-5c90fcc6c9e77c0001a92733.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ Lifewire / Gannon Burgett
+
+ We tested the PowerCore+ 26800 on our 2016 MacBook Pro 15-inch four different times to get a solid average. With the laptop completely dead, the battery pack managed to charge it to 100% in just three and a half hours with a little battery life to spare.
+
+## **Price: Perfectly priced for its power**
+
+ The Anker PowerCore+ 26800 retails for $129.99\. That alone is a deal in terms of power output, but add in the 30W USB wall charger and the two cables and it's an absolute steal. The USB wall charger alone goes for $25.99 and the cables easily add up to $10 together, meaning you're effectively paying $100 for the charger.
+
+## **Anker PowerCore+ 26800 vs. RAVPower 26800**
+
+ Anker PowerCore+ 26800 has an almost identical competitor, the RAVPower 26800\. The two battery packs feature the exact same capacity and both are capable of outputting 30W charging via their respective USB Type-C ports.
+
+ The RAVPower 26800 retails for $79.99, a full $50 less than the Anker PowerCore+ 26800, but it doesn't include the USB wall charger. It also recharges using Micro USB, meaning it's going to be a fair bit slower than the Anker PowerCore+ 26800, which uses USB Type-C. RAVPower claims its battery pack can recharge fully in 4-5 hours.
+
+ Want to take a look at some other options? See our guide to the[best portable laptop battery chargers](https://www.lifewire.com/best-portable-laptop-battery-4050506) .
+
+ Final Verdict
+
+**The perfect little power pack.**
+
+ Yes, it's a little more expensive than its RAVPower contemporary, but considering the included accessories and more thoughtful design, it makes it worth it to spring the extra cash, especially when you take into account the 18-month warranty Anker offers.
+
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Similar Products We've Reviewed
+
+* [MaxOak 185Wh/50000mAh Battery Pack](https://www.lifewire.com/maxoak-185wh-50000mah-battery-pack-review-4589398)
+* [Jackery PowerBar Battery Pack](https://www.lifewire.com/jackery-powerbar-battery-pack-review-4589480)
+* [ChargeTech 27000mAh Battery Pack](https://www.lifewire.com/chargetech-27000mah-battery-pack-review-4589409)
+
+## Specs
+
+* Product Name  PowerCore+ 26800 Battery Pack
+* Product Brand  Anker
+* Price  $119.00
+* Release Date  April 2017
+* Weight  1.27 lbs.
+* Product Dimensions  6.54 x 3.15 x 0.91 in.
+* Color  Gunmetal
+* Removable Cables  Yes, included
+* Controls  Battery indicator button
+* Inputs/Outputs  One 30W USB Type-C port, Two QuickCharge 3.0 USB ports
+* Warranty  18 months
+* Compatibility  Android, iOS
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-download-and-installation-101-your-pathway-to-mastering-ez-grabber/"><u>[New] 2024 Approved  Download & Installation 101  Your Pathway to Mastering EZ Grabber</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expertise-in-capturing-high-quality-verbal-notes/"><u>[New] Expertise in Capturing High-Quality Verbal Notes</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-retro-tech-treasure/"><u>[New] In 2024, Retro Tech Treasure</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-photography-rookies-digest-prime-cams/"><u>[New] Photography Rookies Digest  Prime Cams</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-digital-domain-decision-which-platform-for-your-videos-in-2024/"><u>[Updated] Digital Domain Decision  Which Platform for Your Videos, In 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-personalize-your-viewing-experience-building-a-google-cardboard-vr-setup/"><u>[Updated] Personalize Your Viewing Experience  Building a Google Cardboard VR Setup</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-synchronize-speech-and-slide-show-the-voiceover-advantage/"><u>[Updated] Synchronize Speech and Slide Show  The Voiceover Advantage</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-celebrating-creators-top-notch-otu-designs/"><u>2024 Approved  Celebrating Creators  Top-Notch OTU Designs</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-zero-to-meme-hero-crafting-engaging-gifs/"><u>2024 Approved  From Zero to Meme Hero  Crafting Engaging GIFs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-kobo-clara-colours-screen-brilliance-ereader-reviews/"><u>A Closer Look at Kobo Clara Colour's Screen Brilliance – eReader Reviews</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-rings-doorbell-systems-pros-cons-and-tips-for-optimal-use/"><u>A Closer Look at Ring's Doorbell Systems - Pros, Cons & Tips for Optimal Use</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-look-at-the-samsung-fp51-5k-uhd-gaming-display/"><u>A Comprehensive Look at the Samsung FP51 5K UHD Gaming Display</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amped-up-motorola-one-hyper-review-stellar-value-in-a-compact-design/"><u>Amped Up Motorola One Hyper Review: Stellar Value in a Compact Design</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/brilliance-at-a-click-choosing-5-pioneering-apps-for-video-for-2024/"><u>Brilliance at a Click  Choosing 5 Pioneering Apps for Video for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/budget-savvy-shooters-top-5-under-200-cameras/"><u>Budget-Savvy Shooters  Top 5 Under $200 Cameras</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-oppo-a59-5g-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Oppo A59 5G Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-fixes-how-to-recover-forgotten-icloud-password-on-your-apple-iphone-13-mini-by-drfone-ios/"><u>Easy Fixes How To Recover Forgotten iCloud Password On your Apple iPhone 13 mini</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722708397617-get-ultimate-hdtv-reception-with-1byones-amplified-indoor-antenna-a-bargain-for-your-broadcast-needs/"><u>Get Ultimate HDTV Reception with 1Byone's Amplified Indoor Antenna - A Bargain for Your Broadcast Needs!</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/hdr-lighting-insight-does-it-merit-creation/"><u>HDR Lighting Insight  Does It Merit Creation?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-on-oppo-a58-4g-by-drfone-android/"><u>How to Bypass FRP on Oppo A58 4G?</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/improving-gameplay-essential-tips-to-resolve-stutters-and-enhance-frame-rate-in-valorant/"><u>Improving Gameplay: Essential Tips to Resolve Stutters & Enhance Frame Rate in Valorant</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nest-audio-review-a-smart-speaker-for-music-lovers/"><u>Nest Audio Review: A Smart Speaker for Music Lovers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/omoton-t1-tablet-support-examined-an-economical-and-reliable-choice-for-users/"><u>Omoton T1 Tablet Support Examined: An Economical and Reliable Choice for Users</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-iphone-mail-delays-strategies-to-ensure-updated-inboxes/"><u>Overcoming iPhone Mail Delays: Strategies to Ensure Updated Inboxes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/post-weld-treatments-can-enhance-the-performance-and-longevity-of-welded-assemblies-by-relieving-residual-stresses-and-improving-ductility/"><u>Post-Weld Treatments Can Enhance the Performance and Longevity of Welded Assemblies by Relieving Residual Stresses and Improving Ductility.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/poweradd-pilot-pro2-unveiled-enhanced-power-capabilities-for-your-laptop-and-more/"><u>POWERADD Pilot Pro2 Unveiled: Enhanced Power Capabilities for Your Laptop and More</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-analog-playback-the-at-lp60xbt-story/"><u>Revolutionizing Analog Playback: The AT-LP60XBT Story</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-meteorology-a-comprehensive-review-of-netatmos-sleek-and-intuitive-weather-gadget/"><u>Revolutionizing Meteorology: A Comprehensive Review of Netatmo's Sleek and Intuitive Weather Gadget</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/rotibox-bluetooth-earwarmers-top-notch-headgear-with-superior-sound-quality/"><u>Rotibox Bluetooth Earwarmers: Top-Notch Headgear with Superior Sound Quality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/staying-ahead-of-the-heat-game-thermaltakes-luxurious-yet-expensive-massive-tm-laptop-cooling-pad-an-in-depth-review/"><u>Staying Ahead of the Heat Game - Thermaltake's Luxurious Yet Expensive Massive TM Laptop Cooling Pad: An In-Depth Review</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/tech-hack-for-free-swiftly-remove-red-eyes-from-iphone-photos-for-2024/"><u>Tech Hack for Free  Swiftly Remove Red Eyes From iPhone Photos for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-radio-gear-for-police-in-24/"><u>The Best Radio Gear for Police in '24</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-outer-worlds-gaming-experience-an-exciting-mix-of-sci-fi-action-and-story/"><u>The Outer Worlds Gaming Experience – An Exciting Mix of Sci-Fi, Action and Story</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-auto-enthusiast-reader-all-the-must-read-book-listings-on-automotive-innovations-for-fans-edition/"><u>The Ultimate Auto Enthusiast Reader – All the Must-Read Book Listings on Automotive Innovations for Fans Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-barnes-and-noble-nook-glowlight-cuhrtine-edition-review-why-it-shines-at-night/"><u>The Ultimate Barnes & Noble Nook GlowLight Cuhrtine Edition Review - Why It Shines at Night!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-using-your-lenovo-tab-m10-hd-a-top-review-of-its-media-capabilities-in-2020/"><u>The Ultimate Guide to Using Your Lenovo Tab M10 HD: A Top Review of Its Media Capabilities in 2020</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-test-of-barnes-and-noble-nook-glowlight-3-the-perfect-device-for-evening-readers/"><u>The Ultimate Test of Barnes & Noble Nook Glowlight 3 – The Perfect Device for Evening Readers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-amazon-fire-tv-cube-top-performers-in-speedy-streaming/"><u>Ultimate Guide to Amazon Fire TV Cube: Top Performers in Speedy Streaming</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-best-top-race-rc-rock-crawler-mastering-all-terrain-adventures/"><u>Ultimate Guide to the Best Top Race RC Rock Crawler: Mastering All-Terrain Adventures</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722719195650-unpacking-the-power-and-efficiency-of-the-portable-acer-predator-triton-300-se/"><u>Unpacking the Power and Efficiency of the Portable Acer Predator Triton 300 SE!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-lenovo-thinkpad-x12-detachable-notebooktablet-combo-a-marvelous-2-in-1-experience-and-exquisite-keyboard-functionality/"><u>Unveiling the Lenovo ThinkPad X12 Detachable Notebook/Tablet Combo – A Marvelous 2-in-1 Experience & Exquisite Keyboard Functionality</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/why-does-suzhou-ribo-sword-and-fairy-7-keep-crashing-troubleshoot-now/"><u>Why Does Suzhou Ribo (Sword & Fairy 7) Keep Crashing? Troubleshoot Now!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/zen-5-flagship-ryzen-9-9950x-claims-5th-place-in-global-cpu-performance-race-against-core-loaded-xeon-and-threadripper-chips/"><u>Zen 5 Flagship Ryzen 지킨 9 9950X Claims 5Th Place in Global CPU Performance Race Against Core-Loaded Xeon and Threadripper Chips</u></a></li>
+</ul></div>

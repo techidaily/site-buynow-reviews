@@ -1,0 +1,326 @@
+---
+title: "Unlocking Peace of Mind: A User's Journey Through the Features of Arlo Home Surveillance Solutions"
+date: 2024-08-22T16:17:28.668Z
+updated: 2024-08-23T16:17:28.668Z
+categories:
+  - BestProducts
+description: "This Article Describes Unlocking Peace of Mind: A User's Journey Through the Features of Arlo Home Surveillance Solutions"
+excerpt: "This Article Describes Unlocking Peace of Mind: A User's Journey Through the Features of Arlo Home Surveillance Solutions"
+thumbnail: https://thmb.techidaily.com/1df433206ff11dec7faaaf54cae7b4a5f98f51a6cf19d2906c605406cb94fb11.jpg
+---
+
+## The Next Generation of Gaming: A Deep Dive Into the Features, Performance & Stylish Appearance of Dell's Alienware Aurora Rnv
+
+3.3
+
+## Alienware Aurora R9
+
+![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/SBirmVys72S63lQd4lWukO_gXRw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
+
+Lifewire / Zach Sweat
+
+ What We Like
+
+* Attractive design
+* Excellent airflow
+* Tons of port options
+
+ What We Don't Like
+
+* A bit pricey
+* Huge bulky tower
+* No window to see components
+
+ The Aurora R9 from Alienware offers an interesting design and lots of customization options, but it isn’t the most budget-friendly option around.
+
+[View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Falienware-aurora-r9-gaming-desktop-intel-core-i7-9700-16gb-memory-nvidia-geforce-rtx-2080-super-1tb-hdd-512gb-ssd-white-lunar-light%2F6373818.p%3FskuId%3D6373818) [View On Dell](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.dell.com%2Fen-us%2Fshop%2Fcty%2Fpdp%2Fspd%2Falienware-aurora-r9-desktop)
+
+3.3
+
+## Alienware Aurora R9
+
+![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/BiBvvSXCg5l15o1T-fJmijAM9PQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
+
+Lifewire / Zach Sweat
+
+[View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Falienware-aurora-r9-gaming-desktop-intel-core-i7-9700-16gb-memory-nvidia-geforce-rtx-2080-super-1tb-hdd-512gb-ssd-white-lunar-light%2F6373818.p%3FskuId%3D6373818) [View On Dell](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.dell.com%2Fen-us%2Fshop%2Fcty%2Fpdp%2Fspd%2Falienware-aurora-r9-desktop)
+
+ in this article
+
+ Expand
+
+* [Design](https://www.lifewire.com/#toc-design-polarizing-sci-fi-aesthetics)
+* [Setup Process](https://www.lifewire.com/#toc-setup-process-plug-and-play)
+* [Performance](https://www.lifewire.com/#toc-performance-results-may-vary)
+* [Gaming](https://www.lifewire.com/#toc-gaming-from-ok-to-amazing-if-you-have-the-cash)
+* [Audio](https://www.lifewire.com/#toc-audio-decent-prebuilt-performance-and-surround-sound)
+* [Network](https://www.lifewire.com/#toc-network-solid-ethernet-average-wi-fi)
+* [Software](https://www.lifewire.com/#toc-software-windows-10-with-some-bloatware-and-extras)
+* [Price](https://www.lifewire.com/#toc-price-not-the-best-bang-for-your-buck)
+* [Competition](https://www.lifewire.com/#toc-alienware-aurora-r9-vs-dell-g5-5090)
+* [Final Verdict](https://www.lifewire.com/#toc-final-verdict)
+* [Specs](https://www.lifewire.com/#toc-full-spec)
+
+ _We purchased the Dell Alienware Aurora R9 so our expert reviewer could thoroughly test and assess it. Keep reading for our full product review._
+
+ Alienware as a company has changed a lot since its early days back in Miami as a boutique PC builder. Acquired in 2006 by tech giant Dell, the brand has had some ups and downs over the years since then, but they still remain a reliable option for those seeking quality[prebuilt computers](https://www.lifewire.com/building-vs-buying-a-pc-832692) .
+
+ One such model Alienware has continued to build and improve upon over the years is their Aurora Desktop Gaming PC. Originally released in 2009 with the R1, the Aurora has seen[several iterations](https://www.lifewire.com/alienware-aurora-r7-review-4689097) over the last decade, steadily improving internals and changing designs. The R9 is Alienware’s latest version to hit the market—each model equipped with some of the newest tech around.
+
+ If the idea of building a computer from scratch with lots of individual components, yards of wires and nerve-racking installations seems a bit too much for you, picking up a PC like this that’s ready to go right out of the box can help new users get into the world of PC gaming without the hassle (though it really isn’t too bad these days).
+
+ So how does the Aurora R9 measure up against competitors in the massive prebuilt PC space? Peruse our review here and find out for yourself before pulling the trigger on such a costly purchase.
+
+![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wRBNGBQw39Gc3PVZ6i0PJB4LuWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-08-406d659ae21641d2b9df53303e8f6d76.jpg)
+
+ Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Design: Polarizing sci-fi aesthetics**
+
+ The best way to describe Alienware’s design for a vast majority of their products can be summed up as “polarizing.” Going all the way back to the company’s early days, their sci-fi and alien-esque aesthetics have always appealed to some, while those who prefer clean lines and minimal looks flee in the opposite direction.
+
+ The progression of the Aurora’s tower design has drastically changed between models, but the R9 continues this potentially polarizing design with its overall look. What we essentially mean here is that when it comes to the Aurora, you’ll either love or hate it.
+
+ Shaped a bit like a futuristic oblong jet engine, the R9 features a huge air intake along the front that tapers from back to front. It comes in two colors currently, including grey and white. Despite being marketed as more of a mid-tower case, the R9 is quite bulky and large thanks to this design choice. Weighing in at nearly 40 pounds (which will fluctuate depending on which hardware you select), it’s also heavy, so don’t plan on moving it around too often.
+
+ Along this front intake is a slim flat panel surrounded by the R9’s only RGB lighting (more expensive models also include an RGB “Alienware” on the right side), which changes fluidly between various tones when powered up (a nice touch for those who don’t love RGB plastered everywhere, but not enough for those who love RGB everything).
+
+ Right at the top of the panel is the iconic Alienware logo (also RGB) that cleverly doubles as the desktop’s power button. Below this is an array of handy ports, including three Type-A USB 3.1 Gen 1 ports, a single[USB-C](https://www.lifewire.com/usb-c-4149490) 3.1 Gen 1 port, a headphone/line out and microphone/line in. The placement of these is superb, allowing users to easily reach more than enough ports for just about anything they need to connect to their tower.
+
+ Moving along to the top and sides of the case, the R9 surprisingly doesn’t adopt the popular new trend of including a glass or plastic window pane so users can see their PC’s internals, but not everyone is on board for this look either. Instead, the top and sides are simply equipped with some intakes for airflow, while the right side has a large Alienware label near the back.
+
+ The rear of the new Aurora model isn’t the most attractive, with its bare metal construction, but this isn’t really important since you’ll likely never see it. Without listing the huge amount of ports back here (you can check the specs tab on this page for the full breakdown), the back hosts all of your connections for displays, power, speakers, USBs and more. Arranged in a vertical I/O shield, these are all easily accessible and quite standard for a desktop PC.
+
+ If you love Alienware or the look of the R9, it’s not a bad option, but it’s certainly not the most frugal.
+
+ Inside the case, Alienware has made the new R9 quite upgradeable, allowing owners to easily pull things apart for access to various components. Though it’s a bit cramped inside, the genius ability to swing the PSU (power supply unit) out to the side when the case is removed provides easier access to the motherboard and all its parts. While we’re a bit concerned with the airflow due to this tight fit inside the case, it does allow you to upgrade hardware down the line if you want.
+
+## **Setup Process: Plug and play**
+
+ Because this is a prebuilt, setting up your new PC is super simple—essentially plug and play. This is another hugely important thing to consider if you want to get into PC gaming, but don’t know the first thing about installing an OS, troubleshooting build issues or navigating the BIOS.
+
+ Once you’ve got the R9 unboxed, the first step is to plug everything in. The basic list for this includes the power cable, your display port of choice (the R9 comes with VGA,[HDMI,](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) and[DisplayPort](https://www.lifewire.com/displayport-vs-hdmi-4686971) depending on your hardware), a mouse and keyboard and Ethernet if you’re not using the included Wi-Fi card.
+
+ With your tower properly plugged in to all these various parts, you can then go ahead and hit the power button to boot it up. Because these PCs come pre-equipped with Windows 10, the Aurora should only take a bit to get started during the initial boot sequence before prompting you to follow along with the on-screen instructions for setting up Windows. This portion is pretty simple, so just follow along the steps that’ll have you sign into your Microsoft account (or create one), connect to the internet, select a language and timezone, etc.
+
+ Upon landing at your new desktop within Windows 10, the rest of the setup process is mostly up to you. Typically, I continue the initial process by checking for Windows updates, installing those first and restarting as necessary, followed by downloading updates for drivers and graphics cards. Once you’ve got the important software updated, the next best thing is to download your favorite apps and software you want to use, like Steam, Spotify, Chrome, etc.
+
+ From here, you can either fine tune your new PC’s looks within the settings menu or keep things as they are. If you’re using a monitor with a higher refresh rate or resolution, it’s also a good idea to ensure your PC is fully utilizing this by perusing the display settings and options. After all, nobody likes finding out they’ve been stuck on 60Hz with their display that’s capable of hitting 144Hz.
+
+## **Performance: Results may vary**
+
+ Determining the overall performance of the Aurora R9 will entirely be subject to which hardware options or model you purchased. For performance, you get what you pay for. A quick note on this is that you should typically purchase the best components for your specific needs that are within your budget. If you want to primarily game, your GPU is perhaps the most important part, so start there. For those who want a balance between gaming and work performance, make sure you get a decent CPU.
+
+ So with that disclaimer out of the way, we can evaluate the performance of our specific R9 model, which happens to be the base unit at the cheapest price point. This variant is equipped with a 9th Gen Intel Core i5 9400, NVIDIA GeForce GTX 1650, 8GB HyperX FURY DDR4 XMP at 2666MHz and a 1TB 7200RPM SATA 6Gb/s HDD. None of these components are considered top-of-the-line, but this is the budget build of the R9 models that’ll probably be one of the more popular options due to the price.
+
+ First up, let’s take a look at boot time. Unfortunately, this model doesn’t include an[SSD](https://www.lifewire.com/solid-state-drive-833448) for the boot drive, unlike most of the pricier options. You can add one, but it costs extra. HDDs like the 7200RPM one on our version are notoriously slower compared to an SSD, so the roughly 40-second boot time for ours leaves a bit to be desired. In contrast, an SSD will normally take just 10 seconds.
+
+ This HDD is also slower for everything else. Searching through folders, opening files, loading games and anything else that involves storage access will be a bit sluggish. I may be biased coming from a PC with M.2 SSDs, but it’s something to consider when looking through options on hardware when buying a PC. If you can afford it, I highly recommend adding an SSD, even if it’s just for the OS.
+
+ The i5 9400 CPU certainly won’t blow you away, but for most lighter tasks like browsing the web, shuffling through files and doing some light editing with Adobe products, it’s perfectly capable for most average users. If you want to do lots of heavy computing, you’ll need to spend the dough on a beefier CPU.
+
+ On the whole, this hardware config is decent for light users, but probably not enough for those who want to do a lot of multitasking or intense, CPU-dependent processing.
+
+![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/zWvKnnWGsRBdtRIHTYYD7HEs0qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-13-88a6bd8dac13438794a0bb038df7757f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
+ Lifewire / Zach Sweat
+
+## **Gaming: From ok to amazing, if you have the cash**
+
+ Much like performance in everyday tasks, your performance in gaming is based on what hardware your Aurora features. You can go all the way up to a monsterous gaming rig with a GTX 2080, or all the way down to our little base model with a GTX 1650, so it’s up to you how much performance you’re willing to pay for.
+
+ For our R9 with a modest 1650 GPU, performance will surpass entry-level gaming consoles of the time, like a[Nintendo Switch](https://www.lifewire.com/nintendo-switch-review-4707563) , PS4 or Xbox One. However, it’s essentially capped with 1080p gaming, so keep that in mind if you want to bump up to 2K or 4K resolutions, as it’ll struggle to provide solid performance.
+
+ We tested the Aurora with a number of titles, from indie games to bigger AAA titles, each of which can vastly differ in terms of optimization. For our monitor, we used a 1080p Viewsonic display capable of hitting 144Hz to ensure this peripheral wouldn’t hold back the PC.
+
+ Now onto the tests. First up, we monitored the average frames per second (fps) on some bigger titles like Gears 5, Battlefield V and PUBGrunning the recommended settings. For hardware intensive games like these, the R9 was surprisingly capable, usually in the range of 60-70fps on average. This isn’t amazing, but it is solid and better than the performance of something like an XB1\. Thanks to our monitor’s adaptive synchronization technology, we didn’t notice any big tears or stutters either.
+
+ With indie games or those less GPU-intensive, like Terraria, League of Legends and World of Warcraft, this specific R9 variant was more than capable, successfully getting over 100 FPS with ease and even maxing out the 144Hz of our monitor for some titles. If you’re not someone who demands the best graphics settings or the latest AAA titles, this Aurora is a decent option if you want to save some money.
+
+ Aside from FPS, the load times for games compared to my[SSD-equipped](https://www.lifewire.com/best-external-hard-drives-4050413) PC were much, much slower. Loading into planets and zones in[Destiny 2](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) takes only a few moments with an SSD, while this HDD R9 felt twice as long or more—similar to what you’d see with any current-gen gaming console (they all have HDDs).
+
+ Your gaming performance in relation to the Aurora is subject to your hardware, peripherals and network speeds if playing an online game, so choose the best model you can afford within your budgetary restrictions and keep in mind how you plan to use your PC.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
+## **Audio: Decent prebuilt performance and surround sound**
+
+ A quality audio setup is something often overlooked when it comes to computers, but it’s something that can really add to the overall enjoyment of your PC. Immersive soundscapes in games and movies, astounding dynamic range in music and crisp, clear dialogue combine to separate the mediocre computers from the great.
+
+ For the Aurora R9, the audio quality is surprisingly good, thanks to a host of included hardware and software options like internal high-definition 7.1+2 performance audio. However, this being a prebuilt coming straight from Dell, it’s a bit more difficult to determine where the included Realtek ALC3861 driver falls on the spectrum because it’s exclusive to Dell products.
+
+ Taking a close look at our entry-level R9 stacked against a similarly priced G5, it’s easy to see how the premium Alienware branding comes into play.
+
+ If you’ve got a beefy external audio setup with lots of speakers, you’re in luck, as the R9 features tons of ports for your equipment. Ports on the back include a center/subwoofer output, rear surround output, side surround output and two coaxial S/PDIF ports for connecting an amplifier, speakers or a TV for digital audio output through a coaxial cable.
+
+ Although true audiophiles will still want to stick with a DAC, or digital-to-analog converter, the Aurora R9 packs in pretty decent audio options for most users.
+
+## **Network: Solid Ethernet, average Wi-Fi**
+
+ In the age of the internet, network speeds and performance are paramount for most users, especially so if you’re a gamer. This fact not only applies to those who love online multiplayer games, but also those who prefer singleplayer since most people now download their software online.
+
+ Like most modern computers these days, the Aurora R9 will provide optimal network speeds while connected to a good ole Ethernet cable. Installed on our R9, and all other Aurora models, is the RJ-45 Killer E2500 Gigabit Ethernet port. With a proper Ethernet cable, this port can provide a maximum data rate up to 1,000 Mbps. Since most people around the world still lack access to any internet speeds that quick, the included[gigabit port](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) will essentially be capped at whatever your internet speed is (ours is 200 Mbps).
+
+ The R9 also features an integrated networking solution called Killer E2500 Ethernet LAN, which is found on the motherboard of all Alienware Auroras. The Killer E2500 is the newest Rivet Networks gigabit Ethernet controller that works by detecting and prioritizing your games, video and chat applications to improve latency, reduce jitter and help eliminate video freezes.
+
+ Using the included Killer Control Center software provides even more benefits to your network performance. This program allows users to control tons of various aspects for their PC’s network, so it’s a nice extra to have included in the purchase. With this software, you can see which applications are using bandwidth and how much of your bandwidth is being used. Killer Control Center will then automatically prioritize certain apps or let you decide for yourself which ones you want to have priority for optimal performance.
+
+ Wi-Fi is something that still lags far behind a hard-wired connection, and the Aurora R9 is no different in this area. Downloading games in Steam was significantly slower compared to Ethernet, but it’s suitable for browsing the web, streaming content or playing online (though subpar vs. Ethernet).
+
+ There are multiple Wi-Fi options for hardware on the R9 if you’re willing to pay extra, but the included 802.11ac 2x2 Wireless, Wi-Fi and Bluetooth 4.1 worked well enough for us in a pinch. Even still, you’re better off using a cable.
+
+![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wMnVqt6RV24C1Vfncnf2J3E0fAg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-15-fe70fca5ffd04da6abd8c0ef8f026eef-f6d5eaf9efcb461a902fc750a192dd0c.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+ Lifewire / Zach Sweat
+
+## **Software: Windows 10 with some bloatware and extras**
+
+ Whether or not you love Windows 10, the somewhat infamous OS is what you’ll inevitably get from Dell when you purchase an Aurora R9\. If you’re new to the system, it takes a bit of getting used to, but it’s simple enough for everyone to navigate once you get going.
+
+ Despite literally no one asking for it, there’s a considerable amount of bloatware included with Windows 10\. Most of this software is simply annoying or unnecessary, but some of it can actually be useful.
+
+ The interesting bits of included software come straight from Alienware in the form of their Alienware Command Center. In a nutshell, this command center lets Aurora owners do things such as selecting auto-tuned game profiles, browse overclocking options and control RGB lights with the all-new AlienFX settings.
+
+ With thermal control, you can monitor internal temperatures and adjust fans to their ideal ranges to help remove excess heat from the system while keeping fan volume down. If you’re someone who’s into overclocking, the Alienware Command Center also has an intuitive overclocking control module for squeezing extra performance from your system. Users can create their own profiles here and activate them on the fly.
+
+ For RGB fans, the AlienFX hardware and software provides tons of potential combinations with up to 16.8 million color options. Users can take full control of the external RGB along the front and sides of the tower in addition to supported peripherals. Themes you create can also be saved and assigned to specific games, which is a pretty sweet perk.
+
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Price: Not the best bang for your buck**
+
+ PC gaming is notoriously expensive to initially get into, but the prices of many components have continued to dwindle over the decades. Although the old adage that building your own computer from scratch is cheaper still holds true, prebuilt computers have also become much more comparable. So how does this Alienware match up?
+
+ First off, boutique builders like Alienware almost always come with a premium, so it’s no surprise that the new Aurora R9 may not be the best bang for your buck if you want to get the most for your money. Alienware is also one of the most famous brands in this sector, so this fact is especially true.
+
+ Starting at $850 for our entry level model and reaching all the way up to $5,000 and beyond for the most monstrous R9 models, the new Aurora isn’t exactly affordable, but it’s not terrible. Using PCPartPicker, we were able to build a comparable PC for roughly $700\. This however does require you to assemble it yourself, but it’s not as hard as you might think.
+
+ Shaped a bit like a futuristic oblong jet engine, the R9 features a huge air intake along the front that tapers from back to front.
+
+ Another thing to keep in mind here is that the $850 price point doesn’t include much in the way of peripherals, and these can really add up. The Aurora R9 does include a shoddy Dell keyboard and mouse, but these accessories are definitely the bare minimum, and won’t provide the best experience.
+
+ Overall, the price of the R9 is ok at best, and you do get some nice software features from Alienware, but it’s still cheaper to build your own.
+
+## **Alienware Aurora R9 vs. Dell G5 5090**
+
+ Comparing two gaming PCs in a head-to-head competition is difficult due to the sheer amount of potential hardware configurations, but Dell also offers prebuilts outside the Alienware brand that are similar.
+
+ Launched around the same time in 2019, the Aurora R9 and[Dell’s G5 5090](https://www.lifewire.com/dell-g5-5090-review-4843348) (see at[Dell](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.dell.com%2Fen-us%2Fshop%2Fgaming-and-games%2Fnew-dell-g5-gaming-desktop%2Fspd%2Fg-series-5090-desktop) ) provide two potential options if you’re looking for a prebuilt gaming rig. Taking a close look at our entry-level R9 stacked against a similarly priced G5, it’s easy to see how the premium Alienware branding comes into play.
+
+ For $850, you can get our R9 with the 9th Gen Intel Core i5 9400, NVIDIA GeForce GTX 1650, 8GB HyperX FURY DDR4 XMP at 2666MHz and a 1TB 7200RPM SATA 6Gb/s HDD. But for $100 less at $750, you can move up to the second-tier G5 equipped with a 9th Gen Intel Core i5 9400, NVIDIA GeForce GTX 1660 Ti, 8GB DDR4 at 2666MHz, 1TB 7200 RPM SATA 6Gb/s HDD.
+
+ As you can see, the Alienware branding adds an additional $100 to the price, and even has a worse GPU. Though the 1660 Ti isn’t a huge step up, it’ll definitely add better performance across the board to your gaming experience. The argument could be made that the Aurora looks much better than the G5 (it’s not a real looker), but if you want the best setup you can get, the G5 offers more for less.
+
+ Final Verdict
+
+ **A quality prebuilt, but not the most frugal.**
+
+ With a distinct design that only Alienware can pull off, the Aurora R9 is a futuristic-looking prebuilt PC with a lot of good, but a bit of extra cost. If you love Alienware or the look of the R9, it’s not a bad option, but it’s certainly not the most frugal.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Specs
+
+* Product Name  Aurora R9
+* Product Brand  Alienware
+* Price  $800.00
+* Release Date  June 2019
+* Weight  39.2 lbs.
+* Product Dimensions  18.9 x 8.77 x 17 in.
+* Color  Silver
+* Processor  Intel Core i5 9400
+* GPU  NVIDIA GeForce GTX 1650
+* RAM  8GB HyperX FURY DDR4
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-from-eyeballs-to-earnings-the-price-of-popular-videos/"><u>[New] 2024 Approved  From Eyeballs to Earnings  The Price of Popular Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/emystifying-ajeys-monetization-strategy-youtube-edition/"><u>[New] Demystifying Ajey's Monetization Strategy - YouTube Edition</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-embark-on-effortless-discord-video-chats-tips-and-tricks/"><u>[Updated] 2024 Approved  Embark on Effortless Discord Video Chats - Tips & Tricks</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-screencast-insights-101-key-concepts-for-video-creators/"><u>[Updated] 2024 Approved  Screencast Insights 101  Key Concepts for Video Creators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-streamline-your-videography-journey-choose-from-the-top-8-free-tools/"><u>[Updated] 2024 Approved  Streamline Your Videography Journey  Choose From the Top 8 Free Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-empowering-users-to-tackle-instagram-video-snags/"><u>[Updated] In 2024, Empowering Users to Tackle Instagram Video Snags</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-the-complete-guide-to-crafting-impressive-timelapse-films-on-ipad/"><u>[Updated] The Complete Guide to Crafting Impressive Timelapse Films on iPad</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-top-free-youtube-rippers-reviewed/"><u>[Updated] Top Free YouTube Rippers Reviewed</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-navigating-your-digital-past-with-fbs-preview-feature/"><u>2024 Approved  Navigating Your Digital Past with FB's Preview Feature</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-transform-personal-experiences-through-direct-webcam-capture-using-vlc/"><u>2024 Approved  Transform Personal Experiences Through Direct Webcam Capture Using VLC</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-unveiling-the-hidden-world-of-hand-tracking/"><u>2024 Approved  Unveiling the Hidden World of Hand Tracking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-most-effective-wi-fi-network-boosters-a-comprehensive-review/"><u>2024'S Most Effective Wi-Fi Network Boosters: A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-top-choices-in-enhancing-your-wi-fi-coverage/"><u>2024'S Top Choices in Enhancing Your Wi-Fi Coverage</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/5-highly-rated-power-converters-to-look-out-for-ecofriendlytech/"><u>5 Highly Rated Power Converters to Look Out for #EcoFriendlyTech</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-nhl-2019s-compelling-internet-game-dynamics/"><u>A Closer Look at NHL 2019'S Compelling Internet Game Dynamics</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-perfect-mix-of-design-and-performance/"><u>A Perfect Mix of Design & Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-taste-of-sophistication-exploring-the-skagen-falster-2-as-an-upscale-alternative-to-apples-offerings/"><u>A Taste of Sophistication: Exploring the Skagen Falster 2 as an Upscale Alternative to Apple's Offerings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/acurite-pro-weather-station-01036m-review-simple-setup-robust-design/"><u>AcuRite Pro Weather Station 01036M Review: Simple Setup, Robust Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-caixun-75/"><u>Affordable Caixun 75</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-excellence-with-asus-chromebook-flip-c3e-ca-a-comprehensive-review/"><u>Affordable Excellence with Asus Chromebook Flip C3e CA: A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-mobvoi-ticwatch-e2-analysis-bargain-price-vs-quality-concerns/"><u>Affordable Mobvoi TicWatch E2 Analysis: Bargain Price vs Quality Concerns</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722798619303-affordable-portable-electric-car-chargers-discover-why-powerdrive-is-the-best-option-in-this-comprehensive-guide/"><u>Affordable Portable Electric Car Chargers - Discover Why PowerDrive Is the Best Option in This Comprehensive Guide!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-truckers-audio-companion-bluetooth-hearing-device-explored/"><u>Affordable Truckers' Audio Companion: Bluetooth Hearing Device Explored</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/all-in-one-tech-on-your-wrist-in-depth-analysis-of-samsung-gear-s3-frontier-features-and-functionality/"><u>All-in-One Tech on Your Wrist: In-Depth Analysis of Samsung Gear S3 Frontier Features and Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazfit-helio-ring-an-insight-into-its-pricing-strategy-market-debut-and-technical-details/"><u>Amazfit Helio Ring - An Insight Into Its Pricing Strategy, Market Debut, and Technical Details</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/can-you-unlock-apple-iphone-7-plus-after-forgetting-the-passcode-drfone-by-drfone-ios/"><u>Can You Unlock Apple iPhone 7 Plus After Forgetting the Passcode? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-a-reliable-tool-for-proofreading-content/"><u>ChatGPT: A Reliable Tool for Proofreading Content?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-kindle-and-amazon-fire-tablets-key-distinctions/"><u>Comparing Kindle and Amazon Fire Tablets: Key Distinctions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-most-economical-choice-for-home-security-our-comprehensive-vuebell-doorbell-guide/"><u>Discover the Most Economical Choice for Home Security: Our Comprehensive VueBell Doorbell Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/easy-tutorial-setting-up-a-unique-nintendo-network-profile-for-your-3ds-game-console/"><u>Easy Tutorial: Setting Up a Unique Nintendo Network Profile for Your 3DS Game Console</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-apples-homepod-mini-an-in-depth-analysis-of-audio-quality-and-smart-assistant-features/"><u>Exploring Apple's HomePod Mini: An In-Depth Analysis of Audio Quality & Smart Assistant Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722791997060-extension-headers-in-ipv6-must-be-carefully-managed-and-inspected-as-they-could-potentially-be-exploited-for-malicious-purposes/"><u>Extension Headers in IPv6 Must Be Carefully Managed and Inspected as They Could Potentially Be Exploited for Malicious Purposes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/for-operation-2-when-simplifying-terms-such-as-receptor-status-use-comparisons-like-just-like-some-people-need-different-kinds-of-glasses-depending-on-their37/"><u>For Operation 2, when Simplifying Terms Such as “Receptor Status” Use Comparisons Like “Just Like some People Need Different Kinds of Glasses Depending on Their Vision Needs.” Mention in Layman’s Terms at Least Once How Radiation Targets only the Bad Cells</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/from-shadows-to-highlights-the-ultimate-lightroom-hdr-guide/"><u>From Shadows to Highlights  The Ultimate Lightroom HDR Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-the-amazing-amazon-kindle-paperwhite-2e-2018-release-elevates-your-book-journey-in-depth-analysis-and-insights/"><u>How the Amazing Amazon Kindle Paperwhite (2E, 2018 Release) Elevates Your Book Journey: In-Depth Analysis and Insights</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-guide-on-how-to-change-your-apple-id-email-address-on-iphone-13-pro-max-by-drfone-ios/"><u>In 2024, Guide on How To Change Your Apple ID Email Address On iPhone 13 Pro Max</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-innovative-recording-solutions-for-dynamic-ppts-webcam-edition/"><u>In 2024, Innovative Recording Solutions for Dynamic PPTs, Webcam Edition</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-iphone-night-scene-mastery-guide/"><u>In 2024, IPhone Night Scene Mastery Guide</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Vivo Y36i | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-oppo-reno-11-5gs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Oppo Reno 11 5Gs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-oppo-k11-5g-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Oppo K11 5G Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/jabra-evolve2-85-review/"><u>Jabra Evolve2 85 Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-photo-management-with-the-nixplay-iris-system/"><u>Mastering Photo Management with the Nixplay Iris System</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-mac-video-editing-software-top-vsdc-alternatives/"><u>New 2024 Approved Mac Video Editing Software Top VSDC Alternatives</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/optimal-yt-video-cover-images-for-2024/"><u>Optimal YT Video Cover Images for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/rationality-meets-excellence-apples-iphone-se-2020-reviewed-thoroughly/"><u>Rationality Meets Excellence: Apple's iPhone SE (2020) Reviewed Thoroughly</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-chromebook-2-analysis-a-compact-powerhouse-for-on-the-go-work/"><u>Samsung Galaxy Chromebook 2 Analysis - A Compact Powerhouse for On-the-Go Work</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smart-home-savings-the-ultimate-guide-to-vuebells-value-packed-video-doorbell/"><u>Smart Home Savings: The Ultimate Guide to VueBell's Value Packed Video Doorbell</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-itel-p55-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Itel P55 with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-xiaomi-redmi-note-13-pro-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Xiaomi Redmi Note 13 Pro 5G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/step-by-step-guide-switching-to-ios-15/"><u>Step-by-Step Guide: Switching to iOS 15</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/streamline-your-work-with-the-miniaturized-hp-stream-11-notebook/"><u>Streamline Your Work with the Miniaturized HP Stream 11 Notebook</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722740216907-take-your-outdoor-viewing-experience-to-new-heights-with-the-55-inch-sealoc-coastal-silver-4k-tv-the-ultimate-guide-and-review/"><u>Take Your Outdoor Viewing Experience to New Heights with the 55-Inch Sealoc Coastal Silver 4K TV - The Ultimate Guide and Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-battle-of-tablets-in-depth-analysis-between-ipad-pro-and-surface-pro/"><u>The Battle of Tablets: In-Depth Analysis Between iPad Pro and Surface Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-selecting-the-best-streaming-device-apple-tv-4k-or-roku-ultra/"><u>The Ultimate Guide to Selecting the Best Streaming Device: Apple TV 4K or Roku Ultra?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-using-the-durable-urban-armor-laptop-bag-with-your-macbook-pro/"><u>The Ultimate Guide to Using the Durable Urban Armor Laptop Bag with Your MacBook Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/thermaltake-massive-tm-laptop-cooling-pad-review/"><u>Thermaltake Massive TM Laptop Cooling Pad Review</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-online-sources-for-3d-glitter-text-designs-for-2024/"><u>Top Online Sources for 3D Glitter Text Designs for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-of-comfort-oriented-ergonomic-keyboards-2024-edition/"><u>Ultimate Selection of Comfort-Oriented Ergonomic Keyboards - 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-seamless-integration-with-freestyle2-blue-software-for-your-mac-device/"><u>Unlocking Seamless Integration with Freestyle2 Blue Software for Your Mac Device</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-editing-power-filmora-for-youtube-trailers/"><u>Video Editing Power  Filmora for YouTube Trailers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/wallet-friendly-cameras-2024-roundup/"><u>Wallet-Friendly Cameras: 2024 Roundup</u></a></li>
+</ul></div>

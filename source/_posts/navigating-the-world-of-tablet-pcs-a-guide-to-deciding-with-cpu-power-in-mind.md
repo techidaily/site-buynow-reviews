@@ -1,0 +1,225 @@
+---
+title: "Navigating the World of Tablet PCs: A Guide to Deciding with CPU Power in Mind"
+date: 2024-08-22T16:20:30.325Z
+updated: 2024-08-23T16:20:30.325Z
+categories:
+  - BestProducts
+description: "This Article Describes Navigating the World of Tablet PCs: A Guide to Deciding with CPU Power in Mind"
+excerpt: "This Article Describes Navigating the World of Tablet PCs: A Guide to Deciding with CPU Power in Mind"
+thumbnail: https://thmb.techidaily.com/c89ca4d2db8c8241f93b3a96e44489938109c01f6c557fc5515bb23aae45515d.JPG
+---
+
+## The Ultimate Guide to Choosing a Reliable Jumpstarter: Featuring the Mighty Beatit BT-D11
+
+4.8
+
+## Beatit 800A BT-D11 Car Jump Starter
+
+![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/OIHJ0F8VMR0yFUpC8veJBJ39E6A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
+
+ Lifewire / Tony Mitera
+
+ What We Like
+
+* Small and light
+* Fantastic semi-hard carrying case
+* Low price
+* Great overall value
+
+ What We Don't Like
+
+* The flashlight has a very narrow beam
+* The jumper cables are relatively short
+
+ Bottom Line
+
+ With its low price yet high capability, the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter is one of the best jump starters you can buy.
+
+[View On EBay](https://www.ebay.com/p/563813511)
+
+4.8
+
+## Beatit 800A BT-D11 Car Jump Starter
+
+![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
+
+ Lifewire / Tony Mitera
+
+[View On EBay](https://www.ebay.com/p/563813511)
+
+ in this article
+
+ Expand
+
+* [Design](https://boody-eco-wear.pxf.io/qyo4oo)
+* [Setup Process](https://newchic.sjv.io/jzg4zq)
+* [Performance](https://25home.pxf.io/vnbxnv)
+* [Key Features](https://bluettifr.pxf.io/bax2bv)
+* [Price](https://ancheer.sjv.io/y96bgp)
+* [Competition](https://ship7com.pxf.io/0zwaz3)
+* [Final Verdict](https://bluettide.pxf.io/ekmjb2)
+* [Specs](https://turtlebeacheu.sjv.io/1r0r59)
+
+ _We purchased the Beatit BT-D11 Portable Car Jump Starter so our expert reviewer could thoroughly test and assess it. Keep reading for our full product review._
+
+ As important a job as a jump starter does when it comes to a situation where your vehicle just won’t start, you need a solution that's reliable yet easy to live with when you don’t need it. The Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter contains a lot of power within a small case, and along with its semi-hard case it shows promise to be a great companion to bring along in your vehicle. To see just how well it does the job of resurrecting a non-starting vehicle we drained the battery of a 2011 Hyundai Elantra down to 10V.
+
+ Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Design: A lot of power packed into a small frame**
+
+ The Beatit Jump Starter D11’s main unit's effectively a small black brick with red accents. Roughly the size of a small paperback book, the unit's constructed out of durable plastic and features a flashlight at one end. Along one of the long sides there's a small display that shows battery status, the on/off switch, two USB power outputs, and the device’s charging port. On the opposing side a rubber flap covers the jumper cable port; a unique port that the jumper cable accessory plugs in to.
+
+ The unit and all its accessories are contained within a semi-hard case. The clamshell design has two halves that zip together to keep the case closed. One side of the case contains the unit itself within a foam insert, while the other is an elastic mesh pouch for all the accessories. There's plenty of room to keep everything involved with the jump starter within its case, and with its shape and relatively small size we found it easy to keep the case in the car.
+
+ Time and again, the Beatit D11 was able to get a car with a very depleted battery started.
+
+ The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Setup Process: It can’t realistically be much simpler**
+
+ Should you find yourself in a situation where you need to use the jump start functionality of the Beatit Jump Starter D11, you'll find it quite easy to use. On our Elantra test vehicle we simply had to pop the hood, bring the unit over, and plug the jumper cable accessory into its port. Once in place getting a proper connection is a simple matter of attaching the red clamp to the positive battery terminal and then the black clamp to the negative terminal. With a firm connection in place we simply had to set the unit down someplace where the vibration of the engine wouldn’t make it slide and then start the car. With the unit in place the car immediately started with zero hesitation, at which point we could disconnect the unit and get back on the road.
+
+ Lifewire / Tony Mitera
+
+ If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
+
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Performance: Plenty of power for all your needs**
+
+ Time and again, the Beatit Jump Starter D11 was able to get a car with a very[depleted battery](https://www.lifewire.com/car-batteries-are-made-to-die-534765) started. Even after repeated testing the unit’s own battery only dropped down to 85% capacity.
+
+ Charging a phone with a jump starter seems like overkill, and the unit’s ability to charge at 1,200mAh confirms that impression. At such an elevated level of charging your phone or other device will likely get its battery topped off in very little time. With 18,000mAh of capacity you can fully charge a modern phone at least twice, and still leave the unit with the juice it needs in order to start a car.
+
+ Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Key Features: The flashlight is nice but is basically a spotlight**
+
+ There aren’t a ton of other features present with the Beatit Jump Starter D11 but there are some of note, including the unit’s built-in flashlight. It’s a nice addition to have if you must jump start a car in the middle of the night, but it doesn’t put out of a ton of light and the beam is pretty narrow. You can pick the unit up and use it as a large flashlight, though doing so while also trying to get the clamps attached is cumbersome.
+
+ A nice feature that is present in many jump starters but always appreciated is the included[12V port charger](https://www.lifewire.com/car-cigarette-lighter-12v-socket-534754) , which lets you charge the unit back up within the car once you have it started. Charging from the wall charger is faster overall, but people with a dodgy battery but a working alternator will appreciate being able to use the jump starter to get their car started and then charge the unit back up as they drive to their destination.
+
+ Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
+## **Price: A ton of value for a tiny cost**
+
+ The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
+
+ At that price point, it packs a ton of value into its diminutive size.
+
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Competition: In the battle of the smallest, this one reigns supreme**
+
+**_DBPOWER 600A Peak 18000mAh Portable Car Jump Starter:_**  When it comes down to it these two units are surprisingly similar, down to the case and overall design of the unit. If you really want the ability to use your jump starter to also charge your laptop the DBPOWER is worth a look. Otherwise, save yourself around $10 and stick with the Beatit BT-D11.
+
+[DBPOWER Portable Car Jump Starter Review](https://www.lifewire.com/dbpower-djs50-jump-starter-review-4783966)
+
+**_M MOOCK 1000A Peak 18000mAh Car Jump Starter:_**  This is another case of asking yourself how much you need the option to charge a laptop. The M MOOCK jump starter can but is also roughly $8 more. Its case is more of a flat square as well, so it slides more easily under seats. It’s a toss-up here, but the Beatit BT-D11 is a slightly better choice overall.
+
+ To read more reviews, check out our roundup of the[best portable jump starters](https://www.lifewire.com/best-portable-jump-starters-4140286) .
+
+ Final Verdict
+
+**For the price, it's perfect.**
+
+ In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
+
+## Specs
+
+* Product Name  800A BT-D11 Car Jump Starter
+* Product Brand  Beatit
+* MPN  BT-D11
+* Price  $70.00
+* Weight  1.19 lbs.
+* Product Dimensions  7.24 x 3.42 x 1.5 in.
+* Capacity  18,000mAh
+* Power Input  15V/1A port (delivered via wall charger or 12V car socket)
+* Jumping Peak Output Current  800A
+* Jumping Start Output Current  400A
+* Additional Power Output  USB: 2 ports; 5V/2.1A and 5V/1A
+* Operating Temperature Range  \-25 to 60C / -13F to 140F
+* Warranty  2-year limited
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-reviews.techidaily.com/7-days-to-die-an-engaging-twist-on-the-zombie-genre-exploring-a-fresh-approach-to-survival-horror-games/"><u>'7 Days to Die': An Engaging Twist on the Zombie Genre, Exploring a Fresh Approach to Survival Horror Games</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-prime-construction-tips-for-mc-community-abodes/"><u>[New] 2024 Approved  Prime Construction Tips for MC Community Abodes</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-future-is-now-insights-from-jaunt-vr-review/"><u>[New] The Future Is Now  Insights From Jaunt VR Review</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-top-techniques-for-capturing-ps3-gaming-moments/"><u>[Updated] 2024 Approved  Top Techniques for Capturing PS3 Gaming Moments</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-viewers-to-vips-ajays-strategy-for-sustainable-income-streams/"><u>[Updated] From Viewers to VIPs  Ajay's Strategy for Sustainable Income Streams</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-professional-windows-10-capture-tool/"><u>[Updated] Professional Windows 10 Capture Tool</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-pixilation-protocols-for-personal-privacy-in-photography/"><u>2024 Approved  Pixilation Protocols for Personal Privacy in Photography</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/5-best-portable-power-inverters-to-optimize-energy-conversion-this-year/"><u>5 Best Portable Power Inverters to Optimize Energy Conversion This Year</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-look-into-alienware-aurora-r7-top-specs-for-a-hefty-fee/"><u>A Comprehensive Look Into Alienware Aurora R7 - Top Specs for a Hefty Fee</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-deep-dive-into-bose-qc30s-audio-capabilities/"><u>A Deep Dive Into Bose QC30's Audio Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-dive-into-technology-insta360s-one-x2-showcased/"><u>A Dive Into Technology - Insta360's One X2 Showcased</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-groundbreaking-shift-in-laptop-technology-unveiling-the-power-of-apples-m1-chip-in-their-macbook-air-13-inch-model-202-cuinty-a-detailed-review/"><u>A Groundbreaking Shift in Laptop Technology: Unveiling the Power of Apple's M1 Chip in Their MacBook Air 13-Inch Model (202 Cuinty) - A Detailed Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-step-by-step-guide-to-identifying-suitable-motherboards/"><u>A Step-by-Step Guide to Identifying Suitable Motherboards</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ad-free-local-listings-with-oodle-your-ultimate-classified-solution/"><u>Ad-Free Local Listings with Oodle - Your Ultimate Classified Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/adaptable-lighting-at-its-best-explore-the-spk10-037-kit/"><u>Adaptable Lighting at Its Best: Explore the SPK10-037 Kit</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/advanced-editing-shortcuts-learn-to-use-photoshops-history-for-effortless-artistry/"><u>Advanced Editing Shortcuts: Learn to Use Photoshop's History for Effortless Artistry</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-and-durable-in-depth-look-at-the-fellowes-microban-wireless-keyboard/"><u>Affordable & Durable: In-Depth Look at the Fellowes Microban Wireless Keyboard</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-excellence-with-the-tp-link-archer-a9-router-reviewed/"><u>Affordable Excellence with the TP-Link Archer A9 Router Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-high-speed-wifi-in-depth-analysis-of-the-tp-link-archer-a6-ac1200-router/"><u>Affordable High-Speed WiFi: In-Depth Analysis of the TP-Link Archer A6 AC1200 Router</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-remobell-security-revealed-top-rated-doorbell-camera-below-100/"><u>Affordable RemoBell Security Revealed: Top Rated Doorbell Camera Below $100</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-security-top-review-of-the-iseebell-video-doorbell-under-50/"><u>Affordable Security: Top Review of the ISeeBell Video Doorbell Under $50</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/agptek-a01mp-review-the-portable-music-companion-starter/"><u>AGPTEK A01MP Review: The Portable Music Companion Starter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/all-in-one-safety-solution-unveiling-the-arlo-video-doorbell-experience/"><u>All-in-One Safety Solution: Unveiling the Arlo Video Doorbell Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amplify-your-television-clarity-on-a-budget-in-depth-analysis-of-the-1byone-digital-indoor-tv-antenna/"><u>Amplify Your Television Clarity on a Budget: In-Depth Analysis of the 1BYONE Digital Indoor TV Antenna</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apples-vision-pro-a-must-buy-heres-why/"><u>Apple's Vision Pro – A Must-Buy? Here’s Why</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722540546090-comprehensive-guide-to-kootek-laptop-cooling-pad-top-selection-reviewed-here/"><u>Comprehensive Guide to Kootek Laptop Cooling Pad – Top Selection Reviewed Here</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-tutorial-to-bypass-your-samsung-galaxy-a24-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Samsung Galaxy A24 Face Lock?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/o-upload-shorts-video-on-youtube/"><u>How to Upload Shorts Video on YouTube?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/ideal-choices-the-best-9-gif-recorder-software-on-your-pc/"><u>Ideal Choices  The Best 9 GIF Recorder Software on Your PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722631006656-star-wars-squadrons-game-breakdown-experience-the-most-engaging-space-fights-yet/"><u>Star Wars: Squadrons Game Breakdown – Experience the Most Engaging Space Fights Yet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722774479882-the-best-rated-high-capacity-battery-for-travelers-and-professionals-with-the-unicharger-maxprotect-design/"><u>The Best Rated High Capacity Battery for Travelers and Professionals with the UniCharger MaxProtect Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722576633505-the-ultimate-guide-to-boosting-your-home-viewing-experience-with-1byones-hdtv-amplified-antenna-value-king/"><u>The Ultimate Guide to Boosting Your Home Viewing Experience with 1BYONE's HDTV Amplified Antenna – Value King!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722633138336-the-ultimate-guide-to-omnicharge-omni-20-your-all-in-one-qi-wireless-portable-charger-reviewed/"><u>The Ultimate Guide to Omnicharge Omni 20 - Your All-in-One Qi Wireless Portable Charger Reviewed!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722661594193-unleashing-potential-a-comprehensive-look-at-hero7-black/"><u>Unleashing Potential - A Comprehensive Look at HERO7 Black</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-vivo-y78plus-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Vivo Y78+ Phone Password Without Factory Reset Full Guide Here</u></a></li>
+</ul></div>
