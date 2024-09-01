@@ -1,7 +1,7 @@
 ---
 title: "Farewell to Arcades: Embracing Modern Gaming Techniques, with a Nostalgic Tribute to Classic Controllers"
-date: 2024-08-28 20:24:54
-updated: 2024-08-29 11:47:31
+date: 2024-08-31T14:55:30.805Z
+updated: 2024-09-01T14:55:30.805Z
 tags:
   - games
   - tv
@@ -41,6 +41,9 @@ Tim Rattray / How-To Geek
 
 Tim Rattray / How-To Geek
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ##  Arcade Sticks Make Fighting Games Feel Unique
 
  Given that I enjoy most video games with a standardized controller in hand, fighting games provide an opportunity to spice up my way of play. Piloting a fight stick brings both tangible and intangible benefits that make it my preferred way to throw fireballs.
@@ -53,6 +56,9 @@ Tim Rattray / How-To Geek
 
 ![Street Fighter 6 and a fight stick.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/img_6305.jpeg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 Tim Rattray / How-To Geek
 
  I didn’t have a chance to partake in arcade culture at its height in the 1990s. As a ’93 baby, it was just before my time. Playing with a fight stick is the closest I can get to experiencing even a sliver of a scene I wish I had been a part of.
@@ -63,6 +69,9 @@ Tim Rattray / How-To Geek
 
  It’s intangible for sure but it elevates the genre beyond an experience to an event.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ##  Which Controller Is Right for You?
 
  Fighting games have grown in population over the past handful of years due to their increased approachability. As such, many newcomers to the genre are questioning if they should buy a fight stick or stick with what they have.
@@ -89,6 +98,10 @@ Hori Fighting Commander Octa for PlayStation 5
 
 ![Mayflash Arcade Stick F500 V2 with Magic-S Ultimate Wireless Bluetooth USB Adapter.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/img_6298.jpeg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 Tim Rattray / How-To Geek
 
 Mayflash Arcade Stick F500 V2 with Magic-S Ultimate Wireless Bluetooth USB Adapter
@@ -103,6 +116,15 @@ Mayflash Arcade Stick F500 V2 with Magic-S Ultimate Wireless Bluetooth USB Adapt
 
 ![Qanba Obsidian 2 (close-up).](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/img_6312.jpeg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 Tim Rattray / How-To Geek
 
 Qanba Obsidian 2
@@ -113,6 +135,9 @@ Qanba Obsidian 2
 
 ![Hit Box Arcade all-button arcade fight controller.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/hb-banner-6k75-v1603928475374.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 Hit Box
 
 ##  Play How You Want (But Fight Sticks Are Cool)
@@ -135,3 +160,46 @@ Hit Box
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-ace-crews-the-quintessential-list-of-photo-vids-plus-music-maestros/"><u>[New] 2024 Approved  Ace Crews  The Quintessential List of Photo Vids + Music Maestros</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-bandicam-vs-camtasia-which-is-better/"><u>[New] 2024 Approved  Bandicam vs Camtasia, Which Is Better?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-8-best-wedding-videos-on-youtube-and-vimeo/"><u>[New] 8 Best Wedding Videos on YouTube and Vimeo</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-crafting-captivating-edu-vids-on-youtube-a-step-by-step-guide/"><u>[New] Crafting Captivating Edu-Vids on YouTube  A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-excellent-streamers-guide-to-360-degree-live-footage-for-2024/"><u>[New] Excellent Streamers' Guide to 360-Degree Live Footage for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-2023s-ultimate-guide-apeaksoft-screen-capture-tech-unveiled/"><u>[New] In 2024, 2023'S Ultimate Guide  Apeaksoft Screen Capture Tech Unveiled</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-frame-by-frame-top-picks-for-home-studios-for-2024/"><u>[Updated] Frame by Frame  Top Picks for Home Studios for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-discovering-the-best-streamers-for-real-time-tv/"><u>[Updated] In 2024, Discovering the Best Streamers for Real-Time TV</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-sharex-review-and-best-alternatives/"><u>[Updated] In 2024, ShareX Review and Best Alternatives</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-masterful-plot-crafting-in-film-history/"><u>2024 Approved  Masterful Plot Crafting in Film History</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/boost-your-pcs-visual-capabilities-a-how-to-guide-to-graphic-card-replacement/"><u>Boost Your PC's Visual Capabilities: A How-To Guide to Graphic Card Replacement</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/compact-and-convenient-moko-universal-bluetooth-keypad-with-foldable-design/"><u>Compact & Convenient MoKo Universal Bluetooth Keypad with Foldable Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-anker-roav-dash-cam-c1-the-ultimate-road-companion/"><u>Comprehensive Analysis of the Anker Roav Dash Cam C1 - The Ultimate Road Companion</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-garmin-vivomove-hr-watch-review-elegant-design-meets-fitness-tracking/"><u>Comprehensive Garmin Vivomove HR Watch Review - Elegant Design Meets Fitness Tracking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cost-effective-tp-link-re100-ax600-mesh-wi-fi-extender-assessment-and-review/"><u>Cost-Effective TP-Link RE100 AX600 Mesh Wi-Fi Extender Assessment and Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-ultimate-selection-of-online-tv-shops-ranked-by-experts/"><u>Discover the Ultimate Selection of Online TV Shops - Ranked by Experts!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-unparalleled-internet-speed-in-depth-review-of-the-netgear-nighthawk-x10-ad7200-router/"><u>Experience Unparalleled Internet Speed: In-Depth Review of the Netgear Nighthawk X1^0 (AD7200) Router</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-d3400s-value-in-entry-level-cameras/"><u>Exploring the D3400's Value in Entry-Level Cameras</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/future-of-play-a-guide-to-the-premier-gaming-concolements/"><u>Future of Play: A Guide to the Premier Gaming Concolements</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-innovative-approaches-to-documenting-facetime-talks/"><u>In 2024, Innovative Approaches to Documenting FaceTime Talks</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-hdr-conversion-playbook-starting-with-sdr/"><u>In 2024, The Ultimate HDR Conversion Playbook - Starting with SDR</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-netgear-powerline-av-1200-evaluating-performance-vs-bulky-aesthetics/"><u>In-Depth Analysis of the Netgear Powerline AV 1200: Evaluating Performance vs Bulky Aesthetics</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-new-microsoft-surface-studio-2-a-smart-investment-review-inside/"><u>Is the New Microsoft Surface Studio 2 a Smart Investment? Review Inside</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/motorolas-marvel-the-elegant-moto-g-power-with-its-unmatched-battery-endurance-reviewed/"><u>Motorola's Marvel: The Elegant Moto G Power with Its Unmatched Battery Endurance Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigate-the-future-top-rated-computing-brands-to-watch/"><u>Navigate the Future: Top-Rated Computing Brands to Watch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pictureperfect-connect-quality-vs-price-tag-battle/"><u>PicturePerfect Connect: Quality Vs. Price Tag Battle</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/revive-your-sonos-speakers-a-guide-on-fixing-common-problems-with-an-outdated-third-party-application/"><u>Revive Your Sonos Speakers: A Guide on Fixing Common Problems with an Outdated Third-Party Application</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-reading-the-ultimate-amazon-kindle-paperwhite-2018-guide/"><u>Revolutionizing Reading: The Ultimate Amazon Kindle Paperwhite (2018) Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/small-size-big-features-unpacking-the-revamped-2020-echo-dot-review/"><u>Small Size, Big Features: Unpacking the Revamped 2020 Echo Dot Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stylishly-streaming-to-your-tv-discover-the-benefits-of-antops-at-127-antenna-comprehensive-review/"><u>Stylishly Streaming to Your TV? Discover the Benefits of Antop's AT-127 Antenna - Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/terramat-cubefit-assessment-enhance-fitness-with-an-innovative-standing-exercise-device/"><u>TerraMat CubeFit Assessment: Enhance Fitness with an Innovative Standing Exercise Device</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-artists-guide-to-dynamic-palette-alteration/"><u>The Artist's Guide to Dynamic Palette Alteration</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-fusion-of-classic-design-and-modern-upgrades-on-display-in-our-comprehensive-samsung-galaxy-watch3-review/"><u>The Fusion of Classic Design and Modern Upgrades on Display in Our Comprehensive Samsung Galaxy Watch3 Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-modern-stylish-solution-for-your-workspace-detailed-review-of-the-flexispot-theodore-adjustable-standing-desk/"><u>The Modern, Stylish Solution for Your Workspace: Detailed Review of the Flexispot Theodore Adjustable Standing Desk</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-google-nest-doorbells-a-complete-guide-to-your-battery-options/"><u>Top Rated Google Nest Doorbells – A Complete Guide to Your Battery Options</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-samsung-55-ru7300-models-performance-in-a-full-4k-tv-review-do-the-curves-matter/"><u>Top Samsung 55 RU7300 Model's Performance in a Full 4K TV Review: Do The Curves Matter?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-potential-an-insiders-view-on-the-razer-book-13-laptop/"><u>Unleashing Potential: An Insider’s View on the Razer Book 13 Laptop</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Honor Magic 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/whispering-winds-down-best-voices-for-sleep/"><u>Whispering Winds Down  Best Voices for Sleep</u></a></li>
+</ul></div>

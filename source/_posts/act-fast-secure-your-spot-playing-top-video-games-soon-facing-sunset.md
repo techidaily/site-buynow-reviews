@@ -1,7 +1,7 @@
 ---
 title: "Act Fast: Secure Your Spot Playing Top Video Games Soon Facing Sunset!"
-date: 2024-08-26 14:51:10
-updated: 2024-08-29 10:57:55
+date: 2024-08-31T14:55:41.859Z
+updated: 2024-09-01T14:55:41.859Z
 tags:
   - games
   - tv
@@ -40,6 +40,9 @@ thumbnail: https://thmb.techidaily.com/589975317cd54578e2464cf37ff9c3436a24bffda
 
  Play the sequel on Nintendo Switch now. You’ll need a Nintendo Switch Online membership to connect to the internet to play (or upload) levels.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## _Forza Horizon 4_ 
 
 _Forza Horizon 4_ is reaching the end of its life. Due to expiring licensing agreements, the game will be delisted from various storefronts and Game Pass on December 15, 2024\. If you buy the game before this date you’ll still be able to play it, but it won’t be available for purchase after (and it won’t be on Game Pass either).
@@ -50,6 +53,9 @@ _Forza Horizon 4_ is reaching the end of its life. Due to expiring licensing agr
 
  You should expect a similar fate to befall _Forza Horizon 5,_ eventually.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ## _Tetris 99_ and _F-Zero 99_ 
 
  Nintendo’s _99_ formula reimagines the Battle Royale concept with beloved franchises like _Tetris_ and _F-Zero_. These titles are free-to-play with a Nintendo Switch Online membership, pitting you against 98 other players to be the last person standing in a knockout tournament.
@@ -60,6 +66,9 @@ _99_ games are dependent entirely on online multiplayer. There is no offline mod
 
  Nintendo already shut down _Super Mario 35_, a time-limited iteration of the formula released to celebrate the 35th anniversary of the _Super Mario_ franchise. As the name suggests, this was a 35-player scramble to the end of a level. The game lasted six months from release.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ## _The Crew 2_ 
 
 _The Crew 2_ might not be a particularly good game (according to [OpenCritic](https://opencritic.com/game/6014/the-crew-2)), but it’s a game, and you can play it right now. Looking at publisher Ubisoft’s track record puts the game’s future in doubt. This is because the servers for prequel _The Crew_ were [switched off](https://www.ubisoft.com/en-us/game/the-crew/the-crew/news-updates/mOR3tviszkxfeQCUKxhOV/an-update-on-the-crew) on April 1, 2024.
@@ -80,6 +89,9 @@ _The Crew 2_ was released in 2018, which means it’s six years old at the time 
 
  Whatever you’re playing, be it _Brawlhalla_, _Roller Champions_, _Paladins_, _The Finals_ or something far more obscure, enjoy it while the servers are hot.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ##  Classic _Battlefield_ Games
 
  Did you know that the servers for _Battelfield Bad Company_, _Bad Company 2_, and _Battlefield 1943_ were retired by EA in 2023? These old-but-gold multiplayer shooters will be sorely missed, particularly since we haven’t had a _Bad Company_ game in three generations.
@@ -90,6 +102,10 @@ _The Crew 2_ was released in 2018, which means it’s six years old at the time 
 
  One day, only [a massive LAN party](https://win11-tips.techidaily.com/how-to-resolve-windows-upgrade-failures-and-errors/) will allow you to experience the carnage that is 64 players on classic _Battlefield_ map.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ## _Dreams_ 
 
  Sony released _Dreams_ in early 2020, a game that promised to democratize game development by providing players with user-friendly tools and a platform on which to share. While it never worked out as well as many hoped, _Dreams_ remains one of the most unique experiences in gaming.
@@ -128,6 +144,9 @@ _The Crew 2_ was released in 2018, which means it’s six years old at the time 
 
  Other examples include the original _Dead Island_ and its sequel _Riptide_, _Dark Souls: Prepare to Die Edition_ on the PC, _Assassin’s Creed 3_, and fan-favorite _Warcraft 3_. It’s not a certainty, but if you notice that beloved old title is due for a coat of paint, consider grabbing the original while you still can.
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Make Hay While the Sun Shines
 
  Any game that depends on a healthy player base can fall by the wayside. Even if the game is available for sale with active servers, if nobody wants to play then the game is as good as gone.
@@ -150,3 +169,54 @@ _The Crew 2_ was released in 2018, which means it’s six years old at the time 
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-whos-watching-your-guide-to-instagram-eye-rolls-count/"><u>[Updated] In 2024, Who's Watching? Your Guide to Instagram Eye-Rolls Count</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-strategic-evasion-the-best-room-escapes-ranked/"><u>2024 Approved  Strategic Evasion  The Best Room Escapes Ranked</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-poco-c50-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Poco C50 Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-chromebook-flip-c3ca-a-comprehensive-review-of-a-cost-effective-2-in-1-laptop-that-exceeds-expectations/"><u>Asus Chromebook Flip C3#CA: A Comprehensive Review of a Cost-Effective, 2-in-1 Laptop that Exceeds Expectations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-powerhouse-apple-ipad-air-2020-vs-ipad-pro-a-comparative-review/"><u>Budget-Friendly Powerhouse: Apple iPad Air (2020) Vs. IPad Pro – A Comparative Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/campfires-and-crafting-unveiling-the-best-features-of-minecrafts-newest-theme-pack/"><u>Campfires and Crafting: Unveiling the Best Features of Minecraft's Newest Theme Pack</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparison-showdown-how-does-the-tp-link-archer-ax6000-stack-up-against-the-nighthawk-ax12/"><u>Comparison Showdown: How Does the TP-Link Archer AX6000 Stack Up Against the Nighthawk AX12?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-asus-bw-16d1x-u-stylish-appearance-and-unique-features-reviewed/"><u>Comprehensive Analysis of the Asus BW-16D1X-U: Stylish Appearance & Unique Features Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cruising-beyond-apple-skagen-falster-2s-sophisticated-smartphone-review/"><u>Cruising Beyond Apple: Skagen Falster 2'S Sophisticated Smartphone Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dells-alienware-aurora-r9-revolutionary-design-meets-ultimate-power-for-gamers/"><u>Dell's Alienware Aurora R9: Revolutionary Design Meets Ultimate Power for Gamers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/diving-into-tech-showdown-discovering-how-ipad-pro-stands-against-microsoft-surface-pro/"><u>Diving Into Tech Showdown: Discovering How iPad Pro Stands Against Microsoft Surface Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-kooteeck-cooling-pad-for-laptops-a-robust-and-versatile-choice/"><u>Evaluating Kooteeck Cooling Pad for Laptops – A Robust and Versatile Choice</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-dell-inspiron-3671-desktop-computer-a-review-of-an-unassuming-midrange-performance-unit/"><u>Evaluating the Dell Inspiron 3671 Desktop Computer: A Review of an Unassuming, Midrange Performance Unit</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-jaco-smartpro-digital-tire-inflator-an-experts-guide-to-a-portable-and-high-performance-device/"><u>Evaluating the Jaco SmartPro Digital Tire Inflator: An Expert's Guide to a Portable and High-Performance Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/examining-the-midland-lxt500vp3-transceiver-a-multitude-of-features-but-does-it-deliver/"><u>Examining The Midland LXT500VP3 Transceiver: A Multitude Of Features, But Does It Deliver?</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/experience-the-magic-of-govee-glide-hexa-light-panels-a-detailed-analysis-for-wall-mounted-ambiance/"><u>Experience the Magic of Govee Glide Hexa Light Panels - A Detailed Analysis for Wall-Mounted Ambiance</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/expert-advice-choosing-exceptional-videographers/"><u>Expert Advice  Choosing Exceptional Videographers</u></a></li>
+<li><a href="https://techtrends.techidaily.com/exploring-the-accessories-and-game-library-of-nintendo-switch/"><u>Exploring the Accessories & Game Library of Nintendo Switch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-features-of-mobvois-ticwatch-pro-with-4g-a-must-have-tech-companion/"><u>Exploring the Features of Mobvoi's TicWatch Pro with 4G - A Must-Have Tech Companion</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/free-communication-with-tango-in-depth-review-of-texts-audio-and-video-features/"><u>Free Communication with Tango: In-Depth Review of Texts, Audio & Video Features</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Infinix GT 10 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Xiaomi Redmi Note 13 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-discover-the-latest-movies-with-these-top-10-trailer-apps-for-ios/"><u>In 2024, Discover the Latest Movies with These Top 10 Trailer Apps for iOS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-the-heimvision-sunrise-led-wake-up-clock-with-advanced-light-treatment/"><u>In-Depth Evaluation of the HeimVision Sunrise LED Wake-Up Clock with Advanced Light Treatment</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/infusing-your-art-with-captivating-collage-vistas-for-2024/"><u>Infusing Your Art with Captivating Collage Vistas for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-supported-drivers-for-the-netgear-a6100-available-here-windows-compatible/"><u>Latest Supported Drivers for the Netgear A6100 Available Here – Windows Compatible</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-gaming-performance-in-depth-review-of-the-havit-5-fan-cooler-for-laptops/"><u>Maximize Gaming Performance: In-Depth Review of the HAVIT 5 Fan Cooler for Laptops</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-productivity-spotlight-on-the-best-large-screen-laptops-of-2024/"><u>Maximizing Productivity: Spotlight on the Best Large-Screen Laptops of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/netgear-orbi-reviewed-your-definitive-choice-in-wifi-technology/"><u>Netgear Orbi Reviewed: Your Definitive Choice in WiFi Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/redefining-power-and-aesthetics-comprehensive-imac-m1-chip-evaluation/"><u>Redefining Power and Aesthetics: Comprehensive iMac M1 Chip Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionary-mohu-blade-television-dongle-assessed-stylish-appearance-and-solid-interior-signal-quality/"><u>Revolutionary Mohu Blade Television Dongle Assessed: Stylish Appearance and Solid Interior Signal Quality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-drive-with-the-lihan-lhfm1039-a-comprehensive-review-of-bluetooth-car-stereo-connectivity/"><u>Revolutionize Your Drive with the LIHAN LHFM1039: A Comprehensive Review of Bluetooth Car Stereo Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-smartphone-longevity-the-moto-g-powers-extraordinary-battery-life-explained-in-our-review/"><u>Revolutionizing Smartphone Longevity: The Moto G Power's Extraordinary Battery Life Explained in Our Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/setting-new-standards-the-benchmark-of-tablets-apple-ipad-pro-11-inch-2018-review/"><u>Setting New Standards: The Benchmark of Tablets, Apple iPad Pro (11-Inch, 2018) Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/spotify-plus-is-paid-access-a-smart-move/"><u>Spotify Plus: Is Paid Access a Smart Move?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/streamlined-use-of-tp-links-re305-range-extender-in-ac1200-wifi-setup-in-depth-analysis/"><u>Streamlined Use of TP-Link's RE305 Range Extender in AC1200 WiFi Setup: In-Depth Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-allure-of-timeless-style-with-smart-functionality-in-the-withings-move-evaluation/"><u>The Allure of Timeless Style with Smart Functionality in the Withings Move Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-guide-to-choosing-your-next-ebook-reader-kobo-clara-colour-reviewed/"><u>The Definitive Guide to Choosing Your Next Ebook Reader: Kobo Clara Colour Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-aeiusny-portable-solar-generators-pure-sine-wave-inverters-tailored-for-sensitive-equipment/"><u>The Ultimate Guide to Aeiusny Portable Solar Generators - Pure Sine Wave Inverters Tailored for Sensitive Equipment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-for-fitbit-charge-6-smartwatch/"><u>The Ultimate Review for Fitbit Charge 6 Smartwatch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranked-fitness-wearables-a-comprehensive-guide/"><u>Top-Ranked Fitness Wearables : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-coolest-way-to-keep-your-pc-frosty-a-review-of-the-pricey-yet-powerful-thermaltake-massive-tm-laptop-cooler/"><u>Unboxing the Coolest Way to Keep Your PC Frosty - A Review of the Pricey Yet Powerful Thermaltake Massive TM Laptop Cooler</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unihertz-atom-xl-overview-how-this-compact-yet-durable-device-packs-big-performance/"><u>Unihertz Atom XL Overview: How This Compact Yet Durable Device Packs Big Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-future-elite-key-locators-ranked/"><u>Unlocking the Future: Elite Key Locators Ranked</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-secrets-of-the-twelve-south-compass-pros-exceptional-balance-and-durable-engineering-mastery/"><u>Unveiling the Secrets of the Twelve South Compass Pro's Exceptional Balance and Durable Engineering Mastery</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-take-your-videos-to-the-next-level-os-x-mavericks-editing-tips/"><u>Updated 2024 Approved Take Your Videos to the Next Level OS X Mavericks Editing Tips</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-your-budget-deserves-an-m3-macbook-air/"><u>Why Your Budget Deserves an M3 MacBook Air</u></a></li>
+</ul></div>

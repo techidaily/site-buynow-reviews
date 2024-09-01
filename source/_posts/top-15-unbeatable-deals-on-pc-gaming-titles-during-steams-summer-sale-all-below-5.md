@@ -1,7 +1,7 @@
 ---
 title: Top 15 Unbeatable Deals on PC Gaming Titles During Steam’s Summer Sale – All Below $5
-date: 2024-08-26 18:23:34
-updated: 2024-08-29 11:13:57
+date: 2024-08-31T14:54:39.206Z
+updated: 2024-09-01T14:54:39.206Z
 tags:
   - games
   - tv
@@ -25,10 +25,18 @@ Summer is here, and with it comes a new wave of deep gaming discounts courtesy o
 
  Stunning pixel art, lovable characters, and challenging platforming come together perfectly in [_Celeste_](https://store.steampowered.com/app/504230/Celeste/). You play as Madeline, climbing to the peak of Celeste Mountain, and overcoming her own inner demons in the process. Oh, and when I said "challenging platforming," I meant it. This game is _hard_, but it's tight controls and fast respawn make it a thrill to keep playing.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 3 [UNDERTALE](https://store.steampowered.com/app/391540/Undertale/): $2.49 
 
  Truly a game for gamers, [_UNDERTALE_](https://store.steampowered.com/app/391540/Undertale/) is an RPG that revels in toying with your gaming preconceptions. You've probably already heard that you don't actually need to kill anyone in this dungeon-based RPG, but that isn't the only surprise in store for war-weary players. You'll have to play it yourself to discover the rest, though.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ## 4 [XCOM: Enemy Unknown](https://store.steampowered.com/app/200510/XCOM%5FEnemy%5FUnknown/): $2.99 
 
  Earth is under alien attack, and in [_XCOM_](http://store.steampowered.com/app/200510/XCOM%5FEnemy%5FUnknown/) it's your job to command an international coalition of forces to defend against it. In this turn-based tactical game, you'll build a secret underground base, plan which global emergencies to respond to, research recovered alien tech, and develop highly-trained soldiers to follow your direction in operations. It's an addictive gameplay loop thanks to the delicate balance of random encounters and strategic planning.
@@ -43,6 +51,9 @@ Summer is here, and with it comes a new wave of deep gaming discounts courtesy o
 
  If you're just looking for a good time, Borderlands is it. Oozing with humor and personality, this loot-and-shoot adventure on the junkyard planet of Pandora is heaps of fun, especially if you tag a friend for [some multiplayer gaming](https://facebook-video-footage.techidaily.com/new-achieve-high-rankings-on-youtube-with-top-seo-tips-1-11-for-2024/). There's even a star-studded _[Borderlands](https://borderlands.movie/)_ movie coming out this summer. There are several games in the Borderlands series, and they just get better and better, but _[Borderlands 2](http://store.steampowered.com/app/49520/Borderlands%5F2/)_ is the only one available for under $5 in this sale and you don't need to have played the first game to enjoy it.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 7 [Middle-Earth: Shadow of Mordor](https://store.steampowered.com/app/241930/Middleearth%5FShadow%5Fof%5FMordor/): $3.99 
 
 [_Shadow of Mordor_](http://store.steampowered.com/app/241930/Middleearth%5FShadow%5Fof%5FMordor/) sees you take control of a supernaturally powered-up ranger, exploring Middle-Earth and battling through hordes of enemy orcs. Its fluid battles are brilliantly gruesome, but the coolest aspect of the game is its "nemesis" system. This sees enemy orcs gain abilities, scars, and memories based on how you fought them, which they'll bring up and react to the next time you meet.
@@ -55,6 +66,9 @@ Summer is here, and with it comes a new wave of deep gaming discounts courtesy o
 
  This is best enjoyed if you've played the previous _Witcher_ games, but doing so definitely isn't essential if you just want to get stuck into the best one right away.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ## 9 [Disco Elysium - The Final Cut](https://store.steampowered.com/app/632470/Disco%5FElysium%5F%5FThe%5FFinal%5FCut/): $3.99 
 
  There's been a murder, and it's your job to investigate it. The problem is, you're so hungover you barely remember your own name. That's how [_Disco Elysium_](http://store.steampowered.com/app/632470/Disco%5FElysium%5F%5FThe%5FFinal%5FCut/) begins, and it's a great representation of the dark, sharply-written, and often surprisingly funny gameplay. The Final Cut edition that's on sale includes fully-voiced performances for the huge cast of characters found in the game—including various parts of your own mind—making the experience of playing even more captivating.
@@ -63,6 +77,9 @@ Summer is here, and with it comes a new wave of deep gaming discounts courtesy o
 
  Talking about this game has become a cliché in and of itself because it really, _really_ does make you feel like Batman. Explore Gotham City, skulking alongside gargoyles, grappling through the skies, and beating up thugs in fast-flowing combat. There are several Arkham games—this being the second in the series—but in my opinion [_Arkham City_](http://store.steampowered.com/app/379720/DOOM/) is the best of the lot, having expanded the map from _[Arkham Asylum](https://store.steampowered.com/app/35140/Batman%5FArkham%5FAsylum%5FGame%5Fof%5Fthe%5FYear%5FEdition/)_ with a much stronger story than _[Arkham Knight](https://store.steampowered.com/app/208650/Batman%5FArkham%5FKnight/)_ (both of which are also available for under $5).
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 11 [Firewatch](https://store.steampowered.com/app/383870/Firewatch/): $3.99 
 
  You don't need a summer vacation if you've got [_Firewatch_](https://store.steampowered.com/app/383870/Firewatch/), which lets you experience a slice of life as a ranger in the picturesque Wyoming wilderness. That said, it isn't all idyllic walks in the park as you start discovering oddities and trying to get to the bottom of them alongside a new friend on the other end of a walkie talkie. This is a perfect game to complete on a weekend, and one that's a joy to come back to multiple times.
@@ -71,6 +88,10 @@ Summer is here, and with it comes a new wave of deep gaming discounts courtesy o
 
 [_Fallen Order_](http://store.steampowered.com/app/1172380/STAR%5FWARS%5FJedi%5FFallen%5FOrder/) was a delightful surprise when it released: it's an excellent Star Wars game, with iconic new characters, a gripping story, dazzling graphics, and thoroughly enjoyable gameplay. It's really a must-play for any Star Wars fans, and once you've done so, you'll probably want to jump right into the recent follow-up [_STAR WARS Jedi: Survivor_](https://store.steampowered.com/app/1774580/STAR%5FWARS%5FJedi%5FSurvivor/), which is available for $31.49.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ## 13 [DOOM](https://store.steampowered.com/app/379720/DOOM/): $3.99 
 
  This 2016 remake of the 1993 PC-gaming classic is an outstanding example of how to update a game for modern audiences without losing what made it special. Just like the original, _[DOOM](http://store.steampowered.com/app/379720/DOOM/)_ is a fast-paced, adrenaline-fueled rampage through a demon-infested planet. This remake, though, ups the ante by forcing you to get up close and personal with your enemies before tearing them limb from limb. It's an absolute blast.
@@ -97,3 +118,41 @@ Summer is here, and with it comes a new wave of deep gaming discounts courtesy o
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-tapping-into-your-previous-twitter-posts/"><u>[New] 2024 Approved  Tapping Into Your Previous Twitter Posts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-rewind-and-play-instagrams-backwards-videos-unveiled/"><u>[New] Rewind and Play  Instagram's Backwards Videos Unveiled</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-advances-in-syma-x8c-flight-autonomy/"><u>[Updated] In 2024, Advances in Syma X8C Flight Autonomy</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-instagram-vids-determining-the-perfect-dimensions/"><u>[Updated] In 2024, Instagram Vids  Determining the Perfect Dimensions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-optimize-your-talk-on-chrome-best-web-based-speech-conversion-services-for-2024/"><u>[Updated] Optimize Your Talk on Chrome  Best Web-Based Speech Conversion Services for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-vg245h-the-console-gamers-dream-screen-unleashed/"><u>Asus VG245H: The Console Gamer's Dream Screen Unleashed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/canons-sx620-hs-portability-meets-performance/"><u>Canon's SX620 HS - Portability Meets Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/compact-yet-powerful-pcs-for-gamers-the-2021-ranking/"><u>Compact Yet Powerful PCs for Gamers: The 2021 Ranking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cutting-the-cord-a-comprehensive-review-of-the-amazon-basics-flat-antenna-for-free-tv-enthusiasts/"><u>Cutting the Cord: A Comprehensive Review of the Amazon Basics Flat Antenna for Free TV Enthusiasts.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/distinguishing-features-echo-pop-vs-echo-dot-a-comprehensive-guide/"><u>Distinguishing Features: Echo Pop vs Echo Dot - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dont-miss-out-prime-days-finest-discounted-apple-products/"><u>Don't Miss Out: Prime Day's Finest Discounted Apple Products</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/evaluating-the-financial-sense-of-subscribing-to-netflix/"><u>Evaluating the Financial Sense of Subscribing to Netflix</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-kootek-notebook-thermal-management-pad-an-impressive-cross-platform-selection/"><u>Evaluating the Kootek Notebook Thermal Management Pad - An Impressive Cross-Platform Selection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-evening-bliss-an-in-depth-look-into-barnes-and-nobles-nook-glowlight-3-e-reader-for-dark-environments/"><u>Experience Evening Bliss: An In-Depth Look Into Barnes & Noble's Nook GlowLight 3 E-Reader for Dark Environments</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/future-proof-your-shots-best-online-printers-of-2024/"><u>Future-Proof Your Shots: Best Online Printers of 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/how-to-use-handbrake-for-dvd-conversion-to-m4v-files-different-from-standard-mp4-output/"><u>How to Use Handbrake for DVD Conversion to M4V Files, Different From Standard MP4 Output</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-and-review-why-the-iphone-xs-max-stands-out-as-the-pinnacle-of-iphones/"><u>In-Depth Analysis & Review: Why the iPhone XS Max Stands Out as the Pinnacle of iPhones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-anker-roav-dash-cam-c1-evaluation-the-perfect-choice-for-safe-and-secure-driving/"><u>In-Depth Anker Roav Dash Cam C1 Evaluation - The Perfect Choice for Safe and Secure Driving</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-the-latest-third-gen-apple-tv-4k/"><u>In-Depth Evaluation of the Latest Third Gen Apple TV 4K</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-microsoft-sculpt-ergo-keyboard-evaluation-exceptional-worth/"><u>In-Depth Microsoft Sculpt Ergo Keyboard Evaluation: Exceptional Worth</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lamicalls-ergonomic-tablet-stand-a-comprehensive-review-of-style-meets-utility/"><u>Lamicall's Ergonomic Tablet Stand: A Comprehensive Review of Style Meets Utility</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/linksys-velop-review/"><u>Linksys Velop Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-specs-in-depth-analysis-of-the-oneplus-nord-n100/"><u>Navigating the Specs: In-Depth Analysis of the OnePlus Nord N100</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-shrink-your-videos-the-top-free-compression-apps-for-iphone-and-ipad-for-2024/"><u>New Shrink Your Videos The Top Free Compression Apps for iPhone and iPad for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/photoshop-techniques-optimizing-your-work-for-high-quality-prints/"><u>Photoshop Techniques: Optimizing Your Work for High-Quality Prints</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-newly-enhanced-chromecast-with-google-tv-vs-amazons-firetv/"><u>Review of the Newly Enhanced Chromecast with Google TV Vs. Amazon's FireTV</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/secure-your-home-with-confidence-a-detailed-assessment-of-the-ring-doorbell-nv/"><u>Secure Your Home with Confidence: A Detailed Assessment of the Ring Doorbell Nv</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-review-why-apples-latest-creation-sets-a-new-standard/"><u>The Definitive Review: Why Apple's Latest Creation Sets a New Standard</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-5-essentials-for-choosing-the-right-gaming-console/"><u>Top 5 Essentials for Choosing the Right Gaming Console</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-review-of-the-lg-gram-156-inch-laptop-201e-big-screen-lightweight-design-and-long-lasting-performance/"><u>Top Review of the LG Gram 15.6-Inch Laptop (201E) - Big Screen, Lightweight Design and Long-Lasting Performance</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-for-fixing-rainbow-six-siege-game-server-errors/"><u>Troubleshooting Steps for Fixing Rainbow Six Siege Game Server Errors</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unlocking-potential-chatgpt-and-creative-output/"><u>Unlocking Potential: ChatGPT and Creative Output</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potency-of-linksys-ea950/"><u>Unveiling the Potency of Linksys EA950</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-the-samsung-galaxy-s20-fe-5g-is-a-must-have-for-smartphone-aficionados/"><u>Why the Samsung Galaxy S20 FE 5G Is a Must-Have for Smartphone Aficionados</u></a></li>
+</ul></div>

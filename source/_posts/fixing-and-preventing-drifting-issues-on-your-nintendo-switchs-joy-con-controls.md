@@ -1,7 +1,7 @@
 ---
 title: Fixing and Preventing Drifting Issues on Your Nintendo Switch's Joy-Con Controls
-date: 2024-08-27 13:13:47
-updated: 2024-08-29 12:23:19
+date: 2024-08-31T14:54:56.824Z
+updated: 2024-09-01T14:54:56.824Z
 tags:
   - games
   - tv
@@ -31,6 +31,9 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
  Joy-Con stick drift has plagued the Nintendo Switch since shortly after release. Having a controller register unwanted movement can ruin your aim and frustrate you when you're trying to relax and play some video games. Fortunately, there are a few things you can do.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ##  What Is Stick Drift?
 
  The term "stick drift" describes a problem that causes an analog control stick to register input when no force is applied. The stick may drift in a particular direction (for example, to the left), or it may drift in multiple directions depending on the last direction used. Drift may appear suddenly, over time, or seemingly disappear for a while before coming back again.
@@ -39,6 +42,9 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Two sets of Joy-Cons with a Nintendo Switch console.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/07/7d2045f2.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [saksorn kumjit/Shutterstock.com](https://www.shutterstock.com/image-photo/bangkok-thailand-august-12-2018-nintendo-1154615047)
 
  You may notice stick drift while playing, but you can also test for the problem using your console's System Settings > Controllers and Sensors > Calibrate Control Sticks menu. In this menu you'll be asked to hold a direction on the stick you want to calibrate, then you'll see a crosshair with either a plus or a dot in it.
@@ -55,6 +61,9 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
  Damage to the analog sticks may also trigger the problem. This could include spilling liquid on your controller, dropping the controller, or applying excessive downward force on the analog sticks.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Fix 1: Calibrate Your Controller and Dead Zones
 
  If your controller is showing signs of controller drift, the first step to try is a simple calibration. This is especially effective if you have a controller that appears to be pulling in one direction all of the time but is unlikely to help with erratic movements in all directions.
@@ -75,6 +84,9 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
  Repairs are free for residents in North America and Latin America. If you live outside of these regions you'll need to apply for a repair using Nintendo's local repair hub in your country, and you may be charged for the service. We recommend looking at your country's warranty and consumer laws to understand your rights regardng widespread issues like Joy-Con stick drift.
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ##  Fix 3: Repair It Yourself With Spare Parts
 
  If you have a special edition Switch and you don't fancy taking a chance on Nintendo sending a gray Joy-Con in its place or you're feeling handy and up to the task, you can try [repairing](https://games-able.techidaily.com/navigational-wisdom-to-prevent-no-signal-woes-in-pokemon-go/) your Joy-Con by yourself. [iFixit sells](https://www.ifixit.com/Search?doctype=product&query=nintendo%20switch%20joy-con) Nintendo Switch Joy-Con replacement joysticks either as a kit (with the tools required) or individually.
@@ -89,6 +101,9 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![41eyoYavmeL._SL500_](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/06/41eyoyavmel-_sl500_.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #####  Nintendo Switch Joy-Con in Neon Green and Pink
 
 First-party Nintendo Joy-Con controllers in neon pink and neon green. Use the full range of features including motion controls, infrared sensor, and internal batteries to play however you want.
@@ -99,6 +114,9 @@ First-party Nintendo Joy-Con controllers in neon pink and neon green. Use the fu
 
  Unfortunately, many third-party controllers feature shoddy build quality and limited features. The HORI Split Pad Pro is comfortable but it lacks internal batteries, motion controls, and an infrared sensor, and it's also prone to drifting.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Avoiding Stick Drift in the Future
 
  The easiest way to avoid stick drift is to never use your Switch, but this isn't a practical solution. Instead, keep a copy of your proof of purchase for any warranty claims you may need to make in the future and have fun with your console.
@@ -129,3 +147,62 @@ First-party Nintendo Switch Pro Controller for using your console in docked mode
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-iphones-high-dynamic-range-photography-demystified-for-2024/"><u>[New] IPhone's High-Dynamic Range Photography Demystified for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-prime-platforms-for-asmr-experience/"><u>[Updated] 2024 Approved  Prime Platforms for ASMR Experience</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-jumpstarting-your-marketing-the-essentials-of-telegram-advertising/"><u>[Updated] Jumpstarting Your Marketing  The Essentials of Telegram Advertising</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-subtitled-uninterrupted-access-to-9-festive-holiday-movies-free-for-2024/"><u>[Updated] Subtitled, Uninterrupted Access to 9 Festive Holiday Movies - Free for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-combine-videos-into-one-on-iphone/"><u>2024 Approved  How to Combine Videos Into One on iPhone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apples-finest-unveiling-4-reasons-for-purchasing-vision-pro/"><u>Apple's Finest: Unveiling 4 Reasons for Purchasing Vision Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-vg245h-24-inch-monitor-review/"><u>Asus VG245H 24-Inch Monitor Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bouncie-track-and-trace-revealed-budget-friendly-gps-monitoring-unveiled/"><u>Bouncie Track & Trace Revealed: Budget-Friendly GPS Monitoring Unveiled</u></a></li>
+<li><a href="https://change-location.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Vivo Y56 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/can-you-trust-the-thermopro-tp67-balancing-cost-and-reliability-reviewed/"><u>Can You Trust the ThermoPro TP67? Balancing Cost and Reliability Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparison-showdown-how-does-the-tp-link-archer-ax6000-stack-up-against-the-nighthawk-ax12/"><u>Comparison Showdown: How Does the TP-Link Archer AX6000 Stack Up Against the Nighthawk AX12?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-crystal-clear-chat-with-midlands-gxt1-1000vp4-two-way-radio/"><u>Comprehensive Guide to Crystal Clear Chat with Midland's GXT1 1000VP4 Two-Way Radio</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-insights-on-finties-macbook-pro-13-safeguard-case-a-blend-of-endurance-and-economy/"><u>Comprehensive Insights on Fintie's MacBook Pro 13 Safeguard Case - A Blend of Endurance and Economy</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-razer-blade-pro-17-assessment-for-on-the-go-productivity/"><u>Comprehensive Razer Blade Pro 17 Assessment for On-the-Go Productivity</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/conquer-the-camera-prostrate-techniques-with-gopro-hero5-black/"><u>Conquer the Camera  Prostrate Techniques With GoPro Hero5 Black</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/criacrs-compact-fm-transmitter-the-cp24-an-in-depth-review-highlighting-its-strengths-and-weaknesses/"><u>CRIACR's Compact FM Transmitter, the CP24: An In-Depth Review Highlighting Its Strengths and Weaknesses</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dells-alienware-aurora-r9-revolutionary-design-meets-ultimate-power-for-gamers/"><u>Dell's Alienware Aurora R9: Revolutionary Design Meets Ultimate Power for Gamers</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/discover-the-premier-asus-router-models-dominating-connections-in-202n/"><u>Discover the Premier Asus Router Models Dominating Connections in 202N</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/effective-solutions-for-when-you-cant-find-or-locate-comctl32dll-file/"><u>Effective Solutions for When You Can't Find or Locate Comctl32.dll File</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/elevate-ap-efficiency-with-these-6-key-steps-essential-reading-on-the-abbyy-official-site/"><u>Elevate AP Efficiency with These 6 Key Steps - Essential Reading on the ABBYY Official Site</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elite-performance-a-selection-of-superior-runners-watches/"><u>Elite Performance: A Selection of Superior Runner's Watches</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-dell-inspiron-3671-desktop-computer-a-review-of-an-unassuming-midrange-performance-unit/"><u>Evaluating the Dell Inspiron 3671 Desktop Computer: A Review of an Unassuming, Midrange Performance Unit</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-seamless-online-transition-the-portable-ourlink-u631-usb-wi-fi-stick/"><u>Experience Seamless Online Transition: The Portable Ourlink U631 USB Wi-Fi Stick</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-assessment-of-the-portable-audew-pump-compressor-unmatched-durability-meets-convenience/"><u>Expert Assessment of the Portable Audew Pump Compressor: Unmatched Durability Meets Convenience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-on-the-wellness-tracker-features-of-the-samsung-galaxy-watch-active/"><u>Expert Review on the Wellness Tracker Features of the Samsung Galaxy Watch Active</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-the-most-popular-and-convenient-tv-streaming-solutions/"><u>Explore the Most Popular and Convenient TV Streaming Solutions</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-oneplus-11-5g-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on OnePlus 11 5G Devices | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-locked-vivo-y36-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Vivo Y36 Phone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-on-iphone-13-pro-max-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock On iPhone 13 Pro Max?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-mastering-jpeg-to-gif-discover-the-top-10-free-options/"><u>In 2024, Mastering JPEG-to-GIF  Discover the Top 10 Free Options</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-realme-c67-5g-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Realme C67 5G to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-acer-predator-triton-n-300-se-affordable-power-in-a-portable-package/"><u>In-Depth Look at the Acer Predator Triton N 300 SE – Affordable Power in a Portable Package</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-motorolas-moto-g-featuring-a-stylus-outstanding-performance-satisfactory-battery-longevity/"><u>In-Depth Review of Motorola's Moto G Featuring a Stylus: Outstanding Performance, Satisfactory Battery Longevity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/iphone-13-assessment-cutting-edge-technology-on-a-silver-platter/"><u>IPhone 13 Assessment: Cutting-Edge Technology on a Silver Platter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-gaming-performance-in-depth-review-of-the-havit-5-fan-cooler-for-laptops/"><u>Maximize Gaming Performance: In-Depth Review of the HAVIT 5 Fan Cooler for Laptops</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-macbook-pros-performance-with-ssd/"><u>Revolutionize Your MacBook Pro's Performance with SSD</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sony-hdrcx405-examined-affordable-stabilized-videos/"><u>Sony HDRCX405 Examined: Affordable, Stabilized Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sony-wm-x900-top-tier-sound-review/"><u>Sony WM-X900: Top-Tier Sound Review</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-8-best-computer-brands-of-2024/"><u>The 8 Best Computer Brands of 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-art-of-crafting-excellent-zoom-conferences/"><u>The Art of Crafting Excellent Zoom Conferences</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-battle-of-slate-tablets-contrasting-the-ipad-with-the-ipad-air/"><u>The Battle of Slate Tablets: Contrasting the iPad with the iPad Air</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-selection-of-premium-htpc-models-for-the-new-year/"><u>The Definitive Selection of Premium HTPC Models for the New Year</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-future-of-mobile-charging-unveiled-a-review-of-the-omnicharge-omni-20-with-qi-wireless-and-conventional-inputs/"><u>The Future of Mobile Charging Unveiled - A Review of the Omnicharge Omni 20 with Qi Wireless & Conventional Inputs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-google-nest-hellos-revolutionary-tech-secure-facial-id-efficient-parcel-sensing-and-beyond/"><u>The Ultimate Guide to Google Nest Hello's Revolutionary Tech: Secure Facial ID, Efficient Parcel Sensing, and Beyond</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-mophies-ac-charging-station-luxury-meets-practicality/"><u>The Ultimate Guide to Mophie's AC Charging Station: Luxury Meets Practicality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-technology-bargains-during-amazons-exclusive-prime-day-event/"><u>Top Technology Bargains During Amazon's Exclusive Prime Day Event</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-essentials-must-have-iphone-gadgets-and-add-ons/"><u>Top-Rated Essentials: Must-Have iPhone Gadgets & Add-Ons</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-home-networking-with-synologys-rt2600ac-wifi-extended-reach-and-protective-features-explored/"><u>Ultimate Home Networking with Synology's RT2600ac - WiFi Extended Reach & Protective Features Explored</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/understanding-the-financial-wisdom-behind-applecare-plus-extension/"><u>Understanding the Financial Wisdom Behind AppleCare Plus Extension</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-future-elite-key-locators-ranked/"><u>Unlocking the Future: Elite Key Locators Ranked</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-premiere-elements-alternatives-top-10-video-editors-to-consider/"><u>Updated 2024 Approved Premiere Elements Alternatives Top 10 Video Editors to Consider</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/wallet-wise-whiskers-wave-capture-guide/"><u>Wallet-Wise Whiskers Wave Capture Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/warzone-error-code-0-1766-on-consoles-and-computers-solutions-and-fixes-unveiled/"><u>Warzone Error Code 0-1766 on Consoles and Computers: Solutions and Fixes Unveiled!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/xbox-one-multiplayer-magic-a-step-by-step-guide-to-friendly-gamesharing/"><u>Xbox One Multiplayer Magic: A Step-by-Step Guide to Friendly Gamesharing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/your-treasure-trove-of-free-marketing-50plus-youtube-ads-ready-to-go-in-2024/"><u>Your Treasure Trove of Free Marketing  50+ YouTube Ads Ready to Go, In 2024</u></a></li>
+</ul></div>

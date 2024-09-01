@@ -1,7 +1,7 @@
 ---
 title: "Unleash Your Apple TV's Hidden Gaming Potential: Transform It Into a Classic Game Machine!"
-date: 2024-08-28 19:55:23
-updated: 2024-08-29 10:49:23
+date: 2024-08-31T14:55:11.259Z
+updated: 2024-09-01T14:55:11.259Z
 tags:
   - games
   - tv
@@ -33,6 +33,9 @@ thumbnail: https://thmb.techidaily.com/d5331824a0fea73eb882bba4127a05283f17e46d7
 
  Also, RetroArch isn't the most user-friendly emulator frontend out there, and getting some games to work is rather tricky. I'm going to show you the basic process of getting a NES/Famicom game running, but other cores may, for example, require additional resources such as BIOS files to work.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ##  A Word on Controllers
 
  Believe it or not, you can use your Apple TV's remote to play games on RetroArch. It's not something I would recommend, but if you really just want to try it out and you don't have a controller, you don't strictly need one. That said, Apple's devices support just about every Bluetooth controller you can think of, and they are easy to connect as well.
@@ -45,8 +48,15 @@ thumbnail: https://thmb.techidaily.com/d5331824a0fea73eb882bba4127a05283f17e46d7
 
  Once you've done this, you can control the Apple TV itself with the controller as well, so you can set its own remote aside.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ## 
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Getting ROMs on RetroArch
 
  On an iPhone or iPad, it's dead simple to transfer files to the device. You can AirDrop it, use a thumb drive, or transfer it using iCloud. On an Apple TV there's no such luck, so the developers of RetroArch had to get creative.
@@ -61,6 +71,9 @@ Sydney Louw Butler / How-To Geek
 
 ![Retroarch web interface on Apple TV.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/retroarch-web-interface.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  With my controller paired with my ATV and a game loaded, we can go ahead and launch it.
 
 ##  Launching a Game
@@ -75,6 +88,9 @@ Sydney Louw Butler / How-To Geek
 
 ![The RetroArch file browser](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/the-retroarch-file-browser.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 Sydney Louw Butler / How-To Geek
 
  Select the game ROM, then choose one of the suggested cores, or keep the current one if it's appropriate.
@@ -91,6 +107,9 @@ Sydney Louw Butler / How-To Geek
 
  The last thing you should know is how to open the Quick Menu. You can manually set it under the Settings menu, but for the DualShock 4 controller I was using, the default combo was the PS button + R1\. If you want to change this, look for the hotkeys assignment under the input settings.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ## 
 
 ##  The Coming Apple TV Retro Revolution
@@ -113,3 +132,44 @@ Sydney Louw Butler / How-To Geek
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-best-compatible-console-recreation-software-ps3-for-pcs/"><u>[New] Best Compatible Console Recreation Software (PS3) for PCs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-ultimate-guide-to-top-tier-tripods-and-mounts-for-gopro-for-2024/"><u>[New] Ultimate Guide to Top-Tier Tripods & Mounts for GoPro for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Vivo V29 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apples-itouch-7th-review-mobile-music-interim-solution/"><u>Apple's iTouch 7Th Review: Mobile Music Interim Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/balancing-bulkiness-with-bandwidth-an-examination-of-netgears-powerline-av-n-model-1200-speed-and-design/"><u>Balancing Bulkiness with Bandwidth: An Examination of Netgear's Powerline AV N Model 1200 Speed and Design.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/beyond-increased-capabilities-a-thoughtful-look-at-the-sony-playstation-5/"><u>Beyond Increased Capabilities: A Thoughtful Look at the Sony PlayStation 5</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-affordable-fitbit-versa-lite-excellent-health-tracking-on-budget/"><u>Comprehensive Review of the Affordable Fitbit Versa Lite - Excellent Health Tracking on Budget</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-samsung-galaxy-watch-active2-analysis-enhanced-connections-and-smart-features/"><u>Comprehensive Samsung Galaxy Watch Active2 Analysis - Enhanced Connections & Smart Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/critical-points-deciding-on-a-refurbished-pc/"><u>Critical Points: Deciding on a Refurbished PC</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/empower-your-site-with-cookiebot-advanced-analytics-and-custom-user-experience-features/"><u>Empower Your Site with Cookiebot: Advanced Analytics & Custom User Experience Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-enhanced-network-performance-with-the-extollo-lansocket-1500-fast-efficient-and-power-enabling-designs-examined/"><u>Experience Enhanced Network Performance with the Extollo LANSocket 1500 - Fast, Efficient & Power-Enabling Designs Examined</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-premiere-tech-companies-2024s-best/"><u>Exploring the Premiere Tech Companies: 2024'S Best</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/get-a-sharp-picture-the-budget-friendly-kodak-fz53-review/"><u>Get a Sharp Picture: The Budget-Friendly Kodak FZ53 Review</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-disabled-iphone-7-plusipad-without-computer-by-drfone-ios/"><u>In 2024, How to Unlock Disabled iPhone 7 Plus/iPad Without Computer</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-itel-s23plus-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Itel S23+</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Realme GT 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/jabra-talk-45-exploration-impeccable-sound-plus-extended-usage-time/"><u>Jabra Talk 45 Exploration: Impeccable Sound + Extended Usage Time</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/kindle-or-fire-tablet-discover-their-main-differences-for-a-better-choice/"><u>Kindle or Fire Tablet? Discover Their Main Differences for a Better Choice</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/make-the-perfect-pick-in-depth-look-at-amazon-fire-and-samsung-tablets/"><u>Make the Perfect Pick: In-Depth Look at Amazon Fire and Samsung Tablets</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-the-art-of-self-care-with-garmin-vivosmart-4-a-thorough-review-on-body-battery-levels-and-innovative-stress-detection-capabilities/"><u>Mastering the Art of Self-Care with Garmin Vivosmart #4 - A Thorough Review on Body Battery Levels and Innovative Stress Detection Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/neighbor-discovery/"><u>Neighbor Discovery</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-preserve-your-memories-how-to-burn-videos-to-dvds-on-windows-and-mac/"><u>New In 2024, Preserve Your Memories How to Burn Videos to DVDs on Windows and Mac</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-looking-for-an-alternative-to-ezvid-on-mac-to-create-slideshows-and-home-videos-check-filmora-video-editor-for-mac-for-2024/"><u>New Looking for an Alternative to Ezvid on Mac to Create Slideshows and Home Videos? Check Filmora Video Editor for Mac for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/next-level-efficiency-an-in-depth-look-at-the-razer-blade-stealth-13s-trailblazing-ultrabook-features/"><u>Next-Level Efficiency: An In-Depth Look at the Razer Blade Stealth 13'S Trailblazing Ultrabook Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pro-vs-plus-a-comprehensive-guide-to-the-newest-apple-iphones-iphone-15-and-pro-max/"><u>Pro Vs. Plus: A Comprehensive Guide to the Newest Apple iPhones - iPhone 15 & Pro Max</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/red-planet-ruckus-enjoyably-chaotic-city-building-adventures-beyond-earths-boundaries/"><u>Red Planet Ruckus: Enjoyably Chaotic City-Building Adventures Beyond Earth's Boundaries</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-s10e-mastering-miniaturization-without-compromising-on-performance/"><u>Samsung Galaxy S10e: Mastering Miniaturization Without Compromising on Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-complete-breakdown-of-the-garmin-vivosmart-4-your-go-to-source-for-battery-and-stress-insights/"><u>The Complete Breakdown of the Garmin Vivosmart 4 – Your Go-To Source for Battery and Stress Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-amazonbasics-flat-antenna-review-for-economical-free-to-air-tv-enthusiasts/"><u>The Ultimate AmazonBasics Flat Antenna Review for Economical Free-to-Air TV Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-long-distance-wifi-routers-buyers-guide/"><u>Top Long-Distance WiFi Routers : Buyer's Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-pet-tracker-reviews-unveiling-petcube-wonders/"><u>Top Pet Tracker Reviews: Unveiling Petcube Wonders</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-review-best-ups-battery-backups-on-the-market/"><u>Ultimate Review: Best UPS Battery Backups on the Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleash-your-potential-with-cubefits-revolutionary-terramat-a-thorough-user-analysis/"><u>Unleash Your Potential with CubeFit's Revolutionary TerraMat - A Thorough User Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-potential-of-apples-best-ever-value-ipad-8th-gen-102-inch-a-complete-review/"><u>Unlocking the Potential of Apple’s Best-Ever Value iPad (8Th Gen - 10.2 Inch): A Complete Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-secrets-to-a-flawlessly-connected-home-the-netgear-nighthawk-x4-wi-fi-mesh-extender-testimony/"><u>Unveiling the Secrets to a Flawlessly Connected Home: The Netgear Nighthawk X4 Wi-Fi Mesh Extender Testimony</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/watching-fun-unfold-the-arrival-of-nickwatch-on-american-screens-during-the-kid-focused-event/"><u>Watching Fun Unfold: The Arrival of NickWatch on American Screens During the Kid-Focused Event</u></a></li>
+<li><a href="https://techidaily.com/why-are-your-photos-lost-from-iphone-15-pro-max-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Why are your photos lost from iPhone 15 Pro Max? | Stellar</u></a></li>
+</ul></div>

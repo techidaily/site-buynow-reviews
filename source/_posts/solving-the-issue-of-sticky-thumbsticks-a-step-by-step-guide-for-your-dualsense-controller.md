@@ -1,7 +1,7 @@
 ---
 title: "Solving the Issue of Sticky Thumbsticks: A Step-by-Step Guide for Your DualSense Controller"
-date: 2024-08-27 21:46:45
-updated: 2024-08-29 12:44:40
+date: 2024-08-31T14:56:29.461Z
+updated: 2024-09-01T14:56:29.461Z
 tags:
   - games
   - tv
@@ -31,6 +31,9 @@ thumbnail: https://thmb.techidaily.com/abd95b31cf1a96dd50fea72e4fad17faec8b6807e
 
  Once stick drift starts, the problem is unlikely to go away on its own. The problem is likely to only get worse and worse until you decide to do something about it. [Hall Effect joysticks](https://youtube-blog.techidaily.com/esthetic-alignment-for-online-glamour-content-for-2024/) use magnets which makes them far more resilient to stick drift.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ##  Adjust Dead Zones and Sensitivity
 
  The dead zone refers to the distance you can move a controller before movement is registered. The larger the dead zone, the more you’ll need to move the stick before seeing the result on screen. A larger dead zone can help mask stick drift by essentially ignoring small unwanted inputs.
@@ -41,6 +44,9 @@ thumbnail: https://thmb.techidaily.com/abd95b31cf1a96dd50fea72e4fad17faec8b6807e
 
 ![DualSense controller dead zone settings in Death Stranding: Director's Cut.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/death_stranding_dead_zone.JPG) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
  If you have a [DualSense Edge controller](https://unlock-android.techidaily.com/full-guide-to-unlock-your-google-pixel-8-by-drfone-android/), you’re in luck. You can adjust the dead zone settings by creating and using a custom profile. To do this, turn on your PS5 and head to Settings > Accessories > DualSense Edge Wireless Controller > Custom Profiles. Use the “Create Custom Profile” option followed by the “Stick Sensitivity/Deadzone” setting to effectively “trim” the stick drift.
 
  Once you’ve increased the dead zone your controller will feel less precise and you may feel like you have less fine control over in-game actions. It’s probably better to have a controller that feels less precise than one that exhibits stick drift.
@@ -55,6 +61,9 @@ thumbnail: https://thmb.techidaily.com/abd95b31cf1a96dd50fea72e4fad17faec8b6807e
 
  You can use the [PlayStation Support website](https://www.playstation.com/en-us/support/playstation-support-contact-guide/) to reach out to Sony and get the ball rolling.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ##  Clean Your Analog Sticks
 
  If the problem is caused by dirt or appeared after you spilled something on your controller, there’s a chance that a simple clean will do the trick. For this, you’ll need some cotton balls and isopropyl (rubbing) alcohol (70% works fine).
@@ -71,10 +80,25 @@ Tim Brookes / How-To Geek
 
 ![Cleaning a DualSense analog stick with cotton wool and isopropyl alcohol.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/cleaning_dual_sense-1.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 Tim Brookes / How-To Geek
 
  Essentially, you’re working the grease and grime loose using the alcohol as a cleaning solvent. It’s worth repeating this method until you’re happy that you’ve done all you can and that more alcohol won’t necessarily help.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Replace Faulty Analog Sticks
 
  One thing that will resolve your stick drift issue is replacing the faulty stick. Depending on which DualSense controller you have, this could take anywhere from a few minutes to over an hour.
@@ -87,6 +111,9 @@ Tim Brookes / How-To Geek
 
  The silver lining is that the parts aren’t that expensive, so if the alternative is to simply recycle your old controller then you might want to give it a shot. Who knows, maybe you’re a soldering pro?
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Get Someone to Fix It for You
 
  Do you know someone with soldering skills and a penchant for fixing technology? Now might be the time to buddy up to them, and if you follow along you might be able to learn something along the way.
@@ -109,3 +136,39 @@ Tim Brookes / How-To Geek
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-snatching-twitter-laughter-3-pc-techniques/"><u>[New] 2024 Approved  Snatching Twitter Laughter  3 PC Techniques</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-take-your-fb-videos-from-small-to-grand-in-a-click/"><u>[New] 2024 Approved  Take Your FB Videos From Small to Grand in a Click</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-rallying-towards-partnership-reach-the-critical-10k-view-target-quickly/"><u>[Updated] Rallying Towards Partnership  Reach the Critical 10K View Target Quickly</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-mixing-tunes-with-videos-on-vimeo-platform/"><u>2024 Approved  Mixing Tunes with Videos on Vimeo Platform</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-optimal-viewing-settings-for-roblox-experience/"><u>2024 Approved  Optimal Viewing Settings for Roblox Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-the-right-tablet-ipad-vs-kindle-vs-nook-comparison/"><u>Choosing the Right Tablet: IPad Vs. Kindle Vs. Nook Comparison</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-smart-speakers-google-nest-audio-versus-apples-homepod/"><u>Comparing Smart Speakers: Google Nest Audio Versus Apple's HomePod</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-huion-kamvas-gt-191-graphic-tablet-assessment-the-ultimate-pen-display-experience/"><u>Comprehensive Huion Kamvas GT-191 Graphic Tablet Assessment – The Ultimate Pen Display Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-genius-widecam-f100-examining-image-quality-and-audio-performance/"><u>Comprehensive Review of the Genius WideCam F100: Examining Image Quality & Audio Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-the-seamless-fusion-of-heritage-and-high-tech-in-our-skagen-falster-3-watch-evaluation/"><u>Discovering the Seamless Fusion of Heritage and High Tech in Our Skagen Falster 3 Watch Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-applecareplus-suitability-is-it-a-reliable-safety-net-for-your-tech-gear/"><u>Evaluating AppleCare+ Suitability: Is It a Reliable Safety Net for Your Tech Gear?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-dbpower-600-peak-charger-at-18000mah-a-reliable-portable-power-unit/"><u>Evaluating the DBPOWER 600 Peak Charger at 18,000mAh: A Reliable Portable Power Unit</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-style-and-efficiency-of-the-swagtron-swagger-electric-scooter/"><u>Evaluating the Style and Efficiency of the Swagtron Swagger Electric Scooter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-of-microsoft-surface-pro-7-reliable-execution-and-refined-features-only/"><u>Expert Review of Microsoft Surface Pro 7: Reliable Execution & Refined Features Only</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-how-does-apple-watch-series-6-stack-up-against-its-predecessors/"><u>Expert Review: How Does Apple Watch Series 6 Stack Up Against Its Predecessors?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-features-and-functionality-in-apple-books-a-readers-perspective/"><u>Exploring Features and Functionality in Apple Books - A Reader's Perspective</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/fix-crackling-sound-in-headphones-fast-and-simple-solutions/"><u>Fix Crackling Sound in Headphones: Fast and Simple Solutions!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-pick-the-perfect-iphone-for-your-mobile-gaming-needs/"><u>How to Pick the Perfect iPhone for Your Mobile Gaming Needs</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-resolve-oneplus-12-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve OnePlus 12 Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-restore-a-bricked-itel-p55-5g-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Itel P55 5G Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-byb-e430-led-beam-the-premier-pivot-light-system/"><u>In-Depth Analysis: BYB E430 LED Beam - The Premier Pivot Light System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-google-nest-hub-gen-2-missing-the-feature-of-a-built-in-camera/"><u>In-Depth Look at the Google Nest Hub (Gen 2) - Missing the Feature of a Built-In Camera</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-oneplus-nord-n10-5g-essential-insights-for-smartphone-enthusiasts/"><u>In-Depth Review of OnePlus Nord N10 5G: Essential Insights for Smartphone Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/innovative-philips-somneo-alarm-clock-review-leading-the-market-with-elegance-and-functionality/"><u>Innovative Philips Somneo Alarm Clock Review: Leading the Market with Elegance and Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/intelligent-innovation-in-security-a-detailed-examination-of-the-ring-doorbell-pro/"><u>Intelligent Innovation in Security: A Detailed Examination of the Ring Doorbell Pro</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721471476971-iphone-qr-scanner-issues-here-are-10-fixes-that-work/"><u>IPhone QR Scanner Issues? Here Are 10 Fixes That Work!</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/monthly-earnings-potential-on-youtube-for-2024/"><u>Monthly Earnings Potential on YouTube for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/moto-g-play-analysis-outstanding-battery-life-and-satisfactory-functionality/"><u>Moto G Play Analysis: Outstanding Battery Life & Satisfactory Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-performance-with-asus-rog-gt-ac5300-review-a-dedicated-selection-for-gamers-and-tech-savvies/"><u>Navigating Performance with Asus ROG GT-AC5300 Review: A Dedicated Selection for Gamers & Tech Savvies</u></a></li>
+<li><a href="https://common-error.techidaily.com/solving-the-issue-why-doesnt-my-computer-turn-off-on-win-1/"><u>Solving the Issue: Why Doesn't My Computer Turn Off on Win 1#?</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/the-ultimate-ranking-8-best-ios-compatible-daws-for-ipad-and-iphone-enthusiasts-for-2024/"><u>The Ultimate Ranking 8 Best iOS-Compatible DAWs for iPad and iPhone Enthusiasts for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-realme-note-50-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Realme Note 50 Phone</u></a></li>
+</ul></div>

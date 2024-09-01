@@ -1,7 +1,7 @@
 ---
 title: "Classic Atari THE400 Mini Revived: Nostalgic Retro Gaming Hits the Modern Market"
-date: 2024-08-28 11:20:55
-updated: 2024-08-29 10:15:51
+date: 2024-08-31T14:56:12.332Z
+updated: 2024-09-01T14:56:12.332Z
 tags:
   - games
   - tv
@@ -101,10 +101,16 @@ The rear of THE400 Mini.
 
  On the rear of THE400 Mini is a USB-A port, HDMI port, USB-C port, and power button. On the front are four additional USB-A ports. The five USB-A ports support additional controllers, memory sticks, and keyboards. Most games only support one or two players, but one of the games, "M.U.L.E.," supports up to four players at once.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Interface and Software: Retro, but Modern** 
 
 ![THE400 Mini Joystick](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/03/the400-mini-joystick.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 Bill Loguidice / How-To Geek
 
 THECXSTICK.
@@ -121,10 +127,16 @@ Close
 
  THE400 Mini supports FAT32-formatted USB sticks, although I did have to try a few different brands to find one that was properly recognized. When inserting a compatible blank USB stick, a version of the [BASIC programming language](https://atariwiki.org/wiki/Wiki.jsp?page=Atari%20BASIC) is installed. Similarly, THE400 Mini didn't like my wireless Logitech K400r keyboard but had no issues with a wired [Razer BlackWidow V3 Pro](https://www.amazon.com/Razer-BlackWidow-Mechanical-Gaming-Keyboard/dp/B08FQPLCNC/?tag=hotoge-20&ascsubtag=UUhtgUeUpU2002451&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fatari-the400-mini-review%2F&asc%5Fcampaign=Authority). Not every key on a modern keyboard maps correctly to the Atari 8-bit keyboard layout, but using the legend on the Mini can provide some clues.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Games and Gameplay: Past Blasts** 
 
 ![THE400 Mini Front with USB-A ports](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/03/the400-mini-front.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 Bill Loguidice / How-To Geek
 
 The front of THE400 Mini.
@@ -153,6 +165,9 @@ Close
 
  Finally, if you don't like the included THECXSTICK or just want more than one controller and don't want to use another THECXSTICK, THEJOYSTICK, or THEGAMEPAD, modern Microsoft Xbox, Sony PlayStation, and Nintendo Switch controllers can be used. For instance, I was able to use an [8BitDo USB Wireless Adapter 2](https://www.amazon.com/8Bitdo-Wireless-Compatible-Controller-Bluetooth/dp/B09M8CVMYF?tag=hotoge-20&ascsubtag=UUhtgUeUpU2002451&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fatari-the400-mini-review%2F&asc%5Fcampaign=Authority) with an Xbox One controller for a nice wireless option.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## **Should You Buy the Atari THE400 Mini?** 
 
  Retro Games Ltd. knows what they're doing when it comes to designing mass-market nostalgia plays. [THE400 Mini](https://www.amazon.com/THE400-Mini-Not-Machine-Specific/dp/B0CS3VD9TJ/?tag=hotoge-20&ascsubtag=UUhtgUeUpU2002451&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fatari-the400-mini-review%2F&asc%5Fcampaign=Authority) from Atari does a great job of making a past platform accessible to those interested in exploring what one of the most popular computer gaming platforms of all time was all about. It gives a great taste of what some of the best 1970s and 1980s gaming was like and shows how deep Atari's back catalog of systems really is.
@@ -161,6 +176,9 @@ Close
 
 ![Atari - The400 Mini and Joystick](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/atari-the400-mini-and-joystick.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 #####  THE400 Mini
 
 7/ 10 
@@ -185,3 +203,69 @@ THE400 Mini is a plug and play retro game console based on the popular Atari 8-b
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-stream.techidaily.com/new-from-capture-to-screen-the-complete-process-of-uploading-360-vids-on-youtube/"><u>[New] From Capture to Screen  The Complete Process of Uploading 360 Vids on YouTube</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-flipping-frames-learn-snapchats-reverse-trick-for-2024/"><u>[Updated] Flipping Frames  Learn Snapchat's Reverse Trick for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-iconic-logos-for-podcasts-standout-strategies/"><u>[Updated] Iconic Logos for Podcasts  Standout Strategies</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-unlock-the-secrets-of-stellar-snaps-and-snapchat-boomers/"><u>[Updated] In 2024, Unlock the Secrets of Stellar Snaps and Snapchat Boomers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-revolutionizing-video-praise-with-innovative-approaches/"><u>[Updated] Revolutionizing Video Praise with Innovative Approaches</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-declutter-your-tiktok-drafters-efficient-edit-strategies/"><u>2024 Approved  Declutter Your TikTok Drafters  Efficient Edit Strategies</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-engaging-audiences-seamlessly-zoom-plus-youtube-and-fb-live-integration/"><u>2024 Approved  Engaging Audiences Seamlessly  ZOOM + YouTube & FB LIVE Integration</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-complete-guide-on-previewing-sites-before-they-hit-the-internet/"><u>A Complete Guide on Previewing Sites Before They Hit the Internet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/aggressive-lighting-for-aspiring-set-designers/"><u>Aggressive Lighting for Aspiring Set Designers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/all-about-fitbit-inspire-hr-review-a-wristband-for-persistent-workout-companionship-and-vital-statistics-tracking/"><u>All About Fitbit Inspire HR Review: A Wristband for Persistent Workout Companionship and Vital Statistics Tracking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bassdrop-pro-earmuffs-feedback-analysis/"><u>BassDrop Pro Earmuffs Feedback Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bt-status-review-highlights-cost-effective-needs-tweaking/"><u>BT Status Review Highlights: Cost-Effective, Needs Tweaking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-caixun-75-4k-smart-tv-android-cost-effective-quality-on-screen/"><u>Comprehensive Caixun 75 4K Smart TV (Android) - Cost Effective Quality on Screen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-skeletons-the-many-faces-of-halloween/"><u>Cultural Skeletons: The Many Faces of Halloween</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhance-typing-ergonomics-with-leading-wrist-rest-products-of-2024/"><u>Enhance Typing Ergonomics with Leading Wrist Rest Products of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhancing-video-chat-quality-with-the-best-ps4-webcam-arrangement-techniques/"><u>Enhancing Video Chat Quality with the Best PS4 Webcam Arrangement Techniques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-why-a-walmartplus-membership-could-change-your-life/"><u>Evaluating Why a Walmart+ Membership Could Change Your Life</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-fifa-19-dominating-the-world-of-sports-gaming/"><u>Exploring FIFA 19 - Dominating the World of Sports Gaming</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-top-replacement-options-for-microsoft-office-2024-edition/"><u>Exploring Top Replacement Options for Microsoft Office: 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/finding-style-and-strength-a-comprehensive-amazfit-gts-smartwatch-assessment/"><u>Finding Style and Strength: A Comprehensive Amazfit GTS Smartwatch Assessment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fly-high-for-less-an-in-depth-review-of-the-economical-and-entertaining-syma-s111g-rc-helicopter/"><u>Fly High for Less: An In-Depth Review of the Economical and Entertaining Syma S111G RC Helicopter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/gaming-together-a-comprehensive-guide-on-exchanging-xbox-one-games-with-your-crew/"><u>Gaming Together: A Comprehensive Guide on Exchanging Xbox One Games with Your Crew</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/get-more-for-less-with-the-amazing-value-and-efficiency-of-arcshells-ar-5-reviewed-here/"><u>Get More for Less with the Amazing Value and Efficiency of ArcShell's AR-5 Reviewed Here!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/get-up-close-with-the-latest-ampace-andes-1500-ultimate-portable-power-solution/"><u>Get Up Close with the Latest Ampacē Andes 1500: Ultimate Portable Power Solution</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Sony Xperia 5 V | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-convert-avchd-mts-files-for-moto-g-5g-2023-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to convert AVCHD .mts files for Moto G 5G (2023)? </u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-select-the-perfect-tablet-tips-on-finding-the-right-balance-of-size-and-weight/"><u>How to Select the Perfect Tablet: Tips on Finding the Right Balance of Size & Weight</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/how-to-share-videos-to-instagram-in-2024/"><u>How to Share Videos to Instagram, In 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-vivo-x100-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Vivo X100? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-motorola-moto-g73-5g-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Motorola Moto G73 5G Phone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Tecno Pop 7 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-and-thoughts-on-the-huion-kamvas-gt-191-graphic-tablet-the-ultimate-pen-display-experience/"><u>In-Depth Analysis and Thoughts on the Huion Kamvas GT-191 Graphic Tablet - The Ultimate Pen Display Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-discovering-what-sets-iphone-15-pro-max-apart-from-samsung-galaxy-s2n-ultra/"><u>In-Depth Analysis: Discovering What Sets iPhone 15 Pro Max Apart From Samsung Galaxy S2n Ultra</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-lenovo-yoga-a940-evaluation/"><u>In-Depth Lenovo Yoga A940 Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-into-googles-pixelbook-go-stellar-execution-high-expense-evaluation/"><u>In-Depth Look Into Google's Pixelbook Go: Stellar Execution, High Expense Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-using-your-arlo-home-safety-monitoring-devices/"><u>In-Depth Review of Using Your Arlo Home Safety Monitoring Devices</u></a></li>
+<li><a href="https://extra-information.techidaily.com/is-minimizing-unstable-movement-in-photoshop-beneficial/"><u>Is Minimizing Unstable Movement in Photoshop Beneficial?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/kindle-unlimited-a-bibliophiles-dream-understanding-its-four-major-selling-points/"><u>Kindle Unlimited: A Bibliophile's Dream - Understanding Its Four Major Selling Points</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-pc-sound-solutions-a-look-at-the-ultimate-models/"><u>Leading PC Sound Solutions: A Look at the Ultimate Models</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/lenovos-official-bluetooth-driver-software-secure-download-and-upgrade-to-the-latest-version-for-windows-710-operating-systems/"><u>Lenovo's Official Bluetooth Driver Software: Secure Download and Upgrade to the Latest Version for Windows 7/10 Operating Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maintenance-requirements-may-be-higher-due-to-mechanical-wear-in-some-displacement-pump-types/"><u>Maintenance Requirements May Be Higher Due to Mechanical Wear in some Displacement Pump Types</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-friend-to-friend-gaming-swap-tactics-on-the-xbox-one-platform/"><u>Mastering Friend-to-Friend Gaming Swap Tactics on the Xbox One Platform</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-wifi-with-the-linksys-ea9500-an-in-depth-review-of-cutting-edge-tech/"><u>Mastering WiFi with the Linksys EA9500 - An In-Depth Review of Cutting-Edge Tech</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-words-best-windows-apps-for-writers/"><u>Mastering Words: Best Windows Apps for Writers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-your-mobile-battery-life-with-halo-bolt-the-top-portable-charger-and-jump-starter/"><u>Maximize Your Mobile Battery Life with Halo Bolt - The Top Portable Charger and Jump Starter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nintendo-switch-breakdown-a-cut-above-portable-gaming-experience/"><u>Nintendo Switch Breakdown: A Cut-Above Portable Gaming Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/precision-and-durability-sabrents-compact-travel-mouse-with-optimized-cord-set/"><u>Precision & Durability: Sabrent's Compact Travel Mouse with Optimized Cord Set</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-motorola-one-5g-ace-unmatched-5g-connectivity-and-long-lasting-battery-performance/"><u>Review of Motorola One 5G Ace: Unmatched 5G Connectivity and Long-Lasting Battery Performance</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/start-with-smart-edits-10-tips-for-new-photoshop-users-for-2024/"><u>Start with Smart Edits  10 Tips for New Photoshop Users for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/tailoring-your-windows-visual-aid-the-cursor/"><u>Tailoring Your Window's Visual Aid: The Cursor</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/thorough-exploration-of-the-eero-pro-mesh-router-for-ultimate-home-wireless-range/"><u>Thorough Exploration of the Eero Pro Mesh Router for Ultimate Home Wireless Range</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-prime-day-bargains-on-acer-laptops-and-tablets/"><u>Top Prime Day Bargains on Acer Laptops & Tablets</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-mouse-options-compatible-with-your-ipad/"><u>Top-Rated Mouse Options Compatible with Your iPad</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transforming-workspaces-with-the-new-samsung-galaxy-chromebook-a-thorough-review/"><u>Transforming Workspaces with the New Samsung Galaxy Chromebook - A Thorough Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/treat-time-triumphs-games-and-snacks/"><u>Treat Time Triumphs: Games & Snacks!</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-call-logs-from-80-pro-straight-screen-edition-by-fonelab-android-recover-call-logs/"><u>Undelete lost call logs from 80 Pro Straight Screen Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleash-blisteringly-fast-media-playback-with-the-amazon-fire-tv-cube-in-depth-review/"><u>Unleash Blisteringly Fast Media Playback with the Amazon Fire TV Cube – In-Depth Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-the-potential-in-depth-look-at-the-beatit-jump-starter-d11/"><u>Unleashing the Potential: In-Depth Look at the Beatit Jump Starter D11</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unlocking-chatgpts-potential-in-personal-health-management/"><u>Unlocking ChatGPT's Potential in Personal Health Management</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-charm-of-the-flexispot-theodore-elevating-your-workspace-with-a-modern-standing-desk/"><u>Unveiling the Charm of the Flexispot Theodore: Elevating Your Workspace with a Modern Standing Desk</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-experts-rate-apple-ipad-pro-11-as-the-pinnacle-of-performance-in-2018/"><u>Why Experts Rate Apple iPad Pro (11) as the Pinnacle of Performance in 2018</u></a></li>
+</ul></div>
