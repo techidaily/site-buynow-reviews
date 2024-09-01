@@ -1,0 +1,276 @@
+---
+title: "2023'S Leading Under-Desk Walking Machines: A Comprehensive Guide"
+date: 2024-08-28 11:37:57
+updated: 2024-08-29 11:13:29
+tags:
+  - buying-guides
+categories:
+  - tech
+thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b2a4f404614a92dadcad15cd.jpg
+---
+
+## 2023'S Leading Under-Desk Walking Machines: A Comprehensive Guide
+
+An under-desk treadmill is an excellent way to stay active while working from home. Rather than sitting all day, which isn’t good for your health, you can walk slowly on a treadmill while responding to emails, attending meetings, or performing other light work tasks.
+
+* [](https://www.amazon.com/dp/B08YYR4N9G?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce)  
+![Egofit Walker Pro Under Desk Treadmill-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/egofit-walker-pro-under-desk-treadmill-1.png)  
+Egofit  
+#####  Egofit Walker Pro  
+Best Under-Desk Treadmill Overall  
+[$399 at Amazon](https://www.amazon.com/dp/B08YYR4N9G?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce)
+* [](https://www.amazon.com/Elseluck-Walking-Treadmill-Portable-Control/dp/B0CB35LVMG?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce)  
+![Elseluck Under-Desk Treadmill](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/elseluck-under-desk-treadmill.png)  
+Elseluck  
+#####  Elseluck Walking Pad  
+Best Budget Under-Desk Treadmill  
+[$150 at Amazon](https://www.amazon.com/Elseluck-Walking-Treadmill-Portable-Control/dp/B0CB35LVMG?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce)
+* [](https://www.amazon.com/WALKINGPAD-C2-Treadmill-Installation-0-5-3-72MPH/dp/B0983LJV6K?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce)  
+![WALKINGPAD C2 Folding Treadmill](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/walkingpad-c2-folding-treadmill.png)  
+WalkingPad  
+#####  WALKINGPAD C2 Folding Treadmill  
+Best Compact Under-Desk Treadmill  
+[See at Amazon](https://www.amazon.com/WALKINGPAD-C2-Treadmill-Installation-0-5-3-72MPH/dp/B0983LJV6K?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce)
+* [](https://www.amazon.com/UREVO-Treadmill-Walking-Portable-Capacity/dp/B0BVQMSVM1?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce)  
+![UREVO Under-Desk Treadmill](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/urevo-under-desk-treadmill.png)  
+Urevo  
+#####  UREVO Under Desk Treadmill  
+Best Portable Under-Desk Treadmill  
+[$200 at Amazon](https://www.amazon.com/UREVO-Treadmill-Walking-Portable-Capacity/dp/B0BVQMSVM1?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce)
+* [](https://www.lifespanfitness.com/products/tr1000-dt5-treadmill-desk)  
+![LifeSpan TR1000-Classic Treadmill Desk](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/lifespan-tr1000-classic-treadmill-desk.png)  
+LifeSpan  
+#####  LifeSpan TR1000 Classic Treadmill Desk  
+Best Under-Desk Treadmill with Built-in Desk  
+[See at Lifespan Fitness](https://www.lifespanfitness.com/products/tr1000-dt5-treadmill-desk)
+
+##  What to Look for in an Under-Desk Treadmill
+
+ With remote work opportunities booming, there are countless under-desk treadmills available to choose from. To narrow down your search, there are a few key elements to consider.
+
+ The most important thing you’ll need to think about is how much space you have below your desk for an under-desk treadmill. Measure the available space between your desk legs, and make sure the width of the treadmill you’re looking at isn’t larger than that.
+
+ Unless you plan on keeping the treadmill below your desk at all times, you’ll need to consider where you’ll store the treadmill. If you need the treadmill to be easily portable, make sure it has wheels. If you have limited space in your home, consider a folding treadmill that you could possibly store under the couch.
+
+ Most under-desk treadmills feature similar speed ranges, with a max of about four to six mph. While working, a speed between one and three mph is preferable, so an upper-speed max would only be important if you want to lightly jog on your under-desk treadmill when you’re not working. These similar speed ranges are the result of under-desk treadmills sharing motors with similar power, usually between 2 horsepower (HP) and 3.5 HP.
+
+ The more powerful a treadmill’s motor, the higher its speed range will be. Also, more powerful motors are able to accommodate larger weight ranges. The estimated max weight for an under-desk treadmill typically ranges between 220 and 350 pounds, and it’s a good idea to get a treadmill with a max weight capacity of about 20 pounds more than your weight.
+
+ It’s also worth noting that many modern under-desk treadmills offer extra features to enhance usability, like Bluetooth connectivity, a remote control, a compatible smartphone app, or programmable walking modes. Some treadmills even come with a built-in desk if you want an all-in-one solution. If you already have a desk, you can use a standing desk converter or upgrade to a [standing desk](https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-samsung-galaxy-s23-fe-by-drfone-android/) to use an under-desk treadmill.
+
+ The last factor to consider is how much you’re willing to spend, and this answer should be heavily dependent on how much you plan to use the treadmill. If you want to use the treadmill every day for multiple hours, you’re better off spending more money upfront on a higher-quality treadmill rather than choosing a cheaper treadmill that may not last very long. If you think you might only use the treadmill a day or two every week, a budget-friendly option could last quite a while because it’s getting less use.
+
+| **How Did We Research** |                  |                  |
+| ----------------------- | ---------------- | ---------------- |
+| Models Evaluated        | Hours Researched | Reviews Analyzed |
+| 11                      | 5                | 19               |
+
+ How-To Geek's product recommendations come from the same team of experts that have helped people fix their gadgets over one billion times. We only recommend the best products based on our research and expertise. We never accept payment to endorse or review a product. [Read More »](https://win-howtos.techidaily.com/resolving-unresponsive-mousepad-problems-on-windows-systems-windows-7810/) 
+
+##  Best Under-Desk Treadmill Overall: [Egofit Walker Pro Under-Desk Treadmill](https://www.amazon.com/dp/B08YYR4N9G?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce) 
+
+![Egofit Walker Pro Under Desk Treadmill with background-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/egofit-walker-pro-under-desk-treadmill-with-background-1.jpg) 
+
+Egofit
+
+| Pros                                                | Cons                                          |
+| --------------------------------------------------- | --------------------------------------------- |
+| Compact, portable design with wheels                | May not be the best option for taller people  |
+| Relatively quiet 70dB operation                     | Incline can be challenging at first           |
+| 5 percent incline provides a more effective workout | Finicky remote and app could use improvements |
+| Can control via remote or app                       |                                               |
+
+ For most people, the [Egofit Walker Pro](https://www.amazon.com/dp/B08YYR4N9G?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce) is the best under-desk treadmill because of its compact form factor, slight incline, and ease of use. This short treadmill is decked out with a 2HP motor capable of supporting a max weight of 220 pounds and a max speed of 3.1 mph, plenty fast enough for walking while working.
+
+ When you use an under-desk treadmill while working, you primarily use the front section of the treadmill, making the long back unnecessary. That’s why Egofit shortened the treadmill’s walkable length to 34.2 inches, about 5 to 10 inches shorter than most other treadmills. At 16.5 inches wide, the belt is also slightly wider than others.
+
+ The entire unit measures 38.4 x 21.9 x 6.9 inches and weighs 48.5 pounds. With its built-in wheels, it’s easy to maneuver around within your home or transport to an office if your employer lets you have an under-desk treadmill there. Egofit estimates overall noise to be below 70dB, so you can hop on video calls or use it in a public office without worrying about the sound of your treadmill being too prominent in the background.
+
+ For most people, this space-saving design is beneficial, but for taller people with longer strides, the shorter belt length may not work as well. Egofit’s Walker Pro features a 5 percent incline, which could be another hit-or-miss feature for some. With the incline, you’re able to burn more calories and potentially have better posture than if you were walking on a flat treadmill. However, if you’re a beginner in the exercise world, the incline could be too challenging at first.
+
+ On the built-in LCD display, you can see your calories burned, time spent, number of steps, distance traveled, and current speed. You can control the treadmill and its speed with the included remote or the FitShow app available for [Android](https://www.anrdoezrs.net/links/3607085/type/dlg/sid/UUhtgUeUpU2001146/https://play.google.com/store/apps/details?id=com.fitshow) and [iOS](https://apps.apple.com/us/app/fitshow-run-ride-row-indoor/id1387360716). A few [users note issues with their remote](https://www.amazon.com/gp/customer-reviews/RUJBXJNBLNF6M?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce), but according to the product listing on Amazon, this issue has been fixed.
+
+![Egofit Walker Pro Under Desk Treadmill-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/egofit-walker-pro-under-desk-treadmill-1.png) 
+
+![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
+
+Best Under-Desk Treadmill Overall
+
+#####  Egofit Walker Pro
+
+$399 $479 Save $80 
+
+The Egofit Walker Pro is the perfect size for the space below your desk, and it’s inclined to provide more effective exercise while you’re working.
+
+[$399 at Amazon](https://www.amazon.com/dp/B08YYR4N9G?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce) [See at Egofit](https://egofitwalker.com/products/m1-under-desk-treadmill) 
+
+##  Best Budget Under-Desk Treadmill: [Elseluck Under-Desk Treadmill](https://www.amazon.com/Elseluck-Walking-Treadmill-Portable-Control/dp/B0CB35LVMG?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce) 
+
+![Elseluck Under-Desk Treadmill with background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/elseluck-under-desk-treadmill-with-background.jpg) 
+
+Elseluck
+
+| Pros                                    | Cons                                            |
+| --------------------------------------- | ----------------------------------------------- |
+| Compact, easily portable design         | A few people experienced issues with the remote |
+| Quiet <65dB motor                       | Lower 198-lb max weight capacity                |
+| Remote control with pause feature       |                                                 |
+| Large display with multiple data points |                                                 |
+
+ This [under-desk treadmill from Elseluck](https://www.amazon.com/Elseluck-Walking-Treadmill-Portable-Control/dp/B0CB35LVMG?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce) is incredibly affordable, making it an excellent choice for beginners who want to try walking while working without spending a huge chunk of change. It’s equipped with a quiet (<65dB) 2.0HP motor that’s capable of supporting a max weight capacity of 198 pounds and a speed range between 0.6 and 3.8 mph. The Amazon listing says this treadmill has a 220-lb max weight capacity, but a few [user reviews](https://www.amazon.com/gp/customer-reviews/R300CZXTM9Q48Z?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce) stated the manual says 198 pounds.
+
+ The anti-skid running belt measures 15.7 inches wide, which is plenty of room for gentle walking, and features soft gel cushioning for comfort. The treadmill’s full dimensions are 48 x 20.5 x 4.6 inches, narrow enough to slide under most couches, and it weighs 54 pounds. At the front of the treadmill, there are two wheels that make the treadmill easier to move to and from your desk if you want to alternate sitting and walking throughout the day.
+
+ It’s easy to keep track of your distance, speed, time, and calories burned via the built-in LED display. The Elseluck treadmill comes with a small remote so you can power it on and off, start and pause operation, adjust speed, and switch modes. Most people love the included remote and the extra battery provided by Elseluck, but [some users](https://www.amazon.com/gp/customer-reviews/RXPMNT43Y6ZWL?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce) had issues with [getting the remote to work](https://www.amazon.com/ask/questions/Tx30UWQWKF92QB3/?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce).
+
+![Elseluck Under-Desk Treadmill](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/elseluck-under-desk-treadmill.png) 
+
+![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
+
+Best Budget Under-Desk Treadmill
+
+#####  Elseluck Walking Pad
+
+$150 $250 Save $100 
+
+The budget-friendly Elseluck Under-Desk Treadmill is equipped with a 2.0HP motor, which is less powerful than most treadmills, but still provides enough oomph to get you up to a 3.8-mph walking speed.
+
+[$150 at Amazon](https://www.amazon.com/Elseluck-Walking-Treadmill-Portable-Control/dp/B0CB35LVMG?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce) 
+
+##  Best Compact Under-Desk Treadmill: [WALKINGPAD C2 Folding Treadmill](https://www.amazon.com/WALKINGPAD-C2-Treadmill-Installation-0-5-3-72MPH/dp/B0983LJV6K?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce) 
+
+![WALKINGPAD C2 Folding Treadmill with background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/walkingpad-c2-folding-treadmill-with-background.jpg) 
+
+WalkingPad
+
+| Pros                                   | Cons                                                 |
+| -------------------------------------- | ---------------------------------------------------- |
+| Foldable design makes it easy to store | App isn’t very user-friendly                         |
+| Can be controlled via remote or ap     | The adaptive speed control feature doesn’t work well |
+| Walking belt size is good for most     |                                                      |
+| Easy-to-read LED display               |                                                      |
+
+ The [WALKINGPAD C2](https://www.amazon.com/WALKINGPAD-C2-Treadmill-Installation-0-5-3-72MPH/dp/B0983LJV6K?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce) is a unique under-desk treadmill that can be folded, making it easy to store within a small home. When it’s unfolded, the C2 measures 56.8 x 20.4 x 4.9 inches, with a 15.7 x 47.2 belt providing plenty of surface area to walk on. The treadmill’s folded dimensions are 20.4 x 32.4 x 4.9 inches, small enough to slide below a bed, under the couch, or inside a hall closet. It weighs 55 pounds, but it’s easy to move around with two built-in wheels.
+
+ Despite its small form factor, it’s still pretty powerful. The C2 model is equipped with a 2.0HP motor that supports a speed range between 0.5 and 3.7 mph and a max weight capacity of 220 pounds.
+
+ The C2 features Manual Mode, which lets you control the treadmill’s pace at all times, or Automatic Mode, which supposedly allows you to control speed via different zones on the treadmill, but [many users](https://www.amazon.com/gp/customer-reviews/R1TFFD06QPPOS3?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce) had difficulties getting this feature to work properly. Using the included remote or the KS Fit app on [Android](https://www.anrdoezrs.net/links/3607085/type/dlg/sid/UUhtgUeUpU2001146/https://play.google.com/store/apps/details?id=com.kingsmith.xiaojin) or [iOS](https://apps.apple.com/us/app/ks-fit/id1435554313), you can wake the treadmill up, start or stop operation, switch between Manual and Automatic Mode, and adjust speed.
+
+ You can see your speed, time spent, and distance traveled via the app or the LED display towards the treadmill’s front. The app is required to use the treadmill above 1.0 mph and see extra information about your walks. [Some users](https://www.amazon.com/gp/customer-reviews/RE1Z66HRMSW4U?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce) note issues with the app, [while others say the app works well](https://www.amazon.com/gp/customer-reviews/R3MKK70O28SPNU?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce) and have issues with the physical remote instead.
+
+![WALKINGPAD C2 Folding Treadmill](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/walkingpad-c2-folding-treadmill.png) 
+
+![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
+
+Best Compact Under-Desk Treadmill
+
+#####  WALKINGPAD C2 Folding Treadmill
+
+After you’re done walking and working, the WALKINGPAD C2 treadmill folds in half so you can easily store it below your couch or in a closet.
+
+[See at Amazon](https://www.amazon.com/WALKINGPAD-C2-Treadmill-Installation-0-5-3-72MPH/dp/B0983LJV6K?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce) [See at WalkingPad](https://www.walkingpad.com/products/walkingpad-c2-foldable-walking-machine) 
+
+##  Best Portable Under-Desk Treadmill: [UREVO Under-Desk Treadmill](https://www.amazon.com/UREVO-Treadmill-Walking-Portable-Capacity/dp/B0BVQMSVM1?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce) 
+
+![Woman walking on Elseluck Under-Desk Treadmill](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/woman-walking-on-elseluck-under-desk-treadmill.jpg) 
+
+Urevo
+
+| Pros                                               | Cons                                                |
+| -------------------------------------------------- | --------------------------------------------------- |
+| Lightweight design with wheels                     | Need to press mute button at the start of every use |
+| Large, easy-to-read LED display                    | Some find the track too short and/or narrow         |
+| Max weight capacity of 265 pounds                  |                                                     |
+| Magnetic remote control with mute/pause features   |                                                     |
+| Quiet operation despite more powerful 2.25HP motor |                                                     |
+
+ An under-desk treadmill is a great way to get more daily steps, but most people won’t want to walk all day, especially during more intense work tasks. If you want to easily move your treadmill out of the way when you want to sit, check out this [portable treadmill from UREVO](https://www.amazon.com/UREVO-Treadmill-Walking-Portable-Capacity/dp/B0BVQMSVM1?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce). It weighs 55 pounds and has two wheels at the front so you can roll it into position.
+
+ The UREVO under-desk treadmill is equipped with a 2.25HP motor that can support a max weight of 265 pounds and a max speed of 4 mph. It features eight silicone shock absorbers and two soft cushions underneath, so even if you’re lightly jogging, the treadmill will be comfortable under your feet. The track measures 15.7 x 41.3 inches, and there are five layers of anti-slip belt. Dimensions of the entire unit are 50 x 20.4 x 4.9, so you can roll it under a couch or a bed when you’re not using it.
+
+ Using the included remote, you can adjust the treadmill’s speed, use a custom mode, start or stop operation, and mute the remote beeps if you’re on a work call or just don’t want to hear the pesky beeps every time you adjust speed. You’ll need to press the mute button at the beginning of every treadmill session, but many treadmills don’t have a mute button at all, so this is still a win.
+
+ When you’re finished using the treadmill, the remote can be stored magnetically to the right of the LED display. Any time you look down at the LED display, you’ll be able to see your current speed, calories burned, total steps, distance traveled, and time spent on the machine.
+
+![UREVO Under-Desk Treadmill](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/urevo-under-desk-treadmill.png) 
+
+![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
+
+Best Portable Under-Desk Treadmill
+
+#####  UREVO Under Desk Treadmill
+
+$200 $250 Save $50 
+
+This under-desk treadmill from UREVO is only 55 pounds, much lighter than many other treadmills, and it’s equipped with wheels that make it easy to move between rooms.
+
+[$200 at Amazon](https://www.amazon.com/UREVO-Treadmill-Walking-Portable-Capacity/dp/B0BVQMSVM1?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce) [See at Urevo](https://www.urevo.com/collections/under-desk-treadmill/products/spacewalk-1-lite-treadmill) 
+
+## **Best Treadmill with Built-in Desk**: [LifeSpan TR1000-Classic Treadmill Desk](https://www.lifespanfitness.com/products/tr1000-dt5-treadmill-desk) 
+
+![LifeSpan TR1000-Classic Treadmill Desk on color background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/lifespan-tr1000-classic-treadmill-desk-on-color-background.jpg) 
+
+LifeSpan
+
+| Pros                                           | Cons                                      |
+| ---------------------------------------------- | ----------------------------------------- |
+| Treadmill controls are integrated with desktop | Super pricey investment                   |
+| Customizable desktop and frame colors          | Heavy overall product weight (214 pounds) |
+| Height-adjustable between 33.5 and 52.5 inches | Optional app could use improvements       |
+| High 300-lb max weight capacity                |                                           |
+| Large desktop surface area (29 x 38/48 inches) |                                           |
+
+[LifeSpan’s TR1000-Classic](https://www.lifespanfitness.com/products/tr1000-dt5-treadmill-desk) is a unique treadmill-desk combo that includes a height-adjustable standing desk and an under-desk treadmill. It’s decked out with a super quiet 2.25HP motor capable of running speeds between 0.4 and 4 mph and supporting a max weight capacity of 350 pounds.
+
+ The walking belt measures 20 x 44 inches, providing ample space for most walking stride lengths. The desktop surface is 29 inches deep and either 38 or 48 inches wide, depending on which size you order. At the time of writing, the 38-inch desktop is available in black, white, or birch, and the 48-inch desktop is only available in white. You can also choose between silver and charcoal frame colors.
+
+ The entire unit—including the treadmill and the desktop—requires a space in your home measuring at least 58 x 38/48 inches. Put together, the LifeSpan TR1000-Classic weighs a whopping 214 pounds. While you can separate the treadmill from the desk to make moving everything easier, it’s certainly not as portable as most other options on this list.
+
+ The treadmill controls are built into the desktop, so you can easily adjust your speed without needing to locate a remote. There’s a compatible [app](https://www.lifespanfitness.com/pages/app) that lets you control the treadmill and check on your walking data, but many reviews mention the app not being user-friendly. Using the built-in controls, you can also adjust the desk height between 33.5 and 52.5 inches.
+
+ Alternatively, if you don’t need as much desk space and you want to save some money, you could go with this height-adjustable [treadmill desk from FUNMILY](https://www.amazon.com/Treadmill-Workstation-Adjustable-Capacity-Bluetooth/dp/B0BZK93MKM?tag=hotoge-20&ascsubtag=UUhtgUeUpU2001146&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-under-desk-treadmills%2F&asc%5Fcampaign=Commerce). The desktop measures 26.2 x 13 inches, which is easily enough space for a laptop, a drink, and a notepad. This FUNMILY treadmill desk is equipped with a 2.25HP motor that supports a speed range between 0.6 and 7.5 mph and a max weight capacity of 300 pounds.
+
+![LifeSpan TR1000-Classic Treadmill Desk](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/lifespan-tr1000-classic-treadmill-desk.png) 
+
+![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
+
+Best Under-Desk Treadmill with Built-in Desk
+
+#####  LifeSpan TR1000 Classic Treadmill Desk
+
+The LifeSpan TR1000-Classic combines a traditional desk with a treadmill, and it features plenty of working surface area and manual height adjustments.
+
+[See at Lifespan Fitness](https://www.lifespanfitness.com/products/tr1000-dt5-treadmill-desk) 
+
+## FAQ
+
+### Are under-desk treadmills worth it?
+
+ Absolutely! If your job involves at least some low-concentration tasks, using an under-desk treadmill is an easy way to boost energy levels, improve mobility, and stave off the negative effects of sitting all day.
+
+### Are under-desk treadmills safe?
+
+ An under-desk treadmill is just as safe as a regular treadmill. Accidents can still happen, but they’re pretty rare, and most accidents can be prevented by easing yourself into using the treadmill. Start slow, wear supportive shoes, and walk while doing simple work tasks at first.
+
+### What walking pace should I set my under-desk treadmill to?
+
+ A good starting speed for first-time under-desk treadmill users is 1 mph. Once you’re familiar with using it, you can bump the speed up to 2.5 to 3.5 mph to get in more steps and build more muscle.
+
+### Should I get an under-desk treadmill or under-desk bike pedals?
+
+ Both options are great because they help incorporate exercise into your work routine, but an under-desk treadmill generally offers more benefits than under-desk bike pedals. An under-desk treadmill improves your posture, involves multiple muscles and joints, and prevents the negative effects of sitting all day.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
