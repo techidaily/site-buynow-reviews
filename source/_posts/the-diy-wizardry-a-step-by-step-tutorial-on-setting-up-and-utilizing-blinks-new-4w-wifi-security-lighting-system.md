@@ -1,7 +1,7 @@
 ---
 title: "The DIY Wizardry: A Step-by-Step Tutorial on Setting Up and Utilizing Blink's New 4W WiFi Security Lighting System"
-date: 2024-08-31T15:00:21.583Z
-updated: 2024-09-01T15:00:21.583Z
+date: 2024-09-04T18:47:04.047Z
+updated: 2024-09-05T18:47:04.047Z
 categories:
   - BestProducts
 description: "This Article Describes The DIY Wizardry: A Step-by-Step Tutorial on Setting Up and Utilizing Blink's New 4W WiFi Security Lighting System"
@@ -82,7 +82,10 @@ Lifewire / Jeremy Laukkonen
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2024329/7443" target="_top" id="2024329">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024329" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024329/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Setup Process: No special knowledge or tools required**
 
@@ -96,6 +99,12 @@ Lifewire / Jeremy Laukkonen
 
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/X0oLXEoZMMDp1yHZ4thpEvAY2Sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-05-29cdfecba8e74dc9a126aff93f29b3ce.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Jeremy Laukkonen
 
 ## **Connectivity: HomePlug AV2 with MIMO**
@@ -111,7 +120,10 @@ Lifewire / Jeremy Laukkonen
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Network Performance: Fast, but not the fastest**
 
@@ -126,10 +138,19 @@ Lifewire / Jeremy Laukkonen
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/IXQZNi3pFRjm2tdKfPMhwxTE-DA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-06-5a298aa4450e4adfb249aeae86330406.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: D-Link PLC utility available online**
 
  These devices are plug and play, so most users won’t ever have to worry about software, and there is no software included in the box. If you ever do need to change any settings or update the firmware, you can download a PLC utility from D-Link’s official website.
@@ -137,7 +158,10 @@ Lifewire / Jeremy Laukkonen
  The D-Link PLC utility has to be run on a Windows PC that’s connected to the same network as your Powerline AV2000 adapters. It’s fairly simple and provides a few management and testing tools. You can update the firmware of your adapters to the latest version, pinpoint a malfunctioning system, change the encryption key used by your devices, or provide custom names for each adapter.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Price: On the expensive side of the scale**
 
@@ -145,9 +169,6 @@ Lifewire / Jeremy Laukkonen
 
  The typical street price for these adapters is pretty close to the competition, but the MSRP is significantly more expensive. Since some competitors, like Extollo, make adapters that are even faster than these, it’s likely that you’re primarily paying for the brand name rather than better performance.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ## **Competition: Beats most of the competition, but doesn’t come out on top**
 
  The D-Link Powerline AV2000 adapters beat most competitors in terms of sheer performance, and the slightly higher price tag is mostly justified by high transfer speeds and reliable connections. The main exception is the Extollo LANSocket 1500, which was a bit faster in our tests, and has an MSRP of just $90.
@@ -166,9 +187,6 @@ Lifewire / Jeremy Laukkonen
 
  The D-Link Powerline AV2000 is a great powerline adapter, but it isn’t the best. We found that these adapters are extremely easy to set up and use, and they provide fast transfer speeds, but there are alternatives that are both faster and less expensive. If you can find a pair on sale, then the price concern goes out the window, and this is a great product to own. Otherwise, take a look at the Extollo LANSocket 1500, which is both faster and less expensive.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  DHP-P701AV Powerline AV2000

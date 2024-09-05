@@ -1,7 +1,7 @@
 ---
 title: "Less Than a Hundred, More Security: In-Depth Analysis of RemoBell's Top-Rated Video Doorbells"
-date: 2024-08-31T15:00:01.640Z
-updated: 2024-09-01T15:00:01.640Z
+date: 2024-09-04T18:47:04.384Z
+updated: 2024-09-05T18:47:04.384Z
 categories:
   - BestProducts
 description: "This Article Describes Less Than a Hundred, More Security: In-Depth Analysis of RemoBell's Top-Rated Video Doorbells"
@@ -77,7 +77,10 @@ Erika Rawes / Lifewire
  The most recent iteration of the Raspberry Pi, the Raspberry Pi 400, has better processing and the Pi computer built right into a keyboard. This allows for an even more compact personal computer, and the Pi 400 kit even includes a microSD card with the OS preloaded. To see how this new Pi compares to previous generation models and other mini PCs, I tested it for a week. Here’s my full review of the Raspberry Pi 400.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Design: A PC inside of a keyboard
 
@@ -86,7 +89,16 @@ Erika Rawes / Lifewire
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/7BA0HRUVuCSmbiMi4uyFWkXVuKg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-3-58854ebe9d964ccc984e44f77619fa1a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Erika Rawes / Lifewire
 
@@ -97,7 +109,10 @@ Erika Rawes / Lifewire
  On the back of the Pi 400, you’ll find a slot for the microSD card, as well as all of the ports. It has two micro HDMI slots, three USB slots (two 3.0 and one 2.0), a horizontal 40-pin GPIO header, and the port for the power supply. The power button is on the keyboard itself—press F10 to power on the Pi, and press Fn + F10 to power it off.
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Setup Process: Easier than previous Pi models
 
@@ -107,6 +122,12 @@ Erika Rawes / Lifewire
 
  The whole purpose of a Raspberry Pi is to be whatever you want it to be—a personal computer, a smart home controller, a gaming system, or whatever else you can think of.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Projects: Keyboard helps in some ways, hinders in others
 
  One great thing about[Raspberry Pi](https://www.lifewire.com/what-is-raspberry-pi-4042337) is that there’s a community of users to help you out with project ideas, to share terminal commands, and to help with troubleshooting. Pi computers are great for makers, but once I really started experimenting with the Pi 400, I realized the keyboard is beneficial in some areas, but it’s limiting in others.
@@ -119,15 +140,18 @@ Erika Rawes / Lifewire
 
 Erika Rawes / Lifewire
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Display: Dual mini HDMI ports
 
  The Pi 400 has two mini HDMI slots, so you could connect two displays if you wanted to. It can display in 4K as well, which is impressive for a mini PC under $100\.
 
  The Raspberry Pi 400 doesn’t have a DSI port for connecting a capacitive touchscreen display, but you can connect just about any compatible HDMI monitor as long as you use a micro HDMI to[HDMI cable](https://www.lifewire.com/hdmi-cables-and-connectors-what-you-need-to-know-4685377) .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Performance: Not bad for the size
 
  The Pi 400 is the fastest Pi yet, with a 1.8GHz quad-core processor (compared to 1.5GHz on the previous model Pi 4). It doesn’t feel sluggish when booting up, nor does it lag when moving between different applications.
@@ -142,6 +166,12 @@ Erika Rawes / Lifewire
 
  You can turn your Raspberry Pi 400 into a RetroPie gaming system, where you can play classic games from Nintendo, Nintendo 64, Sega, Atari, and more. I created a RetroPie using a Raspberry Pi 3 a few years back, and I’d have to connect a keyboard for any updates or changes. The new keyboard form factor makes things a bit easier with the Pi 400\.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Productivity: LibreOffice and helpful accessories
 
  The Kit with the included Raspberry Pi OS has LibreOffice applications preloaded. You get LibreOffice Base, Calc, Draw, Impress, Math, and Writer. This is helpful for homework, work, keeping track of your command lines, basic word processing, or for creating spreadsheets.
@@ -154,9 +184,6 @@ Erika Rawes / Lifewire
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/vAb_0QFg4Uze6uuiSMlTPtkw_CA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-5-b326f92abc1a4349910f0b7b5d0e2d53.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 Erika Rawes / Lifewire
 
 ## Network: Ethernet or dual-band Wi-Fi
@@ -166,7 +193,16 @@ Erika Rawes / Lifewire
  Here at my home in the Research Triangle in North Carolina, my Wi-Fi speeds max out at 400Mbps. I was able to get respectable speeds on this mini PC, with around 100Mbps upload and 30Mbps download. I did not attempt a hardwired connection.
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Camera: No CSI port, but you can use a USB webcam
 
@@ -177,8 +213,10 @@ Erika Rawes / Lifewire
  Pi computers are great for makers, but once I really started experimenting with the Pi 400, I realized the keyboard is beneficial in some areas, but it’s limiting in others.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://appsumo.8odi.net/c/5597632/2024351/7443" target="_top" id="2024351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024351/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Software: Learn to code
 
@@ -193,7 +231,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/sgM6gDaZx8bgvwHPPRkrZjgH9oA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-4-c9378702644a4e77b8a5e58985d72993.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Erika Rawes / Lifewire
 
@@ -211,9 +252,6 @@ Erika Rawes / Lifewire
 
  Unlike previous Raspberry Pis that are for more advanced users, the Pi 400 kit is designed for everyone. Whether you want to learn programming, create a gaming system, create a streaming system, or get into 3D modeling, the Pi 400 is a good starting point.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  400

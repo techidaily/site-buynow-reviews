@@ -1,7 +1,7 @@
 ---
 title: Top Rated Compact Smartphones
-date: 2024-08-31T14:52:06.806Z
-updated: 2024-09-01T14:52:06.806Z
+date: 2024-09-04T18:47:07.986Z
+updated: 2024-09-05T18:47:07.986Z
 tags:
   - buying-guides
 categories:
@@ -82,14 +82,16 @@ The Apple iPhone 15 Pro features a titanium design with Action button, A17 Pro c
 
 [See at Apple](https://www.apple.com/shop/buy-iphone/iphone-15-pro) [See at Verizon](https://www.anrdoezrs.net/links/3607085/type/dlg/sid/UUhtgUeUpU2003574/https://www.verizon.com/smartphones/apple-iphone-15-pro/) [See at T-Mobile](https://www.t-mobile.com/devices/new-apple-iphone-15-pro-release) 
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Best Small Budget Phone: [OnePlus Nord N30 5G](https://onepluscom.pxf.io/c/5597632/916678/12532?subId1=UUhtgUeUpU2003574&subId2=ehtg&u=https%3A%2F%2Fwww.oneplus.com%2Fus%2Foneplus-n30-5g) 
 
 ![OxygenOS on the OnePlus Nord N30 5G](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/06/person-holding-the-oneplus-nord-n30-5g-with-the-settings-openjpg_52920102511_o.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 _Hannah Stryker / How-To Geek_
 
 | Pros                           | Cons                        |
@@ -107,8 +109,20 @@ _Hannah Stryker / How-To Geek_
 
 ![oneplus-nordn30](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/oneplus-nordn30.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Best Small Budget Phone
 
 #####  OnePlus Nord N30 5G
@@ -123,6 +137,18 @@ The OnePlus Nord N30 might not be the most exciting phone ever built, but for le
 
 ![Apple iPhone SE](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/apple-iphonese-hero-3up-220308_b.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Apple
 
 | Pros                                 | Cons              |
@@ -141,13 +167,19 @@ Apple
 ![black iphone se 2022](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/black-iphone-se-2022-1.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Smallest iPhone
 
 #####  iPhone SE 2022
@@ -156,9 +188,6 @@ Although it's considered a budget iPhone compared to the current flagship series
 
 [See at Apple](https://www.apple.com/shop/buy-iphone/iphone-se) [See at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fapple-iphone-se-3rd-generation-64gb-unlocked-midnight%2F6507470.p%3FskuId%3D6507470) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  Best Small Android Phone: [Samsung Galaxy Z Flip5](https://www.amazon.com/SAMSUNG-Unlocked-Smartphone-Foldable-One-Hand/dp/B0C63KD7JP?tag=hotoge-20&ascsubtag=UUhtgUeUpU2003574&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-small-phones%2F&asc%5Fcampaign=Commerce) 
 
 ![Samsung Galaxy Z Flip 5 cover display with additional apps and Good Lock widget](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/samsung-galaxy-z-flip-5-cover-display-with-additional-apps-and-good-lock-widget.jpg) 
@@ -181,7 +210,16 @@ Dhruv Bhutani / How-To Geek
 ![flip 5-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/flip-5-1.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
@@ -195,9 +233,6 @@ The Samsung Galaxy Z Flip 5 is a flip-fold style foldable with a big outside dis
 
 [$773 at Amazon](https://www.amazon.com/SAMSUNG-Unlocked-Smartphone-Foldable-Hands-Free/dp/B0C63KD7JP/?tag=hotoge-20&ascsubtag=UUhtgUeUpU2003574&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-small-phones%2F&asc%5Fcampaign=Commerce) [See at Samsung](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fus%2Fsmartphones%2Fgalaxy-z-flip5%2Fbuy%2Fgalaxy-z-flip5-512gb-unlocked-sm-f731ulgexaa%2F) [See at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fsamsung-galaxy-z-flip5-256gb-unlocked-graphite%2F6548838.p%3FskuId%3D6548838) [See at AT&T](https://www.anrdoezrs.net/links/3607085/type/dlg/sid/UUhtgUeUpU2003574/https://www.att.com/buy/phones/samsung-galaxy-z-flip5.html/) [See at Verizon](https://www.anrdoezrs.net/links/3607085/type/dlg/sid/UUhtgUeUpU2003574/https://www.verizon.com/smartphones/samsung-galaxy-z-flip5/) [See at T-Mobile](https://www.t-mobile.com/cell-phone/samsung-galaxy-z-flip5?sku=610214678881/) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  Best Small Flip Phone: [Nokia 2780 Flip](https://www.amazon.com/Nokia-2780-Unlocked-Verizon-T-Mobile/dp/B0BLDZDN9R?tag=hotoge-20&ascsubtag=UUhtgUeUpU2003574&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-small-phones%2F&asc%5Fcampaign=Commerce) 
 
 ![Nokia 2780 Flip](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/nokia_2780_flip-dtc-simple_and_e.jpg) 
@@ -219,12 +254,18 @@ Nokia
 ![Nokia Flip](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/nokia-flip.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2024329/7443" target="_top" id="2024329">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024329" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024329/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Best Small Flip Phone
 

@@ -1,7 +1,7 @@
 ---
 title: "Budget-Friendly AmazonBasics Shredder: Comprehensive Review of Its 6-Sheets, Crosscut Features"
-date: 2024-08-31T15:00:34.461Z
-updated: 2024-09-01T15:00:34.461Z
+date: 2024-09-04T18:47:03.821Z
+updated: 2024-09-05T18:47:03.821Z
 categories:
   - BestProducts
 description: "This Article Describes Budget-Friendly AmazonBasics Shredder: Comprehensive Review of Its 6-Sheets, Crosscut Features"
@@ -75,6 +75,18 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Premium looks at a budget price**
 
  When designing a sub-$300 desktop replacement like the HP Notebook 15, compromises are made in order to hit that budget-friendly price tag. Aesthetics are usually the first concession, but the HP Notebook 15 actually looks very nice. The matte finish of the shell has a pleasant texture and gives a nice visual flare to what could have been an unremarkable design.
@@ -85,15 +97,24 @@ Lifewire / Jeremy Laukkonen
 
  The laptop is less than an inch thick at the rear, and it slopes down to an even thinner profile at the front. It does weigh in at over four and a half pounds, which cuts down on portability somewhat, but the short battery life means you won’t be carrying this one with you everywhere anyway.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ## **Setup Process: Generally straightforward, but bloatware can extend the initial setup**
 
  The HP Notebook 15 is a[Windows 10](https://www.lifewire.com/windows-10-2626217) laptop, and the setup process isn’t anything out of the ordinary for a laptop like this. We timed the initial setup, and it took less than 15 minutes from plugging it in and turning it on to hitting the desktop for the first time. HP does ask for some information (including your email address) during the signup process, but most OEMs have a similar process for setting up support and warranty information.
 
  It does come with a[Microsoft 365](https://www.lifewire.com/how-to-install-office-365-4589808) trial and about ten utilities and apps from HP that most users won’t want or need. Removing all of the bloatware extends the initial setup time significantly, especially since this isn’t the fastest laptop to begin with, but uninstalling what you don’t need does free up some space and help the laptop run a little faster.
 
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Display: Unremarkable, and not HD**
 
  The display is one of the biggest shortcomings of the HP Notebook 15\. It’s usable, and it won’t get in the way if you’re just using the laptop for basic productivity tasks. But it’s definitely one of the places that HP cut corners to hit the budget price point. The maximum resolution is only 1366 x 768, which is on the low side for a 15.6” display.
@@ -102,11 +123,20 @@ Lifewire / Jeremy Laukkonen
 
 ![HP Notebook 15](https://www.lifewire.com/thmb/UzcvGMOLjjUMq7266i_u0-aS_d0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW4043278-HP-Notebook-15-3-ebd4f88f5f364fda82cb320e14a5690f.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Outperformed by Intel HP Notebooks with similar specs**
 
  The HP Notebook 15 suffers in the performance department due to its AMD A6-9225 and 4GB of[RAM](https://www.lifewire.com/what-is-random-access-memory-ram-2618159) . It’s perfectly capable of performing basic productivity tasks like word processing, web browsing, email, and even spreadsheets, but comparable models with even slightly better processors and additional RAM beat it in every important benchmark.
@@ -124,7 +154,16 @@ Lifewire / Jeremy Laukkonen
  We also ran the Fire Strike benchmark, which is another gaming benchmark that’s designed for slightly more powerful machines. It only managed a score of 547 in that one, with a totally unplayable 3 FPS.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Productivity: Works fine for basic productivity tasks**
 
@@ -141,7 +180,10 @@ Lifewire / Jeremy Laukkonen
  The sound quality is great for a laptop in this category, and we didn’t notice any distortion when listening to music or watching movie trailers on YouTube. It’s also sufficiently loud, although the speakers lack the bass response necessary to really fill a room.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Network: Decent speeds, but no 802.11ac**
 
@@ -153,9 +195,6 @@ Lifewire / Jeremy Laukkonen
 
 ![HP Notebook 15](https://www.lifewire.com/thmb/QJf5J5Be4RdHKzylG4pIFs6FBo4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW4043278-HP-Notebook-15-1-f27ddc931d944435bb93ac8febfa88a9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Jeremy Laukkonen
 
 ## **Camera: Just an unimpressive 720p webcam**
@@ -163,8 +202,10 @@ Lifewire / Jeremy Laukkonen
  The HP Notebook 15 includes a 720p webcam that works well enough for video chat, but it’s a little blurry and washed out for use in professional teleconferencing. It’s there if you need it, but it isn’t anything special.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Battery: Mediocre battery life requires frequent charging**
 
@@ -183,7 +224,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  The HP Notebook 15 won’t win any awards for performance or battery life, but it’s a classic example of the old maxim that “you get what you pay for.” The MSRP is just $299, so if you’re in the market for an ultra-budget laptop, then it’s worth a look.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Competition: For a little more money, you can get a whole lot more**
 
@@ -201,15 +245,18 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  The lower-resolution display, unimpressive battery, and weak internals make anything beyond basic tasks a struggle for the HP Notebook 15\. But if you just need a laptop for web browsing, email, and word processing — and plan to keep it near an outlet — then the HP Notebook 15 fits the bill for an incredibly low price.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [HP Pavilion Laptop 15z Touch](https://www.lifewire.com/hp-pavilion-laptop-15z-touch-review-4686745)
 * [Lenovo Ideapad 320](https://www.lifewire.com/lenovo-ideapad-320-review-4686723)
 * [Asus Chromebook C202SA](https://www.lifewire.com/asus-chromebook-c202sa-review-4589359)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Notebook 15

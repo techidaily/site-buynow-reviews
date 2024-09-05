@@ -1,7 +1,7 @@
 ---
 title: Ultimate Review of 2024'S Fastest and Most Reliable CFexpress Cards on the Market
-date: 2024-08-31T14:50:43.320Z
-updated: 2024-09-01T14:50:43.320Z
+date: 2024-09-04T18:47:05.999Z
+updated: 2024-09-05T18:47:05.999Z
 tags:
   - buying-guides
 categories:
@@ -68,6 +68,12 @@ Best CFexpress Type B Card Reader
 
  Now that we've covered some of the basics, we'll look at some of the best CFexpress cards on the market right now.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 
 
 | **How Did We Research** |                  |                  |
@@ -77,12 +83,24 @@ Best CFexpress Type B Card Reader
 
  How-To Geek's product recommendations come from the same team of experts that have helped people fix their gadgets over one billion times. We only recommend the best products based on our research and expertise. We never accept payment to endorse or review a product. [Read More »](https://win-howtos.techidaily.com/resolving-unresponsive-mousepad-problems-on-windows-systems-windows-7810/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Best CFExpress Card Overall: [Prograde Digital Cobalt](https://adorama.rfvk.net/c/156932/51926/1036?subId1=UUhtgUeUpU207236&subId2=ehtg&u=https%3A%2F%2Fwww.adorama.com%2Fpgrf650gcpna.html) 
 
 [](https://adorama.rfvk.net/c/156932/51926/1036?subId1=UUhtgUeUpU207236&subId2=ehtg&u=https%3A%2F%2Fwww.adorama.com%2Fpgrf650gcpna.html)
 
 [![ProGrade Cobalt card on yellow background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/01/Prograde-Colbalt-CFexpress-card.jpeg) ProGrade](https://adorama.rfvk.net/c/156932/51926/1036?subId1=UUhtgUeUpU207236&subId2=ehtg&u=https%3A%2F%2Fwww.adorama.com%2Fpgrf650gcpna.html)
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [](https://adorama.rfvk.net/c/156932/51926/1036?subId1=UUhtgUeUpU207236&subId2=ehtg&u=https%3A%2F%2Fwww.adorama.com%2Fpgrf650gcpna.html) 
 
 | Pros                                           | Cons                                               |
@@ -100,9 +118,6 @@ Best CFexpress Type B Card Reader
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 Best CFexpress Card Overall
 
 #####  Prograde Digital Cobalt CFexpress Card
@@ -111,18 +126,6 @@ ProGrade's Cobalt line is a fast, high-performing line of CFexpress cards that c
 
 [See at adorama](https://adorama.rfvk.net/c/156932/51926/1036?subId1=UUhtgUeUpU207236&subId2=ehtg&u=https%3A%2F%2Fwww.adorama.com%2Fpgrf650gcpna.html) 
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Best Type A CFexpress Card: [ProGrade Digital 160GB](https://www.amazon.com/ProGrade-Digital-CFexpress-Memory-160GB/dp/B09BYQCPR5?tag=hotoge-20&ascsubtag=UUhtgUeUpU207236&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F780304%2Fbest-cfexpress-card%2F&asc%5Fcampaign=Commerce) 
 
 [](https://www.amazon.com/ProGrade-Digital-CFexpress-Memory-160GB/dp/B09BYQCPR5?tag=hotoge-20&ascsubtag=UUhtgUeUpU207236&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F780304%2Fbest-cfexpress-card%2F&asc%5Fcampaign=Commerce)
@@ -146,6 +149,12 @@ ProGrade's Cobalt line is a fast, high-performing line of CFexpress cards that c
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Best Type A CFexpress Card
 
 #####  ProGrade Digital CFexpress 2.0 Type A Memory Card (160GB)
@@ -154,16 +163,10 @@ This ProGrade card is a fast Type A CFexpress card that performs well even under
 
 [See at Amazon](https://www.amazon.com/ProGrade-Digital-CFexpress-Memory-160GB/dp/B09BYQCPR5?tag=hotoge-20&ascsubtag=UUhtgUeUpU207236&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F780304%2Fbest-cfexpress-card%2F&asc%5Fcampaign=Commerce) [See at adorama](https://adorama.rfvk.net/c/156932/51926/1036?subId1=UUhtgUeUpU207236&subId2=ehtg&u=https%3A%2F%2Fwww.adorama.com%2Fpgrcfxa160gp.html) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ##  Best Type B CFExpress Card:[SanDisk 512GB Extreme PRO CFexpress Card Type B](https://www.amazon.com/SanDisk-128GB-Extreme-CFexpress-Card/dp/B085DHR8SY/?tag=hotoge-20&ascsubtag=UUhtgUeUpU207236&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F780304%2Fbest-cfexpress-card%2F&asc%5Fcampaign=Commerce) 
 
 ![Extreme Pro Type B CFExpress Card](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/extreme-pro-type-b-cfexpress.jpeg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 _Sandisk_
 
 | Pros                                            | Cons                                                        |
@@ -182,11 +185,20 @@ _Sandisk_
 
 ![Extreme PRO CFexpress Card Type B](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/sandisk-type-b-transparent.png) 
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 Best CFExpress Type B Card
 
 #####  SanDisk 512GB Extreme Pro CFexpress Card Type B
@@ -197,9 +209,6 @@ The Extreme PRO CFexpress Card Type B card is perfect for those who need to film
 
 [$190 at Amazon](https://www.amazon.com/SanDisk-128GB-Extreme-CFexpress-Card/dp/B085DHR8SY/?tag=hotoge-20&ascsubtag=UUhtgUeUpU207236&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F780304%2Fbest-cfexpress-card%2F&asc%5Fcampaign=Commerce) 
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Best CFExpress Type A Card Reader: [ProGrade Digital](https://www.bhphotovideo.com/c/product/1600536-REG/prograde%5Fdigital%5Fpgrwcfxtasdana%5Fcfx%5Fa%5Fsdhc%5Fsdxc%5Fuhs%5Fii.html/BI/22163/KBID/28708/SID/UUhtgUeUpU207236) 
 
 [](https://www.bhphotovideo.com/c/product/1600536-REG/prograde%5Fdigital%5Fpgrwcfxtasdana%5Fcfx%5Fa%5Fsdhc%5Fsdxc%5Fuhs%5Fii.html/BI/22163/KBID/28708/SID/UUhtgUeUpU207236)
@@ -223,10 +232,25 @@ The Extreme PRO CFexpress Card Type B card is perfect for those who need to film
 
 ![prograde cfepxress a reader](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/prograde-cfepxress-a-reader.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Best CFexpress Type A Card Reader
 
@@ -237,7 +261,16 @@ ProGrade offers a lower-cost CFexpress type A card reader that still delivers on
 [See at B&H Photo Video](https://www.bhphotovideo.com/c/product/1600536-REG/prograde%5Fdigital%5Fpgrwcfxtasdana%5Fcfx%5Fa%5Fsdhc%5Fsdxc%5Fuhs%5Fii.html/BI/22163/KBID/28708/SID/UUhtgUeUpU207236) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##  Best CFExpress Type B Card Reader: [Angelbird CFexpress Card Reader](https://www.amazon.com/Angelbird-CFast-2-0-Card-Reader/dp/B0861TSVJW?tag=hotoge-20&ascsubtag=UUhtgUeUpU207236&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F780304%2Fbest-cfexpress-card%2F&asc%5Fcampaign=Commerce) 
 
@@ -245,9 +278,6 @@ ProGrade offers a lower-cost CFexpress type A card reader that still delivers on
 
 [![Angelbird card reader on blue background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/01/Angelbird-Type-B-reader.jpg) Angelbird](https://www.amazon.com/Angelbird-CFast-2-0-Card-Reader/dp/B0861TSVJW?tag=hotoge-20&ascsubtag=UUhtgUeUpU207236&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F780304%2Fbest-cfexpress-card%2F&asc%5Fcampaign=Commerce)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 [](https://www.amazon.com/Angelbird-CFast-2-0-Card-Reader/dp/B0861TSVJW?tag=hotoge-20&ascsubtag=UUhtgUeUpU207236&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F780304%2Fbest-cfexpress-card%2F&asc%5Fcampaign=Commerce) 
 
 | Pros                                         | Cons                                  |
@@ -267,7 +297,10 @@ ProGrade offers a lower-cost CFexpress type A card reader that still delivers on
 ![angelbird type b reader](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/angelbird-type-b-reader.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
@@ -279,39 +312,46 @@ Angelbird offers a fast and durable CFexpress card reader, and this is a company
 
 [$90 at Amazon](https://www.amazon.com/Angelbird-CFast-2-0-Card-Reader/dp/B0861TSVJW?tag=hotoge-20&ascsubtag=UUhtgUeUpU207236&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F780304%2Fbest-cfexpress-card%2F&asc%5Fcampaign=Commerce) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## FAQ
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Can all cameras use CFexpress cards?
 
  No; the majority of cameras use SD or microSD cards for storage. However, with CFexpress rising in popularity, many newer, high-end mirrorless and DSLR cameras are capable of utilizing the improved storage format. These include Sony's A7 III and Alpha 1, Nikon's Z6 and Z7 series, Canon's EOS R5, Panasonic's Lumix S1, and some similar options.
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### What's the difference between CFexpress types A and B?
 
  Aside from differing in size (type A CFexpress cards are physically smaller than type B), the main difference between the two types is the number of PCIe lanes available in each. Type A CFexpress cards offer one lane whereas type B offers two. This translates to different data transfer speeds; type A caps out at 1000MB/s, and type B has a maximum speed of 2,000MB/s (though it's unlikely you'll reach these top speeds in practice).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ### Can a CFexpress reader read XQD cards?
 
  Type B CFexpress cards use the same physical format as XQD cards. This means you should be able to use the two interchangeably as long as your camera's firmware supports both types.
@@ -320,6 +360,12 @@ Key features:
 
  Not quite. They're similar, but CFexpress cards allow higher read/write speeds than XQD cards. While XQD cards top out at under 500MB/s, you can easily find CFexpress cards that reach 1750MB/s (and even higher).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What's the difference between a CFexpress card and an SD card?
 
  SD cards offer significantly slower read/write speeds than CFexpress cards. A quick Amazon search will reveal that most SD cards fall under 200/MBs, whereas their CFexpress siblings achieve speeds above 1500MB/s. If you're shooting home photos and videos, you likely only need an SD card. However, if you're shooting 8K video, you'll want a storage system that can keep up with that amount of data (CFexpress cards). CFexpress type A cards are also different from SD cards in the physical sense---the former are noticeably smaller (20 x 28mm) than the latter (32 x 44mm).

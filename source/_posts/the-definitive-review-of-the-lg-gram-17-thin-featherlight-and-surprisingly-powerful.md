@@ -1,7 +1,7 @@
 ---
 title: "The Definitive Review of the LG Gram 17: Thin, Featherlight and Surprisingly Powerful"
-date: 2024-08-31T15:06:36.728Z
-updated: 2024-09-01T15:06:36.728Z
+date: 2024-09-04T18:46:57.702Z
+updated: 2024-09-05T18:46:57.702Z
 categories:
   - BestProducts
 description: "This Article Describes The Definitive Review of the LG Gram 17: Thin, Featherlight and Surprisingly Powerful"
@@ -72,13 +72,6 @@ thumbnail: https://thmb.techidaily.com/c2342fb5e25c5a967555cf815791bd2b9698b049e
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ## **Design: Functional and slightly elevated**
 
  The Samsung Galaxy Fit is a fitness-oriented device, and the design reflects this. It’s clean, minimal, and straightforward. Not only is this wearable extremely lightweight at only 0.81 ounces, but it’s also quite slim, which gives it a bracelet-like appearance.
@@ -93,13 +86,13 @@ No advertising on the website.
 
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/uFwssrqnoTWtrPSlF6y16TFjA5A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-2-2e9d9cba7ec342918320509e630b0f09.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Setup Process** :**Speedy and to the point**
 
@@ -110,7 +103,16 @@ No advertising on the website.
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/E_Ki7o6LChwW9AdtjDKL2L1lHjw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-4-abd906dedc9c440188c23a5aabdfebe0.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Yoona Wagener
 
@@ -130,11 +132,14 @@ No advertising on the website.
 
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/SRdpyMKwwNLE2m_Dnn2o9thnpQ8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-3-40a8d98ca4a04e7c9b5b18531df43e6f.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Performance: High marks for accuracy**
 
  Since fitness tracking is really the name of the game for this device, we had high hopes that it would perform well. We weren’t disappointed by what we found. We were pleased with its ability to automatically track running, swimming, and sleep activities.
@@ -151,11 +156,14 @@ No advertising on the website.
 
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/APk5ikkGQieSTN39gBAQ6rf6H9E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-5-5ff5a7cfa0c34594b8d74bbb224e9800.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Battery: Good for a full week of use**
 
  Samsung says this watch is good for up to seven to eight days with regular activity and use, and up to eleven days with minimal use. We found that this watch lasted on the initial charge for a full[eight days](https://www.lifewire.com/fitness-trackers-with-the-best-battery-life-4077272) , which lined up with the manufacturer claims. It’s hard to say how the battery life would stack up to multiple workouts in a day—we typically only did one a day over the course of a week, but our experience with the device supports the strong battery life claims.
@@ -170,12 +178,36 @@ No advertising on the website.
 
  In addition to controlling the watch settings easily from the[mobile app](https://www.lifewire.com/what-are-apps-1616114) , the Samsung Health app is the other go-to resource. Here you can view all the information captured by the activity tracker, including fitness, sleep, and even stress levels. You can also take this a step further by using the app to monitor calories, weight, and water intake.
 
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Great for what you get**
 
  The Samsung Galaxy Fit retails for $99.99, which makes it a strong competitor in the fitness tracker market. Similarly-priced devices from the Fitbit brand offer an equivalent bundle of all-day activity tracking and general wellness features but lack the vibrant display of the Galaxy Fit.
 
  There are cheaper options out there, too, like the Garmin vívofit 4, which sells for between $60 and $80\. But it lacks a heart rate monitor or the smart capabilities of the Fit, like canned text-messaging responses and the ability to send calls straight to voicemail. For the activity tracking and smart device functionality, the Fit is a fair price and maybe even a bargain for some.
 
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Samsung Galaxy Fit vs. Fitbit Inspire HR**
 
  The Fitbit Inspire HR is a close competitor to the Samsung Galaxy Fit. Both are priced at just below $100 and have many of the same wellness and activity tracking features. Both are water resistant up to 50 meters, track active and resting heart rate, feature sport profiles, log sleeping activity, and integrate various types of notifications.
@@ -191,7 +223,10 @@ No advertising on the website.
  The Samsung Galaxy Fit is an appealing option for those who want a bit of smartwatch functionality and a heavy emphasis on exercise monitoring—without shelling out too much money. The fit, ironically, may be the largest issue. But if you’re able to find the right size, this may be everything you want in a fitness tracker.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 

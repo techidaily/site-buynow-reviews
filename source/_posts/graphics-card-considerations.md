@@ -1,7 +1,7 @@
 ---
 title: Graphics Card Considerations
-date: 2024-08-31T14:51:52.414Z
-updated: 2024-09-01T14:51:52.414Z
+date: 2024-09-04T18:47:07.642Z
+updated: 2024-09-05T18:47:07.642Z
 tags:
   - buying-guides
 categories:
@@ -100,12 +100,24 @@ LG
 ![lg-c3-small-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/lg-c3-small-1.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Best Gaming TV Overall
 
@@ -118,15 +130,15 @@ The LG C3 is loaded with gaming-related features that make it ideal for making t
 [$1397 at Amazon](https://www.amazon.com/dp/B0BVXF72HV?tag=hotoge-20&ascsubtag=UUhtgUeUpU208970&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749603%2Fbest-gaming-tvs%2F&asc%5Fcampaign=Commerce) [See at B&H Photo Video](https://www.bhphotovideo.com/c/product/1757497-REG/lg%5Foled55c3pua%5Fc3%5F55%5F4k%5Fhdr.html/BI/22163/KBID/28708/SID/UUhtgUeUpU208970) [See at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Flg-55-class-c3-series-oled-4k-uhd-smart-webos-tv%2F6535933.p) 
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##  Best Budget Gaming TV: [Hisense U7K](https://www.amazon.com/dp/B0C6XRRNM7/?tag=hotoge-20&ascsubtag=UUhtgUeUpU208970&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749603%2Fbest-gaming-tvs%2F&asc%5Fcampaign=Commerce) 
 
 ![hisense u7k](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/hisense-u7k.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 Hisense
 
 | Pros                                        | Cons                          |
@@ -149,14 +161,13 @@ Hisense
 ![hisense u7k](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/hisense-u7k-small.png) 
 
 <!-- affiliate ads begin -->
-
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 Best Budget Gaming TV
 
 #####  Hisense U7K
@@ -165,6 +176,18 @@ The Hisense U7K punches above its weight class by offering a 144Hz display, Mini
 
 [See at Amazon](https://www.amazon.com/dp/B0C6XRRNM7/?tag=hotoge-20&ascsubtag=UUhtgUeUpU208970&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749603%2Fbest-gaming-tvs%2F&asc%5Fcampaign=Commerce) 
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Best TV for PC Gaming: [LG C3](https://www.amazon.com/dp/B0BVXK9N6X/?tag=hotoge-20&ascsubtag=UUhtgUeUpU208970&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749603%2Fbest-gaming-tvs%2F&asc%5Fcampaign=Commerce) 
 
 ![lg c3](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/lg_c3_pc.jpg) 
@@ -185,8 +208,20 @@ LG
 
 ![lg-c3-small-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/lg-c3-small-1.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2024347/7443" target="_top" id="2024347">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024347/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Best TV for PC Gaming
 
 #####  LG C3 OLED
@@ -197,13 +232,22 @@ The LG C3 shines as your gaming PC companion. It has no trouble working with AMD
 
 [$1397 at Amazon](https://www.amazon.com/dp/B0BVXF72HV?tag=hotoge-20&ascsubtag=UUhtgUeUpU208970&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749603%2Fbest-gaming-tvs%2F&asc%5Fcampaign=Commerce) [See at B&H Photo Video](https://www.bhphotovideo.com/c/product/1757497-REG/lg%5Foled55c3pua%5Fc3%5F55%5F4k%5Fhdr.html/BI/22163/KBID/28708/SID/UUhtgUeUpU208970) [See at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Flg-55-class-c3-series-oled-4k-uhd-smart-webos-tv%2F6535933.p) 
 
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Best TV for PS5 and Xbox Series X: [Sony A95L](https://www.amazon.com/dp/B0BYPT328K/?tag=hotoge-20&ascsubtag=UUhtgUeUpU208970&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749603%2Fbest-gaming-tvs%2F&asc%5Fcampaign=Commerce) 
 
 ![sony a95l](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/sony-a95l.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Sony
 
 | Pros                          | Cons                    |
@@ -225,9 +269,6 @@ Sony
 
 ![sony a95l](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/sony-a95l.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 Best TV for PS5 and Xbox Series X
@@ -243,7 +284,16 @@ The Sony A95L is an impressive 4K TV that supports all the features of PS5 and X
 ![samsung qn90c](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/samsung-qn90c.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Samsung
 
@@ -268,9 +318,6 @@ Samsung
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 Best LED TV for Gaming
 
 #####  Samsung QN90C QLED TV
@@ -279,13 +326,16 @@ The QN90C is a fantastic gaming TV as it supports 4K 120Hz gaming, has VRR suppo
 
 [$1030 at Amazon](https://www.amazon.com/SAMSUNG-Tracking-Anti-Glare-Q-Symphony-QN65QN90C/dp/B0BTTVL419/?tag=hotoge-20&ascsubtag=UUhtgUeUpU208970&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749603%2Fbest-gaming-tvs%2F&asc%5Fcampaign=Commerce) [See at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fsamsung-65-class-qn90c-neo-qled-4k-uhd-smart-tizen-tv%2F6533835.p) [See at Samsung](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fus%2Ftelevisions-home-theater%2Ftvs%2Fsamsung-neo-qled-4k%2F55-class-qn90c-samsung-neo-qled-4k-smart-tv-2023-qn55qn90cafxza%2F) 
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Best 8K TV for Gaming: [Samsung QN900C](https://www.amazon.com/gp/product/B0BTMKGBGJ?tag=hotoge-20&ascsubtag=UUhtgUeUpU208970&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749603%2Fbest-gaming-tvs%2F&asc%5Fcampaign=Commerce) 
 
 ![samsung qn900c 8k tv](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/samsung-qn900c-8k-tv.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Samsung
 
 | Pros                                | Cons                       |
@@ -306,6 +356,12 @@ Samsung
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Best 8K TV for Gaming
 
 #####  Samsung QN900C
@@ -317,26 +373,34 @@ Samsung’s QN900C shines as an 8K gaming TV. It has a native 144Hz refresh rate
 ## FAQ
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### What is better for gaming, a monitor or a TV?
 
  Both monitors and TVs have positives and negatives when it comes to gaming. While the refresh rates on some monitors can [reach up to 360Hz](https://instagram-video-recordings.techidaily.com/updated-2024-approved-how-to-upside-down-your-instagram-videos-complete-manual/) (500Hz ones are coming), only select high-end TVs have [a 144Hz or 120Hz refresh rate](https://printer-issues.techidaily.com/speedy-release-from-print-lineup/). But it's cheaper to get 4K resolution on a large screen via a TV compared to a monitor. On the other hand, monitors typically have a better port selection and are more ergonomic.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ### Can you connect a PC to a TV for gaming?
 
  You can connect a PC to your TV for gaming if both have HDMI ports. Otherwise, you'll need an adapter to convert the video signal from your PC to match the available ports on your TV.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Which type of HDMI port is best for gaming on a TV?
 
  If you have [HDMI ports](https://extra-lessons.techidaily.com/new-color-space-comparison-srgb-vs-rgb/) with different capabilities on your TV, such as [HDMI 2.1](https://screen-mirror.techidaily.com/apple-iphone-12-pro-screen-mirroring-you-must-know-drfone-by-drfone-ios/) and HDMI 2.0 or HDMI 2.0 and HDMI 1.4, then it's ideal to use the newer generation port, which is represented by the higher number. But if you aren't sure about a port's generation, consult the TV manual or specifications for help.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Do I need VRR for my gaming TV?
 

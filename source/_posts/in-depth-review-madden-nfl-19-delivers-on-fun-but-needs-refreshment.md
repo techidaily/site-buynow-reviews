@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Review: Madden NFL 19 Delivers on Fun but Needs Refreshment"
-date: 2024-08-31T15:02:01.005Z
-updated: 2024-09-01T15:02:01.005Z
+date: 2024-09-04T18:47:02.371Z
+updated: 2024-09-05T18:47:02.371Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Review: Madden NFL 19 Delivers on Fun but Needs Refreshment"
@@ -72,12 +72,21 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Setup: Straightforward, aside from some account sign in nonsense**
 
  After a bulky 50 GB download, the game launched without issue, first from[Steam](https://www.lifewire.com/what-is-steam-4177380) to a separate launcher where I could adjust graphics and other settings. Next, I was prompted to sign up with a Square Enix account. This step isn't necessary but does unlock some exclusive content. The process of signing up and linking my account was a bit clunky and cumbersome, but I finally bulled through to the main menu.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Story: Solid, if a bit predictable**
 
  The campaign begins in a tutorial level that takes you through an “Avengers Day” fair full of easter eggs and references. This is pretty effective at introducing gameplay mechanics and characters. The story follows Kamala Khan (Ms. Marvel), a hero who fans of the comics may be familiar with but who's likely new to moviegoers. As the campaign progresses you'll recruit additional Avengers, who you can swap between as the story unfolds.
@@ -86,9 +95,6 @@ Lifewire / Andy Zahn
 
 ![Marvel's Avengers](https://www.lifewire.com/thmb/3nTq6bLdCWbR2C_2pwQ1_cOHwEc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Marvels-Avengers-Game-3-76abbc3fedb64f2d8039cfa95c043bac.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andy Zahn
 
  After several missions, you unlock a hub area from where you can choose to launch both main and side quest missions. Different characters have their own separate stories you can follow, and most can be played cooperatively.
@@ -107,6 +113,12 @@ Lifewire / Andy Zahn
 
 ![Marvel's Avengers](https://www.lifewire.com/thmb/G2_Nr801kYuHDprTf-WW0H710pc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Marvels-Avengers-Game-5-d35733fe387046748269587329fc4c5c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Andy Zahn
 
  Difficulty scaling is another problem the longer you play. As your power increases so does the power of your enemies, which means it’s hard to maintain that initial feeling of being an invincible superhero. There's also something very disappointing about playing as Hulk and having to slowly chip at an enemy's wellness bar at the same rate as any other character.
@@ -117,13 +129,16 @@ Lifewire / Andy Zahn
 
 ![Marvel's Avengers](https://www.lifewire.com/thmb/qOCpss1qt_evo0lE6ASI-iEcgE4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Marvels-Avengers-Game-4-f72fa3ece4a24aecb6dfabf7c1ed786d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Andy Zahn
 
  The big problem here is that by divorcing cosmetics from gear to enable and encourage non-gameplay affecting microtransactions, Avengers takes away the fun of customizing your gear. It makes the game feel cheap and manipulative.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Collectibles: Weighed down by knick-knacks**
 
  There’s a lot of stuff to collect throughout Avengers, but way too much of it is junk. Comic books give characters stat boosts, there’re tidbits of lore to pick up if you feel like reading, and then there’s the endless stream of armor and components that you use to boost your character’s power.
@@ -133,7 +148,10 @@ Lifewire / Andy Zahn
 ![Marvel's Avengers](https://www.lifewire.com/thmb/1b-tnL1lzsDoFyr0NtwNmgg9YWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Marvels-Avengers-Game-6-44776b5f2a5c4f139599edba51104a76.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Andy Zahn
 
@@ -141,13 +159,16 @@ Lifewire / Andy Zahn
 
  There’s even more tedium when you factor in the variety of different vendors, each peddling a pile of the same boring gear that is purchased with the broken down components of gear you don’t want.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Multiplayer: Co-op friendly**
 
  Marvel’s Avengers can either be played solo or with up to three other players for multiplayer missions. In such missions you can invite friends, or fill empty player slots with random players or AI-controlled characters. At the time of writing, the number of active players has plummeted, so unless you’re able to rope in some friends, you’ll likely be playing the whole game in single-player mode.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## **Performance: Generally good**
 
  The game ran very well for the most part at max settings in 1440p on my gaming rig with its Nvidia RTX 2070\. I enjoyed smooth, consistent frame rates over the monitor’s 60-hertz refresh rate. The game should perform well even on older or lower-end hardware in 1080p. However, it’s not all clear sailing, as when I finally unlocked Thor his lightning abilities immediately resulted in a big drop in framerate.
@@ -155,7 +176,10 @@ Lifewire / Andy Zahn
  The Avengers isn’t groundbreaking, but it’s still a great looking game.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Graphics: Pretty to look at**
 
@@ -167,9 +191,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: Good value, but with hidden costs**
 
  Marvel’s Avengers launched at $60 but is widely available for $50 or less at the time of this writing due to its decline in popularity. If you’re really itching to play an Avengers game and can put up with its flaws it’s not a bad value. Unfortunately, microtransactions may encourage you to spend more money.
@@ -186,15 +207,18 @@ Lifewire / Andy Zahn
 
  Marvel’s Avengers has a decent story, fun gameplay, and is by far the most complete video game experience related to this cinematic universe. However, to enjoy that you have to look past all the problems weighing it down, which is a tough ask.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * Apex Legends
 * [Assassin's Creed: Valhalla](https://www.lifewire.com/assassin-s-creed-valhalla-review-an-epic-viking-adventure-across-the-medieval-world-5086782)
 * [The Outer Worlds](https://www.lifewire.com/the-outer-worlds-review-5077238)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2030373/7443" target="_top" id="2030373">
+  <img src="//a.impactradius-go.com/display-ad/7443-2030373" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030373/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Marvel’s Avengers

@@ -1,7 +1,7 @@
 ---
 title: "Motorola MG7700 Tested Thoroughly: Assured Swiftness at Your Fingertips"
-date: 2024-08-31T15:00:19.118Z
-updated: 2024-09-01T15:00:19.118Z
+date: 2024-09-04T18:47:04.086Z
+updated: 2024-09-05T18:47:04.086Z
 categories:
   - BestProducts
 description: "This Article Describes Motorola MG7700 Tested Thoroughly: Assured Swiftness at Your Fingertips"
@@ -66,6 +66,12 @@ Lifewire / Claire Cohen
 
  We recently reviewed the MG7700 to examine just how well it would perform in an average home environment by evaluating the design, ease of setup, network speeds, and software features.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Design: Simple and functional
 
  The Motorola MG7700 is fairly compact at 9.1 x 2.6 x 2.6 inches with a gray finish and a black stand. On the front of the device, you’ll find several indicator lights that tell you if it’s powered up, whether any traffic is flowing through your network, and if people are connected to your wireless network. The light indicators are easy to see and understand — something you don’t typically find in a modem from your cable company.
@@ -74,9 +80,6 @@ Lifewire / Claire Cohen
 
 ![Motorola MG7700](https://www.lifewire.com/thmb/djrbmUe-WrBQ_Tx-xD6258JjBmU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-4-5c8faefcc9e77c0001a926be.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Claire Cohen
 
  Oddly, there’s a black area between the power port and the top LAN port that has nothing in it, as if there are LAN ports missing. With more devices like smart home hubs requiring you to plug in with Ethernet, it would have been nice to see a few more LAN ports on the back.
@@ -85,9 +88,6 @@ Lifewire / Claire Cohen
 
  The Best Cable Modems on the Market
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Setup Process: Location, location, location
 
  Since the Motorola MG7700 is a combined cable modem and router, you’ll need to plug it into[your ISP’s coaxial cable](https://www.lifewire.com/introduction-to-network-cables-817868) in order to pipe Internet into your home. This can limit your placement locations a bit since coax cables are often installed by your provider in less-than-ideal locations, especially if you live in an apartment building.
@@ -104,9 +104,6 @@ Lifewire / Claire Cohen
 
  Information about approved third-party equipment can usually be found on your cable provider’s website. If not, it’s best to call and ask before you buy. We were able to set it up on Spectrum without any trouble.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## Connectivity: The latest standards
 
  The Motorola MG7700 is a 24x8 DOCSIS 3.0 modem that doubles as a wireless router. It has 24 downstream channels (which are lanes that handle network traffic, so the more, the better) allowing it to potentially hit a 1 Gbps download speed. There are eight upstream channels for a maximum 246 Mbps upload. This is a pretty standard set of connectivity protocols that makes it a lot faster than 16x4 modems, but slower than 32x8 ones.
@@ -121,6 +118,12 @@ Lifewire / Claire Cohen
 
  The “1900” represents the maximum theoretical bandwidth the router is capable of. In this case, the MG7700 could hit 1,900 Mbps, but again, this is only if your cable provider supports it, not to mention other factors like wireless interference due to congested bands and throttling from your provider.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Network Performance: Fast speeds with a caveat
 
  Once we got the modem up and running, it delivered outstanding speeds, reliably maxing out our 100 Mbps Spectrum plan when we were hard-wired via the LAN ports.
@@ -134,7 +137,10 @@ Lifewire / Claire Cohen
 ![Motorola MG7700](https://www.lifewire.com/thmb/pHbG256tJv_ubRtv-HdKUka66IA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-3-5c8fb059c9e77c0001a926bf.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Claire Cohen
 
@@ -142,27 +148,22 @@ Lifewire / Claire Cohen
 
  Overall, if you live in a large apartment or a modestly-sized home, you won’t be disappointed by the performance of the MG7700.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ## Software: User-friendly options
 
  The MG7700’s built-in software is customizable, too. Once your router is set up, you can go to a specified IP address (the instructions will tell you which one) in your Web browser to change settings, including the name of the default network, enabling password protection, toggling the channels your router will communicate on, and more. There’s also an Advanced page that allows you to set up a[firewall](https://www.lifewire.com/definition-of-firewall-817568) or enable parental controls. Overall, the settings are well laid out, easy to understand, and simple to change.
 
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Price: Good value for the speed
 
  At $189.99 (MSRP), the MG7700 isn’t quite as a cheap as standalone modems, which can cost as little as $30, but incorporating both a modem and router into one device makes the price more palatable.
@@ -171,6 +172,18 @@ Key features:
 
  Taking into account the fact that your service providers rental fees can run to $10 to $12 a month, the MG7700 could pay for itself in a little over the year. And the price isn’t unusual for the market, other bestselling modem and router units such as the $199.99 TP-Link Archer CR1900 will cost you about the same for a similar set of capabilities.
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Motorola MG7700 vs. TP-Link Archer CR1900
 
  The Motorola MG7700 has some close competition, chief among them is TP-Link Archer CR1900 modem/router. It similarly supports 24x8 DOCSIS 3.0, AC1900, and has four gigabit-capable LAN ports, allowing it to handle things such as online gaming and 4K streaming on numerous devices.
@@ -185,14 +198,17 @@ Key features:
 
  The Motorola MG 7700 boasts four gigabit-ready LAN ports, delivered blazing fast 100Mbps speeds over dual-band Wi-Fi in our testing, and has outstanding user controls that are easy for anyone to use. It does best in homes of 2,000 square feet and can handle a dozen devices or more. That said, if you’re someone with a larger home or higher bandwidth requirements for a large number of devices, you may be better served by a tri-band router.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Netgear Nighthawk C7000](https://www.lifewire.com/netgear-nighthawk-c7000-review-4686068)
 * [Netgear C3700 Cable Modem Router](https://www.lifewire.com/netgear-c3700-cable-modem-router-review-4686094)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  MG7700 Cable Modem and Router

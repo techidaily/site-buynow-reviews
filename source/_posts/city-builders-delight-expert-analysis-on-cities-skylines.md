@@ -1,7 +1,7 @@
 ---
 title: "City Builder's Delight: Expert Analysis on 'Cities: Skylines'"
-date: 2024-08-31T15:03:37.926Z
-updated: 2024-09-01T15:03:37.926Z
+date: 2024-09-04T18:47:00.700Z
+updated: 2024-09-05T18:47:00.700Z
 categories:
   - BestProducts
 description: "This Article Describes City Builder's Delight: Expert Analysis on 'Cities: Skylines'"
@@ -68,6 +68,12 @@ Lifewire / Benjamin Zeman
 
 Lifewire / Benjamin Zeman
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: A nostalgic look**
 
  The Linksys WRT3200ACM Router sticks with the familiar black and blue design of its predecessors. At 9.68 x 7.63 x 2.04 inches and 28.16 ounces it’s fairly large, and the four inch antennas add some additional height, though each antenna is adjustable and detachable.
@@ -94,9 +100,6 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
  Lifewire / Benjamin Zeman
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Connectivity: 3200ACM and MU-MIMO capable**
 
  The Linksys WRT3200ACM is a MU-MIMO Dual-Band Tri-Stream 160 router with 600+2600 Mbps speeds. It’s powered by a 1.8GHz dual-core processor and uses the latest 802.11ac network standards. The 2.4GHz band and 5GHz band run independently of each other, so the router can simultaneously reach theoretical speeds of 600 Mbps on 2.4GHz and a massive 2600 Mbps on the 5GHz band.
@@ -106,7 +109,16 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
  The Linksys WRT3200ACM also has four wired gigabit ethernet ports to directly connect devices like your[gaming console](https://www.lifewire.com/best-gaming-consoles-4154610) or[smart TV](https://www.lifewire.com/best-smart-tvs-4135681) . The[USB 3.0](https://www.lifewire.com/what-is-usb-3-0-2626038) and USB 2.0/eSata ports allow you to connect external storage devices and share things like your video collection across your network. The Linksys WRT3200ACM definitely covered all the connectivity bases that we needed.
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Network Performance: Strong 5.4GHz but weak 2.4GHz**
 
@@ -121,7 +133,10 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
  Lifewire / Benjamin Zeman
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Software: Stock is great, open source is better**
 
@@ -138,7 +153,10 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
  If you’re new to open source router firmware, we encourage you to do your research first. Open source firmware is really for users who are familiar with building and debugging their own software. It requires more manual maintenance and you’ll need to keep up with any new releases yourself. There are a lot of other less expensive Linksys routers available if you want to test the waters before jumping in with the WRT3200ACM.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<a href="https://appsumo.8odi.net/c/5597632/2031472/7443" target="_top" id="2031472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2031472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2031472/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Price: Good if you need open source**
 
@@ -146,6 +164,12 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
  Even if you don’t go with a refurb, the WRT3200ACM is a good buy, though it’s not a necessity if you aren’t looking to utilize it for its open source capabilities—there are other, cheaper options on the market that will serve your needs just as well.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Linksys WRT3200ACM Router vs. Asus RT-AC5300 Router**
 
  Another router that tends to top the list of[open source routers](https://www.lifewire.com/best-wireless-routers-4038590) is the Asus RT-AC5300, a Tri-Band AC5300, MU-MIMO-capable router marketed towards gamers. This expensive router has a very large footprint and two antennas on each of the four sides. Its $400 MSRP is significantly higher than the Linksys WRT3200ACM, and the lowest retail price we’ve seen is around $270\. Even refurbished, it still goes for $250, the same price as the MSRP of the Linksys WRT3200ACM.
@@ -161,7 +185,10 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
  The Linksys WRT3200ACM Router is a great buy from a great company that’s been in the market for a long time. Whether you purchase the Linksys WRT3200ACM new or refurbished, it’s a fantastic value. The only suggestion we have is that you make sure it’s what you actually want and need—if you aren’t going to use it for its open source capabilities, you might want to take a look at some other options. If open source is your jam, you’ll love this router.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
@@ -169,9 +196,6 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 * [Synology RT2600ac Wi-Fi Router](https://www.lifewire.com/synology-rt2600ac-wi-fi-router-review-4797390)
 * [Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  WRT3200ACM Tri-Stream Gigabit Wi-Fi Router

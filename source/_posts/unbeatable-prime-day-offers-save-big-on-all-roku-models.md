@@ -1,7 +1,7 @@
 ---
 title: "Unbeatable Prime Day Offers: Save Big on All Roku Models"
-date: 2024-08-31T15:01:23.815Z
-updated: 2024-09-01T15:01:23.815Z
+date: 2024-09-04T18:47:02.966Z
+updated: 2024-09-05T18:47:02.966Z
 categories:
   - BestProducts
 description: "This Article Describes Unbeatable Prime Day Offers: Save Big on All Roku Models"
@@ -32,9 +32,6 @@ thumbnail: https://thmb.techidaily.com/6cb6ce252b0ad11ed755d646e5f628bce76854128
 * [ Apple Watch Series 9 \[GPS 41mm\] Smartwatch](https://www.amazon.com/Apple-Smartwatch-Aluminum-Fitness-Resistant/dp/B0CSV9Y331?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $280 (was $399)
 * [ Apple Watch SE (2nd Gen) \[GPS 40mm\] Smartwatch](https://www.amazon.com/dp/B0CHX7R6WJ?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $169 (was $249)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## AirPods
 
 * [Apple AirPods Pro (2nd Generation)](https://www.amazon.com/Apple-Generation-Cancelling-Transparency-Personalized-dp-B0D1XD1ZV3/dp/B0D1XD1ZV3?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $169 (was $249)
@@ -42,6 +39,12 @@ thumbnail: https://thmb.techidaily.com/6cb6ce252b0ad11ed755d646e5f628bce76854128
 * [Apple AirPods (2nd Generation)](https://www.amazon.com/dp/B07PXGQC1Q?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $69 (was $129)
 * [Apple AirPods (3rd Generation) Wireless Ear Buds](https://www.amazon.com/dp/B0D1WXVQTN?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $120 (was $169)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## iPads & MacBooks
 
 * [Apple iPad Pro (10.5-inch, Wi-Fi + Cellular, 64GB) - Rose Gold](https://www.amazon.com/dp/B071GGB84Y?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $505 (was $779)
@@ -51,7 +54,16 @@ thumbnail: https://thmb.techidaily.com/6cb6ce252b0ad11ed755d646e5f628bce76854128
 * [Apple 2022 MacBook Air Laptop with M2 chip](https://www.amazon.com/2022-Apple-MacBook-Laptop-chip/dp/B0B3CDZLTB?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $799 (was $999)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Apple AirTag
 
@@ -69,20 +81,26 @@ Amazon
 
 ![A set of four Apple AirTags](https://www.lifewire.com/thmb/oSijRZK4BqdndZJLrET-tiN-Kp0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleAirTag-6c3832f854c24710890ba380ef01ff86.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Amazon
 
  Orig.$99 [$75 at Amazon](https://united.elfm.net/zqobdx)
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Apple Pencil (2nd generation)
 
 ![Apple Pencil (2nd Generation)](https://www.lifewire.com/thmb/s0BIvaUqu6ZcjV4a9mIbMddr6Hw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ApplePencil2ndGeneration-c36a1762bd384a35bd468ba37708e1a3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Apple
 
  Orig.$129 [$79 at Amazon](https://lenovo-in.zlvv.net/kj14kn)
@@ -92,21 +110,15 @@ Apple
  Do you already have an iPad? If so, check our[Apple Pencil compatibility chart](https://www.lifewire.com/apple-pencil-compatibility-with-ipad-5189841) to make sure they'll work together.[](https://www.amazon.com/Apple-Wireless-Charging-Case-AirPods/dp/B07PYLKTD8?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Apple AirPods Pro (2nd Generation)
 
 ![Apple AirPods Pro (2nd Generation) Wireless Earbuds MagSafe Charging Case Bluetooth](https://www.lifewire.com/thmb/9LYkEpw7wOpkz--AFsFl9hcufdk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/apple-airpods-pro-2nd-generation-wireless-earbuds-magsafe-charging-case-bluetooth-9ab1bb1064b048788597d1478ff047d8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 Amazon
 
  Orig.$249 [$169 at Amazon](https://printrendy.pxf.io/xyboy5)
@@ -114,7 +126,10 @@ Amazon
  Apple's AirPods Pro (2nd gen) offer excellent wireless sound, active noise cancellation, and four pairs of silicone tips so you can get the perfect fit. (And keep them in your ears!)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Apple iPad 10.2-inch (9th Generation)
 
@@ -126,6 +141,12 @@ Amazon
 
  Need a tablet but don't want to break the bank? This 9th gen iPad is fast, with ample storage (256 GB), and is compatible with popular accessories including Apple's Smart Keyboard case.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Apple Watch Series 9 \[GPS 41mm\] Smartwatch
 
 ![Three Apple Watches in a row. Starting on the left is the Apple Watch SE (gen 2), Apple Watch Series 9 in the middle, and the Apple Watch Ultra 2 on the right.](https://www.lifewire.com/thmb/2xI4aMDe_iS79cxcVVcfvcWyMq0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleWatchlineup-b20fe549d8374cac9ec8afd8e08118a2.jpg)

@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Ranking: How the Xbox One Elite Series Ⅱ Controller Claims Top Spot in Console History"
-date: 2024-08-03T22:58:37.311Z
-updated: 2024-08-04T22:58:37.311Z
+date: 2024-09-04T18:44:35.649Z
+updated: 2024-09-05T18:44:35.649Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate Ranking: How the Xbox One Elite Series Ⅱ Controller Claims Top Spot in Console History"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/a5249e9b13fd437412102feed5c7841b8ccf98fdf
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/425lsqo6i1_7Vzb3ebrBxtVPgfM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
@@ -40,9 +37,6 @@ Lifewire / Zach Sweat
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/JA4MI_SE7Alxl0MLR7rMoIVzKgI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
@@ -75,7 +69,16 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Design: Dark, sturdy, and feature-packed**
 
@@ -103,11 +106,14 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/TRrezKVbAUPs2Rud3g4_iOHyxB8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-2-4b3f9d8acd1440089989378253d902f4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Comfort: Hefty, but darn comfy**
 
  The original Elite was perhaps the most comfortable controller I’ve ever used, so with the Series 2, I had high hopes in this department. Thanks to some clever but subtle changes by the Microsoft team, this controller is even better.
@@ -142,11 +148,20 @@ Lifewire / Zach Sweat
 
  If you plan to buy this controller to use with other electronics that support Bluetooth devices, make sure you do some research before committing to it, as it doesn’t always work with everything. That said, we did manage to pair the controller with a couple other devices that weren’t officially supported.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
 ## **Performance/Durability: Enhanced performance and durability**
@@ -172,7 +187,10 @@ Lifewire / Zach Sweat
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Price: Like buying a brand new console**
 
@@ -182,13 +200,16 @@ Lifewire / Zach Sweat
 
  The argument could be made that considering you get a Bluetooth controller capable of working on XB1 and PC, a charging dock and a nice little case to keep it all together, the cost isn’t awful. But if you want all of those things for less, you can grab an S controller, dock and case for far, far less.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/6VfCJGOyjLkAkE_mjiHr7rz8Gyw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-6-0c1d7a2ae4e8443ea5b69f559e52bd12.jpg)
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2030370/7443" target="_top" id="2030370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2030370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
 
  Since the Elite controller really is in a league of its own, the biggest competitor to it is the first generation, which can still be purchased from a number of retailers. We’re going to quickly compare the two to see which might be best for you.
@@ -204,7 +225,16 @@ Lifewire / Zach Sweat
  Everything we disliked about the original Elite controller has been improved with the second iteration, making it the best first-party controller you can get for XB1 or PC. However, the steep price point might be a hard pill to swallow for users who don’t like to splurge.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Specs
 
@@ -238,3 +268,58 @@ Lifewire / Zach Sweat
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-best-10-sound-boosting-software-pc-mac-and-mobile-for-2024/"><u>[New] Best 10 Sound Boosting Software  PC, Mac & Mobile for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-game-on-6-efficient-techniques-for-perfect-pc-snapshots/"><u>[Updated] In 2024, Game On  6 Efficient Techniques for Perfect PC Snapshots</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-seeing-the-unseen-tracking-instagram-viewers-meticulously-for-2024/"><u>[Updated] Seeing the Unseen  Tracking Instagram Viewers Meticulously for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-efficacy-of-social-media-authenticity-validation/"><u>[Updated] The Efficacy of Social Media Authenticity Validation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2023s-elite-selection-of-4k-monitors-find-your-perfect-match/"><u>2023'S Elite Selection of 4K Monitors: Find Your Perfect Match!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2023s-leading-portable-screens-reviewed-find-the-perfect-match-for-your-needs/"><u>2023'S Leading Portable Screens Reviewed: Find the Perfect Match for Your Needs</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exceptional-14-visual-text-motion-examples/"><u>2024 Approved  Exceptional 14 Visual Text Motion Examples</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-ultimate-guide-to-choosing-the-perfect-mini-itx-case-for-tech-enthusiasts/"><u>2024'S Ultimate Guide to Choosing the Perfect Mini ITX Case for Tech Enthusiasts</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/compatibilidad-de-av1-con-plex-como-ver-contenido-avanzado/"><u>Compatibilidad De AV1 Con Plex: Cómo Ver Contenido Avanzado</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhance-your-ps5-experience-with-the-premier-gaming-addons-of-2023/"><u>Enhance Your PS5 Experience with the Premier Gaming Addons of 2023</u></a></li>
+<li><a href="https://games-able.techidaily.com/essential-tips-for-unlocking-steam-achievements-quickly/"><u>Essential Tips for Unlocking Steam Achievements Quickly</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/flawless-audio-streaming-on-discord-a-users-guide-to-fixing-disruptions/"><u>Flawless Audio Streaming on Discord: A User's Guide to Fixing Disruptions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-boosting-video-quality-the-best-cameras-for-vloggers-dreams/"><u>In 2024, Boosting Video Quality  The Best Cameras for Vloggers' Dreams</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-infinix-note-30-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Infinix Note 30 | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-track-apple-iphone-13-mini-by-phone-number-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Track Apple iPhone 13 mini by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lincoln-childrens-museum/"><u>Lincoln Children's Museum</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/output-for-the-second-title-you-could-opt-to-emphasize-either-their-performance-or-value-aspect-depending-on-what-your-audience-values-more-heres-a-refined-12/"><u>Output: For the Second Title, You Could Opt to Emphasize Either Their Performance or Value Aspect Depending on What Your Audience Values More. Here's a Refined Version that Focuses on Performance:</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ram-specifications/"><u>Ram Specifications</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-best-ispoofer-alternative-to-try-on-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Xiaomi Redmi A2+ | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-selection-leading-smart-lighting-solutions/"><u>The Ultimate Selection: Leading Smart Lighting Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-5-premium-ultra-hdtvs-a-comprehensive-guide/"><u>Top 5 Premium Ultra HDTVs - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-affordable-television-sets-a-comprehensive-guide/"><u>Top Affordable Television Sets : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-network-attached-storage-solutions-in-2eighty-four-a-comprehensive-guide/"><u>Top Network Attached Storage Solutions in 2Eighty-Four: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-quality-protection-the-ultimate-selection-of-samsung-galaxy-z-fold-6-cases/"><u>Top Quality Protection: The Ultimate Selection of Samsung Galaxy Z Fold 6 Cases</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-55-television-models-a-comprehensive-guide/"><u>Top Rated 55 Television Models : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-samsung-galaxy-s24-plus-cases/"><u>Top Rated Samsung Galaxy S24 Plus Cases</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-sbc-platforms-a-comprehensive-guide/"><u>Top Rated SBC Platforms : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-soundbar-systems-ultimate-guide/"><u>Top Rated Soundbar Systems - Ultimate Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranking-nintendo-switch-gear-and-peripherals/"><u>Top-Ranking Nintendo Switch Gear and Peripherals</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-ethernet-cables-a-buyers-guide/"><u>Top-Rated Ethernet Cables : A Buyer's Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-headphones-a-comprehensive-list/"><u>Top-Rated Headphones : A Comprehensive List</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-mirrorless-cameras-for-photographers/"><u>Top-Rated Mirrorless Cameras for Photographers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-network-attached-storage-solutions-with-plex-integration/"><u>Top-Rated Network Attached Storage Solutions with Plex Integration</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-power-strips-and-surge-suppressors-2024s-premier-selection/"><u>Top-Rated Power Strips and Surge Suppressors - 2024'S Premier Selection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-protective-covers-for-apples-latest-phone-model/"><u>Top-Rated Protective Covers for Apple's Latest Phone Model</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-protective-covers-for-the-new-iphone-15-pro-2023s-ultimate-guide/"><u>Top-Rated Protective Covers for the New iPhone 15 Pro: 2023'S Ultimate Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-protective-covers-for-the-new-samsung-galaxy-s23-fe/"><u>Top-Rated Protective Covers for the New Samsung Galaxy S23 FE</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-raspberry-pi-starter-packs-your-comprehensive-guide/"><u>Top-Rated Raspberry Pi Starter Packs : Your Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-smart-display-models-to-upgrade-your-home/"><u>Top-Rated Smart Display Models to Upgrade Your Home</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-steam-deck-screensavers-a-comprehensive-guide/"><u>Top-Rated Steam Deck Screensavers: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-vertical-graphics-card-racks-your-ultimate-guide/"><u>Top-Rated Vertical Graphics Card Racks: Your Ultimate Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-video-game-controllers-a-comprehensive-guide/"><u>Top-Rated Video Game Controllers : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-water-resistant-cellphone-protectors/"><u>Top-Rated Water-Resistant Cellphone Protectors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-most-effective-magsafe-energy-devices-for-this-year/"><u>Ultimate Guide to the Most Effective MagSafe Energy Devices for This Year</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-selecting-the-ideal-portable-gaming-controls-for-a-superior-experience/"><u>Ultimate Guide: Selecting the Ideal Portable Gaming Controls for a Superior Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-the-most-comfortable-and-durable-camera-straps-of-2024/"><u>Ultimate Guide: The Most Comfortable & Durable Camera Straps of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-ranking-of-premium-projector-displays-s-market/"><u>Ultimate Ranking of Premium Projector Displays 'S Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-elite-samsung-galaxy-s22plus-shells/"><u>Ultimate Selection: Elite Samsung Galaxy S22+ Shells</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-premier-case-options-for-your-samsung-galaxy-z-flip-4/"><u>Ultimate Selection: Premier Case Options for Your Samsung Galaxy Z Flip 4</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-oppo-reno-8t-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Oppo Reno 8T? Here Is the Answer | Dr.fone</u></a></li>
+</ul></div>

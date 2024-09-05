@@ -1,7 +1,7 @@
 ---
 title: "Arcshell AR-5 Review: Solid Performance at a Bargain Price"
-date: 2024-08-31T15:06:51.422Z
-updated: 2024-09-01T15:06:51.422Z
+date: 2024-09-04T18:46:57.480Z
+updated: 2024-09-05T18:46:57.481Z
 categories:
   - BestProducts
 description: "This Article Describes Arcshell AR-5 Review: Solid Performance at a Bargain Price"
@@ -64,7 +64,10 @@ Lifewire / Sandra Stafford
  With few budget newcomers to the TV market, the competition between brands is making better TVs cheaper than ever. Hisense is one of these new arrivals, offering the 50H8F a 50-inch 4K HDR TV that boasts Android TV functionality and a beautiful entry-level 4K display for under $400\. I spent nearly a month testing it, to see how it stacked up against rivals on our best cheap TV list.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Design: Sleek and modern**
 
@@ -73,7 +76,10 @@ Lifewire / Sandra Stafford
  The 50H8F is well-designed and of decent quality for its price
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Setup Process: Convenient setup with Google Home**
 
@@ -81,10 +87,19 @@ Lifewire / Sandra Stafford
 
 ![Hisense 50H8F](https://www.lifewire.com/thmb/sKJrehLPMGmSTiiLnXOYVxV-94o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4061017-Hisense50H8F-02-3bae40709c3b49938a5ba509dfadd51f.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Sandra Stafford
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Image Quality: Great display for a dark room**
 
@@ -100,15 +115,15 @@ Lifewire / Sandra Stafford
 
  Without Game Mode on, a noticeable white blur trailed behind Ori every time I played Ori And The Blind Forest, even without the game’s motion blur enabled. Landing on narrow pillars and avoiding flying spikes is much easier with Game Mode’s reduced input lag. Ori looks much better as well, crisp and smooth as he jumps around the dark forest.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ## **Audio Quality: A soundbar would be ideal**
 
  The 50H8F has two 10W speakers, which feel a little underpowered for TV of this size. The sound itself is clear, but soft sounds like characters whispering in movies or ambient noises are usually lost. Because there is no auto-leveling, I had to adjust the volume between commercials and scenes every time I watched anything. As with most TVs, the 50H8F would benefit greatly from a soundbar or dedicated speaker system.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Operating system: Great support makes up for instability issues**
 
@@ -128,9 +143,6 @@ Lifewire / Sandra Stafford
 
  Lifewire / Sandra Stafford
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Hisense 50H8F vs. LG UM7300**
 
  Consumers have a lot of choices in this price range, and the small differences between them can have a big impact. The Hisense 50H8F is a solid choice that offers a little bit more to Android users, like support for Chromecast and several highly-rated remote control apps.
@@ -145,6 +157,12 @@ Lifewire / Sandra Stafford
 
  The Hisense 50H8F is the budget-friendly way to enter the 4K smartTV market. Local dimming and a great contrast ratio make this TV perfect for watching movies in bright and dark environments alike, and the advantages of Android TV and built-in assistants makes the OS easy to navigate for most users.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  50H8F 50-inch 4K Ultra HD Android Smart LED TV

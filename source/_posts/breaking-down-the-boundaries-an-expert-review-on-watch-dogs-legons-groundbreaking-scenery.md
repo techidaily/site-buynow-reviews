@@ -1,7 +1,7 @@
 ---
 title: "Breaking Down the Boundaries: An Expert Review on Watch Dogs: Legon's Groundbreaking Scenery"
-date: 2024-08-31T15:06:02.563Z
-updated: 2024-09-01T15:06:02.563Z
+date: 2024-09-04T18:46:58.258Z
+updated: 2024-09-05T18:46:58.258Z
 categories:
   - BestProducts
 description: "This Article Describes Breaking Down the Boundaries: An Expert Review on Watch Dogs: Legon's Groundbreaking Scenery"
@@ -60,7 +60,10 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
  Watch Dogs: Legion is the latest installment in Ubisoft’s[Watch Dogs](https://www.liveabout.com/watch-dogs-2-cheats-codes-and-walkthroughs-4773695) series, and you can literally play as any character you encounter in the open world. Although Watch Dogs: Legion released without online gameplay (it became available in December 2020), you can play the campaign mode on PC or[console](https://www.lifewire.com/best-gaming-consoles-4154610) right now. Is this game worth the time and monetary investment? I played Watch Dogs: Legion for 30 hours to find out, evaluating its story, gameplay, graphics, to see how it compares to other titles.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Setting and Plot: Fun, but predictable**
 
@@ -70,9 +73,6 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
 
 ![Watch Dogs: Legion car chase](https://www.lifewire.com/thmb/w01z_qW1xkiYdMVSg0obsvGJ2NU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-3-042727c8603245bfbcde2e3b67ab7ed8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
  In the opening mission, you play as an agent infiltrating Parliament. You set traps, fight a few guys in hand-to-hand combat, and shoot some bad guys with the goal of preventing the building from being blown to smithereens. The early tutorial type missions help get you acquainted with the game and its systems. The game takes you through the downfall of DedSec, walks you through the beginning of setting up the rebuilding of DedSec, and you select your very first recruit to your legion. There’s a pretty good selection of starting characters, and I selected a Board Game Designer who has the ability to summon a personal drone.
@@ -81,9 +81,6 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
 
 ![Watch Dogs: Legion spider drone](https://www.lifewire.com/thmb/UOpYTu-WYh_4Z_Icu9ZD7aLW78Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-4-a1beafe90fe7494b84b19f97e292c2ab.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
  Once you complete the opening scene, the game is presented like most open world games — pick a mission, drive to it, complete the mission, and repeat. There are plenty of distractions and side missions to take part in like collecting text and audio files, finding the tech points which allow you to upgrade, participating in bare-knuckle fighting, delivering packages, and drinking a beer, and applying paste-ups. You can also shop for clothes.
@@ -101,7 +98,16 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
 ![Watch Dogs: Legion character creation](https://www.lifewire.com/thmb/fT7PRS6tGlloKdqVFXl8H-TPrVY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-2-ed238e68324c450997c310f225ff57a6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
@@ -115,6 +121,12 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
 
  Most missions wound up feeling pretty redundant, especially after playing for a while. I’d approach a building, hack cameras and set traps, send in the spider drones for some easy knockouts, then go in and complete the area. There were some fun missions along the main story which offered some variety, but most missions are best completed with stealth, which can slow down the game sometimes.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Graphics: Top notch**
 
  Watch Dogs: Legion looks incredible, with great draw distances, and an incredibly detailed world. Everything visually works, and I really enjoyed looking at the people and landmarks in the world.
@@ -124,10 +136,19 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
 ![Watch Dogs: Legion mission](https://www.lifewire.com/thmb/K-AWpBjCaRJlrJ0G-xBMEG92pQo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-7-87aeabc18ddb4bca8252d33fcb1f20bf.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Erika Rawes / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: The usual $60**
 
  Watch Dogs: Legions sells for $60 for the standard edition. The Gold Edition sells for $100, and the Ultimate and Collectors Editions sell for $120 and $190, respectively. Everything above the standard edition comes with extra missions and a season pass, but these perks don’t really seem worth the added cost.
@@ -136,9 +157,6 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
 
  The story kept me interested, although the plot bordered on predictable.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Watch Dogs: Legion vs. Grand Theft Auto Series**
 
  It feels as though Ubisoft is definitely going for a GTA vibe here—go see a person, start a mission, complete the mission, rinse, and repeat. In addition to its visually interesting world, Watch Dogs: Legion adds in the ability to play as anyone you encounter, and that’s perhaps its biggest draw. The next GTA may not arrive for quite a while, so for those who want a new open world right now, Watch Dogs: Legion might be a viable alternative.
@@ -147,6 +165,18 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
 
  Watch Dogs: Legion feels like a missed opportunity, with a “play as anyone” feature that’s cool, but not cool enough to compensate for the lack of novelty. The addition of online play may offer more replayability, but as of launch, there isn’t enough to keep us coming back.
 
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Watch Dogs: Legion

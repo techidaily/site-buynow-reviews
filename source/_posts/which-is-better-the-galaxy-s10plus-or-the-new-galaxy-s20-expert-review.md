@@ -1,7 +1,7 @@
 ---
 title: "Which Is Better: The Galaxy S10+ or the New Galaxy S20? Expert Review"
-date: 2024-08-31T15:00:55.736Z
-updated: 2024-09-01T15:00:55.736Z
+date: 2024-09-04T18:47:03.475Z
+updated: 2024-09-05T18:47:03.475Z
 categories:
   - BestProducts
 description: "This Article Describes Which Is Better: The Galaxy S10+ or the New Galaxy S20? Expert Review"
@@ -66,7 +66,10 @@ Lifewire / Erika Rawes
  The Amplifi HD is a[Mesh Wi-Fi System](https://www.lifewire.com/best-mesh-wi-fi-network-systems-4139748) with a main router and separate mesh points that serve as satellite routers. The Amplifi system is supposed to extend Wi-Fi range, reduce dead zones, and provide better coverage. To see how Ubiquiti’s mesh system holds up to the demands of a household with multiple devices, I connected the Amplifi HD in my test home that contains roughly 50 Wi-Fi connected devices.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2030391/7443" target="_top" id="2030391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2030391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030391/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Design: A beautiful router with mismatched mesh points**
 
@@ -78,11 +81,14 @@ Lifewire / Erika Rawes
 
 ![Amplifi HD](https://www.lifewire.com/thmb/s87ZCkRIGWmpbjF2kUOXJRQtOl4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_02-1a111a806ad7495ba9f36d51121fe5b0.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup: Couldn’t get any easier**
 
  The setup for the Amplifi HD system is probably the easiest setup process I’ve encountered. The app walks you through the process step-by-step, with pictures to guide you on each instruction. The most difficult part was deciding where to place the two mesh points in my test home. I placed one in the far bedroom and one in my office, two rooms that notoriously experience drop-offs.
@@ -90,7 +96,10 @@ Lifewire / Erika Rawes
  By default, the app creates a dual (2.4 and 5Ghz) network, which directs traffic based on the most efficient pathways. You can create separate 2.4 and 5Ghz networks, or make other adjustments as you see fit though. You can change the band on the mesh points (from 2.4 to 5Ghz), create additional SSIDs, and more. For the purpose of testing, I used the default combined network and allowed the system to direct network traffic between bands.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Connectivity: Lags when you add too many devices**
 
@@ -100,9 +109,6 @@ Lifewire / Erika Rawes
 
  In my test home, speeds from my ISP max out at 500 Mbps. In the same room as the main router, Ookla measured the speed at 131 Mbps. The speed remained consistent throughout the home, even in rooms that typically experience drop offs with other routers. However, outside in the backyard, the speed reduced to 111 Mbps.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Key Features: A display screen**
 
  The touchscreen on the front of the main router can display the time, total GB, WAN and Router IP addresses, internet speeds, and port statuses. You touch the screen to cycle through the different screen options. The power cable connects via[USB-C](https://www.lifewire.com/usb-c-4149490) , and there’s a USB 2.0 port as well, but it doesn’t allow you to connect an external hard drive (the port is reserved for future use).
@@ -111,6 +117,12 @@ Lifewire / Erika Rawes
 
  The app creates a dual (2.4 and 5Ghz) network, which directs traffic based on the most efficient pathways.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: Amplifi App**
 
  In the Amplifi App, you can set up a guest network, manage devices, pause the internet, check the health of the system, and check your speeds on your entire network and on individual devices. You can optimize the priority level for each of your devices between normal, streaming, or gaming.
@@ -119,15 +131,24 @@ Lifewire / Erika Rawes
 
 ![Amplifi HD](https://www.lifewire.com/thmb/2X1DxWPlS1VXqnwsUCG5qviJXwc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_03-56584e48b76942519745c71443c2e8d5.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 ## **Price: A little steep**
 
  The Amplifi HD system isn’t cheap. The package I tested, which came with the router and two mesh points, retails for $340\. You can find mesh systems for much less, and of course, some mesh systems are much more expensive. But, the Amplifi system’s design, easy setup, and feature set help justify the price.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Amplifi HD vs. Nest Wi-Fi**
 
  A Nest Wi-Fi package sells for around the same price as the Amplifi system. However, with the Nest system, all of the components match, while the Amplifi router looks very different from its mesh points. The Nest system points also serve as Google Assistant speakers, and the system features some more advanced technologies (like WPA3 encryption). However, one big issue with the Nest system is that it only has two Ethernet ports, while the Amplifi router has four spare ports.
@@ -139,11 +160,10 @@ Lifewire / Erika Rawes
  The Amplifi HD mesh system is attractive and does provide coverage for a huge area, but it doesn’t deliver lightning-fast speeds in a home with dozens of connected devices.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Specs
 

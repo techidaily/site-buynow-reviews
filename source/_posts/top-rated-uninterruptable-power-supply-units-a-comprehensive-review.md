@@ -1,7 +1,7 @@
 ---
 title: "Top Rated Uninterruptable Power Supply Units : A Comprehensive Review"
-date: 2024-08-31T14:50:33.885Z
-updated: 2024-09-01T14:50:33.885Z
+date: 2024-09-04T18:47:05.801Z
+updated: 2024-09-05T18:47:05.801Z
 tags:
   - buying-guides
 categories:
@@ -72,9 +72,6 @@ Best UPS for Gaming
 
  How-To Geek's product recommendations come from the same team of experts that have helped people fix their gadgets over one billion times. We only recommend the best products based on our research and expertise. We never accept payment to endorse or review a product. [Read More »](https://win-howtos.techidaily.com/resolving-unresponsive-mousepad-problems-on-windows-systems-windows-7810/) 
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Best UPS Battery Backup Overall: [APC BR1500G Backup Battery](https://www.amazon.com/dp/B003Y24DEU?tag=hotoge-20&ascsubtag=UUhtgUeUpU205291&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F817607%2Fbest-ups-battery-backup%2F&asc%5Fcampaign=Commerce) 
 
 [](https://www.amazon.com/dp/B003Y24DEU?tag=hotoge-20&ascsubtag=UUhtgUeUpU205291&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F817607%2Fbest-ups-battery-backup%2F&asc%5Fcampaign=Commerce)
@@ -105,6 +102,18 @@ Best UPS for Gaming
 
 ![APC BR1500G Backup Battery](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/apc-br1500g-backup-battery.png) 
 
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 Best UPS Overall
@@ -117,16 +126,18 @@ The APC BR1500G is an excellent battery backup with AVR and surge protection. It
 
 [$280 at Amazon](https://www.amazon.com/dp/B003Y24DEU?tag=hotoge-20&ascsubtag=UUhtgUeUpU205291&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F817607%2Fbest-ups-battery-backup%2F&asc%5Fcampaign=Commerce) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ##  Best Budget UPS Battery Backup: [APC UPS BE425M Battery Backup](https://www.amazon.com/APC-Battery-Protector-Back-UPS-BE425M/dp/B01HDC236Q?tag=hotoge-20&ascsubtag=UUhtgUeUpU205291&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F817607%2Fbest-ups-battery-backup%2F&asc%5Fcampaign=Commerce) 
 
 [](https://www.amazon.com/APC-Battery-Protector-Back-UPS-BE425M/dp/B01HDC236Q?tag=hotoge-20&ascsubtag=UUhtgUeUpU205291&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F817607%2Fbest-ups-battery-backup%2F&asc%5Fcampaign=Commerce)
 
 [![A small UPS unit hooked up to a cable modem and Wi-Fi router.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/03/UPSforRouterAPC.jpg) APC](https://www.amazon.com/APC-Battery-Protector-Back-UPS-BE425M/dp/B01HDC236Q?tag=hotoge-20&ascsubtag=UUhtgUeUpU205291&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F817607%2Fbest-ups-battery-backup%2F&asc%5Fcampaign=Commerce)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [](https://www.amazon.com/APC-Battery-Protector-Back-UPS-BE425M/dp/B01HDC236Q?tag=hotoge-20&ascsubtag=UUhtgUeUpU205291&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F817607%2Fbest-ups-battery-backup%2F&asc%5Fcampaign=Commerce) 
 
 | Pros                        | Cons                              |
@@ -143,9 +154,6 @@ The ultimate burning program for all your needs!</a>
 
 ![APC UPS Battery Backup Surge Protector, 425VA](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/apc-ups-battery-backup-surge-protector-425va.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 Best Budget UPS
@@ -158,6 +166,12 @@ An inexpensive UPS with a small footprint. It provides enough power to keep smal
 
 [$55 at Amazon](https://www.amazon.com/APC-Battery-Protector-Back-UPS-BE425M/dp/B01HDC236Q/?tag=hotoge-20&ascsubtag=UUhtgUeUpU205291&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F817607%2Fbest-ups-battery-backup%2F&asc%5Fcampaign=Commerce) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Best UPS for Networking: [CyberPower CP800AVR UPS System](https://www.amazon.com/dp/B00095W91Y?tag=hotoge-20&ascsubtag=UUhtgUeUpU205291&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F817607%2Fbest-ups-battery-backup%2F&asc%5Fcampaign=Commerce) 
 
 [](https://www.amazon.com/dp/B00095W91Y?tag=hotoge-20&ascsubtag=UUhtgUeUpU205291&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F817607%2Fbest-ups-battery-backup%2F&asc%5Fcampaign=Commerce)
@@ -165,7 +179,10 @@ An inexpensive UPS with a small footprint. It provides enough power to keep smal
 [![CyberPower CP800AVR behind TV](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/07/cyberpower-CP800AVR-2.jpg) CyberPower](https://www.amazon.com/dp/B00095W91Y?tag=hotoge-20&ascsubtag=UUhtgUeUpU205291&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F817607%2Fbest-ups-battery-backup%2F&asc%5Fcampaign=Commerce)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 [](https://www.amazon.com/dp/B00095W91Y?tag=hotoge-20&ascsubtag=UUhtgUeUpU205291&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F817607%2Fbest-ups-battery-backup%2F&asc%5Fcampaign=Commerce) 
 
@@ -184,8 +201,20 @@ An inexpensive UPS with a small footprint. It provides enough power to keep smal
 
 ![CyberPower CP800AVR AVR UPS System](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/cyberpower-cp800avr-avr-ups-system.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Best UPS for Networking
 
 #####  CyberPower CP800AVR UPS System
@@ -196,9 +225,6 @@ $118 $125 Save $7
 
 [$118 at Amazon](https://www.amazon.com/dp/B00095W91Y?tag=hotoge-20&ascsubtag=UUhtgUeUpU205291&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F817607%2Fbest-ups-battery-backup%2F&asc%5Fcampaign=Commerce) 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  Best Compact UPS Battery Backup: [Amazon Basics Standby UPS](https://www.amazon.com/dp/B073Q3BSPG?tag=hotoge-20&ascsubtag=UUhtgUeUpU205291&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F817607%2Fbest-ups-battery-backup%2F&asc%5Fcampaign=Commerce) 
 
 [](https://www.amazon.com/dp/B073Q3BSPG?tag=hotoge-20&ascsubtag=UUhtgUeUpU205291&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F817607%2Fbest-ups-battery-backup%2F&asc%5Fcampaign=Commerce)
@@ -223,11 +249,20 @@ $118 $125 Save $7
 
 ![Amazon Basics Standby UPS](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/amazon-basics-standby-ups.png) 
 
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Best Compact UPS
 
 #####  Amazon Basics Standby UPS
@@ -236,13 +271,16 @@ A bare-bones compact UPS with unbeatable dimensions for the power. Plus, it has 
 
 [$80 at Amazon](https://www.amazon.com/dp/B073Q3BSPG/?tag=hotoge-20&ascsubtag=UUhtgUeUpU205291&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F817607%2Fbest-ups-battery-backup%2F&asc%5Fcampaign=Commerce) 
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Best UPS for Gaming: [CyberPower PR1500LCD UPS System](https://www.amazon.com/dp/B0083TXNMM?tag=hotoge-20&ascsubtag=UUhtgUeUpU205291&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F817607%2Fbest-ups-battery-backup%2F&asc%5Fcampaign=Commerce) 
 
 ![CyberPower PR1500LCD on pink background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/07/cyberpower-PR1500LCD.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 CyberPower
 
 | Pros                                   | Cons             |
@@ -267,13 +305,13 @@ CyberPower
 ![CyberPower PR1500LCD](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/cyberpower-pr1500lcd.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 Best UPS for Gaming
 
 #####  CyberPower PR1500LCD UPS System
@@ -283,28 +321,49 @@ The large 1500W capacity makes it perfect for high-power draw equipment like gam
 [$546 at Amazon](https://www.amazon.com/dp/B0083TXNMM?tag=hotoge-20&ascsubtag=UUhtgUeUpU205291&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F817607%2Fbest-ups-battery-backup%2F&asc%5Fcampaign=Commerce) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## FAQ
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ### How long does a UPS last?
 
  A typical UPS can last anywhere between one and five and a half hours, depending on the model you purchase. Meanwhile, the lifespan of a typical UPS is about three to five years, depending on how well it's taken care of.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Are UPSes dangerous?
 
  Nowadays, UPS batteries are equipped with safety precautions that help to protect it from shorts or battery exposure, so while it's unlikely something will go wrong, you're still dealing with a massive supply of power. If something like the input transformer---which isolates the batteries from the ground reference and prevents voltage from traveling between the DC bus---were removed, there's a chance that a short will occur and carry the current's flow through any conductive material it touches, including humans, which could lead to serious injury or death. You also have to ensure you take good care of the UPS and keep it in a cool, dry environment to prevent accelerated aging which could cause the batteries to leak or explode over time.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How does a UPS work?
 
  A UPS's job is to provide power to the devices connected to it if a primary power source is cut off or the voltage reaches extremely low levels. Primarily designed for things like PCs and network systems, it's basically a huge battery that works as a middle ground between standard AC power and a generator. While no UPS is big enough to keep your electronics on for days at a time, it will be enough for at least a couple hours until either your generator kicks in or you can safely shut down the electronics attached to it.
 
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Is a UPS useful for blackouts?
 
  A UPS is great if you're looking to protect your electronics from blackouts. If you experience one, the UPS will give you plenty of time to save work on your PC or finish projects on other connected devices before shutting them down.

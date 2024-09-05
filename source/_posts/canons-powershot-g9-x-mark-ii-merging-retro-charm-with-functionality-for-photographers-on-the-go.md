@@ -1,7 +1,7 @@
 ---
 title: "Canon’s PowerShot G9 X Mark II: Merging Retro Charm with Functionality for Photographers on the Go"
-date: 2024-08-03T22:58:37.504Z
-updated: 2024-08-04T22:58:37.504Z
+date: 2024-09-04T18:43:20.396Z
+updated: 2024-09-05T18:43:20.396Z
 categories:
   - BestProducts
 description: "This Article Describes Canon’s PowerShot G9 X Mark II: Merging Retro Charm with Functionality for Photographers on the Go"
@@ -13,14 +13,8 @@ thumbnail: https://thmb.techidaily.com/b7b1a27d1ec7d492ee38fae4ae064cccff7a07bb8
 
 4.1
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## DBPOWER 600A Peak 18000mAh Portable Car Jump Starter
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![600A Peak 18000mAh Portable Car Jump Starter](https://www.lifewire.com/thmb/zoSakt2DeEHvZbIU0RNWljw5x0A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DBPower_JumpStarter_5LW4140286_HeroSquare-4defda07335a4d7bafb41bb20cacee2f.jpg)
 
  Lifewire / Tony Mitera
@@ -45,9 +39,6 @@ thumbnail: https://thmb.techidaily.com/b7b1a27d1ec7d492ee38fae4ae064cccff7a07bb8
 
 4.1
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## DBPOWER 600A Peak 18000mAh Portable Car Jump Starter
 
 ![600A Peak 18000mAh Portable Car Jump Starter](https://www.lifewire.com/thmb/lCHc739SU7lyQkMIbG0aNWYsqy8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DBPower_JumpStarter_5LW4140286_HeroSquare-4defda07335a4d7bafb41bb20cacee2f.jpg)
@@ -76,7 +67,10 @@ thumbnail: https://thmb.techidaily.com/b7b1a27d1ec7d492ee38fae4ae064cccff7a07bb8
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Design: A rugged brick of power contained within its own nice case**
 
@@ -89,7 +83,10 @@ thumbnail: https://thmb.techidaily.com/b7b1a27d1ec7d492ee38fae4ae064cccff7a07bb8
  The accessory kit contains a wall charger and a 12V port charger for the unit, a DC cable, and a variety of ends to allow for charging a laptop. The jumper cables sprout from a module that plugs into a specific port on the unit and terminate in your standard clamps. The module itself has a status light that illuminates to indicate the unit’s readiness to jump start the car.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Setup Process: The cables are short but easy to use**
 
@@ -99,6 +96,12 @@ It's a breeze using the 600A to jump start a car.
 
  If it’s other devices that need power, you simply need to turn the unit on and then plug them into the appropriate port. For a laptop, that means you must pick the correct adapter, use the power button to switch the unit to the right power mode for your laptop, and plug it into the DC power port. For a phone or other USB device you pretty much just need to pick one of the two ports and plug in, though the smart port provides better amperage and faster charging.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: Immediate power to get you back on the road**
 
  When it comes to its ability to provide power, the DBPOWER Portable Jump Starter doesn’t disappoint. It reliably started a 2011 Hyundai Elantra that had a battery depleted down to 10V with zero issues, multiple times. With as small as it is, we did have some (thankfully unfounded) concerns that the unit might slide down into the engine bay as soon as the engine started.
@@ -107,6 +110,18 @@ It's a breeze using the 600A to jump start a car.
 
  Charging USB devices is not only simple but fast as well, with a sustained 1,200 mAh current. This level of charging will top off your devices in a hurry, and with 18,000 mAh capacity the unit should be able to charge a phone like the Samsung Galaxy S10 five times over. Be aware that if your phone uses a USB-C or Thunderbolt connection you’ll need to provide your own cable.
 
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Key Features: A decent flashlight and, oddly, a compass**
 
  Small as it's, the DBPOWER Portable Jump Starter has a few extra features of note. The flashlight built into the case is decent, but doesn’t put out much light and does so within a relatively narrow angle. However, with as small as the unit is, you can easily just hold the whole thing in your hand like a flashlight to illuminate whatever you need.
@@ -123,6 +138,12 @@ It packs a ton of value into its diminutive size.
 
  You can find this model available online for between $70 and $75, and at that price point it packs a ton of value into its diminutive size. There are other units that are a little less expensive, but generally at the expense of some features or included accessories.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Competition: Splitting hairs on what features matter most to you**
 
 **_Beatit BT-D11:_** The two units are so similar in their design and production that it really boils down to one question: How important is charging your laptop to you? If it’s worth the extra $10, stick with the DBPOWER 600A. If not, you can pick up the Beatit BT-D11 for a bit less money and otherwise get a strikingly similar unit.
@@ -138,7 +159,10 @@ It packs a ton of value into its diminutive size.
  It’s worth looking at other jump starters to see what they offer, but the DBPOWER 600A Peak 18000mAh Portable Car Jump Starter does everything that it's designed for quite well, is reliable and durable, and comes in a semi-hard case that you can easily stash in just about any vehicle.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Specs
 
@@ -170,3 +194,60 @@ It packs a ton of value into its diminutive size.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-high-quality-youtube-images-download-without-any-cost/"><u>[New] High-Quality YouTube Images  Download Without Any Cost!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-quick-method-retain-tweets-video-on-your-android-gadget/"><u>[Updated] 2024 Approved  Quick Method  Retain Tweets' Video on Your Android Gadget</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-save-your-gameplay-moments-with-xbox-screen-recordings/"><u>[Updated] 2024 Approved  Save Your Gameplay Moments with Xbox Screen Recordings</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-choosing-livestream-software-the-obs-vs-streamlabs-dilemma/"><u>[Updated] Choosing Livestream Software  The OBS Vs. Streamlabs Dilemma</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-complete-guide-to-record-google-meet-for-free-as-hostpaticipants-for-2024/"><u>[Updated] Complete Guide to Record Google Meet for Free [As Host/Paticipants] for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-mpeg-4-to-multifarious-formats-a-guide-using-vlc/"><u>[Updated] From MPEG-4 to Multifarious Formats  A Guide Using VLC</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-from-camera-to-feed-instagram-video-upload-on-desktop/"><u>[Updated] In 2024, From Camera to Feed  Instagram Video Upload on Desktop</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-your-path-as-a-first-time-youtuber-sidestep-these-8-common-mistakes/"><u>[Updated] Navigating Your Path as a First-Time YouTuber  Sidestep These 8 Common Mistakes</u></a></li>
+<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-vivo-y100-5g-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Vivo Y100 5G to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/effective-storytelling-through-youtube-and-facebook-for-2024/"><u>Effective Storytelling Through YouTube and Facebook for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/essential-enhancements-and-gadgets-for-the-oculus-quest-2-2023-edition/"><u>Essential Enhancements & Gadgets for the Oculus Quest 2 - 2023 Edition</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/exploring-wwdc-202n5-top-apple-tech-updates-unveiled/"><u>Exploring WWDC 202N5: Top Apple Tech Updates Unveiled</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-motorola-defy-2-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Motorola Defy 2 to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-overcome-ps4-freezing-problems-step-by-step-solutions-inside/"><u>How to Overcome PS4 Freezing Problems? Step-by-Step Solutions Inside</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-charting-out-youtubes-financial-strategy-for-nurturing-short-videos/"><u>In 2024, Charting Out YouTube's Financial Strategy for Nurturing Short Videos</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-lock-your-oppo-find-x7-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Oppo Find X7 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Oppo A56s 5G? | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-logitech-steering-wheel-driver-updates-for-pcs-running-windows-7-to-10/"><u>Latest Logitech Steering Wheel Driver Updates for PCs Running Windows 7 to 10</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-innovations-in-smart-alarms-for-2er-2024-expert-picks-and-reviews/"><u>Leading Innovations in Smart Alarms for 2Er 2024 - Expert Picks and Reviews</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-innovations-the-premier-smart-lights-of-the-year-2024/"><u>Leading Innovations: The Premier Smart Lights of the Year 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/monitor-tech-news-sites-and-retailers-websites-regularly-to-catch-pre-order-discounts-bundle-deals-or-promotions-for-the-components-you-need/"><u>Monitor Tech News Sites and Retailers' Websites Regularly to Catch Pre-Order Discounts, Bundle Deals, or Promotions for the Components You Need.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/premium-defense-gear-leading-iphone-13-pro-sleeves-and-cases-for-the-new-year/"><u>Premium Defense Gear: Leading iPhone 13 Pro Sleeves and Cases for the New Year</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-iphone-14-plus-data-from-ios-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone 14 Plus Data From iOS iTunes | Dr.fone</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/reverse-non-prints-with-simple-steps-for-windows-10-users/"><u>Reverse Non-Prints with Simple Steps for Windows 10 Users</u></a></li>
+<li><a href="https://fox-that.techidaily.com/the-ultimate-tutorial-entering-recovery-mode-with-your-ipad/"><u>The Ultimate Tutorial: Entering Recovery Mode with Your iPad</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Vivo Y56 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-kid-friendly-smartphones-a-comprehensive-guide/"><u>Top Kid-Friendly Smartphones: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-pick-camera-lenses-for-mirrorless-systems-a-comprehensive-guide/"><u>Top Pick Camera Lenses for Mirrorless Systems : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-11-ipad-air-protectors-a-complete-guide/"><u>Top Rated 11 iPad Air Protectors : A Complete Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-compact-smartphones-a-comprehensive-guide/"><u>Top Rated Compact Smartphones : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-internal-hdds-the-ultimate-guide-to-the-best-picks/"><u>Top Rated Internal HDDs: The Ultimate Guide to the Best Picks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-mobile-network-deals-a-comprehensive-guide/"><u>Top Rated Mobile Network Deals : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-printer-models-dominating-the-market/"><u>Top Rated Printer Models Dominating the Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-resistance-bands-ultimate-buyers-guide/"><u>Top Rated Resistance Bands - Ultimate Buyer's Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-smart-lighting-solutions/"><u>Top Rated Smart Lighting Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranking-4k-displays-the-ultimate-list/"><u>Top-Ranking 4K Displays: The Ultimate List</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranking-cloud-gaming-platforms-the-ultimate-list/"><u>Top-Ranking Cloud Gaming Platforms : The Ultimate List</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranking-portable-ssds-in-the-market-year-2024-edition/"><u>Top-Ranking Portable SSDs in the Market - Year 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-accessory-picks-for-the-ultimate-samsung-galaxy-tab-s8/"><u>Top-Rated Accessory Picks for the Ultimate Samsung Galaxy Tab S8</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-apple-airpods-pro-gear-and-supplies/"><u>Top-Rated Apple AirPods Pro Gear & Supplies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-automatic-lawnmower-models-a-comprehensive-guide/"><u>Top-Rated Automatic Lawnmower Models : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-cloud-hosting-solutions-a-comprehensive-review/"><u>Top-Rated Cloud Hosting Solutions: A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-ddr5-memory-modules-the-ultimate-guide/"><u>Top-Rated DDR5 Memory Modules : The Ultimate Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-desktop-mats-of-the-year-2024-ultimate-comfort-and-performance/"><u>Top-Rated Desktop Mats of the Year 2024: Ultimate Comfort & Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-ipad-mini-protectors-of-2nd/"><u>Top-Rated iPad Mini Protectors of 2nD</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-iphone-14-pro-protection-covers-2023s-ultimate-selection/"><u>Top-Rated iPhone 14 Pro Protection Covers - 2023'S Ultimate Selection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-iphone-15-leather-protectors-the-ultimate-selection/"><u>Top-Rated iPhone 15 Leather Protectors: The Ultimate Selection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-qled-televisions-a-comprehensive-guide/"><u>Top-Rated QLED Televisions : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-optimal-residential-alarm-networks-2023-edition/"><u>Ultimate Guide to Optimal Residential Alarm Networks - 2023 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-choosing-the-perfect-laptop-for-academic-success/"><u>Ultimate Guide: Choosing the Perfect Laptop for Academic Success</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-of-elite-gaming-throne-options-for-the-year-2gamingchairreviews/"><u>Ultimate Selection of Elite Gaming Throne Options for the Year 2#GamingChairReviews</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-of-premium-bluetooth-connectors-for-the-year-2024-unveiled/"><u>Ultimate Selection of Premium Bluetooth Connectors for the Year 2024 Unveiled!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-premium-iphone-se-casings-reviewed/"><u>Ultimate Selection: Premium iPhone SE Casings Reviewed</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "OnePlus 6T Assessment: Exceptional Features Meet Fantastic Pricing"
-date: 2024-08-31T15:01:32.382Z
-updated: 2024-09-01T15:01:32.382Z
+date: 2024-09-04T18:47:02.853Z
+updated: 2024-09-05T18:47:02.853Z
 categories:
   - BestProducts
 description: "This Article Describes OnePlus 6T Assessment: Exceptional Features Meet Fantastic Pricing"
@@ -67,9 +67,6 @@ Lifewire / Scott Gercken
 
  Check out our buyers guide for more information on what you should look for in an optical drive.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Feels a little flimsy**
 
  The Pioneer BDR-XD05B[Blu-ray Burner](https://www.lifewire.com/best-desktop-blu-ray-drives-832423) is a sleek, small black drive. It’s a tiny 5.12” square by .5” tall with a black cover and a metal bottom. The clamshell case opens to 65 degrees, so it’s easy to slide a disc onto the spindle. The button to open the clamshell is on the front left of the drive, and there’s a blue LED indicator that lights up when the drive is plugged into a power source. The drive comes with an unusually shaped USB cord, with a male micro-B USB 3.0 on one side and two USB A male ends on the other. One is designed to power the drive and one is for data transfer. The back of the drive has both a micro-B USB 3.0 port and a DC power port as a second option for powering it. The Pioneer BDR-XD05B Blu-ray Burner’s look is minimalist, black with just a small gray Blu-ray logo on the top.
@@ -84,6 +81,12 @@ Lifewire / Scott Gercken
 
  Lifewire / Scott Gercken
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Some baffling software issues**
 
  The setup process for the Pioneer BDR-XD05B is both really easy and frustrating. The easy part is that we only needed to plug the USB cord into the right slots to get it running on the Macbook we used to test it. The frustrating part is that the included software only works on Windows computers. A major producer like Pioneer only including PC software is very frustrating.
@@ -94,11 +97,14 @@ Lifewire / Scott Gercken
 
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/xaXRYsi71hFhblhSiQT18pmQ2Mw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_02-5138fb74431a40c1b0cbb76c30bc6350.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Scott Gercken
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Good for an inexpensive Blu-ray burner**
 
  We did two tests to see check the burner’s performance. First, we ripped a 37GB Blu-ray copy of_Die Hard_ to check the burner’s read speed for a commercial Blu-ray. Using the program MakeMKV, it took 70 minutes to make a copy.
@@ -107,26 +113,38 @@ Lifewire / Scott Gercken
 
  Noise was never a problem with this drive. Auto Quiet mode adjusts media discs to a slower speed so it’s quieter, and with both data and movie discs we didn’t notice any noise loud enough to be a bother.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Image Quality: Don’t watch Blu-rays on this drive**
 
  We tested watching Blu-rays on the Pioneer BDR-XD05B on a Macbook Pro(it’s not designed to work with a TV). The image quality was ok, but it wasn’t close to what you’d get on a[HD TV](https://www.lifewire.com/best-tvs-to-buy-4061107) with a dedicated[Blu-ray player](https://www.lifewire.com/best-blu-ray-players-1846400) .
 
  We also connected the computer to an HD TV through the HDMI drive and didn’t get the 1080p we expected. Instead, the resolution was stuck at 726p and the image quality was terrible, worse than a DVD. The Blu-ray image was extremely noisy and filled with huge pixels. If you want to watch movies, don’t use this drive, except maybe to make yourself more appreciative of your Blu-ray player.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Sound Quality: Seriously, don’t watch Blu-rays on this drive**
 
  We think that the best reason to watch a Blu-ray isn’t the sharp[HD image](https://www.lifewire.com/what-you-need-to-see-hd-1847338) but the depth of sound this format can produce. But you don’t get any of that when you watch a Blu-ray using the Pioneer BDR-XD05B, because you have to watch it on a computer with computer speakers. It didn’t get any better when we connected the computer to the TV via HDMI—the sound remained flat and muddy.
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Software: Basic useful software**
 
  Like we wrote above, the included software was a mess to install, with windows popping up all over the place. The included software is called “CyberLink Media Suite 10.” It includes PowerDVD 14, Power2Go 8, and PowerDirector 14 LE. PowerDVD 14 is an app for playing Blu-rays and DVD’s on your[optical drive](https://www.lifewire.com/what-is-an-optical-disc-drive-2618157) . Power2Go 8 is a burning tool, and it has some system recovery tools, too. Powerdirector 14 LE is a movie editing app. All-in-all, this is a pretty useful, basic suite of software without anything that especially stands out. It gets the job done, and that’s what matters.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Good budget Blu-ray burner**
 
  With an MSRP of $100, the Pioneer BDR-XD05B is one of the least expensive Blu-ray burners on the market. You get what you pay for, though—that low price comes with slower read/write speeds and a flimsy design. Still, if you’re looking for a budget Blu-ray burner, this is a good one. If you’re a heavy user, look for something faster.
@@ -134,7 +152,10 @@ Lifewire / Scott Gercken
  With an MSRP of $100, The Pioneer BDR-XD05B is one of the least expensive Blu-ray burners on the market.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Competition: Performs well in this price range**
 
@@ -154,9 +175,6 @@ Lifewire / Scott Gercken
 
  On one hand, the Pioneer BDR-XD05B is a light, portable Blu-ray burner with decent performance at a low cost. On the other hand, it also feels flimsy and has a smudge-magnet finish. It’s a solid performer in its price range, but there are other portable Blu-ray burners without these faults (albeit generally for more cash).
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  BDR-XD05B Blu-ray Burner

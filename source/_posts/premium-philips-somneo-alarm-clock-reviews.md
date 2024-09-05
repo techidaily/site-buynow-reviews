@@ -1,7 +1,7 @@
 ---
 title: Premium Philips Somneo Alarm Clock Reviews
-date: 2024-08-31T15:00:28.009Z
-updated: 2024-09-01T15:00:28.009Z
+date: 2024-09-04T18:47:03.927Z
+updated: 2024-09-05T18:47:03.927Z
 categories:
   - BestProducts
 description: This Article Describes Premium Philips Somneo Alarm Clock Reviews
@@ -67,12 +67,30 @@ Lifewire / Jordan Provost
 
  Lifewire / Jordan Provost
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design and Setup: Very user-friendly, if oddly shaped**
 
  At 12 inches in diameter, 8.8 inches wide, and weighing 3.2 pounds, the Somneo is one of the larger and heavier clocks to grace a bedside table. Its shape is odd as well. Most light therapy clocks put the time interface in the center and the light circles around this. The Somneo, however, retains this shape, but places a hole in the center and the time interface at the bottom. It’s odd, but not objectionable, making the Somneo look more like a modern designer piece than your standard bedside light.
 
 ![Philips Somneo HF3650/60 Sleep and Wake-Up Light Therapy Lamp](https://www.lifewire.com/thmb/idFMYxSvr4WNKHfmtginjcQrPy4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4137028-1-2-5c8fee3dc9e77c0001a926f6.jpg)
 
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Jordan Provost
 
  A quick note: the interface itself is easy to read, and adjusts to the room’s ambient light. The clock’s home interface is easy to navigate as well. It comes with a number of simple touch-activated buttons including a light switch, an FM radio feature, and the previously mentioned wind down option.
@@ -83,6 +101,12 @@ Lifewire / Jordan Provost
 
  See Just How Well These Light Therapy Alarm Clocks Glow
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Easy to build, but not so easy to configure**
 
  The Somneo comes with three components: the clock, an AC adapter, charging cable, and an auxiliary cord. To set it up, we simply plugged the adapter and the charging cable into the clock, and plugged the adapter into the wall.
@@ -91,21 +115,36 @@ Lifewire / Jordan Provost
 
  The Philips Somneo is a top-tier product in the light therapy alarm clock market.
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Features: Great for falling asleep**
 
  The unique feature about the Philips Somneo is that it offers a “wind down” feature, which includes both a sunset simulation and breathing exercises. Simply tap the wind down button, and then tap the sunset option, and the light slowly diminishes from a bright yellow hue, morphing to oranges and reds before it completely turns off. We like that the lights don’t suddenly switch off at the beginning and end — every light-related feature with the Somneo gradually fades and brightens.
 
  This feature also comes into play during breathing exercises, as it brightens as you breathe in and fades as you breathe out. If you want the light to stay on, you can use it in lamp mode to let it double as a night light or a bedside lamp. There are 25 brightness levels, but we noticed that while the Somneo is a great nightlight, the high brightness wasn’t quite good enough to be a lamp. You can read from it, but it’s just not an optimal bedside light.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Waking up: It’s a breeze**
 
  As we discovered the next morning, the same gradual light changes are available for the morning alarm. The light didn’t pop on, but gradually brightened. The Somneo ended up waking us up naturally a few minutes before the audio alarm sounded. It offers seven different audio options for the alarm itself, ranging from birdsong to soft gongs, but not your own phone’s tunes.
 
 ![Philips Somneo HF3650/60 Sleep and Wake-Up Light Therapy Lamp](https://www.lifewire.com/thmb/-Y5_OBcQ3E4zZLKBd4JYJ2fDj04=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4137028-1-5-5c8fee6ac9e77c0001eb1c8d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Jordan Provost
 
  Snoozing the alarm clock is very easy, too. Simply tap the top of the alarm clock, and the light will stay on while the music stops playing for nine minutes. To turn off the alarm, we simply pressed the alarm button on the interface, the music stopped playing, and the light gradually faded away.
@@ -113,20 +152,17 @@ Lifewire / Jordan Provost
 ![Philips Somneo HF3650/60 Sleep and Wake-Up Light Therapy Lamp](https://www.lifewire.com/thmb/VnTu8-OX_dmaMQft3divUMJaMm0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4137028-1-4-5c8fee5b46e0fb000172f0a4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Jordan Provost
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## **Radio: An extra convenience**
 
  Because the audio is superb, we thoroughly tested the radio feature. The user can preset five radio stations, and can easily control swapping between them. We couldn’t flip back and forth between the options, but rather cycled through the other stations before coming back to the original. There is a volume section under the FM radio where you can easily increase or decrease it, though it was confusing to find at first. Once you become familiarized with it, though, it’s simple to maneuver.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ## **Price: Top end for high-end products**
 
  At $199.99, the Somneo is priced on the high-end for light therapy alarm clocks. However, you get what you pay for: great audio quality, gradual, subtle light changes, and more alarm options than most clocks on the market. We especially liked the radio preset feature as well as the auxiliary option for phone playback — an extra option nearly all other light therapy clocks lack. While pricey, the Somneo really boasts all the bells and whistles you may want or need.
@@ -143,18 +179,12 @@ Lifewire / Jordan Provost
 
  With unique features and great audio and light quality, the Philips Somneo is a worthwhile investment for anyone who wants to add to their relaxing bedtime or wake-up routine. However, if price is a major factor in deciding between clocks, it might be best to pick a cheaper option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Philips HF3520 Wake-Up Light Therapy Lamp](https://www.lifewire.com/philips-hf3520-light-therapy-alarm-clock-review-4589352)
 * [Philips HF3505 Wake-Up Light](https://www.lifewire.com/philips-hf3505-wake-up-light-review-4589402)
 * [Aura Daylight Therapy Lamp](https://www.lifewire.com/aura-daylight-therapy-lamp-review-4772136)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  HF3650/60 Sleep and Wake-Up Light Therapy Lamp Review

@@ -1,0 +1,231 @@
+---
+title: Kobo Forma Review - The E-Reader Crafted for Bookworms Who Value Quality Reading
+date: 2024-09-04T18:51:03.541Z
+updated: 2024-09-05T18:51:03.541Z
+categories:
+  - BestProducts
+description: This Article Describes Kobo Forma Review - The E-Reader Crafted for Bookworms Who Value Quality Reading
+excerpt: This Article Describes Kobo Forma Review - The E-Reader Crafted for Bookworms Who Value Quality Reading
+thumbnail: https://www.lifewire.com/thmb/YP0hXL3bZVv5wSjSP7U0-poOav4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kobo_EReaders_2LW4046778_HeroSquare-bcef5652bfd841b79a5b84129a6d11bf.jpg
+---
+
+## High Performance Detection Gear for Budget Road Trips - See Why the 'S55 Reviewed on EscortPassport' Is a Winner
+
+3.8
+
+## Escort Passport S55
+
+![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
+
+Lifewire / Todd Braylor
+
+ What We Like
+
+* User friendly and affordable
+* Long-range
+* Signal strength meter
+
+ What We Don't Like
+
+* Frequent false alerts
+* Cheap feeling plastic
+* Minimal windshield mount
+
+ If you're looking for maximum affordability and maximum range in one radar detector the Passport S55 is worth your consideration, but be aware this unit works best for highway and rural driving.
+
+[View On Amazon $280](https://www.amazon.com/dp/B019HF60EI/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7CB019HF60EI) [View On Walmart $140](https://www.walmart.com/ip/Escort-Passport-S55-High-Performance-Pro-Radar-and-Laser-Detector-w-DSP/49140972)
+
+3.8
+
+## Escort Passport S55
+
+![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
+
+Lifewire / Todd Braylor
+
+[View On Amazon $280](https://www.amazon.com/dp/B019HF60EI/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7CB019HF60EI) [View On Walmart $140](https://www.walmart.com/ip/Escort-Passport-S55-High-Performance-Pro-Radar-and-Laser-Detector-w-DSP/49140972)
+
+ in this article
+
+ Expand
+
+* [Design](https://funwhole.sjv.io/9groge)
+* [Setup Process](https://lightailing.sjv.io/k0ez0m)
+* [Range](https://proteahair.pxf.io/znernm)
+* [Performance](https://laganoo.pxf.io/5g6ygn)
+* [Price](https://arkmc.pxf.io/znergr)
+* [Competition](https://tokenmetrics.sjv.io/jrkzxp)
+* [Final Verdict](https://bluettide.pxf.io/ekmjb2)
+* [Specs](https://turtlebeacheu.sjv.io/1r0r59)
+
+ _We purchased the Escort Passport S55 so our expert reviewer could thoroughly test and assess it. Keep reading for our full product review._
+
+ The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Design:** **A bit cheap**
+
+ The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
+
+ The[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) display shows bright red text/symbols for maximum visibility while driving. The S55 can show four signal strength meters at the same time, plus the numeric frequency of alerts. There's also a dark mode that turns off the display but doesn't disable the audio alert.
+
+ The speaker on this radar detector is very small, about a quarter-inch square, but the audio alerts are high volume. You can select between standard and loud tones. The SmartCord power cable for the S55 has a handy mute button on it so you don't have to reach over the dash.
+
+ Lifewire / Todd Braylor
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Setup Process: Easy installation**
+
+ The S55 is straightforward and easy to install. Simply stick the windshield mount in place and plug the SmartCord lighter adapter into your car's DC cigarette lighter input. Plugging the modular jack into the S55 will automatically power on the radar detector and you can quickly customize settings for display brightness, detector sensitivity levels, and volume. Then you're ready to hit the road.
+
+ Lifewire / Todd Braylor
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Range: Impressive detection**
+
+ The Passport S55 features Enhanced Radar Protection that delivers long-distance range for laser and radar bands, including K and Ka bands, widely used microwave frequencies for police radar guns. It reliably delivers on its promise of long-distance sensitivity. While testing the S55 in Highway mode I received Ka-band alerts over a mile and a half out from where I approached a highway patrol parked on the median of the interstate. This range was on par with much more expensive models.
+
+ It reliably delivers on its promise of long-distance sensitivity.
+
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Performance: Not exactly enhanced**
+
+ The S55 has different modes designed to adjust to specific frequency bands and sensitivity levels for city or highway driving. You can quickly customize the settings by using the included quick reference guide. You can also turn off specific frequency bands if they tend to give a lot of false alerts.
+
+ Lifewire / Todd Braylor
+
+ In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
+
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Price: You get what you pay for**
+
+ With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
+
+ You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
+
+ A popular competitor brand to Escort that makes a wide selection of radar detectors is Uniden. The Uniden DFR9 (view on[Amazon](https://www.amazon.com/Uniden-DFR9-Detection-Cameras-Display/dp/B07F6PZXHM/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7C) ) is a model that can be considered the next price tier above the S55\. The DFR9's MSRP is $300 but it can often be found on sale for about $270.
+
+ The DFR9 has an excellent detection range and a color LED display. The DFR9 also features GPS technology that filters out stationary false alerts, a welcome addition in mid-level radar detectors, and supports database access which alerts you to red light and speed camera locations.
+
+ Final Verdict
+
+ **A basic radar detector that's ideal for beginners or anyone on a budget.**
+
+ The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
+
+## Specs
+
+* Product Name  Passport S55
+* Product Brand  Escort
+* SKU  B019HF60EI
+* Price  $189.99
+* Product Dimensions  5.6 x 3.75 x 1 in.
+* Warranty  Limited One Year Warranty
+* Display size  1/4”H x 1 3/4”L
+* Display type  280 LED Matrix/Text
+* Radar receiver  Superheterodyne, Varactor-Tuned VCO, Scanning Frequency, Discriminator, Digital Signal Processing (DSP)
+* Power requirements  12 VDC, Negative Ground (car lighter/accessory)
+* GPS  No
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-advanced-tips-for-professionally-changing-image-hues/"><u>[New] Advanced Tips for Professionally Changing Image Hues</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-rhythm-rulers-elevating-instagram-posts-with-songs/"><u>[New] In 2024, Rhythm Rulers  Elevating Instagram Posts with Songs</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-seamless-youtube-experience-facebooks-autoplay-solution/"><u>[New] Seamless YouTube Experience  Facebook's Autoplay Solution</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-efficacy-of-monetized-youtube-engagement-for-content-creators-in-2024/"><u>[Updated] Efficacy of Monetized YouTube Engagement for Content Creators, In 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-kinemaster-zoom-mastery-guide-a-filmmakers-toolkit/"><u>2024 Approved  Kinemaster Zoom Mastery Guide  A Filmmaker's Toolkit</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1725288941404-dvd/"><u>無料ダウンロードキット：DVDコンテンツを携帯デバイスに保存する方法</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-tvplus-vs-netflix-unveiling-5-compelling-reasons-why-its-the-superior-streaming-service/"><u>Apple TV+ Vs. Netflix: Unveiling 5 Compelling Reasons Why It's the Superior Streaming Service</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/beat-procrastination-ultimate-guide-of-8-steps-to-clear-out-game-backlog/"><u>Beat Procrastination: Ultimate Guide of 8 Steps to Clear Out Game Backlog</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/demystifying-digital-asset-creation-for-newbies/"><u>Demystifying Digital Asset Creation for Newbies</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/easy-installation-tips-for-kodi-software-on-windows-11-systems/"><u>Easy Installation Tips for Kodi Software on Windows 11 Systems</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-samsung-galaxy-a05-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Samsung Galaxy A05 Devices | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/frustrated-with-poor-youtube-content-suggestions-discover-the-secrets-to-enhance-your-video-recommendations/"><u>Frustrated with Poor YouTube Content Suggestions? Discover the Secrets to Enhance Your Video Recommendations!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-purchase-digital-games-even-with-the-closure-of-xbox-360-marketplace/"><u>How To Purchase Digital Games Even With The Closure Of Xbox 360 Marketplace</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-set-up-cross-service-streaming-sessions-using-teleparty/"><u>How to Set Up Cross-Service Streaming Sessions Using Teleparty</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/identifying-processor-limits-cpu-vs-gpu-constraints-which-is-more-impactful/"><u>Identifying Processor Limits: CPU Vs. GPU Constraints - Which Is More Impactful?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/improving-your-spotify-experience-by-protecting-recommendations-from-playlist-influence/"><u>Improving Your Spotify Experience by Protecting Recommendations From Playlist Influence</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-lava-yuva-3-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Lava Yuva 3 to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-a-found-apple-iphone-14-plus-drfone-by-drfone-ios/"><u>In 2024, How To Unlock A Found Apple iPhone 14 Plus? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/masterclass-in-tv-streaming-the-ultimate-guide-for-2024/"><u>Masterclass in TV Streaming  The Ultimate Guide for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-gaming-space-upgrade-your-xbox-series-with-seagates-extra-memory-booster/"><u>Maximize Gaming Space: Upgrade Your Xbox Series with Seagate’s Extra Memory Booster</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nebula-capsule-3-mini-projector-reviewed-superior-performance-under-low-light-conditions/"><u>Nebula Capsule 3 Mini Projector Reviewed: Superior Performance Under Low Light Conditions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/overcoming-console-barriers-methods-for-accessing-region-locked-titles-across-nintendo-switch-playstation-and-xbox-platforms/"><u>Overcoming Console Barriers: Methods for Accessing Region-Locked Titles Across Nintendo Switch, PlayStation, and Xbox Platforms</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revamped-netflix-tv-application-undergoing-trials/"><u>Revamped Netflix TV Application Undergoing Trials</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/save-big-with-plex-get-your-all-access-card-at-a-huge-discount-today/"><u>Save Big with Plex: Get Your All-Access Card at a Huge Discount Today!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/simple-steps-to-power-cycle-your-iphone-15-troubleshooting-tips/"><u>Simple Steps to Power Cycle Your iPhone 15 - Troubleshooting Tips</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-benefits-of-google-play-pass-a-fantastic-deal-with-room-for-enhancement/"><u>The Benefits of Google Play Pass: A Fantastic Deal with Room for Enhancement</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-definitive-verdict-on-samsungs-latest-smart-tv-a-look-at-the-qn5e5q6f-model/"><u>The Definitive Verdict on Samsung's Latest Smart TV: A Look at the QN5e5Q6F Model</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-7-compelling-factors-that-justify-my-continued-use-of-traditional-television/"><u>Top 7 Compelling Factors That Justify My Continued Use of Traditional Television</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-8-insights-nintendo-must-embrace-to-enhance-their-switch-console-experience/"><u>Top 8 Insights Nintendo Must Embrace to Enhance Their Switch Console Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/understanding-4k-ultra-high-definition-a-comprehensive-guide/"><u>Understanding 4K Ultra High Definition: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleash-your-apple-tvs-hidden-gaming-potential-transform-it-into-a-classic-game-machine/"><u>Unleash Your Apple TV's Hidden Gaming Potential: Transform It Into a Classic Game Machine!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-hidden-treasures-how-disneypluss-unique-add-ons-match-dvd-bonus-content/"><u>Unveiling Hidden Treasures: How Disney+'s Unique Add-Ons Match DVD Bonus Content!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-i-switched-from-spotify-to-deezer-discovering-a-better-streaming-experience/"><u>Why I Switched From Spotify to Deezer - Discovering a Better Streaming Experience</u></a></li>
+</ul></div>

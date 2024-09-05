@@ -1,7 +1,7 @@
 ---
 title: "Uncovering the Value: Detailed Analysis of the Feature-Rich, Cost-Effective Ambient WS-2902A Weather Station by Osprey"
-date: 2024-08-03T22:58:39.217Z
-updated: 2024-08-04T22:58:39.217Z
+date: 2024-09-04T18:41:33.560Z
+updated: 2024-09-05T18:41:33.560Z
 categories:
   - BestProducts
 description: "This Article Describes Uncovering the Value: Detailed Analysis of the Feature-Rich, Cost-Effective Ambient WS-2902A Weather Station by Osprey"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/65d1648a69e474032218f98a4f9088236faaaabb2
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## Sabrent Mini Travel USB Optical Mouse
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/NHk2GXtdpeJT9sEET7cl5b3Coq0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_HeroSquare-6ae9d6d299054d748f84492b5c31f033.jpg)
@@ -41,10 +38,6 @@ Lifewire / Rebecca Isaacs
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ## Sabrent Mini Travel USB Optical Mouse
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/XBAevViAWBKn-uqOn_jnTLrfwTw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_HeroSquare-6ae9d6d299054d748f84492b5c31f033.jpg)
@@ -78,17 +71,29 @@ Lifewire / Rebecca Isaacs
 
  It’s important to keep in mind that this is a wired, ergonomic mouse that relies on a USB port connection. So while it doesn’t require any batteries, it can be problematic if you need more than 25 inches the cable provides. The cable itself expands with a gentle pull of the cable from its own mini-port, and is easily retractable with a tug on each side of the cable. Just be careful when retracting it, as it is similar to a window shade in that it retracts with near-violent gusto.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/E-UHv94vEiLyLkgwTG1qIFE6uvQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_04-76e4b475ca3f4449a746c22f3713f784.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
  The cable’s addition increases the size of the mouse, bringing the total measurements to 6.44 x 1.5x 2.44 inches (LWH). The Sabrent also comes with a mesh carrying bag, making it easy to pack up and take on the go without scratching it. One more perk: this mouse is adaptable to most[Windows](https://www.lifewire.com/windows-4781566) ,[Mac](https://www.lifewire.com/mac-backup-software-hardware-and-guides-2260931) , and[Linux](https://www.lifewire.com/software-and-apps-4781541) systems, so you can insert it into USB ports across multiple machines for fast use.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Setup Process: Plug and play**
 
@@ -104,11 +109,14 @@ Lifewire / Rebecca Isaacs
 
  After using it for over 25 hours, the precision blew us away; even the smallest twitch of the mouse registered movement on the PC and[laptop](https://www.lifewire.com/computer-and-laptop-reviews-4102643) we tested it across. Not once did we have to reclick on an item because the Sabrent failed to register the movement, proving that the cable was of speedy and accurate benefit to the mouse. The speed of the mouse highlighted its precision, darting across the monitor screens as we shifted the mouse instantaneously.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/ZAK9csfHFEKVkNFSzE-Knbqabgs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_03-c6a7b875505642c69218c2c6c3449e50.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
  The buttons responded quickly and with ease as well. While the main and right buttons do click with some noise, the constant clacking won’t get on any nerves. The scroller isn’t loud, but it took us a couple rolls of the wheel before it shifted around without any resistance. This ultimately wasn’t a big deal, but it might need a little breaking in, so don’t give up on it straight away.
@@ -118,7 +126,10 @@ Lifewire / Rebecca Isaacs
  The cable length left something to be desired in a work PC, however. At 25 inches, it sounds like a dream come true, however, testing it on a standing desk where the PC tower is located further away from the keyboard and mouse we realized there was a problem. The length cable prevented us from shifting our grip on the mouse, and the tugging was a frustrating physical constraint. Laptop users won’t even notice the cable, but PC users may want to look for something a little more wireless.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Comfort: Too small**
 
@@ -126,6 +137,18 @@ Lifewire / Rebecca Isaacs
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/h8ibsbPtDqgJOD0XgpZSD6FOXUU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_02-1331828bbc3f460baebd85cbd24d61e2.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
 ## **Price: Reasonable**
@@ -147,7 +170,10 @@ Lifewire / Rebecca Isaacs
  While we constantly had to shift our grip on the tiny Sabrent mouse, we really liked its portability and fast, accurate movements. The cable proved to be difficult for desktop use, however, laptop users will enjoy the speeds that accompany the wired cable.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Specs
 
@@ -176,3 +202,53 @@ Lifewire / Rebecca Isaacs
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-crafting-transitional-soundscapes-in-cubase/"><u>[New] Crafting Transitional Soundscapes in Cubase</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-redefine-twitter-video-panel/"><u>[New] In 2024, Redefine Twitter Video Panel</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-simplifying-speech-integration-into-instagram-content/"><u>[New] In 2024, Simplifying Speech Integration Into Instagram Content</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-intrinsic-insights-for-instant-identification-in-fb/"><u>[New] Intrinsic Insights for Instant Identification in FB</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-essential-checklist-for-yt-creator-mastery/"><u>[New] The Essential Checklist for YT Creator Mastery</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-evaluating-the-performance-of-free2webcam-recorders/"><u>[Updated] 2024 Approved  Evaluating the Performance of Free2WebCam Recorders</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-thrive-with-1000-new-followers-each-month/"><u>[Updated] In 2024, Thrive with 1,000 New Followers Each Month</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-trending-vids-roundup-2024/"><u>[Updated] Trending Vids Roundup 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2023s-finest-mechanical-and-wireless-keyboards-reviewed/"><u>2023'S Finest Mechanical and Wireless Keyboards Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2023s-leading-under-desk-walking-machines-a-comprehensive-guide/"><u>2023'S Leading Under-Desk Walking Machines: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2023s-most-popular-apple-watches-ranked-find-the-perfect-fit/"><u>2023'S Most Popular Apple Watches Ranked: Find the Perfect Fit!</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-capturing-every-pixel-ps3-video-recording-101/"><u>2024 Approved  Capturing Every Pixel  PS3 Video Recording 101</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-comprehensive-tips-for-monitoring-subscriber-engagement/"><u>2024 Approved  Comprehensive Tips for Monitoring Subscriber Engagement</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-the-ultimate-audio-interface-for-podcasters-a-must-know-tip-for-your-podcasting-setup/"><u>2024 Approved  The Ultimate Audio Interface for Podcasters  A Must-Know Tip for Your Podcasting Setup</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-leading-tripod-head-reviews-find-the-perfect-match-for-your-photography-gear/"><u>2024'S Leading Tripod Head Reviews: Find the Perfect Match for Your Photography Gear</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ai-winxvideo/"><u>無料 AI ビデオ処理 - Winxvideoの動きを平らにする技術</u></a></li>
+<li><a href="https://extra-information.techidaily.com/achieving-perfect-synchronization-google-upload/"><u>Achieving Perfect Synchronization  Google Upload</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-guide-to-the-linksys-ac1900-mammoth-ideal-choice-for-home-and-office-networks/"><u>Comprehensive Guide to the Linksys AC1900 Mammoth: Ideal Choice for Home and Office Networks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cost-effective-chrome-os-laptops-a-comprehensive-guide/"><u>Cost-Effective Chrome OS Laptops: A Comprehensive Guide</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-the-latest-in-tech-at-toms-hardware-expert-reviews/"><u>Discover the Latest in Tech at Tom's Hardware Expert Reviews</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-leading-sleep-tracker-gadgets-for-optimal-rest/"><u>Discover the Leading Sleep Tracker Gadgets for Optimal Rest</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elite-selection-premium-ring-lights-dominating-the-market/"><u>Elite Selection: Premium Ring Lights Dominating the Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/essential-enhancements-and-gadgets-for-the-oculus-quest-2-2023-edition/"><u>Essential Enhancements & Gadgets for the Oculus Quest 2 - 2023 Edition</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/expert-schematic-designing-stopwatches-for-streaming-software/"><u>Expert Schematic  Designing Stopwatches for Streaming Software</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expertly-organized-discover-the-ideal-vertical-gpu-holders/"><u>Expertly Organized? Discover the Ideal Vertical GPU Holders!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/free-olympic-viewing-in-2er-experience-the-2024-games-with-over-the-air-tv-technology/"><u>Free Olympic Viewing in 2Er! Experience the 2024 Games with Over-the-Air TV Technology</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-latest-drivers-for-your-samsung-evo-850-ssd-free-download/"><u>Get the Latest Drivers for Your Samsung EVO 850 SSD – Free Download</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/hacking-twitters-humor-for-personal-use-on-pc/"><u>Hacking Twitter's Humor for Personal Use on PC</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-activate-stellar-data-recovery-for-iphone-11-pro-max-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Activate Stellar Data Recovery for iPhone 11 Pro Max | Stellar</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-identify-missing-your-drivers-with-windows-device-manager-on-windows-7-by-drivereasy-guide/"><u>How to identify missing your drivers with Windows Device Manager on Windows 7</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/icloud-unlocker-download-unlock-icloud-lock-for-your-apple-iphone-7-plus-by-drfone-ios/"><u>iCloud Unlocker Download Unlock iCloud Lock for your Apple iPhone 7 Plus</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-full-guide-to-unlock-your-vivo-v29-pro-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Vivo V29 Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-innovations-in-smart-alarms-for-2er-2024-expert-picks-and-reviews/"><u>Leading Innovations in Smart Alarms for 2Er 2024 - Expert Picks and Reviews</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-pick-premium-laptop-stand-selections/"><u>Leading Pick: Premium Laptop Stand Selections</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/premier-power-supply-units-reviewed-choosing-the-ideal-psu-for-your-system/"><u>Premier Power Supply Units Reviewed: Choosing the Ideal PSU for Your System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stealthy-gaming-concealing-titles-on-steams-family-share-feature/"><u>Stealthy Gaming: Concealing Titles on Steam's Family Share Feature</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-7-most-absurdly-impractical-game-complements-throughout-video-game-evolution/"><u>The 7 Most Absurdly Impractical Game Complements Throughout Video Game Evolution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-pick-why-i-prefer-using-discord-for-watching-movies/"><u>Top Pick: Why I Prefer Using Discord for Watching Movies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranking-gopro-cameras-a-comprehensive-guide/"><u>Top-Ranking GoPro Cameras : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-home-workout-gear-a-comprehensive-guide/"><u>Top-Rated Home Workout Gear : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-photography-illumination-sets-of-2024-a-comprehensive-review/"><u>Top-Rated Photography Illumination Sets of 2024: A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-fun-with-your-friends-a-guide-to-the-switchs-local-wireless-play-feature-and-ideal-titles/"><u>Unlocking Fun with Your Friends: A Guide to the Switch's Local Wireless Play Feature and Ideal Titles</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-value-top-5-strategies-for-maximizing-your-investment-in-apple-music/"><u>Unlocking Value: Top 5 Strategies for Maximizing Your Investment in Apple Music</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-premiere-selection-of-2023s-finest-qled-screens/"><u>Unveiling the Premiere Selection of 2023'S Finest QLED Screens</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/weekly-tech-highlights-unveiling-the-latest-windows-laptop-line-up-and-exclusive-insights-into-spotifys-upcoming-strategies/"><u>Weekly Tech Highlights: Unveiling the Latest Windows Laptop Line-Up & Exclusive Insights Into Spotify's Upcoming Strategies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-nintendos-decision-against-integrating-generative-ai-into-their-games-is-beneficial/"><u>Why Nintendo's Decision Against Integrating Generative AI Into Their Games Is Beneficial</u></a></li>
+</ul></div>

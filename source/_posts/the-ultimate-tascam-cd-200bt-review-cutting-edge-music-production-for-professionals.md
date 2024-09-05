@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Tascam CD-200BT Review: Cutting-Edge Music Production for Professionals"
-date: 2024-08-31T15:06:54.804Z
-updated: 2024-09-01T15:06:54.804Z
+date: 2024-09-04T18:46:57.410Z
+updated: 2024-09-05T18:46:57.410Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate Tascam CD-200BT Review: Cutting-Edge Music Production for Professionals"
@@ -65,9 +65,6 @@ Lifewire / Yoona Wagener
 
  This latest iteration of the Access bundles first-rate perks like accepting or rejecting calls via Bluetooth calling, Google Pay, sleep and exercise logging, as well as several battery modes. While it lacks serious fitness tracking chops, the Access Gen 5E flourishes with luxe styling and everyday conveniences.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Design: Luxe sensibility front and center
 
  If you’re interested in a feature-rich smartwatch that doubles as a statement fashion accessory, you won’t be disappointed by the Access Gen 5E. The 43-millimeter case sports an eye-catching pave pattern around the perimeter and sturdy aluminum construction. A substantial and responsive multipurpose button with the MK logo etched into it serves as a thoughtful accent. All of these details give this watch an elevated look from the very first glance.
@@ -78,6 +75,12 @@ Lifewire / Yoona Wagener
 
  New Wear OS users will appreciate the guided instructions that appear after pairing the watch to walk you through the various menus and swiping navigations. Even without this guidance, most menus are intuitive to use. My favorite menu was the quick-access menu that appears with a swipe-down motion. It contains a handy collection of shortcuts for basics like adjusting battery mode settings. It’s also home to the Theater Mode option, which turns the display off with a tap—especially convenient for dimming the screen at bedtime.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Comfort: Best outside of exercise
 
  Though it’s a slight contrast to the high-end details of the face, the MKGO version of the Access Gen 5E comes with a comfortable and flexible Michael Kors branded rubber strap. This added touch offers practicality and comfort without taking away from the upscale design fit for fancier occasions, too.
@@ -85,7 +88,10 @@ Lifewire / Yoona Wagener
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/Al5yHGgflExrdPzuv1O8nFyRL0M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_03-4a139c21df9b44ce8a0a5b5604859b26.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Lifewire / Yoona Wagener
 
@@ -95,6 +101,12 @@ Lifewire / Yoona Wagener
 
  This feature made clasping the band speedy, but I still experienced a slightly loose fit overall. During normal wear, while relaxing, sleeping, or working at a desk, this wasn’t an issue. While running, the case’s considerable weight—which comes in at a hefty 54.6 grams—felt a little too bulky for high-impact activity.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Performance: Good for the essentials
 
  The Access Gen 5E performs all of the usual smartwatch essentials with ease. Day-to-day connectivity features include Bluetooth-enabled calling, smartphone notifications, social media alerts, weather and calendar updates, and the convenience of Google Assistant.
@@ -117,9 +129,6 @@ Lifewire / Yoona Wagener
 
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/wOui4ekzG1ONLwrBgvw2GBdAZ3o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_05-cb3f4f64742c45c19c0dd82970916f73.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 Lifewire / Yoona Wagener
 
  I found that the built-in media player worked well for controlling music I played via Spotify or a podcast app on my phone. It automatically recognized whatever I was playing and brought media controls to the display.
@@ -127,7 +136,10 @@ Lifewire / Yoona Wagener
  Regardless of your operating system, you’ll need a Google account to get this watch paired and activated and to take advantage of contactless pay through Google Pay. And if you’re married to Google Fit for health insights, you’ll need that app too.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Battery: Potential for multi-day longevity
 
@@ -139,9 +151,6 @@ Lifewire / Yoona Wagener
 
  Regardless of the mode you choose, the watch will automatically enter a time-only mode once the battery hits 9 percent. This thoughtful touch allows this device to function as a straightforward watch as well. When you charge up, the handy magnetic USB charging cable is easy to attach to the device and provides quick charging: just a little over an hour, maximum.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Price: Luxury style at a friendlier entry point
 
  At about $250, the Access Gen 5E doesn’t require a premium buy-in like some of the latest, feature-loaded smartwatches from the Fossil and Michael Kors partnership. It’s also available from some retailers for less than $200, which adds even more value, given its solid smartwatch feature set.
@@ -149,7 +158,10 @@ Lifewire / Yoona Wagener
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/wVQl98NhNnzvvYRzkBP9Uzgvfw4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_04-a6c2bd0b7bdd422d81b96dde2c213f72.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Lifewire / Yoona Wagener
 
@@ -171,6 +183,18 @@ Lifewire / Yoona Wagener
 
  The Michael Kors Access Gen 5E MKGO is an upscale smartwatch with luxury looks and a slightly sporty sensibility. Its Wear OS and Fossil Gen 5E foundation provide a solid foundation for everyday ease with features like Bluetooth calling, Google Assistant, and battery modes. And while it offers some fitness tracking, this wearable dazzles primarily as a lifestyle accessory.
 
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Apple Watch Series 6](https://www.lifewire.com/apple-watch-series-6-review-5087552)

@@ -1,7 +1,7 @@
 ---
 title: "Apple's iPhone SE (2020): An In-Depth Analysis of the Practical Premium Device"
-date: 2024-08-31T15:03:26.428Z
-updated: 2024-09-01T15:03:26.428Z
+date: 2024-09-04T18:47:00.931Z
+updated: 2024-09-05T18:47:00.931Z
 categories:
   - BestProducts
 description: "This Article Describes Apple's iPhone SE (2020): An In-Depth Analysis of the Practical Premium Device"
@@ -66,7 +66,10 @@ Lifewire / Kelsey Simon
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Setup Process: A long installation process**
 
@@ -74,9 +77,6 @@ Lifewire / Kelsey Simon
 
 ![Days Gone](https://www.lifewire.com/thmb/HE8j4XoxbKMWIQagUtGCXFf6bKo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-2-3b29272bf1b2423781e104041dc00457.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
 ## **Plot: A man who lost his wife**
@@ -94,10 +94,19 @@ As in most zombie fiction, the real monster is man.
 ![Days Gone](https://www.lifewire.com/thmb/XWR-CgFF865KBE1ipv7cwdi-P3w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-5-b1914ac9859b409d9460fea24fc7f251.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Gameplay: Standard zombie action with bikers**
 
  Days Gone is a third-person, action-adventure, zombie survival game with single-player gameplay. It operates in an open-world where you drive around your bike and explore different camps to collect supplies and complete missions. You’ll find a range of enemies from wild animals, zombies, and even other survivors.
@@ -112,6 +121,18 @@ As in most zombie fiction, the real monster is man.
 
 ![Days Gone](https://www.lifewire.com/thmb/9B_OIRiqlP1YbsMLjs-zzDc3WAs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-3-cc2a2d9c613d4330b5d4d38408d6eae3.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
 ## **Graphics: Smooth and detailed**
@@ -124,18 +145,24 @@ As in most zombie fiction, the real monster is man.
 
 ![Days Gone](https://www.lifewire.com/thmb/gE-LorHWCGsO4NUFW801LGts5t4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-4-a82aed08ab7a4b29bce78268b729563b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Still expensive as a newer release**
 
  On the official PlayStation Store, the game goes for $40, but you can regularly find it on sale on Amazon or other online retailers (as of this writing, it's down to $20). At a discount, Days Gone is an easy purchase, a big, entertaining, open-world zombie romp that rarely if ever stagnates until the credits roll.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Days Gone vs. The Last of Us Remastered**
 
  There are a fair amount of other zombie survival games out there. On the PlayStation 4, another popular title is The Last of Us Remastered. The Last of Us doesn't have the expansive open world that Days Gone does, but the crafting system is far better, and the plot is stronger.
@@ -147,7 +174,10 @@ As in most zombie fiction, the real monster is man.
  Days Gone is a game that tried very hard to combine two tropes very much in the entertainment zeitgeist in the past few years—zombies and bikers. It's graphically strong, with great character animations and detailed environments and character models. The clunky controls and some pacing issues may make recommending it at full price difficult, but on sale, it's an easy pickup, especially for zombie fans shopping for an entertaining PS4 game.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Specs
 

@@ -1,7 +1,7 @@
 ---
 title: "Unlocking the Secrets to Affordable Fitness: An Expert Review of Xiaomi's Mi Smart Band 4"
-date: 2024-08-31T15:00:50.574Z
-updated: 2024-09-01T15:00:50.574Z
+date: 2024-09-04T18:47:03.573Z
+updated: 2024-09-05T18:47:03.573Z
 categories:
   - BestProducts
 description: "This Article Describes Unlocking the Secrets to Affordable Fitness: An Expert Review of Xiaomi's Mi Smart Band 4"
@@ -66,7 +66,10 @@ Lifewire / Erika Rawes
  Budget fitness trackers like the Xiaomi Mi Smart Band 4 tend to be hit or miss, with some budget models providing accurate data and useful features, and others serving as basic monitors and pedometers with a few additional features that may or may not work well. I tested the Xiaomi Mi Smart Band 4 for two weeks to see how it performs compared to other budget and mid-range[fitness trackers](https://www.lifewire.com/an-introduction-to-activity-trackers-3441364) on the market.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Design: A full color display**
 
@@ -78,6 +81,12 @@ Lifewire / Erika Rawes
 
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/oCYh365Kx4bFT1nCDvemWNcGEYI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-6-64089d35ecca457d9f49477537785d34.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 ## **Comfort: A water resistant removable band**
@@ -91,10 +100,19 @@ Lifewire / Erika Rawes
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/MsPw0300j9lhgQEmelHfapWXla4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-4-52ee61c2595e4aafb5c1ad04be13f12e.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: Not bad for the price**
 
  The Mi Band 4 has a responsive touch screen that doesn’t lag when switching between screens or loading data. It has an impressive feature set for a fitness tracker in this price range, although some of the tools aren’t always pinpoint accurate, and you won’t get as many perks as you’d get with a fitness tracker in a higher price range. All in all, I was impressed with the fitness tracker’s overall performance.
@@ -118,6 +136,12 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Battery: Up to 20 days**
 
  The Mi Band 4’s battery is phenomenal, as the 135 mAh battery lasts for up to 20 days. Options within the app for things like better sleep monitoring and heart monitoring can greatly reduce battery life, however, the app will warn you about that when selecting such options.
@@ -132,21 +156,24 @@ The 135 mAh battery lasts for up to 20 days.
 
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/kXajF8I7UCVG0wnufwSz3psTRmU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-3-8a9c12e307254854bcd99728db94330c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Price: An amazing value**
 
  The Xiaomi Mi Smart Band 4 is incredibly affordable, selling for $29 on Amazon. The next gen band, the Mi Band 5, is now hitting the market, which is lowering the price of the fourth generation model. The Mi Band 4 isn’t perfect by any means, and it won’t provide the same experience that you’d get with a tracker that costs hundreds of dollars, but it’s a steal at its price point.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ## **Xiaomi Mi Smart Band 4 vs. Fitbit Charge 3**
 
  For a light user, the Xiaomi Mi Smart Band 4 will provide a similar experience to the[Fitbit Charge 3](https://www.lifewire.com/fitbit-charge-3-review-5072527) , and for much less cash. The Mi Band 4 sells for less than $30, while the Charge 3 (view on[Amazon](https://www.amazon.com/dp/B07FTN21JL/?tag=lifewire-onsite-prod-20&ascsubtag=5072538%7Cn9a9fa546381a4a599bb0ce1e844da32715%7C) ) sells for closer to $100\. The Mi Band 4 even has a color display, which the Fitbit Charge 3 lacks. If you want a budget tracker with better accuracy, the Charge 3 is probably the way to go. If you just want to try out a fitness tracker, the Mi Band 4 is a good choice.
@@ -157,9 +184,6 @@ The 135 mAh battery lasts for up to 20 days.
 
  The Xiaomi Mi Smart Band 4 offers a lot of features for a little bit of cash.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Mi Smart Band 4

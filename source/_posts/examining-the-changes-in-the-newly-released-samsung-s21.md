@@ -1,7 +1,7 @@
 ---
 title: Examining the Changes in the Newly Released Samsung S21
-date: 2024-08-03T22:58:37.561Z
-updated: 2024-08-04T22:58:37.561Z
+date: 2024-09-04T18:43:25.262Z
+updated: 2024-09-05T18:43:25.262Z
 categories:
   - BestProducts
 description: This Article Describes Examining the Changes in the Newly Released Samsung S21
@@ -37,19 +37,8 @@ Lifewire / Zach Sweat
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Microsoft Xbox One Elite Series 2 Controller
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/JA4MI_SE7Alxl0MLR7rMoIVzKgI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
 
 Lifewire / Zach Sweat
@@ -75,9 +64,6 @@ Lifewire / Zach Sweat
 
  We reviewed the original $150 Elite controller when it debuted years ago and loved nearly every aspect of it, but it wasn’t flawless suffering from the lack of a few key features and some durability issues. This is where the newly updated Elite Series 2 controller comes in. Listening to feedback provided by gamers on the weaknesses of Series 1, Microsoft has put out what is likely to be the last iteration of the[Xbox One controller,](https://www.lifewire.com/xbox-one-consoles-4156250) and it’s pretty much perfect—provided you’re willing to pay the hefty price tag.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/t8wI_yN2s_uIQ1leo87MmOnXxb4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-5-0c39ec4e89eb45b094471681efec0e7d.jpg)
 
  Lifewire / Zach Sweat
@@ -106,19 +92,22 @@ Lifewire / Zach Sweat
 
  Inside the case, the material has also been swapped from grey to black to continue the darker theme of the Series 2\. You’ll also notice the foam pad is no longer here, as that’s where the dock sits. This dock can be removed or used inside the case and attaches with a strong magnet. The last two parts of the case are unchanged from Series 1, with a mesh cradle for accessories on the top and a foam organizer to hold all the swappable thumbsticks and paddles when not in use.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/TRrezKVbAUPs2Rud3g4_iOHyxB8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-2-4b3f9d8acd1440089989378253d902f4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Comfort: Hefty, but darn comfy**
 
  The original Elite was perhaps the most comfortable controller I’ve ever used, so with the Series 2, I had high hopes in this department. Thanks to some clever but subtle changes by the Microsoft team, this controller is even better.
@@ -131,13 +120,16 @@ Lifewire / Zach Sweat
 
  The only real issue some users may see as a downside of this controller is that it’s quite a hefty device. The controller weighs 348 grams with all attachments, so it might take some getting used to compared to the 210 gram S controller. I personally love the bulk, as it feels premium, but it might not be for everyone.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/cS5fpyPSlqvyETs-nGxTtAB3vXU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-4-070b6c59b206457ba1068704bbe7bca9.jpg)
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process and Software: Bluetooth, at long last**
 
  One of our biggest gripes with the original Elite controller was that it lacked Bluetooth functionality despite its premium price tag. Seeing how the much cheaper ONE S variant included this, it was even more frustrating. Thankfully, Microsoft listened to our collective rants and added Bluetooth to the Series 2, which drastically improves the number of devices it can be used with.
@@ -156,16 +148,10 @@ Lifewire / Zach Sweat
 
  If you plan to buy this controller to use with other electronics that support Bluetooth devices, make sure you do some research before committing to it, as it doesn’t always work with everything. That said, we did manage to pair the controller with a couple other devices that weren’t officially supported.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance/Durability: Enhanced performance and durability**
 
  To test the performance of the new Elite Series 2 controller, I put this device through several hours of gaming on both PC and Xbox One platforms running a number of games and layouts. The results were promising, so let’s take a closer look.
@@ -188,6 +174,12 @@ Lifewire / Zach Sweat
 
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Like buying a brand new console**
 
  Right now, the Elite Series 2 controller retails at an MSRP of $249.99, about $100 more than its predecessor. This price tag makes it not only the most expensive first-party controller around, but also nearly the cost of a brand new Xbox One S console (or three brand new titles). That can be a tough sell for your average gamer.
@@ -196,13 +188,16 @@ Lifewire / Zach Sweat
 
  The argument could be made that considering you get a Bluetooth controller capable of working on XB1 and PC, a charging dock and a nice little case to keep it all together, the cost isn’t awful. But if you want all of those things for less, you can grab an S controller, dock and case for far, far less.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/6VfCJGOyjLkAkE_mjiHr7rz8Gyw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-6-0c1d7a2ae4e8443ea5b69f559e52bd12.jpg)
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
 
  Since the Elite controller really is in a league of its own, the biggest competitor to it is the first generation, which can still be purchased from a number of retailers. We’re going to quickly compare the two to see which might be best for you.
@@ -217,6 +212,12 @@ Lifewire / Zach Sweat
 
  Everything we disliked about the original Elite controller has been improved with the second iteration, making it the best first-party controller you can get for XB1 or PC. However, the steep price point might be a hard pill to swallow for users who don’t like to splurge.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Xbox One Elite Series 2 Controller
@@ -249,3 +250,47 @@ Lifewire / Zach Sweat
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-a-step-by-step-strategy-for-merging-your-youtube-and-tiktok-presence/"><u>[New] 2024 Approved  A Step-by-Step Strategy for Merging Your YouTube & TikTok Presence</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-creating-lasting-memories-with-customized-vimeo-ends-for-2024/"><u>[New] Creating Lasting Memories with Customized Vimeo Ends for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-enjoy-every-frame-best-free-download-apps-for-mobile-devices/"><u>[New] In 2024, Enjoy Every Frame  Best Free Download Apps for Mobile Devices</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-vr-gaming-powered-essential-oculus-players/"><u>[New] In 2024, VR Gaming Powered  Essential Oculus Players</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-navigating-the-maze-choosing-the-right-vimeo-membership-plan-for-2024/"><u>[New] Navigating the Maze  Choosing the Right Vimeo Membership Plan for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-aesthetic-enhancement-font-integration-for-ae/"><u>[Updated] Aesthetic Enhancement  Font Integration for AE</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2023s-elite-selection-of-4k-monitors-find-your-perfect-match/"><u>2023'S Elite Selection of 4K Monitors: Find Your Perfect Match!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2023s-leading-portable-screens-reviewed-find-the-perfect-match-for-your-needs/"><u>2023'S Leading Portable Screens Reviewed: Find the Perfect Match for Your Needs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-ultimate-guide-to-choosing-the-perfect-mini-itx-case-for-tech-enthusiasts/"><u>2024'S Ultimate Guide to Choosing the Perfect Mini ITX Case for Tech Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhance-your-ps5-experience-with-the-premier-gaming-addons-of-2023/"><u>Enhance Your PS5 Experience with the Premier Gaming Addons of 2023</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-tecno-camon-30-pro-5g-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Tecno Camon 30 Pro 5G Phone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-xiaomi-14-ultra-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Xiaomi 14 Ultra Phone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-can-instant-subscription-lead-to-higher-watch-time/"><u>In 2024, Can Instant Subscription Lead to Higher Watch Time?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Realme 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-samsung-galaxy-m14-5g-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Samsung Galaxy M14 5G Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lincoln-childrens-museum/"><u>Lincoln Children's Museum</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-guide-to-muting-audio-in-iphone-recordings-simplified-techniques/"><u>New 2024 Approved Guide to Muting Audio in iPhone Recordings Simplified Techniques</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-how-to-use-deep-fried-meme-maker-for-2024/"><u>New How to Use Deep Fried Meme Maker for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/output-for-the-second-title-you-could-opt-to-emphasize-either-their-performance-or-value-aspect-depending-on-what-your-audience-values-more-heres-a-refined-12/"><u>Output: For the Second Title, You Could Opt to Emphasize Either Their Performance or Value Aspect Depending on What Your Audience Values More. Here's a Refined Version that Focuses on Performance:</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/overcoming-obstacles-successfully-launching-your-ascent-now/"><u>Overcoming Obstacles: Successfully Launching Your 'Ascent' Now</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ram-specifications/"><u>Ram Specifications</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/reviewing-the-action-realm-with-t5s-thievery/"><u>Reviewing the Action Realm with T5's Thievery</u></a></li>
+<li><a href="https://windows11.techidaily.com/secure-your-deal-black-friday-612-for-full-life-win10/"><u>Secure Your Deal: Black Friday - $6.12 for Full-Life Win10</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-selection-leading-smart-lighting-solutions/"><u>The Ultimate Selection: Leading Smart Lighting Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-5-premium-ultra-hdtvs-a-comprehensive-guide/"><u>Top 5 Premium Ultra HDTVs - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-affordable-television-sets-a-comprehensive-guide/"><u>Top Affordable Television Sets : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-network-attached-storage-solutions-in-2eighty-four-a-comprehensive-guide/"><u>Top Network Attached Storage Solutions in 2Eighty-Four: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-quality-protection-the-ultimate-selection-of-samsung-galaxy-z-fold-6-cases/"><u>Top Quality Protection: The Ultimate Selection of Samsung Galaxy Z Fold 6 Cases</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-55-television-models-a-comprehensive-guide/"><u>Top Rated 55 Television Models : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranking-nintendo-switch-gear-and-peripherals/"><u>Top-Ranking Nintendo Switch Gear and Peripherals</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-ethernet-cables-a-buyers-guide/"><u>Top-Rated Ethernet Cables : A Buyer's Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-headphones-a-comprehensive-list/"><u>Top-Rated Headphones : A Comprehensive List</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-video-game-controllers-a-comprehensive-guide/"><u>Top-Rated Video Game Controllers : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-water-resistant-cellphone-protectors/"><u>Top-Rated Water-Resistant Cellphone Protectors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-most-effective-magsafe-energy-devices-for-this-year/"><u>Ultimate Guide to the Most Effective MagSafe Energy Devices for This Year</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-selecting-the-ideal-portable-gaming-controls-for-a-superior-experience/"><u>Ultimate Guide: Selecting the Ideal Portable Gaming Controls for a Superior Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-the-most-comfortable-and-durable-camera-straps-of-2024/"><u>Ultimate Guide: The Most Comfortable & Durable Camera Straps of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-ranking-of-premium-projector-displays-s-market/"><u>Ultimate Ranking of Premium Projector Displays 'S Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-elite-samsung-galaxy-s22plus-shells/"><u>Ultimate Selection: Elite Samsung Galaxy S22+ Shells</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-premier-case-options-for-your-samsung-galaxy-z-flip-4/"><u>Ultimate Selection: Premier Case Options for Your Samsung Galaxy Z Flip 4</u></a></li>
+</ul></div>

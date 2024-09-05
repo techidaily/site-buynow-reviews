@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Guide: Selecting the Ideal Portable Gaming Controls for a Superior Experience"
-date: 2024-08-31T14:51:34.867Z
-updated: 2024-09-01T14:51:34.867Z
+date: 2024-09-04T18:47:07.218Z
+updated: 2024-09-05T18:47:07.218Z
 tags:
   - buying-guides
 categories:
@@ -88,9 +88,6 @@ The GameSir G8 Galileo essentially took the best parts of a console controller a
 
 ![8Bitdo Pro 2 wireless controller in hand](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/04/52747881260_dc28f8fe69_o.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Jordan Gloor / How-To Geek Jordan Gloor / Review Geek Jordan Gloor / LifeSavvy
 
 | Pros                               | Cons                          |
@@ -108,12 +105,24 @@ Jordan Gloor / How-To Geek Jordan Gloor / Review Geek Jordan Gloor / LifeSavvy
 ![8bitdo pro 2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/12/8bitdo-pro-2.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Best Budget Mobile Gaming Controller
 
@@ -128,7 +137,10 @@ Not only is the 8Bitdo Pro 2 a fantastic budget pick, it's also one of the best 
 ![Backbone One with no phone.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/09/backbone-one-no-phone.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Jason Montoya / How-To Geek
 
@@ -148,6 +160,12 @@ Jason Montoya / How-To Geek
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Best Mobile Gaming Controller for iPhone
 
 #####  Backbone One (2nd Gen)
@@ -157,15 +175,21 @@ Good-feeling buttons, large triggers, and rounded edges, the Backbone One is a c
 [$100 at Amazon](https://www.amazon.com/BACKBONE-Mobile-Gaming-Controller-Android-iOS/dp/B0CCT2LWT8?tag=hotoge-20&ascsubtag=UUhtgUeUpU2004345&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-controllers-for-mobile-gaming%2F&asc%5Fcampaign=Commerce) [See at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fbackbone-one-usb-c-mobile-gaming-controller-for-iphone-15-series-and-android-2nd-generation-black%2F6558725.p%3FskuId%3D6558725) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##  Best Mobile Gaming Controller for Android: [Razer Kishi V2](https://www.amazon.com/dp/B0B16NGTCT?tag=hotoge-20&ascsubtag=UUhtgUeUpU2004345&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-controllers-for-mobile-gaming%2F&asc%5Fcampaign=Commerce) 
 
 ![A Motorola Edge+ inside a Razer Kishi v2 game controller.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/motorola-edge-plus-razer-kishi-v2.JPG) 
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Bertel King / How-To Geek
 
 | Pros                                          | Cons                   |
@@ -183,7 +207,10 @@ Bertel King / How-To Geek
 ![razer kishi v2 connected to android device](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/razer-kishi-v2-connected-to-android-device.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
@@ -197,6 +224,12 @@ The Razer Kishi V2 says goodbye to touchscreen controls by letting you map them 
 
 [$60 at Amazon](https://www.amazon.com/dp/B0B16NGTCT?tag=hotoge-20&ascsubtag=UUhtgUeUpU2004345&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-controllers-for-mobile-gaming%2F&asc%5Fcampaign=Commerce) [See at Walmart](https://www.walmart.com/ip/Razer-Kishi-V2-Mobile-Gaming-Controller-iPhone-Console-Quality-Controls-Universal-Fit-Stream-PC-Xbox-PlayStation-Games-Customizable-Triggers-Ergonomi/407553024) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## FAQ
 
 ### What controllers work with my mobile device?
@@ -205,6 +238,12 @@ The Razer Kishi V2 says goodbye to touchscreen controls by letting you map them 
 
  What's important is that you read the fine print and double-check the controller supports your operating system and version.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Can I use a PS5 controller with my phone?
 
  Yes, on Android and iOS! To connect a PS5 controller to your phone (or tablet):
@@ -225,9 +264,6 @@ The Razer Kishi V2 says goodbye to touchscreen controls by letting you map them 
 
  As with the PS5 controller, you can go for a direct connection too, using a USB cable.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Will phone controllers also work with tablets?
 
  It depends on the controller. What you're looking for is a phone controller that connects wirelessly, by Bluetooth, or one that allows you to directly connect via the USB port on the tablet. The 8Bitdo Pro 2, for example, has Bluetooth and can connect to devices using a cable.
