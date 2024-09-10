@@ -1,7 +1,7 @@
 ---
 title: "Maximizing Energy: The Impressive Beatit BT-D11 Jump Starter Examined"
-date: 2024-08-03T22:58:32.782Z
-updated: 2024-08-04T22:58:32.782Z
+date: 2024-09-09T07:55:22.160Z
+updated: 2024-09-10T07:55:22.160Z
 categories:
   - BestProducts
 description: "This Article Describes Maximizing Energy: The Impressive Beatit BT-D11 Jump Starter Examined"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/3c7adb8361f107e7e2513d0c6a87960b8e0bf54d4
 
 2.8
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/87Y0vp91-Opdxctf3M6BGQ6r1d8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
@@ -43,7 +40,10 @@ Lifewire / Emily Ramirez
 2.8
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Creative Sound Blaster ZxR
 
@@ -71,24 +71,26 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR sound card was a great card in 2013\. In 2019, however, the ZxR has started to lag behind the competition. It provides pretty clear audio, but it requires two PCIe slots and costs $250 MSRP. Compare this to products from other audio card manufacturers, such as ASUS and EVGA, which been able to provide better audio performance for as little as $160\. That said, the Sound Blaster ZxR isn’t without merits: it has a lot of inputs and outputs, extensive EQ software, and still produces quality sound. It also has features gamers need, such as treble boost and voice isolation, and it accommodates 6.3mm auxiliary input and output.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
@@ -98,7 +100,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Setup Process/Installation: Easy install, irritating setup**
 
@@ -108,12 +113,14 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Unfortunately, configuring Creative Labs’ drivers and software suite was a much less intuitive process. The ZxR’s outputs are controlled via the Sound Blaster Z-series Software, where users can select whether they’re listening with their headphones or their speakers, apply EQ effects, and more. By default, the software is set to output to speakers with several different EQ effects turned on. We had to manually switch it to headphone output and turn off EQ; the software does not automatically detect which jacks are in use.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Emily Ramirez
 
 ## **Audio: Excellent sound**
@@ -124,8 +131,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: Lots of options with mixed utility**
 
  For the tinkerers out there, Sound Blaster provides a myriad of audio adjustments through their Z-Series software package. Here, you can EQ any frequency between 20 and 20,000 Hz or activate “Crystallization,” “Scout Mode,” and “Theater Mode.” Crystallization adds punch to the audio’s treble, making voices stand out against the background. Theater Mode is similar to Crystallization, but it tries to_only_ boost voices instead of the entire treble range. We found it great for watching videos. Meanwhile, Scout Mode is squarely aimed at gamers. It theoretically makes enemy noises like footsteps louder.
@@ -134,6 +153,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
@@ -164,7 +189,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Specs
 
@@ -204,3 +232,43 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-20-minutes-to-master-vrecorder-instalment/"><u>[Updated] 2024 Approved 20 Minutes To Master VRecorder Instalment</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-quick-access-essential-windows-10-tips/"><u>2024 Approved Quick Access Essential Windows 10 Tips</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-unveiling-ig-reels-vs-ig-stories-essential-insights/"><u>2024 Approved Unveiling IG Reels vs IG Stories Essential Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apemans-c450-model-a-comprehensive-dashcam-evaluation-at-affordable-prices/"><u>Apeman's C450 Model - A Comprehensive Dashcam Evaluation at Affordable Prices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/compact-vixia-hf-captures-minus-premium-specs/"><u>Compact VIXIA HF Captures Minus Premium Specs</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/compelling-beginnings-scriptwriting-tips-for-intros/"><u>Compelling Beginnings Scriptwriting Tips for Intros</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elite-selection-of-gaming-mini-pcs-for-hardcore-gamers/"><u>Elite Selection of Gaming Mini PCs for Hardcore Gamers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/embracing-delight-throughout-pokemon-alpha-sapphire-and-omega-ruby/"><u>Embracing Delight Throughout 'Pokémon Alpha Sapphire' & 'Omega Ruby'</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-tips-for-enhancing-your-gopro-cinematic-vision-for-2024/"><u>Expert Tips for Enhancing Your GoPro Cinematic Vision for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-highs-and-lows-of-cyberpunk-2077-a-beautiful-yet-unpolished-gem/"><u>Exploring the Highs & Lows of Cyberpunk 2077: A Beautiful Yet Unpolished Gem</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-leading-voice-assistants-and-smart-speakers/"><u>Exploring the Leading Voice Assistants & Smart Speakers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/flashy-design-robust-connectivity-a-detailed-look-at-the-netgear-nighthawk-rax80-routers-wi-fi-6-capabilities/"><u>Flashy Design, Robust Connectivity: A Detailed Look at the Netgear Nighthawk RAX80 Router's Wi-Fi 6 Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fortnite-season-highlights-and-insights-engaging-gameplay-returns-with-fresh-updates/"><u>Fortnite Season Highlights & Insights: Engaging Gameplay Returns with Fresh Updates</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-motorola-moto-g-stylus-5g-2023-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Motorola Moto G Stylus 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-pick-the-right-tablet-a-focus-on-portability-and-lightness/"><u>How to Pick the Right Tablet: A Focus on Portability and Lightness</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-trouble-with-iphone-7-swipe-up-try-these-11-solutions-drfone-by-drfone-ios/"><u>In 2024, Trouble with iPhone 7 Swipe-Up? Try These 11 Solutions | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-xbox-series-x-the-ultimate-gaming-experience-in-4k/"><u>In-Depth Analysis of the Xbox Series X: The Ultimate Gaming Experience in 4K</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-moto-g-power-high-performance-and-superior-battery-capacity-revealed/"><u>In-Depth Look at the Moto G Power: High Performance and Superior Battery Capacity Revealed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/introductory-studio-kit-limostudios-agg814-showcase/"><u>Introductory Studio Kit: LimoStudio's AGG814 Showcase</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-hewlett-packards-economically-priced-15-inch-laptop-worth-the-money-for-its-amd-unit-performance/"><u>Is Hewlett-Packard’s Economically Priced 15-Inch Laptop Worth the Money for Its AMD Unit Performance?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-handheld-gamers-choice-discover-the-finest-portable-devices-for-playtime/"><u>Leading Handheld Gamers' Choice: Discover the Finest Portable Devices for Playtime</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovos-latest-gem-thinkpad-x1-titanium-yoga-unveiled-a-cutting-edge-hybrid-that-charmingly-respects-the-legacy-of-classic-thinkpads/"><u>Lenovo's Latest Gem: ThinkPad X1 Titanium Yoga Unveiled – A Cutting-Edge Hybrid That Charmingly Respects the Legacy of Classic ThinkPads</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/performance-evaluation-of-netgears-combined-modem-and-router-a-closer-look-at-the-c370er/"><u>Performance Evaluation of Netgear's Combined Modem & Router: A Closer Look at the C370er</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722976443494-quick-access-to-updated-nvidia-rtx-1080-drivers-enhance-gaming-on-windows-10-now/"><u>Quick Access to Updated Nvidia RTX 1080 Drivers - Enhance Gaming on Windows 10 Now</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/rayman-legends-analysis-an-exemplary-2d-platform-gaming-experience/"><u>Rayman Legends Analysis: An Exemplary 2D Platform Gaming Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/rotibox-beanie-with-built-in-speakers-reviewed-cozy-headgear-meets-audio-excellence/"><u>Rotibox Beanie with Built-In Speakers Reviewed - Cozy Headgear Meets Audio Excellence</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/simplifying-your-home-networking-with-tp-link-deco-p9-in-depth-review/"><u>Simplifying Your Home Networking with TP-Link Deco P9 - In-Depth Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/space-saving-bluetooth-sound-system-yamaha-mcr-b020bl/"><u>Space-Saving Bluetooth Sound System – Yamaha MCR-B020BL</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/streamline-your-gaming-with-xbox-screen-recorders/"><u>Streamline Your Gaming with Xbox Screen Recorders</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-call-history-from-honor-x50-by-fonelab-android-recover-call-logs/"><u>The way to get back lost call history from Honor X50</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/thorough-jackery-power-station-examination-featuring-convenient-internal-ac-outlet/"><u>Thorough Jackery Power Station Examination: Featuring Convenient Internal AC Outlet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-4k-video-test-hc-wxf991-verdict/"><u>Ultimate 4K Video Test: HC-WXF991 Verdict</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-testing-of-eufy-t8200-video-doorbell-no-subscription-required/"><u>Unboxing & Testing of Eufy T8200 Video Doorbell – No Subscription Required!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/upgrading-your-system-selecting-and-installing-the-right-graphics-card-for-optimal-performance/"><u>Upgrading Your System: Selecting & Installing the Right Graphics Card for Optimal Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/user-experience-report-the-impact-of-phillipss-hf3505-sunrise-simulator-on-your-daily-routine/"><u>User Experience Report: The Impact of Phillips's HF3505 Sunrise Simulator on Your Daily Routine</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/your-ideal-health-companion-unveiling-the-features-of-samsung-galaxy-fit2-smartwatch/"><u>Your Ideal Health Companion: Unveiling the Features of Samsung Galaxy Fit2 Smartwatch</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: The Best Under $100 Router - An Expert's Take on the TP-Link Archer C80 Speeds
-date: 2024-08-03T22:58:35.523Z
-updated: 2024-08-04T22:58:35.523Z
+date: 2024-09-09T07:51:01.290Z
+updated: 2024-09-10T07:51:01.290Z
 categories:
   - BestProducts
 description: This Article Describes The Best Under $100 Router - An Expert's Take on the TP-Link Archer C80 Speeds
@@ -9,17 +9,26 @@ excerpt: This Article Describes The Best Under $100 Router - An Expert's Take on
 thumbnail: https://www.lifewire.com/thmb/hnfn1HKm08TJxpBixlaHeqOfiug=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Discover the Best Long Range Traffic Monitors for Under $100 - Examined in Detail by Our Escort Passport Team
 
 3.8
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Lifewire / Todd Braylor
 
  What We Like
@@ -40,13 +49,22 @@ Lifewire / Todd Braylor
 
 3.8
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Lifewire / Todd Braylor
 
 [View On Amazon $280](https://www.amazon.com/dp/B019HF60EI/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7CB019HF60EI) [View On Walmart $140](https://www.walmart.com/ip/Escort-Passport-S55-High-Performance-Pro-Radar-and-Laser-Detector-w-DSP/49140972)
@@ -68,6 +86,12 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -78,6 +102,12 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Easy installation**
 
  The S55 is straightforward and easy to install. Simply stick the windshield mount in place and plug the SmartCord lighter adapter into your car's DC cigarette lighter input. Plugging the modular jack into the S55 will automatically power on the radar detector and you can quickly customize settings for display brightness, detector sensitivity levels, and volume. Then you're ready to hit the road.
@@ -91,7 +121,10 @@ Lifewire / Todd Braylor
  It reliably delivers on its promise of long-distance sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Performance: Not exactly enhanced**
 
@@ -101,18 +134,12 @@ Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
  A popular competitor brand to Escort that makes a wide selection of radar detectors is Uniden. The Uniden DFR9 (view on[Amazon](https://www.amazon.com/Uniden-DFR9-Detection-Cameras-Display/dp/B07F6PZXHM/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7C) ) is a model that can be considered the next price tier above the S55\. The DFR9's MSRP is $300 but it can often be found on sale for about $270.
@@ -125,10 +152,6 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Passport S55
@@ -157,3 +180,46 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-accelerate-your-streaming-career-utilizing-obs-capabilities/"><u>[New] 2024 Approved Accelerate Your Streaming Career Utilizing OBS Capabilities</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/umpstart-your-professional-filmmaking-exclusive-cost-free-green-screen-training-from-top-youtube-educators-for-2024/"><u>[New] Jumpstart Your Professional Filmmaking Exclusive, Cost-Free Green Screen Training From Top YouTube Educators for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-tiktok-shadowban-how-to-get-unshadowbanned-on-tiktok-for-2024/"><u>[New] TikTok Shadowban How to Get Unshadowbanned on Tiktok for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-groupview-downloader-for-fb-streams-for-2024/"><u>[Updated] GroupView Downloader for FB Streams for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-premier-5-ios-backdrop-change-applications-for-iphones-x-8-7/"><u>[Updated] Premier 5 iOS Backdrop Change Applications for iPhones (X, 8, 7)</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-introducing-efficient-speech-to-text-utilization-in-powerpoint/"><u>2024 Approved Introducing Efficient Speech-to-Text Utilization in PowerPoint</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apemans-c450-model-a-comprehensive-dashcam-evaluation-at-affordable-prices/"><u>Apeman's C450 Model - A Comprehensive Dashcam Evaluation at Affordable Prices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/conquer-the-stars-in-depth-analysis-of-stellaris-galactic-adventures/"><u>Conquer the Stars: In-Depth Analysis of Stellaris' Galactic Adventures</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/criacr-bluetooth-fm-transmitter-cp24-review-compact-but-flawed/"><u>Criacr Bluetooth FM Transmitter CP24 Review: Compact but Flawed</u></a></li>
+<li><a href="https://common-error.techidaily.com/diagnosing-and-repairing-call-of-duty-wwii-error-code-4220-expert-tips-and-tricks/"><u>Diagnosing and Repairing Call of Duty WWII Error Code 4220: Expert Tips & Tricks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/embracing-delight-throughout-pokemon-alpha-sapphire-and-omega-ruby/"><u>Embracing Delight Throughout 'Pokémon Alpha Sapphire' & 'Omega Ruby'</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/engage-with-advanced-acoustic-performance-meet-klipschs-flexus-200-soundbar/"><u>Engage with Advanced Acoustic Performance - Meet Klipsch’s Flexus 200 Soundbar</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-evaluation-of-mapmyride-how-it-stacks-up-against-competitors/"><u>Expert Evaluation of MapMyRide: How It Stacks Up Against Competitors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-leading-voice-assistants-and-smart-speakers/"><u>Exploring the Leading Voice Assistants & Smart Speakers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-value-of-logitechs-c615-webcam-an-in-depth-look-at-cost-vs-quality/"><u>Exploring the Value of Logitech's C615 Webcam: An In-Depth Look at Cost vs Quality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fortnite-season-highlights-and-insights-engaging-gameplay-returns-with-fresh-updates/"><u>Fortnite Season Highlights & Insights: Engaging Gameplay Returns with Fresh Updates</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/gimp-free-open-source-multi-platform-image-editor-review/"><u>GIMP Free, Open-Source, Multi-Platform Image Editor Review</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>How to Fix Pokemon Go Route Not Working On Apple iPhone 14? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-pick-the-right-tablet-a-focus-on-portability-and-lightness/"><u>How to Pick the Right Tablet: A Focus on Portability and Lightness</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-discovering-the-superiority-of-apples-m1-macbooks/"><u>In 2024, Discovering the Superiority of Apple's M1 MacBooks</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6s-plus-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 6s Plus With an Apple Watch & What to Do if It Doesnt Work | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-premier-pro-essentials-accessible-for-all-editors/"><u>In 2024, The Premier Pro Essentials - Accessible for All Editors</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-top-10-youtube-music-how-toes-2023-edition/"><u>In 2024, Top 10 YouTube Music How-Toes, 2023 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-moto-g-power-high-performance-and-superior-battery-capacity-revealed/"><u>In-Depth Look at the Moto G Power: High Performance and Superior Battery Capacity Revealed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/introductory-studio-kit-limostudios-agg814-showcase/"><u>Introductory Studio Kit: LimoStudio's AGG814 Showcase</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-handheld-gamers-choice-discover-the-finest-portable-devices-for-playtime/"><u>Leading Handheld Gamers' Choice: Discover the Finest Portable Devices for Playtime</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovos-latest-gem-thinkpad-x1-titanium-yoga-unveiled-a-cutting-edge-hybrid-that-charmingly-respects-the-legacy-of-classic-thinkpads/"><u>Lenovo's Latest Gem: ThinkPad X1 Titanium Yoga Unveiled – A Cutting-Edge Hybrid That Charmingly Respects the Legacy of Classic ThinkPads</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-the-art-of-nighttime-nirvana-with-advanced-sleep-innovations/"><u>Mastering the Art of Nighttime Nirvana with Advanced Sleep Innovations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-apocalyptic-chaos-on-two-wheels-days-gone-game-analysis/"><u>Navigating Apocalyptic Chaos on Two Wheels: 'Days Gone' Game Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/rayman-legends-analysis-an-exemplary-2d-platform-gaming-experience/"><u>Rayman Legends Analysis: An Exemplary 2D Platform Gaming Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/space-saving-bluetooth-sound-system-yamaha-mcr-b020bl/"><u>Space-Saving Bluetooth Sound System – Yamaha MCR-B020BL</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-renewed-view-of-sony-s3700-2023-edition-for-2024/"><u>The Renewed View of Sony S3700 2023 Edition for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-ultimate-warrior-challenge-t5-vs-sjcam-s6/"><u>The Ultimate Warrior Challenge T5 vs SJCAM S6</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-mobile-signal-enhancers-the-ultimate-list-for-2e-24/"><u>Top Rated Mobile Signal Enhancers: The Ultimate List for 2E-24</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-4k-video-test-hc-wxf991-verdict/"><u>Ultimate 4K Video Test: HC-WXF991 Verdict</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-learn-the-free-and-easy-way-to-edit-videos-shot-by-your-gopro-for-2024/"><u>Updated Learn the Free and Easy Way to Edit Videos Shot by Your GoPro for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/user-experience-report-the-impact-of-phillipss-hf3505-sunrise-simulator-on-your-daily-routine/"><u>User Experience Report: The Impact of Phillips's HF3505 Sunrise Simulator on Your Daily Routine</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Itel P55 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/your-ideal-health-companion-unveiling-the-features-of-samsung-galaxy-fit2-smartwatch/"><u>Your Ideal Health Companion: Unveiling the Features of Samsung Galaxy Fit2 Smartwatch</u></a></li>
+</ul></div>

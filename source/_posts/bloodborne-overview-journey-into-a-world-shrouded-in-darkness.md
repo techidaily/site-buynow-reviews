@@ -1,7 +1,7 @@
 ---
 title: "Bloodborne Overview: Journey Into a World Shrouded in Darkness"
-date: 2024-09-04T18:56:35.884Z
-updated: 2024-09-05T18:56:35.884Z
+date: 2024-09-09T07:55:52.529Z
+updated: 2024-09-10T07:55:52.529Z
 categories:
   - BestProducts
 description: "This Article Describes Bloodborne Overview: Journey Into a World Shrouded in Darkness"
@@ -37,10 +37,22 @@ Lifewire / Rebecca Isaacs
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Ergohead Standing Desk Mat
 
 ![Ergohead Standing Desk Mat](https://www.lifewire.com/thmb/Cwu-e_OEr09OmG2i_CiuFzoXZkg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Ergohead-standing-desk-mat-1-79f92d5f389341ebac842215232e753e.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Lifewire / Rebecca Isaacs
 
 [View On Amazon](https://www.amazon.com/Ergohead-Standing-Desk-Mat-Ergonomically/dp/B01MUCCYW2/?tag=lifewire-onsite-prod-20&ascsubtag=4775317%7Cn5cd6c77f73bb462a9965e7e57d44387009%7CB01MUCCYW2) [View On Walmart](https://www.walmart.com/ip/original-ergohead-anti-fatigue-comfort-standing-mat-ergonomically-engineered-perfect-desk-kitchen-gardening-garages-18-x-22-black/294977442?wmlspartner=wlpa&selectedSellerId=101064565)
@@ -64,12 +76,6 @@ Lifewire / Rebecca Isaacs
 
 Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030381/7443" target="_top" id="2030381">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030381" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030381/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: A little clunky**
 
  At 29 inches by 26.5 inches by 3.3 inches (LWH), the Ergomat is a fairly small mat relative to other standing desk mats. We noticed when we began testing it that it’s not as wide as some of its competitors. This isn’t really a big deal, as we could alter our posture to accommodate the mat without any bad physical side effects.
@@ -80,12 +86,6 @@ Lifewire / Rebecca Isaacs
 
 ![Ergohead Standing Desk Mat](https://www.lifewire.com/thmb/mYznN1ybQ2Krm8a3Z394rlAOFrk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ergohead-standing-desk-mat-4-5d31effb111d4c7ea26761232fcb72e9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
 ## **Comfort: Great small perks, but dangerously slippery**
@@ -103,28 +103,28 @@ Lifewire / Rebecca Isaacs
 ![Ergohead Standing Desk Mat](https://www.lifewire.com/thmb/fRASz9R2_u2xUWOhQF5-YjVfSys=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ergohead-standing-desk-mat-3-a265a6c991a64616b1facde099119c05.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Price: Perfect for the basics**
 
  At around $80 on Amazon, the Ergohead mat is one of the more expensive mats on the market. That said, this mat also comes with some huge perks, like the massage mounds in the front and the calf stretching inclines in the back. It may seem like a lot, but when you’re standing on your feet all day, $80 is a small price to pay.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Ergohead Standing Desk Mat vs. CubeFit TerraMat**
 
@@ -143,10 +143,10 @@ Lifewire / Rebecca Isaacs
  Overall, we really liked some aspects of the Ergohead Standing Desk Mat. The massage mounds, the ankle mounts, and the rear inclines are all huge selling points for long-term comfort. However, the slipperiness of this mat makes us second guess safety on surfaces that aren’t carpeted. We would definitely use this mat, however, it will need to be solely on carpeted surfaces.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024351/7443" target="_top" id="2024351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Specs
 

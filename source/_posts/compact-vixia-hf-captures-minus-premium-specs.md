@@ -1,7 +1,7 @@
 ---
 title: Compact VIXIA HF Captures Minus Premium Specs
-date: 2024-09-04T18:57:06.360Z
-updated: 2024-09-05T18:57:06.360Z
+date: 2024-09-09T07:55:52.094Z
+updated: 2024-09-10T07:55:52.094Z
 categories:
   - BestProducts
 description: This Article Describes Compact VIXIA HF Captures Minus Premium Specs
@@ -13,6 +13,18 @@ thumbnail: https://www.lifewire.com/thmb/YJI-mWWhZkYZxcMZ-u59tvxo_Sg=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Sumind BT70B Bluetooth FM Transmitter
 
 ![Sumind BT70 Bluetooth FM Transmitter](https://www.lifewire.com/thmb/Pl2OP0FcXsWIfWU5ohyrYofBKhQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_04LW1999388-1-e83579449d3d4eef9725e952c010b9c4.jpg)
@@ -42,6 +54,12 @@ Lifewire / Benjamin Zeman
 
 ![Sumind BT70 Bluetooth FM Transmitter](https://www.lifewire.com/thmb/lPmoQnqp3aiT-MmhcKDS4r_Sqe4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_04LW1999388-1-e83579449d3d4eef9725e952c010b9c4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Lifewire / Benjamin Zeman
 
 [View On Amazon $24](https://www.amazon.com/dp/B0756WZ2V3?tag=lifewire-onsite-prod-20&ascsubtag=4771411%7Cndfbf2c12373e45e193cbb7935210749b16%7CB0756WZ2V3)
@@ -67,10 +85,10 @@ Lifewire / Benjamin Zeman
  Lifewire / Benjamin Zeman
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Design: User friendly design**
 
@@ -84,12 +102,6 @@ Lifewire / Benjamin Zeman
 
  On the left side of the body is a TF slot so you can play audio files from a MicroSD card. On the right is a 3.5mm auxiliary jack that is advertised as_both_ an input and an output (more on that later). Since the body is on a flexible gooseneck, it’s easy to get to both the TF slot and the aux jack. With the large buttons and display, the Sumind transmitter is designed to be very user friendly.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Easy but hard to angle**
 
  We tested this transmitter in a 2018 Toyota RAV4, which has two 12V auxiliary power outlets under the dash. Getting the Sumind transmitter into a position we could see from the driver’s seat was impossible. Although the screen is bright and easy to read from straight on, the viewing angles are poor and even with the amount of rotation the gooseneck allowed we couldn’t get it pointed straight at us.
@@ -99,10 +111,10 @@ Lifewire / Benjamin Zeman
  Using the TF card slot is as simple as putting in a card that has audio files in a supported format. The next/last buttons on the right are used to navigate through your songs. Switching between Bluetooth and charging mode is done by holding the next song button for five seconds. Overall setup was a breeze.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Audio Quality: Loud and clear**
 
@@ -114,12 +126,6 @@ Lifewire / Benjamin Zeman
 
  Lifewire / Benjamin Zeman
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Features: The weirdest feature we’ve seen**
 
  The only truly unique difference between the Sumind Bluetooth Car FM Transmitter and many others like it is its unusual input/output combo jack. Honestly, the only reason we can think of for a 3.5mm aux jack that works both as an input and an output is that Sumind used jacks that just happened to have a chipset that also supports output.
@@ -134,18 +140,18 @@ Lifewire / Benjamin Zeman
 
  The BT70B is an excellent current gen transmitter and an easy, inexpensive way to add Bluetooth functionality to your vehicle.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Slightly higher than average**
 
  The Sumind BT70B transmitter averages around $26 and can sometimes be found for less with a little bargain hunting. It’s on the higher end of the[Bluetooth transmitters we’ve tested](https://www.lifewire.com/best-iphone-fm-transmitters-for-car-1999388) but it packs all the features we want, except for a working auxiliary input. We often use a portable music player and an aux input is a must.
 
  Sumind’s offering is otherwise a solid value. It’s got everything else you need and good audio quality to boot. Couple that with the large, user-friendly buttons and you have a winner.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Competition: Sumind BT70B vs. Nulaxy KM18**
 
  The Nulaxy KM18 is an older gen model with all the same functionality as the Sumind BT70B and can usually found between $17 and $20\. If you’re looking to save a few dollars the Nulaxy could be a good bet.
@@ -163,10 +169,10 @@ Lifewire / Benjamin Zeman
  We like Sumind’s shape and the large, easy-to-use buttons and dial. It has the largest and best looking display we saw in this round of testing and audio sounded great from any source. Outside of our issues with the aux port, the BT70B is an excellent current gen transmitter and an easy, inexpensive way to add Bluetooth functionality to your vehicle.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Specs
 
