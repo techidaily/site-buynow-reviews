@@ -1,7 +1,7 @@
 ---
 title: How Does the Samsung Q60R Series Stack Up? An In-Depth Review of a 4K Smart Gaming TV
-date: 2024-08-03T22:58:29.424Z
-updated: 2024-08-04T22:58:29.424Z
+date: 2024-09-13T02:37:54.016Z
+updated: 2024-09-15T01:32:46.742Z
 categories:
   - BestProducts
 description: This Article Describes How Does the Samsung Q60R Series Stack Up? An In-Depth Review of a 4K Smart Gaming TV
@@ -13,10 +13,6 @@ thumbnail: https://www.lifewire.com/thmb/FjFx4B7uI3LcbqTlG2QDx1hPPRQ=/400x300/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## Garmin Vivosmart 4
 
 ![Garmin Vivosmart 4](https://www.lifewire.com/thmb/EJl3EcpC1pj4FEXukKPZt82BlKk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Garmin-Vivosmart-4-Fitness-Tracker-1-0a7c6cef1af44b5c9acb1c657c292521.jpg)
@@ -45,9 +41,6 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Garmin Vivosmart 4
 
 ![Garmin Vivosmart 4](https://www.lifewire.com/thmb/ll2Uv9bgkmIddyfa-EOFiFCtsyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Garmin-Vivosmart-4-Fitness-Tracker-1-0a7c6cef1af44b5c9acb1c657c292521.jpg)
@@ -74,9 +67,6 @@ Lifewire / Erika Rawes
 
  Fitness trackers have come a long way over the last few years, and you can find options in a variety of shapes, sizes, styles, and price ranges. The Garmin Vivosmart 4 is priced in about the mid-range, and it offers a few cool perks in addition to the standards like calorie counting and step counting. I tested the Garmin Vivosmart 4 for a month to see how it performs compared to other similarly priced fitness trackers on the market.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## **Design: You can’t remove the band**
 
  The Vivosmart is lightweight, weighing only 16.5 grams (for the small/medium size). It has a very slim profile, with the silicone band measuring only about a half of an inch in width. Now, this is great for style purposes, as the band looks great on the wrist. But, the slim design isn’t particularly functional, as the screen is extremely small and somewhat hard to read from a distance (especially if you have poor vision like me). The tiny screen measures a mere 0.26 inches wide by 0.70 inches tall.
@@ -88,8 +78,12 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Comfort: You’ll forget you’re wearing it**
 
  The Vivosmart 4 is one of the more comfortable fitness trackers I’ve tested. Most of the time, I’d forget I was even wearing the tracker until it vibrated. The band’s side edges are rounded off, making it feel more comfortable against the skin.
@@ -116,10 +110,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## **Software: Garmin Connect App**
 
  The Vivosmart 4 doesn’t have any hard buttons, but rather a monotone touchscreen that you double-tap on the bottom portion to awaken. You scroll up and down to navigate through the various functions. I’m not in love with the interface, which isn’t particularly intuitive or feature-rich. Although companion apps are important to any good fitness tracker, the Vivosmart 4 relies too heavily on its app. It doesn’t have built-in GPS either, so it’s more tethered to your phone than some other fitness trackers on the market.
@@ -130,11 +120,15 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![Garmin Vivosmart 4](https://www.lifewire.com/thmb/XmHmMYvuaOGE3gAGIsa_vChmpas=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivosmart-4-Fitness-Tracker-4-22ab906932be467bb2e3309e30555ab4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Battery: May last a full seven days**
 
  The battery is supposed to last for up to seven days, but the battery life depends largely on the features you use and how frequently you use the tracker. If you’re only passively tracking a few metrics, your battery might last a full week. If you’re constantly checking your heart rate, pulse ox, stress levels, sleep, and counting reps several times a day, your battery will not last that long. I got three and a half days of battery life when taking full advantage of the fitness tracker’s features.
@@ -144,6 +138,13 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ## **Price: Reasonable**
 
  The Vivosmart 4 retails for $130, which is slightly high for this unit. You can find a refurbished version on Amazon for around $80, which is a more reasonable price.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Garmin Vivosmart 4 vs. Fitbit Charge 3**
 
@@ -155,9 +156,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  The Garmin Vivosmart 4 is a great option for anyone who wants to track their sleep, stress, energy, and cardio, but there are better options out there for weight training.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Vivosmart 4
@@ -183,14 +181,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Other features  training, planning and analysis, heart rate, running, cycling, swimming, kids activity tracking
 * What’s included  Vívosmart 4 smart activity tracker, Charging/data cable, Manuals
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -198,3 +193,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ecure-online-methods-convert-youtube-audio-to-mp3-effortlessly-and-safely/"><u>[New] Secure Online Methods Convert YouTube Audio to MP3 Effortlessly & Safely</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-effortless-facebook-video-streaming-with-fire-browser-plugins-firefox-edition-2023-for-2024/"><u>[Updated] Effortless Facebook Video Streaming with Fire-Browser Plugins, Firefox Edition 2023 for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-easy-steps-to-change-character-sounds-for-maximum-impact-no-cost/"><u>[Updated] In 2024, Easy Steps to Change Character Sounds for Maximum Impact (No Cost)</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-evaluation-of-pioneer-bdr-xd05b-dvd-writer-examining-its-flaws-and-features/"><u>Comprehensive Evaluation of Pioneer BDR-XD05B DVD Writer: Examining Its Flaws and Features</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/elevate-your-experience-the-top-9-features-that-set-chatgpt-plus-apart/"><u>Elevate Your Experience: The Top 9 Features That Set ChatGPT Plus Apart</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-using-the-versatile-maxoak-50000mah-battery-pack-in-depth-analysis/"><u>Expert Insights on Using the Versatile MaxOak 50,000mAh Battery Pack - In-Depth Analysis</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-realme-narzo-60-pro-5g-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Realme Narzo 60 Pro 5G to Protect Your Individual Information</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/maximize-your-use-of-handbrake-sections-with-these-4-essential-qandas/"><u>Maximize Your Use of Handbrake Sections with These 4 Essential Q&As</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-samsung-un65nu8000fxza-an-overpriced-average-performance-smart-television/"><u>Review of Samsung UN65NU8000FXZA: An Overpriced Average-Performance Smart Television</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stay-driven-the-power-of-built-in-gps-and-apps-for-holistic-health-on-fitbit-versa-3/"><u>Stay Driven: The Power of Built-In GPS and Apps for Holistic Health on Fitbit Versa 3</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/step-by-step-imac-enhancement-manual-focusing-on-intel-models/"><u>Step-by-Step iMac Enhancement Manual: Focusing on Intel Models</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-asus-routers-on-the-market/"><u>Top-Rated ASUS Routers on the Market</u></a></li>
+</ul></div>
+

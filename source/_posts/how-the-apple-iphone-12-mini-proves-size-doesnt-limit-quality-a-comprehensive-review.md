@@ -1,7 +1,7 @@
 ---
 title: How the Apple iPhone 12 Mini Proves Size Doesn’t Limit Quality - A Comprehensive Review
-date: 2024-08-03T22:58:30.365Z
-updated: 2024-08-04T22:58:30.365Z
+date: 2024-09-12T16:29:01.299Z
+updated: 2024-09-15T13:13:32.297Z
 categories:
   - BestProducts
 description: This Article Describes How the Apple iPhone 12 Mini Proves Size Doesn’t Limit Quality - A Comprehensive Review
@@ -39,14 +39,6 @@ thumbnail: https://www.lifewire.com/thmb/RRm7SO68Yut-wFBusZ-z3LplvZA=/400x300/fi
 
 4.6
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Apple Watch SE
 
 ![Apple Watch SE](https://www.lifewire.com/thmb/E9yOT_STUNewA87haXT-cxbcl7c=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_horiz_Apple-Watch-SE-Smart-Watch-1-914d59fde25d464cb763fc2581d22cff.jpg)
@@ -75,9 +67,6 @@ thumbnail: https://www.lifewire.com/thmb/RRm7SO68Yut-wFBusZ-z3LplvZA=/400x300/fi
 
  Alongside the new Apple Watch Series 6 comes the also-new Apple Watch SE, a more affordable model that acts as a hybrid of features from previous editions. It has the processor of the Series 5, but not the always-on display or wellness-related sensors of the Series 6—but it costs $120 less than the current top model. All told, the Apple Watch SE is still a capable smartwatch for those who can live with the omissions, but if you’re considering an Apple Watch, which version is really worth your cash?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![Apple Watch SE](https://www.lifewire.com/thmb/dYbtlOWZtDlcrgt0HTrqvqhQsLA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Apple-Watch-SE-Smart-Watch-5-541e573360624431bbe5d793abb99ed4.jpeg)
 
  Lifewire / Andrew Hayward
@@ -92,9 +81,6 @@ thumbnail: https://www.lifewire.com/thmb/RRm7SO68Yut-wFBusZ-z3LplvZA=/400x300/fi
 
  Apple offers significantly fewer style options for the Apple Watch SE: just the core Silver, Space Gray, and Gold color options in aluminum. The Series 6 has bold new blue and (Product)RED aluminum colors, along with pricier stainless steel and titanium options, but those are exclusive to the top-line watch.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![Apple Watch SE](https://www.lifewire.com/thmb/M6Q1l7xasH7yVvQNIU0Y6IUJ0JU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Apple-Watch-SE-Smart-Watch-6-6cef8c57deb241fa9e95a9917b9f9554.jpg)
 
  Lifewire / Andrew Hayward
@@ -103,37 +89,43 @@ thumbnail: https://www.lifewire.com/thmb/RRm7SO68Yut-wFBusZ-z3LplvZA=/400x300/fi
 
  Functionally, the Apple Watch SE has the same physical controls as the Series 6, with the rotating Digital Crown on the right side above a single button. The Crown is great for scrolling through menus and text, as well as flitting through long lists of options—such as when customizing a watch face with “complications,” or widgets—while the button provides easy access to your current open apps.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Apple Watch SE](https://www.lifewire.com/thmb/-f9ARHQK-0Eo04PKTZYl13MWOB4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Apple-Watch-SE-Smart-Watch-4-34d5d5f6e67640b1afb12295aed9ca94.jpg)
 
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process: Use your iPhone**
 
  You’ll need your[iPhone](https://www.lifewire.com/best-iphones-4045605) to set up the Apple Watch, but it’s a pretty effortless process. Simply hold the button on the right side of the Watch to power it on and then hold it near your iPhone running[iOS 14](https://www.lifewire.com/get-ios-14-on-your-iphone-5079543) . Your iPhone should recognize the nearby Watch, and then you will use the phone’s camera to scan a unique pixel flurry design on the Watch screen to pair the devices. From there, you’ll choose whether to restore from a previous Watch backup or start fresh, as well as log in with your Apple ID and create a Watch passcode. You’ll pick from a few simple setup options along the way, too, but otherwise, it should only take a few minutes.
 
  The Apple Watch has gradually become a more robust and useful wearable device in time, and the SE model still provides the vast majority of that experience at the lower entry price.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Up to the task**
 
  In everyday usage, I found the Apple Watch SE to be smoothly responsive thanks to its dual-core Apple S5 chip, i.e. the same one found in 2019’s Apple Watch Series 5\. Apple says that the new S6 chip in the Series 6 is up to 20 percent faster, and put side-by-side, I noticed that apps did indeed load a beat or two faster on the Series 6\. Luckily, the Apple Watch SE doesn’t feel slow on its own, even if it does lag behind the latest and greatest model.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ![Apple Watch SE](https://www.lifewire.com/thmb/KbuNAMoRzNkoSKkZflPmj0kZYdo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Apple-Watch-SE-Smart-Watch-3-1e5d33f70fe847a2a1b03a1b86dd0a5d.jpg)
 
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery: Depends on how you use it**
 
@@ -145,9 +137,6 @@ Lifewire / Andrew Hayward
 
  That’s similar to the performance I recorded with the Apple Watch Series 4 without the sleep tracking, but the Series 6 doesn’t last quite as long. That’s the trade-off of the always-on screen. And if you’re doing any heavy-duty fitness tracking with the GPS, then you’ll probably need to stick to a daily charging routine to ensure that the SE is always ready to go.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software and Key Features: Almost the full package**
 
  The Apple Watch SE does_nearly_ everything that the Series 6 can, but there are a couple of notable feature omissions. Both are related to specialized wellness-related sensors that respectively perform electrocardiogram (ECG) and blood oxygen tests. Both help make the Series 6 an appealing consumer wellness wearable for some users, but their omission is surely a big reason why the Apple Watch SE costs 30 percent less than the Series 6.
@@ -159,6 +148,13 @@ Lifewire / Andrew Hayward
  And although the Apple Watch SE sheds those aforementioned wellness-related sensors, it still reads your heart rate automatically through a sensor pressed against your wrist and claims to alert you if you have an especially high, low, or irregular heart rate.
 
 ![Apple Watch SE](https://www.lifewire.com/thmb/Dk61hNt2QFLLGltR7jKGSOLc4Mw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Apple-Watch-SE-Smart-Watch-7-cd1b0d6bf2d9498ab20849b41d6bfd80.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -178,9 +174,6 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ## Apple Watch SE vs. Apple Watch Series 6
 
  Trying to decide whether to go with the Apple Watch SE over the Apple Watch Series 6? If so, then you’ll need to make a few compromises. You’ll lose the electrocardiogram (ECG) and blood oxygen sensors noted above, along with the always-on display, and there are fewer style options available for the Apple Watch SE. That’s basically it, however—so if the wellness-related tests aren’t a big selling point for you, then you can potentially save some cash by sacrificing the always-on display. Considering the price difference, that may be an easy decision for some iPhone users.
@@ -195,14 +188,17 @@ Lifewire / Andrew Hayward
 
  While it’s true that the Apple Watch Series 6 is the fastest and most capable version with a wider array of style options, the Apple Watch SE is a smart alternative for those who can’t stomach spending $399+ on a wearable gadget. It still does nearly all the same stuff for $120 less, with the always-on display and a pair of wellness-related sensors being the most notable omissions. Some may want to pay extra for those Series 6 benefits, but for everyone else, the Apple Watch SE is a much more sensible option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Fitbit Versa 3](https://www.lifewire.com/ftbit-versa-3-review-5085846)
 * [Fitbit Versa 2](https://www.lifewire.com/fitbit-versa-2-review-4797556)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -227,11 +223,29 @@ Lifewire / Andrew Hayward
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ynamic-youtube-follower-analyzers/"><u>[New] Dynamic YouTube Follower Analyzers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-logo-magic-sprucing-up-your-podcasts-visual-appeal/"><u>2024 Approved Logo Magic Sprucing Up Your Podcast's Visual Appeal</u></a></li>
+<li><a href="https://fox-links.techidaily.com/detailed-slomo-app-review-future-predictions/"><u>Detailed SloMo App Review - Future Predictions</u></a></li>
+<li><a href="https://win-able.techidaily.com/essential-tips-for-resolving-halo-infinites-audio-malfunctions/"><u>Essential Tips for Resolving Halo Infinite's Audio Malfunctions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-using-the-versatile-maxoak-50000mah-battery-pack-in-depth-analysis/"><u>Expert Insights on Using the Versatile MaxOak 50,000mAh Battery Pack - In-Depth Analysis</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-honor-x7b-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Honor X7b Phones with/without a PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-lenovos-tab-p11-pro-stellar-performance-with-certain-shortcomings/"><u>In-Depth Look at Lenovo's Tab P11 Pro: Stellar Performance with Certain Shortcomings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-samsung-un65nu8000fxza-an-overpriced-average-performance-smart-television/"><u>Review of Samsung UN65NU8000FXZA: An Overpriced Average-Performance Smart Television</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stay-driven-the-power-of-built-in-gps-and-apps-for-holistic-health-on-fitbit-versa-3/"><u>Stay Driven: The Power of Built-In GPS and Apps for Holistic Health on Fitbit Versa 3</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-solution-salvaging-your-wet-ios-gadget-using-diy-fixes/"><u>Step-by-Step Solution: Salvaging Your Wet iOS Gadget Using DIY Fixes</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/superior-animation-suites-top-3d-modelers-for-2024/"><u>Superior Animation Suites Top 3D Modelers for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/est-software-to-start-your-youtube-videos-off-strongly-for-2024/"><u>The Best Software to Start Your YouTube Videos Off Strongly for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-oculus-quest-2-stellar-vr-gaming-for-a-fantastic-deal/"><u>The Ultimate Guide to the Oculus Quest 2 - Stellar VR Gaming for a Fantastic Deal!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-asus-routers-on-the-market/"><u>Top-Rated ASUS Routers on the Market</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-the-core-of-gpt4alls-operation/"><u>Unveiling the Core of GPT4All's Operation</u></a></li>
+</ul></div>
+

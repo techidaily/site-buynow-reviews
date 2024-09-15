@@ -1,7 +1,7 @@
 ---
 title: "Evaluating the TP-Link AV130er Wi-Fi Range Booster: Underwhelming Capabilities Unveiled"
-date: 2024-08-03T22:58:30.724Z
-updated: 2024-08-04T22:58:30.724Z
+date: 2024-09-08T11:31:15.740Z
+updated: 2024-09-15T04:11:03.371Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating the TP-Link AV130er Wi-Fi Range Booster: Underwhelming Capabilities Unveiled"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/5b80927e68923eec1d1361008f6bde3827f135dcc
 
 1.4
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Docooler USB 2.0 12 Megapixel
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/9tSqTK9OEckACvQEhU5iBbHvMfM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_HERO_1LW4065141_7_Final_Square-bd507bc5d1d646f9a0d8d7466601f569.jpg)
@@ -43,9 +40,6 @@ Lifewire / James Huenink
 
 ## Docooler USB 2.0 12 Megapixel
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/23qFdg2CyjsEX1uFEK5ESBb8kO0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_HERO_1LW4065141_7_Final_Square-bd507bc5d1d646f9a0d8d7466601f569.jpg)
 
 Lifewire / James Huenink
@@ -79,12 +73,22 @@ Lifewire / James Huenink
 
  The base looks like a binder clip with a hinge on the back end. The front of the camera houses the focus ring, which twists to focus in or out but doesn’t turn very smoothly. When we used it for the first time, it didn’t feel like it was supposed to rotate at all. Just like everything else, the focus ring feels like it will crack or fall out at any moment. One side of the clip has a squishy pad to keep the camera from slipping when it’s mounted on a smooth surface. The two are connected by a ball joint, which allows the camera to spin around 360 degrees and tilt approximately 15 degrees forward or backward or side to side.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/a_8Gd66JN0RtfWzKKcRq95S8EmY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_6_Final_Horiz-1dd3a45479614483b0f4f5883f27094a.jpg)
 
  Lifewire / James Huenink
+
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup process: Awkward to position**
 
@@ -92,9 +96,6 @@ Lifewire / James Huenink
 
  It was easy to set up when we clipped it to a laptop, but terrible when we tried to put it on our HD TV. Every time we moved the computer or the USB cable, the camera slid, twisted, or fell off the TV. The ball joint, which connects the camera to the base, didn’t move smoothly, so we struggled to point the Docooler USB 2.0 12 Megapixel in the right direction, and we were too worried about breaking the plastic to try and force it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Camera Quality: Not even close to advertised**
 
  The Docooler USB 2.0 12 Megapixel is advertised as a 12 megapixel camera capable of HD video, but it wasn’t even close to that. We tested the resolution by taking photos through photobooth, and they were only 640 x 480, or .31 megapixels. We tested the video resolution by using an online webcam testing tool, and it showed exactly the same results. The manufacturer claims the camera has 38 times more resolution than it actually does. We should have known that the manufacturer’s claims were too good to be true given the $8 asking price, but claiming a disparity that huge is really brazen.
@@ -103,9 +104,6 @@ Lifewire / James Huenink
 
  We tested the camera’s field of view by placing it 13.5 inches from a wall and measuring the field of view, 8.25 inches. After running those measurements through some trigonometric calculations, we found that it has a 34 degree field of view. The camera also has a surprising amount of distortion. Vertical lines in the background had a significant tilt backwards, and we saw tremendous barrel distortion everywhere except for the very center of the image.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/BxI5asxQavdUO5cT3iIpSIqM9Mk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_10_Final_Horiz-8acc6be9290c439496f17a63684115ae.jpg)
 
  Lifewire / James Huenink
@@ -122,18 +120,17 @@ Lifewire / James Huenink
 
  The audio performance of the Docooler USB 2.0 12 Megapixel was also lackluster. The built-in microphone produced poor quality sound, and when we tested it on Skype, voices were both muffled and echoey. People on the other end could understand what we were saying, but it was an unpleasant experience.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Cheap price, even cheaper webcam**
 
  The Docooler USB 2.0 12 Megapixel is the most inexpensive webcam you can buy, ranging from $8 up to around $15, but there’s a reason it’s priced so low. The image and audio quality are both terrible, and the camera is difficult to use.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Competition: Falls short**
 
 **_Logitech C270_ :** The Logitech C270 is a low-cost webcam that goes for $40 MSRP, though you can frequently find it for approximately $20\. For $10 more than the Docooler, you get a big upgrade. It has 720p video calling and takes photos at 3MP. The microphone filters out background noise, so it shouldn’t have the same echo effects as the Docooler Web Cam. Even though it’s twice the price, you get a lot more camera for your ten bucks.
@@ -147,6 +144,13 @@ The powerful video editing program for your Windows PC</a>
 **Impossible to recommend.**
 
  The Docooler USB 2.0 12 Megapixel is one of the most inexpensive cameras on the market for a reason. This camera doesn’t come close to delivering what it promises, meaning it's not worth even the trifle you'd pay for it.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -165,14 +169,11 @@ The powerful video editing program for your Windows PC</a>
 * Frame rate  30fps
 * What’s Included  Docooler USB 2.0 12 Megapixel, Quick Start Guide
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,3 +181,24 @@ The powerful video editing program for your Windows PC</a>
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/updated-top-creators-revolutionizing-virtual-environments/"><u>[Updated] Top Creators Revolutionizing Virtual Environments</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-critical-choices-for-perfect-snaps/"><u>2024 Approved Critical Choices for Perfect Snaps</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Xiaomi Redmi 13C | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-ultimate-6-stores-for-purchasing-your-next-laptop/"><u>Discover the Ultimate 6 Stores for Purchasing Your Next Laptop</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/et-guide-culinary-video-production/"><u>Gourmet Guide Culinary Video Production</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/harmonizing-fading-techniques-in-live-for-2024/"><u>Harmonizing Fading Techniques in Live for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-remove-your-apple-id-permanently-on-apple-iphone-x-by-drfone-ios/"><u>How To Delete iCloud Account Remove Your Apple ID Permanently On Apple iPhone X</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-vivo-v30-pro-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Vivo V30 Pro Phone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-xiaomi-13t-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Xiaomi 13T to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revealing-the-strength-of-ankers-super-bright-defense-lamp-for-wilderness-adventures/"><u>Revealing the Strength of Anker's Super Bright Defense Lamp for Wilderness Adventures</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-mirari-kids-alarm-clock-your-childs-perfect-awakening-companion/"><u>Review of Mirari Kids' Alarm Clock - Your Child's Perfect Awakening Companion</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-acer-bargains-on-black-friday-and-cyber-monday-2024/"><u>Top Acer Bargains on Black Friday & Cyber Monday 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-points-to-evaluate-before-purchasing-a-router/"><u>Top Points to Evaluate Before Purchasing a Router</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tune-into-excellence-a-comprehensive-review-of-g533/"><u>Tune Into Excellence: A Comprehensive Review of G533</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/twitter-account-launch-a-beginners-roadmap/"><u>Twitter Account Launch A Beginner's Roadmap</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-urban-armor-gears-macbook-pro-shielding-case-the-perfect-blend-of-toughness-and-utility/"><u>Ultimate Guide to Urban Armor Gear's MacBook Pro Shielding Case – The Perfect Blend of Toughness and Utility</u></a></li>
+</ul></div>
+

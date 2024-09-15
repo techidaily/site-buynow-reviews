@@ -1,7 +1,7 @@
 ---
 title: "Evaluating Microsoft Surface Duo: A Pricey Tech with Persistent Bugs and Clumsiness"
-date: 2024-09-09T08:01:59.326Z
-updated: 2024-09-10T08:01:59.326Z
+date: 2024-09-13T14:25:45.016Z
+updated: 2024-09-14T16:34:50.870Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating Microsoft Surface Duo: A Pricey Tech with Persistent Bugs and Clumsiness"
@@ -39,12 +39,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
 [Jump to Review](https://www.lifewire.com/#toc-easiest-on-the-budget-garmin-vivoactive-5)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Just Buy This (All Around Best)
 
 [Apple Watch Series 9 GPS + Cellular 45mm](https://www.amazon.com/Apple-Cellular-Smartwatch-Midnight-Aluminum/dp/B0CHXFH656?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CHXFH656)
@@ -104,12 +98,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
 **TL;DR:** Sleek and stylish, the Samsung Galaxy Watch 6 has some great features provided you’re an Android phone owner. Its body composition tool is a particular highlight.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Why We Recommend This
 
  The Samsung Galaxy Watch 6 looks and feels lovely to use. Its circular watch face feels more natural than the angular edges of the Apple Watch. The AMOLED screen lights up nicely but in a warm and inviting way rather than harsh.
@@ -140,12 +128,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **Who else recommends it?** TechRadar, BuzzFeed, PCMag, T3, Tom’s Guide, and Digital Trends all recommend the Samsung Galaxy Watch 6\.
 * **What do buyers think?** The Samsung Galaxy Watch 6 has over 3,900 ratings on Amazon, with 88% of those rating the watch either five or four stars. The overall average rating is 4.5 out of 5.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Easiest on the Budget
 
 [Garmin Vivoactive 5](https://www.amazon.com/Garmin-v%C3%ADvoactive-Fitness-Smartwatch-Display/dp/B0CG6NR413?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CG6NR413)
@@ -158,12 +140,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
 **TL;DR:** More affordable than most Garmin watches, the Garmin Vivoactive 5 offers all the key features while not looking too sporty.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Why We Recommend This
 
  A Garmin Watch is the dream for active types, but they often cost a lot and rarely look great when fine dining. The Garmin Vivoactive 5 is an affordable option that won’t look too out of place while out to impress.
@@ -197,11 +173,12 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **What do buyers think?** The Garmin Vivoactive 5 has over 1,800 ratings on Amazon, with 76% of them rating it five or four stars. Its average rating is 4.4 out of 5.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How We Test
 
  I reviewed each smartwatch based on the following factors:
@@ -216,12 +193,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
  I used all the devices for several weeks, with some smartwatches used for months. I wore them daily while working, exercising, relaxing, and asleep.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What to Look For
 
  Buying a smartwatch involves finding the right balance between looks and practicality. Consider where you plan on wearing it, such as in the office or when walking, and plan accordingly.
@@ -233,6 +204,13 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 [The Best Running Watches of 2024](https://www.lifewire.com/best-running-watches-8681631)
 
 [The Best Fitness Trackers of 2024](https://www.lifewire.com/best-fitness-trackers-8656291)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Other Smartwatches We Reviewed
 
@@ -260,8 +238,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -271,50 +247,14 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-discovering-the-leading-skype-recorders-of-the-year/"><u>[Updated] 2024 Approved Discovering the Leading Skype Recorders of the Year</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-free-high-quality-the-best-srt-translation-tools-ranked/"><u>[Updated] 2024 Approved Free, High-Quality The Best SRT Translation Tools Ranked</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-8-best-wedding-videos-on-youtube-and-vimeo/"><u>[Updated] In 2024, 8 Best Wedding Videos on YouTube and Vimeo</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-top-10-hidden-functions-to-enhance-your-canva-artistry/"><u>[Updated] In 2024, Top 10 Hidden Functions to Enhance Your Canva Artistry</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-increase-photographic-imagery-keeping-details-intact-for-2024/"><u>[Updated] Increase Photographic Imagery, Keeping Details Intact for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-mastering-video-direction-on-instagram-in-reverse-for-2024/"><u>[Updated] Mastering Video Direction on Instagram in Reverse for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-navigating-tags-on-youtube-tips-and-tricks/"><u>[Updated] Navigating Tags on YouTube - Tips and Tricks</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-keep-it-secret-live-stream-on-instagram-anonymously/"><u>2024 Approved Keep It Secret Live Stream on Instagram Anonymously</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-motorola-edge-40-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Motorola Edge 40 | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/a-step-by-step-guide-turning-viral-soundtracks-into-personal-ringtones-for-2024/"><u>A Step-by-Step Guide Turning Viral Soundtracks Into Personal Ringtones for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/balancing-features-and-price-why-the-google-pixel-4a-is-a-smart-choice-for-most-buyers/"><u>Balancing Features & Price: Why the Google Pixel 4a Is a Smart Choice for Most Buyers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-ambient-weather-ws-2902a-osprey-exceptional-functionality-at-an-affordable-price/"><u>Comprehensive Review of Ambient Weather WS-2902A Osprey: Exceptional Functionality at an Affordable Price</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/dx12-disruption-halts-halo-infinite-game-startup/"><u>DX12 Disruption Halts Halo Infinite Game Startup</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-long-lasting-power-with-the-sleek-and-sturdy-moto-g-series/"><u>Experience Long-Lasting Power with the Sleek and Sturdy Moto G Series</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-huawei-p20-pro-exceptional-photography-meets-quality-smartphone/"><u>Expert Analysis of Huawei P20 Pro: Exceptional Photography Meets Quality Smartphone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-kindle-oasis-2019-the-closest-feel-of-real-pages/"><u>Exploring the Kindle Oasis (2019): The Closest Feel of Real Pages</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/extollo-lansocket-extreme-performance-a-deep-dive-into-high-speed-and-low-latency-with-built-in-power-handling/"><u>Extollo LANSocket eXtreme Performance: A Deep Dive Into High Speed & Low Latency with Built-In Power Handling</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/forgot-your-xiaomi-redmi-note-12r-lock-screen-pattern-pin-or-password-heres-what-to-do-by-drfone-android-unlock-android-unlock/"><u>Forgot your Xiaomi Redmi Note 12R lock screen pattern, PIN or password? Here’s what to do</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/get-more-for-less-in-depth-look-at-inexpensive-roku-options-with-vast-libraries/"><u>Get More for Less: In-Depth Look at Inexpensive Roku Options with Vast Libraries</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/glion-dolly-e-scooter-analysis-premium-features-at-a-high-cost/"><u>Glion Dolly E-Scooter Analysis: Premium Features at a High Cost</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/go-beyond-limitations-from-32-bit-to-64-bit-windows-11/"><u>Go Beyond Limitations: From 32-Bit to 64-Bit Windows 11</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-itel-p55plus-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Itel P55+ Phone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-and-features-review-why-samsung-galaxy-tab-s7-stands-out-among-mid-range-tablets/"><u>In-Depth Analysis and Features Review: Why Samsung Galaxy Tab S7 Stands Out Among Mid-Range Tablets</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-the-xiaomi-mi-smart-band-4-the-ultimate-choice-for-affordable-health-tracking/"><u>In-Depth Evaluation of the Xiaomi Mi Smart Band 4 - The Ultimate Choice for Affordable Health Tracking</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-tp-link-ac1200-range-amplifier-model-re305-easy-to-use/"><u>In-Depth Look at the TP-Link AC1200 Range Amplifier, Model RE305 - Easy to Use</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/iphone-is-disabled-here-is-the-way-to-unlock-disabled-iphone-12-drfone-by-drfone-ios/"><u>iPhone Is Disabled? Here Is The Way To Unlock Disabled iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-it-time-to-upgrade-your-fitness-tracker-the-verdict-on-the-fitbit-charge-3/"><u>Is It Time to Upgrade Your Fitness Tracker? The Verdict on the Fitbit Charge 3</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lenovo-ideapad-130s-laptop-analysis-compact-performance-with-impressive-user-experience/"><u>Lenovo IdeaPad 130S Laptop Analysis: Compact Performance with Impressive User Experience</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/meditative-tunes-compilation-top-10-legal-streams/"><u>Meditative Tunes Compilation - Top 10 Legal Streams</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mini-studiokit-cost-effective-lighting-solution/"><u>Mini StudioKit: Cost-Effective Lighting Solution</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mlb-the-show-19-unveiled-beyond-the-baseball-field-an-immersive-rpg-experience/"><u>MLB The Show 19 Unveiled: Beyond the Baseball Field, an Immersive RPG Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-options-what-sets-ipad-pro-apart-from-macbook-pro/"><u>Navigating the Options: What Sets iPad Pro Apart From MacBook Pro</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/nvidia-geforce-rtx-2070-super-graphics-card-driver-updates-and-download-instructions-for-windows/"><u>Nvidia GeForce RTX 2070 Super Graphics Card Driver Updates and Download Instructions for Windows</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/professional-audio-connectivity-by-sennheiser/"><u>Professional Audio Connectivity by Sennheiser</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sound-waves-meet-smooth-streaming-rokus-new-era/"><u>Sound Waves Meet Smooth Streaming: Roku's New Era</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-complete-pathway-adopting-ios-15/"><u>The Complete Pathway: Adopting iOS 15</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-essential-guide-to-the-2019-amazon-kindle-quality-and-price-review/"><u>The Essential Guide to the 2019 Amazon Kindle – Quality and Price Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-intersection-of-style-and-exercise-in-the-amazfit-gts-wearable-reviewed/"><u>The Intersection of Style and Exercise in the Amazfit GTS Wearable Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-5-features-of-the-kobo-forma-the-ultimate-e-reader-for-bibliophiles/"><u>Top 5 Features of the Kobo Forma – The Ultimate E-Reader for Bibliophiles</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tp-link-archer-ax6000-vs-nighthawk-ax12-in-depth-comparison-and-review/"><u>TP-Link Archer AX6000 Vs. Nighthawk AX12: In-Depth Comparison and Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-apples-102-ipad-7th-gen-how-ipados-boosts-work-efficiency/"><u>Ultimate Guide to Apple's 10.2 iPad (7Th Gen): How iPadOS Boosts Work Efficiency</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-choosing-the-perfect-ups-our-expert-picks/"><u>Ultimate Guide to Choosing the Perfect UPS : Our Expert Picks!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/understanding-macos-montereys-user-interface-changes/"><u>Understanding macOS Monterey's User Interface Changes</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/unlocking-potential-with-top-pixlr-editing-techniques/"><u>Unlocking Potential with Top Pixlr Editing Techniques</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-moto-g-play-powerful-battery-and-competent-device-efficiency/"><u>Unveiling the Moto G Play: Powerful Battery and Competent Device Efficiency</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-superiority-of-apple-watch-series-4-a-game-changer-in-smartwatches/"><u>Unveiling the Superiority of Apple Watch Series 4: A Game Changer in Smartwatches</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-art-of-producing-captivating-facebook-video-content/"><u>[New] 2024 Approved The Art of Producing Captivating Facebook Video Content</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-top-5-premium-hd-webcams-featuring-sound/"><u>2024 Approved Top 5 Premium HD Webcams Featuring Sound</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-icloud-lock-on-your-iphone-14-pro-and-ipad-by-drfone-ios/"><u>In 2024, How to fix iCloud lock on your iPhone 14 Pro and iPad</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-look-testing-and-exploring-features-on-the-latest-apple-iphone-15-pro/"><u>Inside Look: Testing and Exploring Features on the Latest Apple iPhone 15 Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-mesh-wi-fi-with-asus-zenwifi-xt8-ax6600-detailed-review-and-specs-examination/"><u>Mastering Mesh Wi-Fi with ASUS ZenWiFi XT8 AX6600: Detailed Review and Specs Examination</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nook-glowlight-3-by-barnes-and-noble-ultimate-review-for-evening-readers/"><u>Nook GlowLight 3 by Barnes & Noble: Ultimate Review for Evening Readers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/premium-sound-transmitters-top-5-wireless-gadgets/"><u>Premium Sound Transmitters: Top 5 Wireless Gadgets</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/transform-your-avchd-videos-into-mp3wavac3-audios-comprehensive-extraction-tutorial/"><u>Transform Your AVCHD Videos Into MP3/WAV/AC3 Audios - Comprehensive Extraction Tutorial</u></a></li>
 </ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: Ultimate Guide to the Best Top Race R/C Rock Crawlers - Mastering Any Terrain
-date: 2024-08-03T22:58:32.428Z
-updated: 2024-08-04T22:58:32.428Z
+date: 2024-09-09T12:19:06.400Z
+updated: 2024-09-15T10:58:02.388Z
 categories:
   - BestProducts
 description: This Article Describes Ultimate Guide to the Best Top Race R/C Rock Crawlers - Mastering Any Terrain
@@ -13,9 +13,6 @@ thumbnail: https://www.lifewire.com/thmb/U61w9oeSndlbmvRUvyHRvRm0k6E=/400x300/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1byone Amplified Digital HDTV Antenna
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/pWXHOnFpWCs9EltKF9bRUP_y5aU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
@@ -42,9 +39,6 @@ Lifewire / Jonno Hill
 
 ## 1byone Amplified Digital HDTV Antenna
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/y6y0rP_H9I7oHwldUMIq-18GrFw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
 
 Lifewire / Jonno Hill
@@ -74,9 +68,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Vanilla**
 
  The 1byone Digital Amplified Indoor Antenna uses a flat rectangular design similar to other powered indoor antennas on the market. The 13.25 x 9.25 inch antenna surface is roughly in line with most of the other products I looked at in this category, the only real difference being that the 1byone has a much more rigid surface.
@@ -90,35 +81,32 @@ Lifewire / Jonno Hill
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: Good enough for most**
 
  The 1byone Digital Amplified Indoor HD TV Antenna didn’t have the best performance of the antennas we’ve tested, falling somewhere in the middle of the pack. In my channel acquisition test, I averaged 59 channels across all the tests performed. This compares to the worst performing antenna at just 47, and the best at 76.
 
  This should be more than suitable for most people living within a city in relatively close proximity to the source of the TV signal. As for those living further, your mileage may vary.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 ## **Range: Middle of the road**
 
  1byone makes no specific promises about the range of their antenna, although they do cite users having positive experiences from as far as 48 miles away in their customer testimonials. Given how many factors impact the effective range, I think it is somewhat wise not to make any promises. Nonetheless, this is clearly a device that will be best suited for people living in or near major metropolitan areas.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/6y-ITpY8n7xf8BteMqdJjYm-paU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_05-178a02351af040cc89c86169b88a6de2.jpg)
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: A great deal**
 
@@ -136,6 +124,13 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  The 1byone Digital Amplified Indoor Antenna offers the best value out of all the indoor antennas that we tested. If you can get the performance you need from the 1byone, it’s the antenna to buy. I wouldn’t consider other options unless you’ve already ruled out this one.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Amplified Digital HDTV Antenna
@@ -149,14 +144,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * Indoor/Outdoor  Indoor
 * Warranty  One year limited
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -164,3 +156,15 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/new-supercharge-your-screens-with-video-enhancer-v22/"><u>[New] Supercharge Your Screens with Video Enhancer (V2.2)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/audience-favorites-unveiled-2024s-best-tv-streaming-applications-for-an-immersive-viewing-journey/"><u>Audience Favorites Unveiled: 2024'S Best TV Streaming Applications for an Immersive Viewing Journey</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1722185314959-chatgpt-on-your-desktop-is-coming-soon-heres-the-best-free-alternative-now/"><u>ChatGPT on Your Desktop Is Coming Soon? Here's the Best Free Alternative Now</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhancing-comfort-at-work-in-depth-review-of-the-ergodyne-topo-anti-fatigue-mat/"><u>Enhancing Comfort at Work: In-Depth Review of the Ergodyne Topo Anti-Fatigue Mat</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Infinix Hot 30i? | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/slow-mobile-data-woes-speed-up-your-connection-using-these-10-strategies/"><u>Slow Mobile Data Woes? Speed Up Your Connection Using These 10 Strategies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sustainability/"><u>Sustainability</u></a></li>
+</ul></div>
+

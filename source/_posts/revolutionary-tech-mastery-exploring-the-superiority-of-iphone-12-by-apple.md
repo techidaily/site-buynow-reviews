@@ -1,7 +1,7 @@
 ---
 title: "Revolutionary Tech Mastery: Exploring the Superiority of iPhone 12 by Apple"
-date: 2024-09-09T08:02:38.331Z
-updated: 2024-09-10T08:02:38.331Z
+date: 2024-09-13T07:24:28.011Z
+updated: 2024-09-15T04:35:51.011Z
 categories:
   - BestProducts
 description: "This Article Describes Revolutionary Tech Mastery: Exploring the Superiority of iPhone 12 by Apple"
@@ -13,22 +13,10 @@ thumbnail: https://thmb.techidaily.com/918241799e85f81dec9b4161207ab0693452bcd53
 
 1.4
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Docooler USB 2.0 12 Megapixel
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/9tSqTK9OEckACvQEhU5iBbHvMfM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_HERO_1LW4065141_7_Final_Square-bd507bc5d1d646f9a0d8d7466601f569.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / James Huenink
 
  What We Like
@@ -77,20 +65,8 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/YIcu00ga1PIrZWJzNk-mS5C4z-A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_5_Final_Horiz-23ef27f359f24e919ebb2f47f9089957.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Flimsy and difficult to use**
 
  The first thing we noticed about the Docooler USB 2.0 12 Megapixel is how cheap it feels. The camera itself has a plastic, silver housing with a shiny silver focus ring on the end. It feels like it could break at any moment. The base is made of a transparent plastic, which is also available in blue and black. The plastic is so rigid that we expect it to break under regular use. Every time we adjusted the camera, the plastic creaked like a rusty door in a haunted house. Even in our short testing period, the joints started getting loose. We had to check several times just to make sure it wasn’t broken.
@@ -101,12 +77,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup process: Awkward to position**
 
  It takes almost no time to get the Docooler USB 2.0 12 Megapixel up and running. We just plugged the USB cord into the computer and it worked.
@@ -124,19 +94,14 @@ Lifewire / James Huenink
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/BxI5asxQavdUO5cT3iIpSIqM9Mk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_10_Final_Horiz-8acc6be9290c439496f17a63684115ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Underwhelming performance in video and audio**
 
  We used[Photobooth](https://www.lifewire.com/how-to-turn-on-camera-on-mac-4175436) and[Skype](https://www.lifewire.com/how-to-make-hd-skype-calls-3426508) to test out the video and audio performance using the webcam for recording and[conference calls](https://www.lifewire.com/top-free-web-conferencing-tools-2377241) . It was difficult to position the Docooler USB 2.0 12 Megapixel correctly, because by the time we clipped it on and sat down, the camera had slipped out of position. This happened several times before we finally resigned ourselves to using a tilted camera in our calls.
@@ -153,6 +118,13 @@ Lifewire / James Huenink
 
  The Docooler USB 2.0 12 Megapixel is the most inexpensive webcam you can buy, ranging from $8 up to around $15, but there’s a reason it’s priced so low. The image and audio quality are both terrible, and the camera is difficult to use.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Competition: Falls short**
 
 **_Logitech C270_ :** The Logitech C270 is a low-cost webcam that goes for $40 MSRP, though you can frequently find it for approximately $20\. For $10 more than the Docooler, you get a big upgrade. It has 720p video calling and takes photos at 3MP. The microphone filters out background noise, so it shouldn’t have the same echo effects as the Docooler Web Cam. Even though it’s twice the price, you get a lot more camera for your ten bucks.
@@ -166,6 +138,19 @@ Lifewire / James Huenink
 **Impossible to recommend.**
 
  The Docooler USB 2.0 12 Megapixel is one of the most inexpensive cameras on the market for a reason. This camera doesn’t come close to delivering what it promises, meaning it's not worth even the trifle you'd pay for it.
+
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -184,14 +169,11 @@ Lifewire / James Huenink
 * Frame rate  30fps
 * What’s Included  Docooler USB 2.0 12 Megapixel, Quick Start Guide
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -202,48 +184,18 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-reviews.techidaily.com/budget-radar-watcher-escortpassport-highlights-exceptional-options-like-passport-brands-s55/"><u>'Budget Radar Watcher': Escortpassport Highlights Exceptional Options Like Passport Brand's S55</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-snapsplit-scrutiny-for-2024/"><u>[New] SnapSplit Scrutiny for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-parallel-monitoring-system-for-2024/"><u>[Updated] Parallel Monitoring System for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-picpinch-a-study-of-micro-recording-tools-for-2024/"><u>[Updated] PicPinch A Study of Micro-Recording Tools for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-essential-guide-to-posting-vimeo-on-instagram/"><u>[Updated] The Essential Guide to Posting Vimeo on Instagram</u></a></li>
-<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-realme-narzo-n53-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Realme Narzo N53 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/asus-x441ba-evaluation-navigating-the-advantages-and-compromises-of-big-screen-laptops/"><u>Asus X441BA Evaluation: Navigating the Advantages and Compromises of Big Screen Laptops</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/comment-securiser-vos-donnees-astuces-avancees-de-sauvegarde-transfert-et-recuperation/"><u>Comment Sécuriser Vos Données : Astuces Avancées De Sauvegarde, Transfert Et Récupération</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-ring-doorbell-pros-advanced-smart-technology/"><u>Comprehensive Guide to the Ring Doorbell Pro's Advanced Smart Technology</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-budget-friendly-1byone-amplified-indoor-hd-antenna/"><u>Comprehensive Review of the Budget-Friendly 1ByOne Amplified Indoor HD Antenna</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enhance-maclinux-images-with-powerful-features-of-the-complimentary-program-darktable/"><u>Enhance Mac/Linux Images with Powerful Features of the Complimentary Program, Darktable</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/enhance-your-file-search-experience-mastering-data-retrieval-with-copernic-pro-text-search/"><u>Enhance Your File Search Experience: Mastering Data Retrieval with Copernic Pro Text Search</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-tips-for-overcoming-top-11-facebook-glitches/"><u>Essential Tips for Overcoming Top 11 Facebook Glitches</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-d-link-powerline-2000-network-solution-user-friendly-setup-and-accelerated-internet-performance/"><u>Evaluating the D-Link Powerline 2000 Network Solution: User-Friendly Setup & Accelerated Internet Performance.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-excellence-with-apple-m1-2020-redefining-arm-powered-computing-today/"><u>Experience Excellence with Apple (M1, 2020) - Redefining ARM-Powered Computing Today!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-the-ups-and-downs-of-imo-messaging-app/"><u>Expert Review: The Ups and Downs of Imo Messaging App</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-sb210-soundbot-superior-sound-delivery-reviewed-for-chilly-weather-use/"><u>Exploring the SB210 Soundbot: Superior Sound Delivery Reviewed for Chilly Weather Use</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-s21s-streamlined-design/"><u>In-Depth Analysis of the Samsung Galaxy S21's Streamlined Design</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-exploring-the-features-and-capabilities-of-the-latest-galaxy-s24-ultra-from-samsung/"><u>In-Depth Analysis: Exploring the Features and Capabilities of the Latest Galaxy S24 Ultra From Samsung</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-microsoft-surface-pro-7-enhanced-efficiency-and-familiar-features/"><u>In-Depth Look at the Microsoft Surface Pro 7: Enhanced Efficiency and Familiar Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-nest-audio-analysis-the-ultimate-choice-for-enthusiasts-of-tunes/"><u>In-Depth Nest Audio Analysis: The Ultimate Choice for Enthusiasts of Tunes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/kid-friendly-wake-up-call-unveiling-the-features-of-miraris-kids-alarm-clock/"><u>Kid-Friendly Wake-Up Call: Unveiling the Features of Mirari's Kids Alarm Clock</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/perfect-start-leading-free-video-openers-listed-for-2024/"><u>Perfect Start Leading Free Video Openers Listed for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/portable-sound-powerhouse-wm-x900/"><u>Portable Sound Powerhouse, WM-X900</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-home-entertainment-the-ultimate-review-of-apple-tv-4k-siri-integration-and-hd-streaming-quality/"><u>Revolutionizing Home Entertainment : The Ultimate Review of Apple TV 4K Siri Integration and HD Streaming Quality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sony-ps5-overview-beyond-enhanced-performance/"><u>Sony PS5 Overview: Beyond Enhanced Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sony-xbr49x900f-in-depth-analysis-of-the-49-4k-uhd-smart-led-television/"><u>Sony XBR49X900F - In-Depth Analysis of the 49 4K UHD Smart LED Television</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/step-up-your-pc-game-upgrading-from-windows-11-home/"><u>Step-Up Your PC Game: Upgrading From Windows 11 Home</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/swagtrons-agile-marvel-the-swagboard-t1-a-worthwhile-investment-or-not/"><u>Swagtron's Agile Marvel, The Swagboard T1 - A Worthwhile Investment or Not?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tcl-50s425-50-roku-led-4k-smart-television-2amo-comprehensive-value-assessment-and-evaluation/"><u>TCL 50S425 50 Roku LED 4K Smart Television (2Amo) - Comprehensive Value Assessment and Evaluation.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-best-smart-glasses-of-2024/"><u>The Best Smart Glasses of 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-barnes-and-noble-nook-glowlight-plus-an-innovative-e-reader-with-unparalleled-display-size/"><u>The Ultimate Guide to Barnes & Noble Nook GlowLight Plus - An Innovative E-Reader with Unparalleled Display Size.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-ankers-resilient-night-vision-flashlight-for-trekkers/"><u>The Ultimate Review of Anker’s Resilient Night Vision Flashlight for Trekkers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-cable-modems-your-ultimate-guide/"><u>Top-Rated Cable Modems : Your Ultimate Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-mousepads-expanded-collection-ultimate-choices/"><u>Top-Rated Mousepads Expanded Collection - Ultimate Choices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/transform-your-desk-area-into-a-productive-haven-cumuluspro-mat-insights-revealed/"><u>Transform Your Desk Area Into a Productive Haven - CumulusPRO Mat Insights Revealed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-testing-the-redesigned-echo-dot-amazons-4th-gen-reviewed-for-tech-savvy-shoppers/"><u>Unboxing and Testing the Redesigned Echo Dot - Amazon's 4Th Gen Reviewed for Tech-Savvy Shoppers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/under-100-mastery-with-the-tp-link-archer-a9-router-reviewed/"><u>Under $100 Mastery with the TP-Link Archer A9 Router Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleash-top-gaming-prowess-the-hp-omen-obelisk-review-a-game-changer-at-a-great-value/"><u>Unleash Top Gaming Prowess: The HP OMEN Obelisk Review – A Game Changer at a Great Value</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unsticking-your-minecraft-game-solutions-for-incessant-loading-issues/"><u>Unsticking Your Minecraft Game: Solutions for Incessant Loading Issues</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-google-pixel/"><u>Unveiling the Google Pixel</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unveiling-the-secrets-to-perfect-green-screen-in-kinemaster-for-2024/"><u>Unveiling the Secrets to Perfect Green Screen in Kinemaster for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/what-phone-is-compatible-with-gear-vr-2023-update/"><u>What Phone Is Compatible with Gear VR? -2023 Update</u></a></li>
-<li><a href="https://techidaily.com/will-mov-files-play-on-samsung-galaxy-s24-ultra-by-aiseesoft-video-converter-play-mov-on-android/"><u>Will MOV files play on Samsung Galaxy S24 Ultra ?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-a-step-by-step-guide-to-autoplaying-youtube-in-facebook-groups-and-pages/"><u>[New] A Step-by-Step Guide to Autoplaying Youtube in Facebook Groups and Pages</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-earning-potential-in-beauty-blogging/"><u>[Updated] Earning Potential in Beauty Blogging</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-elite-virtual-storage-service-ranking-for-2024/"><u>[Updated] Elite Virtual Storage Service Ranking for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-of-sealinks-55-4k-outdoor-television-the-ultimate-compact-choice/"><u>Expert Review of Sealink's 55 4K Outdoor Television - The Ultimate Compact Choice</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-enjoy-dragon-ball-z-episodes-in-correct-viewing-order/"><u>How To Enjoy Dragon Ball Z Episodes In Correct Viewing Order</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-from-scripts-to-subscribers-mastering-the-production-of-engaging-educational-videos-for-youtube/"><u>In 2024, From Scripts to Subscribers Mastering the Production of Engaging Educational Videos for YouTube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-fun-side-of-overwatch-an-in-depth-review-on-dynamic-online-firefights/"><u>The Fun Side of Overwatch: An In-Depth Review on Dynamic Online Firefights</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-novices-guide-to-photo-perfection-in-snapseed-for-2024/"><u>The Novice's Guide to Photo Perfection in Snapseed for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/uncomplicated-ways-to-save-vimeo-content/"><u>Uncomplicated Ways to Save Vimeo Content</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-the-body-stream-error-of-chatgpt-a-step-by-step-guide-on-how-to-resolve-it/"><u>Understanding the Body Stream Error of ChatGPT: A Step-by-Step Guide on How to Resolve It</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-the-full-potential-of-your-imac-expert-advice-on-intel-processor-upgrades/"><u>Unlock the Full Potential of Your iMac: Expert Advice on Intel Processor Upgrades</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-apple-m4-processor-launch-details-and-technical-specifications/"><u>Unveiling the Apple M4 Processor: Launch Details & Technical Specifications</u></a></li>
 </ul></div>
+

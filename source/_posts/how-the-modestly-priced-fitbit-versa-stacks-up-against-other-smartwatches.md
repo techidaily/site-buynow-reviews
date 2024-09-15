@@ -1,7 +1,7 @@
 ---
 title: How the Modestly Priced Fitbit Versa Stacks Up Against Other Smartwatches
-date: 2024-08-03T22:58:30.819Z
-updated: 2024-08-04T22:58:30.819Z
+date: 2024-09-11T08:46:21.848Z
+updated: 2024-09-15T07:52:29.544Z
 categories:
   - BestProducts
 description: This Article Describes How the Modestly Priced Fitbit Versa Stacks Up Against Other Smartwatches
@@ -15,9 +15,6 @@ thumbnail: https://www.lifewire.com/thmb/5kvEiL71-ITPHxJfT_o-20Cs33g=/400x300/fi
 
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/GshnCnk_G-hNSwDTRjGVB28Nl-o=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
 
  Lifewire / Andrew Hayward
@@ -43,9 +40,6 @@ thumbnail: https://www.lifewire.com/thmb/5kvEiL71-ITPHxJfT_o-20Cs33g=/400x300/fi
 
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/AfRhNgqeOD7JfcVqpjzm5LwPSB4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
 
  Lifewire / Andrew Hayward
@@ -72,9 +66,6 @@ thumbnail: https://www.lifewire.com/thmb/5kvEiL71-ITPHxJfT_o-20Cs33g=/400x300/fi
 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -83,9 +74,6 @@ thumbnail: https://www.lifewire.com/thmb/5kvEiL71-ITPHxJfT_o-20Cs33g=/400x300/fi
 
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## **Setup Process: Avoid the app**
 
  The setup options for the Netgear Nighthawk AX8 are the same as with Netgear’s other extenders—even those without Wi-Fi 6 support. You’ll begin with the extender plugged in near your router. If your router supports[WPS](https://www.lifewire.com/what-is-wps-4842308) , then you can pair the extender with it easily by following the process listed in the included booklet, which is as simple as pressing a button on the router and then doing the same on the extender.
@@ -101,8 +89,12 @@ thumbnail: https://www.lifewire.com/thmb/5kvEiL71-ITPHxJfT_o-20Cs33g=/400x300/fi
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Connectivity: Smooth sailing**
 
  Once through the hassle of setup, the Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender really did deliver strong performance. I tested the connection in my office, which reliably sees reduced 5GHz reception from my router due to obstructions in between, and saw a noticeable boost in both reception and speed.
@@ -119,6 +111,13 @@ thumbnail: https://www.lifewire.com/thmb/5kvEiL71-ITPHxJfT_o-20Cs33g=/400x300/fi
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -127,9 +126,6 @@ thumbnail: https://www.lifewire.com/thmb/5kvEiL71-ITPHxJfT_o-20Cs33g=/400x300/fi
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: More than most**
 
  The Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender is listed at $250, although it’s being sold for $220 at multiple retailers as of this writing. That’s definitely on the higher end for an extender.
@@ -145,6 +141,13 @@ thumbnail: https://www.lifewire.com/thmb/5kvEiL71-ITPHxJfT_o-20Cs33g=/400x300/fi
  **Only for early adopters with Wi-Fi 6 routers and devices.**
 
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -163,11 +166,27 @@ thumbnail: https://www.lifewire.com/thmb/5kvEiL71-ITPHxJfT_o-20Cs33g=/400x300/fi
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-deconstructed-digital-captions-technique/"><u>[New] 2024 Approved Deconstructed Digital Captions Technique</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-beginners-guide-to-canon-time-lapse-shooting/"><u>[New] The Beginner's Guide to Canon Time-Lapse Shooting</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-expert-recommendations-for-limitless-data-holding/"><u>[Updated] Expert Recommendations for Limitless Data Holding</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-ridiculous-rhythms-satirical-song-stories/"><u>2024 Approved Ridiculous Rhythms Satirical Song Stories</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ankers-cost-effective-solutions-for-ev-owners-faster-in-car-charging-options-available-now/"><u>Anker's Cost-Effective Solutions for EV Owners: Faster In-Car Charging Options Available Now</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-apples-2e2o-iphone-se-a-reasonable-alternative-to-premium-models/"><u>Comprehensive Review of Apple's 2E2o iPhone SE: A Reasonable Alternative to Premium Models</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/connectivity-redefined-a-detailed-review-of-the-innovative-mobvoi-ticwatch-pro-4g-smartwatch/"><u>Connectivity Redefined: A Detailed Review of the Innovative Mobvoi Ticwatch Pro 4G Smartwatch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-apple-iphone-se-2020-a-balance-between-affordability-and-performance/"><u>Evaluating the Apple iPhone SE (2020): A Balance Between Affordability and Performance</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-ahead-with-technology-shop-the-best-snapdragon-elite-x-notebooks-enhanced-by-microsoft-copilot-availability/"><u>Get Ahead with Technology: Shop the Best Snapdragon Elite X Notebooks Enhanced by Microsoft Copilot Availability</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On OnePlus Nord 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-asus-stylish-bw-16d1x-u-blu-ray-drive-some-quirky-observations-inside/"><u>In-Depth Look at Asus' Stylish BW-16D1X-U Blu-Ray Drive - Some Quirky Observations Inside</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/map-my-ride-review/"><u>Map My Ride Review</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/master-the-art-of-snaps-15-pro-tips-for-2024/"><u>Master the Art of Snaps 15 Pro Tips for 2024</u></a></li>
+</ul></div>
+

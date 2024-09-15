@@ -1,7 +1,7 @@
 ---
 title: Elite Selection of Extended Mouse Pads - Find Your Perfect Match
-date: 2024-09-09T08:00:08.973Z
-updated: 2024-09-10T08:00:08.973Z
+date: 2024-09-09T06:56:39.751Z
+updated: 2024-09-14T19:25:24.445Z
 categories:
   - BestProducts
 description: This Article Describes Elite Selection of Extended Mouse Pads - Find Your Perfect Match
@@ -17,12 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/G5MaXgwkg69cdL36KtWXyVsTg4U=/400x300/fi
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/JA3JlwOuidCKxo4M92FWCfYUoI4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Kelsey Simon
 
  What We Like
@@ -68,32 +62,27 @@ Lifewire / Kelsey Simon
 
  The Elder Scrolls V: Skyrim is an action role-playing game focused on single-player immersion in a fantasy world. It was originally released in 2011 and has most recently been ported over to the Switch. We took a close look at this game on its newest platform, playing it on the go to test the handheld gameplay experience, along with the plot and graphics.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Simple for all users**
 
  As with other games on the Nintendo Switch, you’ll need to insert the cartridge into your device. Skyrim does take a while to launch, so be patient as it loads up. There shouldn’t be any special downloads required, like with other games, and as soon as things load you’ll be able to play.
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/uXDVHaBrdIlv5tI-qRgiPK0Iig4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460721-e6a53664e7eb4e65a75bf5cceb928e28.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Plot: A huge world with loads to explore**
 
  First, let’s just take a moment to mention that this review covers The Elder Scrolls V: Skyrim―a game that was originally released in November of 2011 for PC, Xbox 360, and PlayStation 3\. That’s right, the game is now over seven years old. In 2016, Skyrim released for PlayStation 4 and Xbox One. They even released a VR version of the game last year, shortly after releasing the Switch version.
@@ -135,21 +124,16 @@ Lifewire / Kelsey Simon
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Graphics: A bit outdated**
 
  The graphics in Skyrim aren’t awful, but they haven't progressed much since 2011\. If you’ve played any other version of Skyrim, you can overlook it, simply because you know what you’re getting into. Bethesda attempted to make Skyrim look realistic, likely in their desire to give you a fully immersive experience. But these days, Skyrim’s graphics just aren’t as realistic as what other, more recent games have accomplished. In places, the mountains look blocky and the grass a little patchy. Character’s faces sometimes seem deeply sunken around the eyes, with the skin looking more like leather than flesh. It’s not that the graphics are overly bad, they’re just not as good as what you can get with better hardware on the PC.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Platform: Take Skyrim on the go**
 
  Considering The Elder Scrolls V: Skyrim is available on so many other devices, it raises the question of whether or not it’s worth getting for the Switch. First, let’s talk about the negatives. We mentioned our issues with the controls earlier. If you're used to playing the game with a mouse and keyboard, the controls on the Switch just aren't as easy to use.
@@ -162,27 +146,35 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/Iik6f_7RIRMWo5R6zGYxgGeL4n0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546076-8fb741faa7144fa6bafe386d2b7d8296.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: A tad expensive**
 
  The Elder Scrolls V: Skyrim costs roughly $60 dollars for the Switch (MSRP). You might be able to find it on sale on Amazon for less, but it’s still on the more expensive side like other popular Switch games. This is disappointing since you can find Skyrim on other platforms for a fraction of the cost, even snatching it up for sale on Steam for $25 or less on PC. Considering the cost difference, the PC version of the game is the better deal, especially since the gameplay is better looking. But if you’re looking to take Skyrim on the go, or a Switch is your preferred gaming system, the price isn’t unreasonable.
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Other action RPGs**
 
@@ -194,12 +186,6 @@ Lifewire / Kelsey Simon
 
  Even though The Elder Scrolls V: Skyrim is a great game and the Switch is an amazing platform, our advice is only to buy Skyrim for the Switch if you’re looking to play on the go. Otherwise, we’d suggest purchasing Skyrim for the PC, where you’ll really be able to enjoy superior graphics and customization options.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [The Legend of Zelda: Breath of the Wild](https://www.lifewire.com/the-legend-of-zelda-breath-of-the-wild-review-4685759)
@@ -213,14 +199,11 @@ Lifewire / Kelsey Simon
 * Price  $59.99
 * Available Platforms  Microsoft Windows, Nintendo Switch, PlayStation 3, PlayStation 4, Xbox 360, Xbox One
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -231,38 +214,16 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-primary-movie-document-review-and-backup-titles/"><u>[New] 2024 Approved Primary Movie Document Review and Backup Titles</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-confirming-youtube-pro-rated-earnings-for-2024/"><u>[New] Confirming YouTube Pro-Rated Earnings for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-converting-imovie-edits-for-online-exhibition-youtube-edition/"><u>[New] In 2024, Converting iMovie Edits for Online Exhibition - YouTube Edition</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-steps-to-activate-auto-hdr-feature-in-windows-11/"><u>[New] Steps to Activate Auto-HDR Feature in Windows 11</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-benq-bl2711u-elevating-professional-monitors-to-new-heights-in-4k-realms/"><u>[Updated] BenQ BL2711U Elevating Professional Monitors to New Heights in 4K Realms</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-composition-techniques-for-eye-catching-fb-ad-content-for-2024/"><u>[Updated] Composition Techniques for Eye-Catching FB Ad Content for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-discovering-the-best-youtube-mp3-transformers-for-2024/"><u>[Updated] Discovering the Best YouTube MP3 Transformers for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-7-amazing-builds-in-creative-mode/"><u>[Updated] In 2024, 7 Amazing Builds in Creative Mode</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-styling-your-content-a-compreran-guide-to-insta-photo-watermarks/"><u>[Updated] In 2024, Styling Your Content A Compreran Guide to Insta Photo Watermarks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/balancing-features-and-price-why-the-google-pixel-4a-is-a-smart-choice-for-most-buyers/"><u>Balancing Features & Price: Why the Google Pixel 4a Is a Smart Choice for Most Buyers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-ambient-weather-ws-2902a-osprey-exceptional-functionality-at-an-affordable-price/"><u>Comprehensive Review of Ambient Weather WS-2902A Osprey: Exceptional Functionality at an Affordable Price</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-moto-g-stylus-excellent-performance-and-acceptable-battery-duration-including-a-built-in-stylus/"><u>Comprehensive Review of the Moto G Stylus - Excellent Performance & Acceptable Battery Duration Including a Built-In Stylus</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-long-lasting-power-with-the-sleek-and-sturdy-moto-g-series/"><u>Experience Long-Lasting Power with the Sleek and Sturdy Moto G Series</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/get-more-for-less-in-depth-look-at-inexpensive-roku-options-with-vast-libraries/"><u>Get More for Less: In-Depth Look at Inexpensive Roku Options with Vast Libraries</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/glion-dolly-e-scooter-analysis-premium-features-at-a-high-cost/"><u>Glion Dolly E-Scooter Analysis: Premium Features at a High Cost</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/go-beyond-limitations-from-32-bit-to-64-bit-windows-11/"><u>Go Beyond Limitations: From 32-Bit to 64-Bit Windows 11</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-curate-engaging-content-with-top-igtv-editor-tools/"><u>In 2024, Curate Engaging Content with Top IGTV Editor Tools</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-logic-pros-strategy-for-muffled-sound-tracks/"><u>In 2024, Logic Pro's Strategy for Muffled Sound Tracks</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-8-filtration-options-for-professional-streams/"><u>In 2024, Ultimate 8 Filtration Options for Professional Streams</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-the-xiaomi-mi-smart-band-4-the-ultimate-choice-for-affordable-health-tracking/"><u>In-Depth Evaluation of the Xiaomi Mi Smart Band 4 - The Ultimate Choice for Affordable Health Tracking</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-tp-link-ac1200-range-amplifier-model-re305-easy-to-use/"><u>In-Depth Look at the TP-Link AC1200 Range Amplifier, Model RE305 - Easy to Use</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-it-time-to-upgrade-your-fitness-tracker-the-verdict-on-the-fitbit-charge-3/"><u>Is It Time to Upgrade Your Fitness Tracker? The Verdict on the Fitbit Charge 3</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mini-studiokit-cost-effective-lighting-solution/"><u>Mini StudioKit: Cost-Effective Lighting Solution</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mlb-the-show-19-unveiled-beyond-the-baseball-field-an-immersive-rpg-experience/"><u>MLB The Show 19 Unveiled: Beyond the Baseball Field, an Immersive RPG Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-options-what-sets-ipad-pro-apart-from-macbook-pro/"><u>Navigating the Options: What Sets iPad Pro Apart From MacBook Pro</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/speedy-driver-updates-for-windows-10-made-easy-a-comprehensive-guide/"><u>Speedy Driver Updates for Windows 10 Made Easy – A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-complete-pathway-adopting-ios-15/"><u>The Complete Pathway: Adopting iOS 15</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-intersection-of-style-and-exercise-in-the-amazfit-gts-wearable-reviewed/"><u>The Intersection of Style and Exercise in the Amazfit GTS Wearable Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-5-features-of-the-kobo-forma-the-ultimate-e-reader-for-bibliophiles/"><u>Top 5 Features of the Kobo Forma – The Ultimate E-Reader for Bibliophiles</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tp-link-archer-ax6000-vs-nighthawk-ax12-in-depth-comparison-and-review/"><u>TP-Link Archer AX6000 Vs. Nighthawk AX12: In-Depth Comparison and Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/twelve-south-bookbook-v2-macbook-case-a-review-of-style-meets-functionality/"><u>Twelve South BookBook V2 MacBook Case – A Review of Style Meets Functionality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-apples-102-ipad-7th-gen-how-ipados-boosts-work-efficiency/"><u>Ultimate Guide to Apple's 10.2 iPad (7Th Gen): How iPadOS Boosts Work Efficiency</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/ultimate-tutorial-for-srt-tagging-in-mp4-videos-2024/"><u>Ultimate Tutorial for SRT Tagging in MP4 Videos 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-superiority-of-apple-watch-series-4-a-game-changer-in-smartwatches/"><u>Unveiling the Superiority of Apple Watch Series 4: A Game Changer in Smartwatches</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-from-raw-to-rad-turning-up-the-heat-with-snapchat-filters/"><u>2024 Approved From Raw to Rad Turning Up the Heat with Snapchat Filters</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-quick-guide-to-precision-photo-backdrop-clean-up/"><u>2024 Approved Quick Guide to Precision Photo Backdrop Clean-Up</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-ultimate-conversion-handbook-srt-to-various-formats/"><u>2024 Approved Ultimate Conversion Handbook SRT to Various Formats</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-top-handheld-audio-devices-of-2024/"><u>Exploring the Top Handheld Audio Devices of 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-closed-to-open-mastering-srt-files-in-macos-for-2024/"><u>From Closed to Open Mastering SRT Files in macOS for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/head-to-head-battle-the-differences-between-nintendo-switch-lite-and-oled-variants/"><u>Head-to-Head Battle: The Differences Between Nintendo Switch Lite and OLED Variants</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-the-netgear-nighthawk-x6-wi-fi-mesh-extender-shapes-your-home-internet-an-authoritative-review/"><u>How the Netgear Nighthawk X6 Wi-Fi Mesh Extender Shapes Your Home Internet: An Authoritative Review</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mac-users-handbook-effortlessly-deleting-programs-and-apps/"><u>Mac Users' Handbook: Effortlessly Deleting Programs and Apps</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sonos-wireless-travel-guide-top-quality-soundscape/"><u>Sonos Wireless Travel Guide: Top Quality Soundscape</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-blueear-trendy-wireless-earphone-cap-style-comfort-and-trustworthy-sound-quality-explored/"><u>Unboxing the BlueEar Trendy Wireless Earphone Cap: Style, Comfort, and Trustworthy Sound Quality Explored</u></a></li>
 </ul></div>
+

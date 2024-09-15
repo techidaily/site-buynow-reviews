@@ -1,7 +1,7 @@
 ---
 title: "'Yakuza: Like a Dragon' Game Review: A Non-Negotiable RPG Adventure"
-date: 2024-08-03T22:58:30.137Z
-updated: 2024-08-04T22:58:30.137Z
+date: 2024-09-08T09:08:21.183Z
+updated: 2024-09-14T17:24:52.965Z
 categories:
   - BestProducts
 description: "This Article Describes 'Yakuza: Like a Dragon' Game Review: A Non-Negotiable RPG Adventure"
@@ -15,9 +15,6 @@ thumbnail: https://thmb.techidaily.com/855361452192f3b7b7e7e407da45b95275a5f560d
 
 ## SEGA Yakuza: Like a Dragon
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/a-p7jLzGh5XDa5UjESh5w8kXrPk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_HeroSquare-ea84381e359846e6951c77b6f7e7c5a0.jpg)
 
 Lifewire / Erika Rawes
@@ -44,9 +41,6 @@ Lifewire / Erika Rawes
 
 ## SEGA Yakuza: Like a Dragon
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/2HQ40tAW6PvhutMT0JyWvwFpbdI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_HeroSquare-ea84381e359846e6951c77b6f7e7c5a0.jpg)
 
 Lifewire / Erika Rawes
@@ -73,9 +67,6 @@ Lifewire / Erika Rawes
 
  Yakuza: Like a Dragon places you in the shoes of Ichiban Kasuga, a young Yakuza upstart who was raised as an orphan in a Soap House by the owner and the women who worked there. Kasuga gets into a bit of trouble with a Yakuza family but is saved by Masumi Arakawa, the patriarch of the Arakawa family. Because of this, Kasuga pledges his life to Arakawa, promising to repay the debt.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/Mo4mMH944CddmYJTyCxtMRxK9-k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_05-e59c99ba9bd249e7a2241f532dd742dc.jpg)
 
 Lifewire / Erika Rawes
@@ -96,6 +87,19 @@ Lifewire / Erika Rawes
 
  Overall, the story is interesting and engaging, with excellent voice acting and deep and interesting characters. There are plenty of opportunities to get to know the people who travel with you, and you come to care about the characters and their motivations. Yakuza: Like a Dragon is story-rich, and you won’t be disappointed at the amount of content to explore.
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Gameplay: Fun, yet slow-paced at times
 
  Gameplay in Yakuza: Like a Dragon feels incredibly polished. World exploration feels intuitive—you can run from point to point, stopping for distractions along the way, and sometimes engage in a conversation with your party during travel. Yokohama feels alive and real. There are billboards, stores, and people everywhere. You have to be careful when crossing the street, as you can suddenly get hit by a car, which seems to happen more than it should.
@@ -106,9 +110,6 @@ Lifewire / Erika Rawes
 
  Combat is handled with a turn-based system. During the fight, you have a menu of different selections, from regular attacks and items to defending and special attacks. This is where Yakuza: Like a Dragon really shines. The game provides you with a ton of options in the fight, and many of the moves are both over the top and quite funny. For instance, you can have a homeless teammate attack with a flock of pigeons, or maybe have your bartender attack with moves from her boxing fitness class.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/ZvcwNcecc79umImvw53CUJlLvIc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_02-6396bcd8866c4a479331a02e160eb890.jpg)
 
 Lifewire / Erika Rawes
@@ -133,20 +134,27 @@ Lifewire / Erika Rawes
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/zrV5S3jL3_76G0PVgT1K_Ty6WWI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_04-e33b82262b344fecae27d668b3c92ba9-55ba8acb6d324eed81fbf5453e770db8.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ## Price: The typical $60
 
  The base version of Yakuza: Like a Dragon comes in at $60 like most new titles. The price is reasonable for the amount of gameplay. However, you have two other purchase options as well. The Hero Edition, which costs $70, includes the Job Set and the Management Mode set and features two extra jobs and three sets of Management mode employees.
 
  The Legendary Hero edition costs $90, and it includes both previously listed sets, as well as the Crafting Mat, Stat Boost, Karaoke, and Ultimate Costume sets. These are all nice bonuses and can certainly add to the experience, but you will also find more than enough gameplay in the base game.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Yakuza: Like a Dragon vs. Dragon Quest Series
 
  It’s clear Yakuza: Like a Dragon draws some inspiration from the recent Dragon Quest, Dragon Quest XI. Both games feature turn-based combat, jobs working as roles, and a large sweeping and epic tale. Yakuza: Like a Dragon diverges in one major way, and that is not being afraid to innovate and push the limits of what a JRPG can be. Where Dragon Quest is the basic formula, Yakuza: Like a Dragon is what happens when a mad scientist gets a hold of that formula and creates something both crazy and brilliant.
@@ -164,8 +172,12 @@ Lifewire / Erika Rawes
 * [Torment: Tides of Numenera](https://www.lifewire.com/torment-tides-of-numenera-review-5077302)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Yakuza: Like a Dragon
@@ -185,11 +197,28 @@ Lifewire / Erika Rawes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/omic-capers-top-10-hilarious-youtube-short-film-ideas/"><u>[New] Comic Capers Top 10 Hilarious YouTube Short Film Ideas</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-essential-10-hd-android-video-player-apps-list-for-2024/"><u>[Updated] Essential 10 HD Android Video Player Apps List for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-scorching-speedways-ranking-the-top-5-virtual-race-titles-for-2024/"><u>[Updated] Scorching Speedways Ranking the Top 5 Virtual Race Titles for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-vimeo-cash-flow-maximizing-income-through-content-marketing-for-2024/"><u>[Updated] Vimeo Cash Flow Maximizing Income Through Content Marketing for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-from-iphone-6s-plus-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out From iPhone 6s Plus How to Bypass?</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-walls-facebooks-policies-now-visible-via-new-hq/"><u>Behind the Walls: Facebook's Policies Now Visible via New HQ</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-omnicharge-omni-20-all-in-one-portable-charger-with-wi-fi-capability/"><u>Comprehensive Review of the Omnicharge Omni 20: All-in-One Portable Charger with Wi-Fi Capability</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-ring-video-doorbell-pro-the-ultimate-intelligent-gadget/"><u>Expert Analysis of the Ring Video Doorbell Pro: The Ultimate Intelligent Gadget</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-vivo-y17s-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Vivo Y17s to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-apples-pinnacle-creation-the-iphone-xs-max-balancing-quality-with-luxury-pricing/"><u>In-Depth Review: Apple's Pinnacle Creation, The iPhone XS Max, Balancing Quality with Luxury Pricing</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/reviving-archived-communication-exporting-to-live-exchange-server/"><u>Reviving Archived Communication: Exporting to LIVE Exchange Server</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sonic-bliss-unlocked-by-sony-pulse-technology/"><u>Sonic Bliss Unlocked by Sony Pulse Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-test-of-the-netgear-nighthawk-rax80-unveiling-the-power-of-wi-fi-6/"><u>Ultimate Test of the Netgear Nighthawk RAX80: Unveiling the Power of Wi-Fi 6</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-the-asus-chromebook-flip-c3ca-stands-out-affordability-convertibility-and-top-notch-quality-reviewed/"><u>Why the Asus Chromebook Flip C3#CA Stands Out: Affordability, Convertibility and Top-Notch Quality Reviewed</u></a></li>
+</ul></div>
+

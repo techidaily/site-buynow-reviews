@@ -1,7 +1,7 @@
 ---
 title: "Unboxing & Testing: A Detailed Look at the Barnes & Noble Nook GlowLight 4"
-date: 2024-08-03T22:58:31.003Z
-updated: 2024-08-04T22:58:31.003Z
+date: 2024-09-08T22:09:38.324Z
+updated: 2024-09-15T02:05:42.493Z
 categories:
   - BestProducts
 description: "This Article Describes Unboxing & Testing: A Detailed Look at the Barnes & Noble Nook GlowLight 4"
@@ -15,10 +15,6 @@ thumbnail: https://thmb.techidaily.com/31a47d0813e0a73316845fc7d36338a492235a7e4
 
 ## Meta Quest 2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Oculus Quest 2](https://www.lifewire.com/thmb/G1C0A6m5hPeWOPp97vWLX5BvA4o=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_horiz_Oculus-Quest-2-VR-Headset-1-bf9c326da16b47f6b2bdcc6ba1e7068e.jpg)
 
 Andrew Hayward / Lifewire
@@ -45,9 +41,6 @@ Andrew Hayward / Lifewire
 
 ## Meta Quest 2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Oculus Quest 2](https://www.lifewire.com/thmb/KO4q8p9NOXatDIXmzsBBpQgN5eA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_horiz_Oculus-Quest-2-VR-Headset-1-bf9c326da16b47f6b2bdcc6ba1e7068e.jpg)
 
 Andrew Hayward / Lifewire
@@ -75,9 +68,6 @@ Andrew Hayward / Lifewire
 
  It was one of last year’s greatest new gadgets, and now Oculus has returned with a sequel. The Oculus Quest 2 is smaller and lighter, yet more powerful and with a much better screen—yet it costs $100 less than the original. How did that happen? Well, it’s not all great news, thanks to a couple of cost-cutting measures that you’ll feel and potentially see, but the end result is ultimately a better and more affordable device that serves as an ideal gateway into VR.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Design and Comfort: Compromises were made
 
  The Oculus Quest 2 sticks to the familiar modern VR playbook as a module that you strap onto your face to immerse yourself within its digital worlds but features some different material and construction choices than the original. Unfortunately, the design choices largely are not upgrades compared to the original headset
@@ -92,9 +82,6 @@ Andrew Hayward / Lifewire
 
  Oculus now sells a $49 Elite Strap attachment that’s more akin to the original Quest strap, and while the Quest 2 straps are usable, I’ll probably make the upgrade and buy the better strap.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Oculus Rift 2](https://www.lifewire.com/thmb/JkgQv_Sk0ofSL0Sp-jKmqe84xak=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-2-a7792535288542dba45c8bc32f882be2.jpg)
 
  Andrew Hayward / Lifewire
@@ -105,14 +92,6 @@ Andrew Hayward / Lifewire
 
  The Quest 2’s wireless, motion-sensing Oculus Touch controllers are identical in function to the original, but are a little heavier and have a larger surface with space to rest your thumb when not in use. That’s handy. Each has an analog stick and two face buttons, along with a trigger button and a grip button. Oculus also swapped out the magnetically-attached battery doors from the first Quest controllers—which would sometimes slide open when I used the original—for ones that simply click into place. That’s a win for function over form.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Oculus Quest 2 ](https://www.lifewire.com/thmb/1aG6kdNHMuvnim8p8_i1RwH9QG8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-3-eec6cabc11db4ed9be5254aa2bc46ec1.jpg)
 
  Andrew Hayward / Lifewire
@@ -123,12 +102,23 @@ Andrew Hayward / Lifewire
 
  That might sound like a lot of griping, but it’s only because some of the key physical design changes on the Quest 2 feel like compromises or downgrades. But for most people, they won’t be significant impediments. And if you’re coming to the new headset without ever using the original Quest, then you should be fine—the new straps are usable, but they aren’t as effective or effortlessly adjustable as before. Luckily, the Quest 2 makes significant strides elsewhere.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Oculus Quest 2](https://www.lifewire.com/thmb/gwWuuSfTzWNDoS45b-iG9qG32-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-4-27f169e7e71b4372a38e13332b7b1364.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Andrew Hayward / Lifewire
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Setup Process: You’ll need a phone… and Facebook
 
@@ -166,11 +156,14 @@ Andrew Hayward / Lifewire
 
  That said, if you’re keen on longer-lasting experiences, Oculus sells a $129 version of the Elite Strap with a built-in battery pack that doubles the play time, or you can get a portable battery pack, plug it in, and stick it in your pocket during use. Lastly, you could just use a lengthy USB-C cable and plug yourself into a wall. If you’re doing room-scale VR games and apps with free movement, however, you’ll need something longer—like 10 feet or more. Otherwise, some seated apps and games will work just fine when you’re tethered to a nearby wall outlet.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ![Oculus Quest 2](https://www.lifewire.com/thmb/Ns2S3DQVema5UEDDSO8n3N7SC_4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-7-0a0e40b6a3064fe7abc985f0900dbeff.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Andrew Hayward / Lifewire
 
@@ -184,14 +177,18 @@ Andrew Hayward / Lifewire
 
  Using a[Razer Blade 15 (2019)](https://www.lifewire.com/razer-blade-15-review-4845229) gaming laptop, I was able to play the visually demanding and deeply immersive Half-Life: Alyx on the Oculus Quest 2—a game that it could never run using its own internal hardware. It ran a little less smoothly than it did using the PC-native Valve Index headset, but not significantly so. This is a great way to experience higher-end VR games, including the new[Star Wars: Squadrons](https://www.lifewire.com/star-wars-squadrons-review-5086656) , for example. And with Oculus announcing plans to phase out PC-only headsets, it will also be a key part of the Quest platform’s future.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![Oculus Quest 2](https://www.lifewire.com/thmb/72vxixVr7kdKoLfUC3QkIrBl26I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-6-12fcb6054cf2475191bc613a3f26bcfc.jpg)
 
  Andrew Hayward / Lifewire
 
  The $299 edition of the headset comes with 64GB of internal storage and the $399 version nets you 256GB, with some of each tally taken up by system software and resources. Luckily, the games and apps themselves aren’t huge, typically weighing in between 1-4GB apiece, sometimes less, and they’re pretty quick to download again if you want to revisit something. The 64GB edition should provide enough space for most players, as you could probably comfortably have a dozen or more games installed, along with streaming media apps, but anyone who wants to have a robust VR library on hand at all times without waiting might consider spending the extra cash.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Games: A good, growing selection
 
@@ -205,6 +202,13 @@ Andrew Hayward / Lifewire
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/FqVvo044zoPghSD_PR1g2e0L2rs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-5-216bbf638cbe407b8b6f332abc94ae47.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Andrew Hayward / Lifewire
 
 ## Price: It’s an amazing value
@@ -215,9 +219,6 @@ Andrew Hayward / Lifewire
 
  Andrew Hayward / Lifewire
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Oculus Quest 2 vs. PlayStation VR
 
  Amazingly, there is no direct analog to the Oculus Quest 2 on the market: Oculus seems to be the only company that can release such a powerful device at this kind of price and with this kind of software support. That said, if I had to compare it to another VR headset, I’d put it up against Sony’s PlayStation VR, which requires a PlayStation 4 or[PlayStation 5](https://www.lifewire.com/sony-playstation-5-review-5088394) console.
@@ -232,18 +233,12 @@ Andrew Hayward / Lifewire
 
  The significant performance upgrade and surprising price drop outweigh some of the annoying design shifts with the Oculus Quest 2, making it the must-have VR headset for just about everyone. Not only does it play a great library of on-headset games, but it can also connect to a powerful PC to play even more games on top of that. Add to that the ease of use, quality gameplay, and immersive visuals, and the Oculus Quest 2 is another brilliant VR game console.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Oculus Rift S](https://www.lifewire.com/oculus-rift-s-review-4764112)
 * [Oculus Go Standalone VR Headset](https://www.lifewire.com/oculus-go-vr-headset-review-4690298)
 * [Valve Index](https://www.lifewire.com/valve-index-review-4775604)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Quest 2
@@ -266,11 +261,23 @@ Andrew Hayward / Lifewire
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-info.techidaily.com/torment-tides-of-numenera-review-a-mesmerizing-journey-through-worldbuilding-in-science-fiction-rpgs/"><u>'Torment: Tides of Numenera' Review: A Mesmerizing Journey Through Worldbuilding in Science Fiction RPGs</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-benq-bl2711u-masterpiece-in-the-realm-of-high-definition-monitors/"><u>2024 Approved BenQ BL2711U - Masterpiece in the Realm of High-Definition Monitors</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-recording-your-iphoneipad-whats-new/"><u>2024 Approved Recording Your iPhone/iPad What's New</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ar-5-by-arcshell-exceptional-value-with-topnotch-augmented-reality-features/"><u>AR-5 by ArcShell: Exceptional Value with Topnotch Augmented Reality Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-best-a-deep-dive-into-the-anker-usb-30-hub-features/"><u>Evaluating the Best: A Deep Dive Into the Anker USB 3.0 Hub Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/from-basics-to-advanced-mastering-the-art-of-printing-in-photoshop-for-professionals/"><u>From Basics to Advanced: Mastering the Art of Printing in Photoshop for Professionals</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-realme-gt-neo-5-se-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Realme GT Neo 5 SE Phone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-honor-x8b-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Honor X8b for Streaming | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-look-testing-and-exploring-features-on-the-latest-apple-iphone-15-pro/"><u>Inside Look: Testing and Exploring Features on the Latest Apple iPhone 15 Pro</u></a></li>
+</ul></div>
+

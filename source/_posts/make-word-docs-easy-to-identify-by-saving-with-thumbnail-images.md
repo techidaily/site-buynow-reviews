@@ -1,7 +1,7 @@
 ---
 title: Make Word Docs Easy to Identify by Saving With Thumbnail Images
-date: 2024-08-03T22:58:29.122Z
-updated: 2024-08-04T22:58:29.122Z
+date: 2024-09-08T08:40:40.589Z
+updated: 2024-09-15T01:32:26.433Z
 categories:
   - BestProducts
 description: This Article Describes Make Word Docs Easy to Identify by Saving With Thumbnail Images
@@ -39,9 +39,6 @@ Lifewire / Andrew Hayward
 
 ## TopMate C302 Laptop Cooling Pad
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
 
 Lifewire / Andrew Hayward
@@ -66,18 +63,12 @@ Lifewire / Andrew Hayward
 
  The TopMate C302 is a strong example of the latter. It’s affordable and solidly effective, but the plastic design feels a bit flimsy. I wouldn’t bet on it lasting for the long haul without gentle handling, but given the price, you might not worry about it too much.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Design: Light and a little flimsy
 
  The C302 measures just over 14 inches wide and is designed for laptops with screens up to 15.6 inches diagonal. It’s primarily made of lightweight plastic, with a thin metal grate on the top above the two 4.9-inch fans to help dissipate heat.
 
  The entire pad weighs only 1.1 pounds, but the downside to it being so lightweight is that it feels a bit flimsy and rickety. It’ll do just fine holding your laptop and sitting on a desk, but I wouldn’t bet on it surviving a hard fall without some damage.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3qjwZzxQ2KVhmQJOdD2R9jBegvI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_03-ed7074949b6f4e4794ce30be2d582058.jpg)
 
 Lifewire / Andrew Hayward
@@ -110,11 +101,14 @@ Lifewire / Andrew Hayward
 
  In Dirt 5’s built-in benchmark test, the Razer Blade 15 hit 184 degrees internally and 117° externally, and those figures dropped to 175 degrees internally and 100 degrees externally with the cooling pad. There was no significant performance difference in the Dirt 5 benchmark when using the cooling pad: The average FPS mark was within one frame with or without the pad in use.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Xs71AyeThjZwy-vZJ9LfxIhuXJc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_04-eadbaf270b874af9bb8843b95efe8ca7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -122,9 +116,6 @@ Lifewire / Andrew Hayward
 
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Price: It’s very affordable
 
  At $30, this is one of the most affordable laptop cooling pads on the market right now. While results varied across multiple tests and games/apps, the C302 was pretty well in line with some of the pricier options I tested. It feels a little flimsy and doesn’t have any premium features, but the C302 is a very good entry-level option.
@@ -132,6 +123,13 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
 
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## TopMate C302 vs. Kootek Laptop Cooling Pad
 
@@ -144,17 +142,18 @@ Lifewire / Andrew Hayward
  Durability questions aside, the TopMate C302 Laptop Cooling Pad ultimately worked about as well as the other, pricier pads I tested, helping to offset some of the heat generated by a very hot gaming laptop. If you’re concerned about long-term damage or performance degradation from an overheating laptop, the C302 is a cost-efficient way to help keep your notebook from reaching extreme heat peaks.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 * [North Face Pivoter Backpack](https://www.lifewire.com/north-face-pivoter-backpack-review-4690198)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  C302 Laptop Cooling Pad
@@ -168,14 +167,11 @@ Lifewire / Andrew Hayward
 * Ports  USB-A
 * Waterproof  N/A
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -183,3 +179,24 @@ Lifewire / Andrew Hayward
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-curating-an-in-depth-look-at-2023s-best-pc-vr-headsets/"><u>[New] In 2024, Curating an In-Depth Look at 2023'S Best PC VR Headsets</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/solved-directx12-affecting-halo-infinite-launch-sequence/"><u>[SOLVED] DirectX12 Affecting Halo Infinite Launch Sequence</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-a-complete-breakdown-of-googles-podcast-system/"><u>2024 Approved A Complete Breakdown of Google's Podcast System</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-xiaomi-redmi-note-12t-pro-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Xiaomi Redmi Note 12T Pro Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-power-of-the-lenovo-9-nook-tablet-through-our-in-depth-tutorial/"><u>Discover the Power of the Lenovo 9 Nook Tablet Through Our In-Depth Tutorial</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-installation-of-logitech-g402-game-controller-softwaredriver-package/"><u>Easy Installation of Logitech G402 Game Controller Software/Driver Package</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-the-hp-chromebook-11-an-exceptional-choice-for-schoolwork-office-tasks-and-casual-browsing/"><u>Expert Insights on the HP Chromebook 11: An Exceptional Choice for Schoolwork, Office Tasks & Casual Browsing</u></a></li>
+<li><a href="https://driver-error.techidaily.com/hdr-audio-hub-fixed-complaint-addressed/"><u>HDR Audio Hub: Fixed Complaint Addressed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-cost-effective-hewlett-packards-amd-laptop-up-to-the-task-in-depth-review-inside/"><u>Is the Cost-Effective Hewlett-Packard's AMD Laptop Up to the Task? In-Depth Review Inside</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/joint-design-is-crucial-for-distributing-loads-evenly-across-the-welded-structure/"><u>Joint Design Is Crucial for Distributing Loads Evenly Across the Welded Structure.</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/master-win11-tips-for-optimal-performance/"><u>Master Win11 Tips for Optimal Performance</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-break-free-from-sony-vegas-explore-these-exceptional-windows-alternatives/"><u>New 2024 Approved Break Free From Sony Vegas Explore These Exceptional Windows Alternatives</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-freezing-problems-on-call-of-duty-vanguard-easy-no-cost-solutions/"><u>Resolving Freezing Problems on Call of Duty: Vanguard – Easy, No-Cost Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/run-faster-with-the-garmin-forerunner-45-in-depth-gps-tracker-review/"><u>Run Faster with the Garmin Forerunner ˈ45: In-Depth GPS Tracker Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-x-chair-x4-executive-assessment-why-this-seat-is-a-powerhouse-in-modern-offices/"><u>The X-Chair X4 Executive Assessment: Why This Seat Is a Powerhouse in Modern Offices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/wi-fi-wishful-thinking-with-nikon-coolpix-b500/"><u>Wi-Fi Wishful Thinking with Nikon COOLPIX B500</u></a></li>
+</ul></div>
+

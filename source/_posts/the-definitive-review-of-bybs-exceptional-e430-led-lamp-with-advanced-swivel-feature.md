@@ -1,7 +1,7 @@
 ---
 title: The Definitive Review of BYB's Exceptional E430 LED Lamp with Advanced Swivel Feature
-date: 2024-09-09T07:59:38.367Z
-updated: 2024-09-10T07:59:38.367Z
+date: 2024-09-10T09:27:33.110Z
+updated: 2024-09-15T07:02:33.801Z
 categories:
   - BestProducts
 description: This Article Describes The Definitive Review of BYB's Exceptional E430 LED Lamp with Advanced Swivel Feature
@@ -17,18 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/woIGNdPuCnGO3DIlQXTWV3dKVvE=/400x300/fi
 
 ![Dying Light](https://www.lifewire.com/thmb/ExEFo7aByvSphU-Qxeq8zUjf8lk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Kelsey Simon
 
  What We Like
@@ -49,12 +37,6 @@ Lifewire / Kelsey Simon
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Dying Light
 
 ![Dying Light](https://www.lifewire.com/thmb/YWkGikwP23JK119N4M7J22dAPJY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
@@ -82,12 +64,6 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
 ## **Setup Process: Straight into the action**
@@ -96,12 +72,6 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
 ## **Plot: A character torn between obligation and friendship**
@@ -116,13 +86,14 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Gameplay: Parkour and zombies galore**
 
@@ -138,14 +109,21 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/YctEePpYKsIXQ5kU-hQ8w7o9CDo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-4-1edeaf05c6ba435e9b81e68a13831ac6.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Graphics: Attention to detail**
 
  The graphics of Dying Light compare well to other triple-A titles, though it feels like the developers took more care with the scenery than the characters. Human models look a little plasticky, but the world around you is textured beautifully and rich with small details like posters and graffiti that help make the world around you feel real.
@@ -157,21 +135,16 @@ Harran is a whole different city at night.
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Worth the cost, especially with a friend**
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Other zombie and parkour games**
 
  There are a lot of other zombie survival games out there, but that doesn’t necessarily mean we’d recommend them if you liked Dying Light. You might consider Days Gone, another PlayStation 4 zombie apocalypse game set in an open world, but if the parkour was the main attraction, you might look into the game Mirror’s Edge Catalyst. The game follows a girl in a sci-fi world and features first-person parkour running and fighting. Instead of the rough and gritty world of Dying Light, Catalyst takes place in a sleek futuristic dystopia that's all glossy chrome and burnished glass.
@@ -190,14 +163,11 @@ Harran is a whole different city at night.
 * Price  $14.00
 * Available Platforms  PC (Steam) Playstation 4 Xbox One OS X Linux
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -208,45 +178,15 @@ Harran is a whole different city at night.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-dissecting-instagrams-maximum-video-duration-rule/"><u>[New] In 2024, Dissecting Instagram's Maximum Video Duration Rule</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-mastering-screen-recording-on-imac-with-ease-for-2024/"><u>[New] Mastering Screen Recording on iMac with Ease for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-streamlining-production-processes-a-magix-video-pro-x-perspective/"><u>[New] Streamlining Production Processes A Magix Video Pro X Perspective</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-tailoring-retrospective-analysis-with-twitter-archives/"><u>[Updated] 2024 Approved Tailoring Retrospective Analysis with Twitter Archives</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-full-evaluation-djis-latest-drone-the-inspire-1/"><u>[Updated] Full Evaluation DJI's Latest Drone, The Inspire 1</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-inexpensive-pc-playback-solutions/"><u>2024 Approved Inexpensive PC Playback Solutions</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Samsung Galaxy M14 4G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-examination-of-barnes-and-nobles-nook-glowlight-plus-the-ultimate-large-screen-tablet-for-bookworms/"><u>Comprehensive Examination of Barnes & Noble's Nook GlowLight Plus: The Ultimate Large Screen Tablet for Bookworms</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-imo-messenger-app-evaluation/"><u>Comprehensive Imo Messenger App Evaluation</u></a></li>
-<li><a href="https://solve-news.techidaily.com/cookiebot-the-secret-ingredient-behind-smart-marketing-solutions/"><u>Cookiebot: The Secret Ingredient Behind Smart Marketing Solutions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/deciphering-wi-fi-mesh-network-advantages/"><u>Deciphering Wi-Fi Mesh Network Advantages</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/elite-lineup-of-long-range-wifi-router-options-for-maximum-coverage/"><u>Elite Lineup of Long-Range WiFi Router Options for Maximum Coverage</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-sea-tech-usb-exterior-blu-ray-writing-device-inconsistent-functionality-insights/"><u>Evaluating the Sea Tech USB Exterior Blu-Ray Writing Device: Inconsistent Functionality Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-picks-the-finest-cable-modems-for-optimal-performance-in/"><u>Expert Picks: The Finest Cable Modems for Optimal Performance In</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/explore-the-premier-ecommerce-retailers-featuring-innovative-tv-displays/"><u>Explore the Premier Ecommerce Retailers Featuring Innovative TV Displays</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/exploring-with-elegance-the-powershot-g9x-mark-ii/"><u>Exploring with Elegance: The PowerShot G9X Mark II</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/google-tv-revolutionizes-streaming-on-chromecast-is-it-the-new-firetv/"><u>Google TV Revolutionizes Streaming on Chromecast - Is It the New FireTV?</u></a></li>
-<li><a href="https://extra-information.techidaily.com/harmony-highlights-social-media-videos-that-resonate/"><u>Harmony Highlights Social Media Videos That Resonate</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Meizu 21 | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-boost-efficiency-learning-free-timers-functionality/"><u>In 2024, Boost Efficiency Learning FREE Timers' Functionality</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-oppo-a1x-5g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Oppo A1x 5G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-performance-of-googles-battery-powered-wireless-nest-doorbell/"><u>In-Depth Analysis: Performance of Google’s Battery-Powered Wireless Nest Doorbell</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-assessment-of-the-tp-link-re505x-wi-fi-signal-booster/"><u>In-Depth Assessment of the TP-Link RE505X Wi-Fi Signal Booster</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/innovative-design-in-the-netatmo-weather-station-perfect-for-modern-home-automation-enthusiasts/"><u>Innovative Design in the Netatmo Weather Station: Perfect for Modern Home Automation Enthusiasts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/intensity-meets-durability-in-studiofxs-kit/"><u>Intensity Meets Durability in StudioFX's Kit</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/introducing-innovation-and-sophistication-nixplay-iris-unveiled/"><u>Introducing Innovation & Sophistication: Nixplay Iris Unveiled</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/iphone-faceoff-how-does-the-standard-iphone-15-stack-up-against-the-premium-15-pro-max/"><u>IPhone Faceoff: How Does the Standard iPhone 15 Stack Up Against the Premium 15 Pro Max?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-security-how-ring-video-doorbell-2-outshines-all-competitors/"><u>Mastering Security: How Ring Video Doorbell ^2 Outshines All Competitors</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximum-coverage-with-netgears-ex3700-wifi-repeater-a-detailed-evaluation/"><u>Maximum Coverage with Netgear's EX3700 WIFI Repeater - A Detailed Evaluation</u></a></li>
-<li><a href="https://games-able.techidaily.com/navigating-security-in-robloxs-gameplay-unlockers/"><u>Navigating Security in Roblox's Gameplay Unlockers</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-of-clearstreams-eclipse-antenna-outstanding-performance-meets-simple-usability/"><u>Review of ClearStream's Eclipse Antenna: Outstanding Performance Meets Simple Usability</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-top-twelve-gratis-defrag-utilities-for-a-smarter-pc-in-mid-2024/"><u>The Top Twelve Gratis Defrag Utilities for a Smarter PC in Mid-2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-performance-of-the-linksys-ea8300-advanced-multi-device-networking-insights/"><u>Top Performance of the Linksys EA8300: Advanced Multi-Device Networking Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleashing-entertainment-on-a-budget-the-insignia-ns-43df710na19-fire-tv-edition-alexa-and-ultra-hd-features-reviewed/"><u>Unleashing Entertainment on a Budget: The Insignia NS-43DF710NA19 Fire TV Edition - Alexa & Ultra HD Features Reviewed</u></a></li>
-<li><a href="https://techidaily.com/unlocking-the-hidden-gems-top-14-often-ignored-facetime-functions-you-need/"><u>Unlocking the Hidden Gems: Top 14 Often-Ignored FaceTime Functions You Need</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potency-of-zmi-powerpack-20k-the-definitive-guide-to-portable-charging-strength/"><u>Unveiling the Potency of ZMI PowerPack 20K: The Definitive Guide to Portable Charging Strength</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-quality-and-performance-of-huions-inspiroy-g10t-a-review-for-professional-artists/"><u>Unveiling the Quality and Performance of Huion's Inspiroy G10T - A Review for Professional Artists</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-mod-video-editing-without-the-cost-top-5-free-editors/"><u>Updated 2024 Approved MOD Video Editing Without the Cost Top 5 Free Editors</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/winvid-ai/"><u>WinVid AI 툴바로 화면, 웹 캠페인 및 오디오를 원활하게 녹음: 제가 도와드리겠습니다</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-from-live-to-recorded-a-skilled-approach-to-skype-chat-documentation-for-2024/"><u>[New] From Live to Recorded A Skilled Approach to Skype Chat Documentation for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-a-step-by-step-approach-to-documenting-every-exciting-moment-on-discord/"><u>[Updated] In 2024, A Step-by-Step Approach to Documenting Every Exciting Moment on Discord</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-discreet-peek-into-fb-narratives/"><u>[Updated] In 2024, Discreet Peek Into FB Narratives</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-iphone-models-for-mobile-gaming-in-2-comparison-and-reviews/"><u>Best iPhone Models for Mobile Gaming in 2# Comparison and Reviews</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/decoding-fashion-and-functionality-expert-reviews-of-the-iconic-michael-kors-access-gen-5e/"><u>Decoding Fashion & Functionality: Expert Reviews of the Iconic Michael Kors Access Gen 5E</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-11-pro-to-the-latest-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 11 Pro to the Latest iOS Version? | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-hp-officejet-4655-dri-software-for-smooth-operation-free-downloads-available/"><u>Latest HP OfficeJet 4655 Dri Software for Smooth Operation: Free Downloads Available</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/strategies-for-universal-zoom-availability-across-platforms/"><u>Strategies for Universal Zoom Availability Across Platforms</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-step-by-step-tutorial-on-how-to-use-the-print-function-in-photoshop/"><u>The Ultimate Step-by-Step Tutorial on How to Use the 'Print' Function in Photoshop</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/top-ranking-wireless-mouse-picks-for-2/"><u>Top-Ranking Wireless Mouse Picks for 2</u></a></li>
 </ul></div>
+

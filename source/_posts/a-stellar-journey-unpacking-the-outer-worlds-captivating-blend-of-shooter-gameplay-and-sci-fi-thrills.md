@@ -1,7 +1,7 @@
 ---
 title: "A Stellar Journey: Unpacking The Outer Worlds' Captivating Blend of Shooter Gameplay and Sci-Fi Thrills"
-date: 2024-08-03T22:58:31.071Z
-updated: 2024-08-04T22:58:31.071Z
+date: 2024-09-08T10:32:04.954Z
+updated: 2024-09-14T19:20:05.181Z
 categories:
   - BestProducts
 description: "This Article Describes A Stellar Journey: Unpacking The Outer Worlds' Captivating Blend of Shooter Gameplay and Sci-Fi Thrills"
@@ -37,14 +37,8 @@ Lifewire / Kelsey Simon
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Dying Light
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Dying Light](https://www.lifewire.com/thmb/YWkGikwP23JK119N4M7J22dAPJY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
 
 Lifewire / Kelsey Simon
@@ -72,9 +66,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Straight into the action**
 
  The first time you launch the game you'll be treated to an artistic video over the background of a news report. It explains the situation in Harran, the city where the game takes place. The game proper starts with a cut scene that shows you on a plane, about to parachute out. There’s no character creation here, although once you get a little further into the game, you’ll be able to pick your clothes.
@@ -93,16 +84,17 @@ Harran is a whole different city at night.
 
  This is a fairly linear game with regards to the plot. There's a main storyline for you to follow, with some optional side quests that you can take or leave. The narrative does a decent job of building up the circumstances for Kyle feeling torn between his mission and these people, and you’ll learn more about the virus as you go, as well as Antizin, the fictional drug that could lead to a cure.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
 
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Gameplay: Parkour and zombies galore**
 
  You won’t have to wait long in the game before you’re introduced to its main unique mechanic: parkour. Other zombie games focus on having slow zombies you can run away from, or dumb zombies you sneak past, but Dying Light takes a completely different approach. Instead, the basic zombies are fast and almost always know where you are―but they can’t climb or jump. This means you can stay safe by leaping between rooftops, running up ramps, balancing across bars, etc. The parkour feature is the biggest thing that makes Dying Light unique in an oversaturated genre, and also part of what makes the game so much fun. It’s entertaining to cross the city running as fast as you can without pausing, challenging yourself to get from point A to point B without ever touching the ground.
@@ -115,12 +107,16 @@ Harran is a whole different city at night.
 
  Harran is a whole different city at night. If you aren’t in a safe zone, you’ll quickly learn that running through the city at night is terrifying, specifically because of a zombie type called volatiles. Volatiles are crazy strong, super-fast, and will chase after you relentlessly until you get out of sight―not an easy thing to do when you’re freaking out. It can be a real rush to try to do a mission at night, so if things aren’t feeling tense enough for you, just wait until the sunsets.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Dying Light](https://www.lifewire.com/thmb/YctEePpYKsIXQ5kU-hQ8w7o9CDo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-4-1edeaf05c6ba435e9b81e68a13831ac6.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Graphics: Attention to detail**
 
@@ -128,10 +124,14 @@ Harran is a whole different city at night.
 
  Character animation is also excellent, and the buildings and other objects within the world offer a variety of ways to jump, climb, and crawl. The open urban landscape of Harran allows players to decide how they want to explore, acquire materials, and fight. You’ll be able to come at certain locations from a variety of angles,and it's this sense of freedom and attention to the environments that brings Dying Light together.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -139,9 +139,6 @@ Harran is a whole different city at night.
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Competition: Other zombie and parkour games**
 
  There are a lot of other zombie survival games out there, but that doesn’t necessarily mean we’d recommend them if you liked Dying Light. You might consider Days Gone, another PlayStation 4 zombie apocalypse game set in an open world, but if the parkour was the main attraction, you might look into the game Mirror’s Edge Catalyst. The game follows a girl in a sci-fi world and features first-person parkour running and fighting. Instead of the rough and gritty world of Dying Light, Catalyst takes place in a sleek futuristic dystopia that's all glossy chrome and burnished glass.
@@ -160,14 +157,11 @@ Harran is a whole different city at night.
 * Price  $14.00
 * Available Platforms  PC (Steam) Playstation 4 Xbox One OS X Linux
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -175,3 +169,22 @@ Harran is a whole different city at night.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-smart-approach-for-posting-igtv-on-your-story/"><u>[New] 2024 Approved The Smart Approach for Posting IGTV on Your Story</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-writers-toolkit-dialogue-and-narration-techniques-for-success/"><u>[Updated] The Writer's Toolkit Dialogue and Narration Techniques for Success</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-zenwifi-xt8-ax6600-review/"><u>ASUS ZenWiFi XT8 AX6600 Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-heimvision-a80s-alarm-clock-with-gentle-sunrise-simulation-product-analysis/"><u>Comprehensive HeimVision A80S Alarm Clock with Gentle Sunrise Simulation - Product Analysis</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-a-step-by-step-journey-through-the-landscape-of-instagram-reels/"><u>In 2024, A Step-by-Step Journey Through the Landscape of Instagram Reels</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-the-fixes-of-your-clownfish-voice-modifier-a-comprehensive-guide/"><u>Mastering the Fixes of Your Clownfish Voice Modifier: A Comprehensive Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-your-trackpad-or-magic-mouse-turn-off-mac-os-x-acceleration-settings/"><u>Mastering Your Trackpad or Magic Mouse: Turn Off Mac OS X Acceleration Settings</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/protect-your-privacy-discover-the-leading-10-ios-applications-to-erase-all-information-from-your-phone/"><u>Protect Your Privacy: Discover the Leading 10 iOS Applications to Erase All Information From Your Phone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ddpai-mini-3-reviewed-how-this-dashcam-brings-joy-to-your-journeys/"><u>The DDpai Mini 3 Reviewed: How This Dashcam Brings Joy to Your Journeys!</u></a></li>
+<li><a href="https://fox-http.techidaily.com/troubleshoot-a-frozen-start-in-sea-of-thieves-quick-solutions-for-load-errors/"><u>Troubleshoot a Frozen Start in Sea of Thieves - Quick Solutions for Load Errors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/uncovering-gaming-history-the-enduring-charm-of-super-mario-bros-on-nintendo-game-and-watch/"><u>Uncovering Gaming History: The Enduring Charm of Super Mario Bros on Nintendo Game & Watch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-power-and-beauty-a-comprehensive-review-of-the-apple-imac-with-a-stunning-215-inch-4k-screen/"><u>Unleashing Power & Beauty: A Comprehensive Review of the Apple iMac with a Stunning 21.5-Inch 4K Screen</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-get-professional-results-for-free-top-mod-video-editors/"><u>Updated 2024 Approved Get Professional Results for Free Top MOD Video Editors</u></a></li>
+</ul></div>
+

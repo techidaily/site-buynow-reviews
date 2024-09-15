@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Netgeer Orbi RBS50Y Backyard WiFi Solution Assessment for Seamless Outdoor Streaming
-date: 2024-08-03T22:58:28.752Z
-updated: 2024-08-04T22:58:28.752Z
+date: 2024-09-12T04:17:44.971Z
+updated: 2024-09-15T00:19:30.215Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Netgeer Orbi RBS50Y Backyard WiFi Solution Assessment for Seamless Outdoor Streaming
@@ -13,14 +13,8 @@ thumbnail: https://www.lifewire.com/thmb/J-pwFt9XA5bZIRReo2Iy21Tg0KA=/400x300/fi
 
 4.3
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Eero Pro Mesh Wi-Fi System
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/thmb/quruDSW-352hXQ7EsGJ62xZI8l4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4140134_EeroPro-HeroSquare-eac03b98b5d043f7ac5c56c8f38c6421.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -45,9 +39,6 @@ Lifewire / Jeremy Laukkonen
 
 4.3
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Eero Pro Mesh Wi-Fi System
 
 ![Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/thmb/JauJoDUBi2rh6tiCHVH-x-JrY9E=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4140134_EeroPro-HeroSquare-eac03b98b5d043f7ac5c56c8f38c6421.jpg)
@@ -77,9 +68,6 @@ Lifewire / Jeremy Laukkonen
 
  Mesh router systems can be tricky to set up and use, so we recently took an Eero Pro and a couple of beacons home to see how they work under real-world conditions. We checked things like wired and wireless speed, ease of setup and use, range, and more. Keep reading to find out the results of our exhaustive testing.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/thmb/vS5n544wcZEvyycOPsM5iPB7dpk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4140134_EeroPro-3-75fe2f82937940d48f1a6de9205b0f9f.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -106,6 +94,19 @@ Lifewire / Jeremy Laukkonen
 
  The one issue with Eero that may bother some people is that you have to sign up for an account during the setup process. This includes providing Eero with your phone number so that they can send you a confirmation code. It was a quick and easy process, but it was a bit of an annoyance all the same.
 
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Connectivity: Tri-band base stations and dual-band beacons**
 
  The Eero Pro is a[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) tri-band router that broadcasts one 2.4GHz channel and two 5GHz channels, and the beacons are dual-band with one 2.4 GHz and one 5GHz channel each. Unlike most routers, Eero does not provide an AC rating for the Eero Pro. They do, however, give some numbers.
@@ -120,17 +121,17 @@ Lifewire / Jeremy Laukkonen
 
  The biggest shortfall of the Eero Pro, in terms of connectivity, is that it only has two Ethernet ports. One connects the router to your modem, and the other can be connected to a device like a computer to provide a wired internet connection. If you want to connect other devices via Ethernet, you’ll need a[network switch](https://www.lifewire.com/definition-of-network-switch-817588) .
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/thmb/L8g27SmIGtD8G-19FjJtPqPeQIQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4140134_EeroPro-4-5e47062bd2f141d69819fa37cf2c1899.jpg)
 
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Network Performance: Wireless coverage is great but a little slow**
 
  We tested network throughput performance on a Mediacom gigabit internet connection, testing both the wired Ethernet connection and the automatic system that’s designed to automatically switch between 2.4GHz and 5GHz based on speed and performance.
@@ -167,6 +168,13 @@ Lifewire / Jeremy Laukkonen
 
  Eero Secure is a subscription service that you receive a free trial for when you first set up your network. It automatically scans for problems, blocks threats, and blocks ads at the DNS level, and you can see details about what it has blocked through the app. It also has content filters and parental controls, but we’ll address that in the next section.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Parental Controls: Advanced features require a subscription**
 
  Eero Pro comes with powerful built-in parental controls that you manage through the app. It works by creating profiles for each member of your family, assigning devices to those profiles, and then placing content blocks and scheduling internet pauses for your kids if you don’t want them getting online during homework time or in the middle of the night.
@@ -174,8 +182,18 @@ Lifewire / Jeremy Laukkonen
  The built-in parental controls are great, but the catch is you have to pay extra for this feature. If you want to access parental controls, in addition to threat scanning and blocking, ad blocking, and advanced network security, it will set you back $3.99/month or $29.99/year.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: On the expensive side**
 
  In the configuration we tested, with a single Eero Pro and two beacons, this system has an MSRP of $319\. A single Eero Pro has an MSRP of $159, and beacons have an MSRP of $149\. You can also buy Eero Pro routers and beacons in a variety of other configurations, like three routers, a router and a single beacon, and others.
@@ -184,9 +202,6 @@ Lifewire / Jeremy Laukkonen
 
  If you need to extend your Wi-Fi network through a very large space, or you have a history of Wi-Fi dead zones, our hands-on testing shows that the Eero Pro can get the job done. That makes it well worth the price, although it isn’t the only mesh system on the market.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Eero Pro vs. Netgear Orbi**
 
  The Netgear Orbi is one of the closest competitors to the Eero Pro, and there’s a lot to like about both systems. The Orbi is a lot more complicated than the Eero Pro, as you have more choices. The closest to the system we tested is their RBK33 system, which has an MSRP of $300\. Like the Eero Pro system we tested, the RBK33 comes with an Orbi router and two plug-in satellites.
@@ -229,11 +244,27 @@ Lifewire / Jeremy Laukkonen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-5-best-racing-simulator-games/"><u>[New] 2024 Approved 5 Best Racing Simulator Games</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-expertly-ranked-online-capturing-software/"><u>[New] In 2024, Expertly Ranked Online Capturing Software</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-dji-protech-fpv-eyewear-inspection-report/"><u>[Updated] 2024 Approved DJI ProTech FPV Eyewear Inspection Report</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-navigating-the-world-of-tweets-starting-fresh/"><u>[Updated] In 2024, Navigating the World of Tweets Starting Fresh</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-overcoming-youtube-disqualification/"><u>[Updated] Overcoming YouTube Disqualification</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/all-about-iphone-8-plus-unlock-chip-you-need-to-know-by-drfone-ios/"><u>All About iPhone 8 Plus Unlock Chip You Need to Know</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/consistent-nutrition-for-your-furry-friend-using-the-petsafe-auto-feeder/"><u>Consistent Nutrition for Your Furry Friend Using the PetSafe Auto Feeder</u></a></li>
+<li><a href="https://change-location.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-vivo-y100-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Vivo Y100 | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-it-realme-narzo-60-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Realme Narzo 60 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-leverage-phantoms-retrograde-footage-tech/"><u>In 2024, How to Leverage Phantom’s Retrograde Footage Tech</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-comfort-and-minimize-fatigue-with-the-ergodriven-topo-the-ideal-standing-desk-mat-reviewed/"><u>Maximize Comfort and Minimize Fatigue with the Ergodriven Topo - The Ideal Standing Desk Mat Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-fujitsus-high-performance-scansnap-ix1600-for-office-use/"><u>The Ultimate Review of Fujitsu's High-Performance ScanSnap iX1600 for Office Use</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transform-your-photos-effortlessly-premium-features-of-the-free-lightzone-editor-on-windows-mac-and-linux/"><u>Transform Your Photos Effortlessly: Premium Features of the Free LightZone Editor on Windows, Mac & Linux</u></a></li>
+</ul></div>
+

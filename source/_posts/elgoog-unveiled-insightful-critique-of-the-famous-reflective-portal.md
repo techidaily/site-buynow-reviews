@@ -1,7 +1,7 @@
 ---
 title: "ElgooG Unveiled: Insightful Critique of the Famous Reflective Portal"
-date: 2024-08-03T22:58:30.714Z
-updated: 2024-08-04T22:58:30.714Z
+date: 2024-09-13T19:01:41.229Z
+updated: 2024-09-14T18:05:06.906Z
 categories:
   - BestProducts
 description: "This Article Describes ElgooG Unveiled: Insightful Critique of the Famous Reflective Portal"
@@ -13,14 +13,8 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Dying Light
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ![Dying Light](https://www.lifewire.com/thmb/ExEFo7aByvSphU-Qxeq8zUjf8lk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
 
 Lifewire / Kelsey Simon
@@ -72,9 +66,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Straight into the action**
 
  The first time you launch the game you'll be treated to an artistic video over the background of a news report. It explains the situation in Harran, the city where the game takes place. The game proper starts with a cut scene that shows you on a plane, about to parachute out. There’s no character creation here, although once you get a little further into the game, you’ll be able to pick your clothes.
@@ -83,9 +74,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Plot: A character torn between obligation and friendship**
 
  The initial cutscene starts with you on a plane, preparing to jump. Your name is Kyle Crane, and you’re an undercover operative. You’ll parachute to the earth while your boss explains your mission―to find a stolen file―but the second you hit the ground, things don’t go as planned. You’re attacked and forced to fire your weapon to scatter your attackers. Of course, in zombie-infested Harran, a gunshot is zombie bait. Suddenly they're swarming toward you and things look very dire, until you're rescued by a pair of strangers, a man and a woman. The man dies saving you but you and the woman escape. Her name is Jade, and she’ll play a big role throughout the story as you try to win her and her brother’s trust.
@@ -96,12 +84,16 @@ Harran is a whole different city at night.
 
  This is a fairly linear game with regards to the plot. There's a main storyline for you to follow, with some optional side quests that you can take or leave. The narrative does a decent job of building up the circumstances for Kyle feeling torn between his mission and these people, and you’ll learn more about the virus as you go, as well as Antizin, the fictional drug that could lead to a cure.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Gameplay: Parkour and zombies galore**
 
@@ -115,10 +107,6 @@ Harran is a whole different city at night.
 
  Harran is a whole different city at night. If you aren’t in a safe zone, you’ll quickly learn that running through the city at night is terrifying, specifically because of a zombie type called volatiles. Volatiles are crazy strong, super-fast, and will chase after you relentlessly until you get out of sight―not an easy thing to do when you’re freaking out. It can be a real rush to try to do a mission at night, so if things aren’t feeling tense enough for you, just wait until the sunsets.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ![Dying Light](https://www.lifewire.com/thmb/YctEePpYKsIXQ5kU-hQ8w7o9CDo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-4-1edeaf05c6ba435e9b81e68a13831ac6.jpg)
 
  Lifewire / Kelsey Simon
@@ -131,15 +119,19 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 ## **Price: Worth the cost, especially with a friend**
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Other zombie and parkour games**
 
  There are a lot of other zombie survival games out there, but that doesn’t necessarily mean we’d recommend them if you liked Dying Light. You might consider Days Gone, another PlayStation 4 zombie apocalypse game set in an open world, but if the parkour was the main attraction, you might look into the game Mirror’s Edge Catalyst. The game follows a girl in a sci-fi world and features first-person parkour running and fighting. Instead of the rough and gritty world of Dying Light, Catalyst takes place in a sleek futuristic dystopia that's all glossy chrome and burnished glass.
@@ -153,19 +145,17 @@ Harran is a whole different city at night.
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Dying Light
 * Price  $14.00
 * Available Platforms  PC (Steam) Playstation 4 Xbox One OS X Linux
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,11 +163,30 @@ Harran is a whole different city at night.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-overcoming-the-crashes-in-windows-11s-photos-application/"><u>[New] Overcoming the Crashes in Windows 11'S Photos Application</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-unlocking-the-secrets-of-earning-via-youtube/"><u>[Updated] 2024 Approved Unlocking the Secrets of Earning via YouTube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-lenovo-ideapad-320-a-masterpiece-in-sleek-beauty-and-versatile-usage-complemented-by-lenovos-signature-keyboard/"><u>Discover the Lenovo IdeaPad 320 - A Masterpiece in Sleek Beauty and Versatile Usage Complemented by Lenovo's Signature Keyboard</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/download-macx-pro-the-ultimate-and-reliable-mac-app-for-converting-webm-videos-to-mov-mp4-avid-formats/"><u>Download MacX Pro: The Ultimate & Reliable Mac App For Converting WebM Videos To Mov, Mp4, Avid Formats</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-highest-quality-power-inverters-2n4/"><u>Expert Review: Highest Quality Power Inverters - 2N4</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-tecno-spark-20-proplus-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Tecno Spark 20 Pro+ Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exploring-the-boundaries-64128gb-for-vids/"><u>In 2024, Exploring the Boundaries 64/128GB for Vids</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-instant-integration-syncing-iphone-media-with-computer/"><u>In 2024, Instant Integration Syncing iPhone Media with Computer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-look-free-powerful-photo-editing-with-photoscape-software-breakdown/"><u>Inside Look: Free, Powerful Photo Editing with PhotoScape Software Breakdown</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-free-and-fabulous-the-top-online-video-stabilizers-for-a-professional-finish-for-2024/"><u>New Free and Fabulous The Top Online Video Stabilizers for a Professional Finish for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/precision-and-convenience-in-pet-care-with-petsafes-innovative-mealtime-manager/"><u>Precision and Convenience in Pet Care with PetSafe's Innovative Mealtime Manager</u></a></li>
+<li><a href="https://driver-install.techidaily.com/troubleshooting-samsung-ssd-in-windows-os-solved/"><u>Troubleshooting Samsung SSD in Windows OS [Solved]</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-the-full-potential-of-your-imac-expert-advice-on-intel-processor-upgrades/"><u>Unlock the Full Potential of Your iMac: Expert Advice on Intel Processor Upgrades</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-apple-m4-processor-launch-details-and-technical-specifications/"><u>Unveiling the Apple M4 Processor: Launch Details & Technical Specifications</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-x-plane-11-a-worldwide-journey-with-exceptional-graphics-and-enhanced-features/"><u>Unveiling X-Plane 11: A Worldwide Journey with Exceptional Graphics and Enhanced Features</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-unlock-new-possibilities-top-10-free-video-speed-modification-apps/"><u>Updated In 2024, Unlock New Possibilities Top 10 Free Video Speed Modification Apps</u></a></li>
+</ul></div>
+

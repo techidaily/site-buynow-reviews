@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Bookworm's Companion - Inside Look at the 2018 Kindle Paperwhite
-date: 2024-08-03T22:58:29.193Z
-updated: 2024-08-04T22:58:29.193Z
+date: 2024-09-14T07:09:16.901Z
+updated: 2024-09-15T12:18:27.554Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Bookworm's Companion - Inside Look at the 2018 Kindle Paperwhite
@@ -15,18 +15,6 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
 ## Apple iMac 21.5-inch 4K
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/dIY3bLJSRioBJmHFFCGQjcgcxbU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4045927-1-625cb1ba7a894cc38db8565dd81072b3.jpg)
 
 Lifewire / Gannon Burgett
@@ -50,9 +38,6 @@ Lifewire / Gannon Burgett
 
 ## Apple iMac 21.5-inch 4K
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/hOzU-Ut_6g-s5JwzT08s3wa0tSo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4045927-1-625cb1ba7a894cc38db8565dd81072b3.jpg)
 
 Lifewire / Gannon Burgett
@@ -79,20 +64,10 @@ Lifewire / Gannon Burgett
 
  Apple is no stranger to creating minimal devices, but the 21.5-inch 4K iMac takes things to a whole new level with a screen that pops and a design that looks stylish no matter the setting. As beautiful as it is on the outside, under the hood you also have a solid set of components with a 3.4GHz 7th generation quad-core Intel Core i5 CPU, 8GB RAM, and 1TB Fusion Drive. Apple has managed to pack quite a bit of power inside the slender frame. We put it to the test to see how it fares for multimedia and productivity uses.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/TCcSm-nkER9HhHM8YIPMWbaezRA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-4-fa6cf253bfd44ab991c366691b68bdf5.jpg)
 
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ## **Design: Beautiful, with room for improvements**
 
  It shouldn’t come as a surprise that the Apple iMac 21.5-inch 4K is a[beautiful machine](https://www.lifewire.com/best-desktop-pcs-4045927) from top to bottom. Before even turning it on, the design of the computer a striking, aluminum-clad body that’s still subtle enough that it will blend in with nearly any office or home environment.
@@ -109,6 +84,13 @@ No advertising on the website.
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: One plug and you’re good to go**
 
  One of Apple’s core tenets is simplicity, and the 4K iMac is no exception to this rule. Inside the box is the computer itself and a box which contains the Magic Keyboard and Magic Mouse 2\. Additional components include the power connection for the computer, a Lightning cable for charging the mouse and keyboard, and a small package of documentation.
@@ -116,6 +98,13 @@ No advertising on the website.
  Setting up the iMac is as simple as unwrapping it from its protective cover, setting it on the desk, plugging it in with the included power cord, and pressing the power button. As it boots up, we turned on the Magic Keyboard and Magic Mouse 2\. By the time the iMac was to the setup screen — a process that took approximately 60 seconds — the two were already paired with the computer and ready to be used.
 
  Going through the setup process took us approximately five minutes, which included setting up our iCloud account and getting the various login settings in place. We opted to set this up as a new computer, but there’s also the ability to set it up from an Apple Time Capsule backup or transfer content from a PC via USB. The amount of time those options take will vary depending on the device you’re transferring the information from as well as the amount of data being transferred.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Display: Bright, brilliant, and ready to shine**
 
@@ -127,10 +116,20 @@ No advertising on the website.
 
  As mentioned above, it would’ve been nice to see a smaller bezel, but that’s about the only department the display falls short.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/IKZ75jBAosAG3M1Py_-E0ElYAfM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-5-a705ea67b88b4cf694c53e4715a9aceb-f57b3be92a934d8ab579d90728e23fe8.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -150,26 +149,16 @@ Lifewire / Gannon Burgett
 
  All-in-all, the iMac seems to punch right at or above its specifications when compared to similar hardware. It’s not going to be pumping out 8K footage, but for basic 4K video editing and image post-processing, the graphics card is more than enough. As for productivity, there’s not much you can throw at the iMac that it can’t handle. The only thing we noticed slowing down the computer was the 8GB of RAM when we had over a dozen applications open, but that can be fixed by upgrading to the 16GB or 32GB model (although it’s not a cheap upgrade).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Network: Fast and reliable**
 
  The 21.5-inch 4K iMac features both wired and wireless connectivity for internet access. As previously mentioned, the iMac features a Gigabit Ethernet (RJ-45) port on the rear of the computer for a hardwired internet connection. For Wi-Fi, the iMac uses an 802.11ac network adapter with support for IEEE 802.11a/b/g/n.
 
  In our hardwired tests, the iMac maxed out our Gigabit fiber optic internet no problem, with steady download and upload speeds. Wireless connectivity was equally impressive, regardless of whether the iMac was in the same room as the router or a few rooms over. We didn’t notice any drops throughout our tests and both uploading and downloading content was consistent.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## **Camera: Decent built-in option for basic tasks**
 
  The only camera on the 4K iMac is the integrated webcam, which sits dead center above the display. We would’ve liked to see a 1080p or even 4K webcam included, but the 720p resolution is good enough for basic video messaging.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/rFu0_k9BjbUxQdoEYOcNGU35LJA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-2-a3d2f38b9509480ba41bbb5b33815d1a.jpg)
 
  Lifewire / Gannon Burgett
@@ -188,9 +177,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  Could you build a PC with better specs for far less money? Absolutely. But it won’t be running macOS and it certainly won’t be as slim and streamlined as the iMac. If you’re invested in the Apple ecosystem and don’t need to shell out for the more expensive 27-inch 5K iMac, the 21.5-inch 4K iMac is priced much more reasonably and still has plenty to offer.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: A unique option in a small market**
 
  The 21.5-inch 4K iMac has a few competitors in its specification range, but for the sake of simplicity, we’ll focus on two: the Lenovo IdeaCentre AIO 700 and the[Asus Zen AiO Pro Z240IC](https://www.asus.com/displays-desktops/all-in-one-pcs/zen-aio/) .
@@ -215,6 +201,13 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 * [Alienware Aurora R7](https://www.lifewire.com/alienware-aurora-r7-review-4689097)
 * [Lenovo ThinkCentre M720 Tower](https://www.lifewire.com/lenovo-thinkcentre-m720-tower-review-4776238)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  iMac 21.5-inch 4K
@@ -231,14 +224,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 * Connections  3.5 mm headphone jack, SDXC card slot, Four USB 3 ports (compatible with USB 2), Two Thunderbolt 3 (USB-C) ports, 10/100/1000BASE-T Gigabit
 * What’s in the box  21.5‑inch iMac with Retina 4K display Magic Keyboard Magic Mouse 2 Power cord Lightning to USB Cable
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -246,3 +236,21 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/audience-management-strategies-for-periscope/"><u>Audience Management Strategies for Periscope</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-mlb-the-show-19-when-sports-beauty-meets-unexpected-rpg-twists/"><u>Exploring MLB The Show 19: When Sports Beauty Meets Unexpected RPG Twists</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-touch-screen-on-itel-p55t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Itel P55T | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-realme-gt-5-pro-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Realme GT 5 Pro Phone Now with These Tips</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-twelve-souths-bookbook-v2-macbook-sleeve-smart-and-innovative/"><u>In-Depth Analysis of Twelve South's BookBook V2 MacBook Sleeve – Smart & Innovative</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-fujitsu-scansnap-ix1600-a-sturdy-desk-document-scanner/"><u>In-Depth Look at the Fujitsu ScanSnap iX1600: A Sturdy Desk Document Scanner</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/install-nvidias-geforce-rtx-3060-ti-driver-on-your-windows-11-pc-now/"><u>Install NVIDIA's GeForce RTX 3060 Ti Driver on Your Windows 11 PC Now</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/journey-through-the-unexpected-an-enriching-exploration-of-yokus-island-express/"><u>Journey Through the Unexpected: An Enriching Exploration of Yoku's Island Express</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/optimisez-et-redonnez-vie-a-vos-images-amelioration-en-4k8k10k-grace-a-la-technologie-artificielle-de-winxvideo/"><u>Optimisez Et Redonnez Vie À Vos Images : Amélioration en 4K/8K/10K Grâce À La Technologie Artificielle De WinxVideo</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-6-critical-considerations-for-leveraging-chatgpt-for-emotional-health-management/"><u>The 6 Critical Considerations for Leveraging ChatGPT for Emotional Health Management</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-top-5-text-to-speech-websites/"><u>Updated In 2024, Top 5 Text to Speech Websites</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/upgraded-power-contrasting-samsungs-latest-marvels-s24-and-s23-ultra/"><u>Upgraded Power: Contrasting Samsung's Latest Marvels, S24 and S23 Ultra</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-xbox-one-elite-series-2-is-crowned-as-a-legendary-controller/"><u>Why Xbox One Elite Series 2 Is Crowned as a Legendary Controller</u></a></li>
+</ul></div>
+

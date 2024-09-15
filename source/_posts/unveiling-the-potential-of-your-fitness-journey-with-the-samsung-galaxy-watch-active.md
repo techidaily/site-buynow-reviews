@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Potential of Your Fitness Journey with the Samsung Galaxy Watch Active
-date: 2024-08-03T22:58:29.693Z
-updated: 2024-08-04T22:58:29.693Z
+date: 2024-09-14T02:24:05.736Z
+updated: 2024-09-14T18:18:25.835Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Potential of Your Fitness Journey with the Samsung Galaxy Watch Active
@@ -38,14 +38,8 @@ Lifewire / Emily Isaacs
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Nintendo Game & Watch: Super Mario Bros
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/Gqz0Wb1wB-1ecipbSoEbqeuT3EU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_HeroSquare-c0176be04bfb4d83b2f7724b1332c18b.jpg)
 
 Lifewire / Emily Isaacs
@@ -71,9 +65,6 @@ Lifewire / Emily Isaacs
 
  What better way to celebrate both of their birthdays than by bringing both titles together for a self-contained wombo-combo celebrating their 40th and 35th anniversaries respectively? I put the handheld to the test for three weeks.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ## Design: Retro, bold look & feel
 
  From the moment you pick up and pop open the box, the design oozes old-school cool and nostalgia. It’s a special edition release—and it feels like it. Intentionally stylized black and gold packaging, which resembles the retro feel of the 1980s Game & Watch classic titles, is a familiar and warm return to an era.
@@ -96,11 +87,15 @@ Lifewire / Emily Isaacs
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/IzTLcGKhslJLE9YpMMkMKBV1BME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_03-5ca824e25f85464a83c9187541b0f059.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Emily Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Gameplay: Challenging, but fun
 
  The Game & Watch: Super Mario Bros. is preloaded with Super Mario Bros., Super Mario Bros. 2 (also known as The Lost Levels), and Ball_,_ the foremost title in the Game & Watch series. Also included are 35 hidden interactions, which make the standard Watch mode a joy as well.
@@ -111,9 +106,6 @@ Lifewire / Emily Isaacs
 
  The Ball game is the only included Game & Watch title in the product. Balls bounce back and forth in the air as you juggle them to keep them from hitting the ground. Instead of the classic Ball character design, Mario’s head has been superimposed on the character. It’s a much simpler game, and it’s OK, but this game loses its allure fairly quickly due to the repetitive gameplay.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Audio: Surprisingly loud and crisp
 
  The included mono speaker is surprisingly loud and crisp, emitting 8-bit chiptunes. It’s located on the left-hand side of the device, nestled into the case’s trim. While I thought my hands might get in the way and block the sound a bit during play, that didn’t turn out to be true.
@@ -127,17 +119,36 @@ Lifewire / Emily Isaacs
 Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Price: Great value for the price
 
  Thanks to the Game & Watch’s lovely, classic retro design, sturdy frame, crisp and clear LCD screen, and great game content, retailing for only $50, the Nintendo Game & Watch: Super Mario Bros. is a great value for the price. We just wish there were more games included, especially as other similar classic releases such as the SNES mini have seen as many as 30 titles included with its launch.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/Te3HyEg18zLT9zKT-eZuFtev8So=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_02-6af770f871344e16ad3f45320d46d52a.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -158,8 +169,12 @@ Lifewire / Emily Isaacs
  The Nintendo Game & Watch: Super Mario Bros. is a throwback to an older, simpler era of gaming that packs a wallop of a punch, bringing the challenge of the original Super Mario games and the original Game & Watch Ball title while making them accessible to a whole new generation of players. While we do wish Nintendo had included additional titles—who doesn’t want_more_ classic options when these are so fun—it’s no showstopper for enjoying this product.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Nintendo Switch Lite](https://www.lifewire.com/nintendo-switch-lite-review-4788015)
@@ -188,11 +203,26 @@ Lifewire / Emily Isaacs
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-maximize-video-clarity-with-obs-tweaks/"><u>[New] In 2024, Maximize Video Clarity with OBS Tweaks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-compreayers-guide-to-polishing-youtube-content-via-imovie-editing-techniques-for-2024/"><u>[Updated] A Compreayer's Guide to Polishing YouTube Content via iMovie Editing Techniques for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/consistent-nutrition-for-your-furry-friend-using-the-petsafe-auto-feeder/"><u>Consistent Nutrition for Your Furry Friend Using the PetSafe Auto Feeder</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-hp-officejet-pro-8610-drivers-compatible-with-windows-1087xpvista-latest-updates-available/"><u>Download HP Officejet Pro 8610 Drivers: Compatible with Windows 10/8/7/XP/Vista - Latest Updates Available</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Oppo K11x | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-auditory-appeal-modifying-voices-in-instagrams-storytelling/"><u>In 2024, Auditory Appeal Modifying Voices in Instagram's Storytelling</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-on-apple-iphone-15-pro-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked On Apple iPhone 15 Pro?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-google-pixel-6-capturing-moments-with-perfection/"><u>In-Depth Analysis of the Google Pixel 6: Capturing Moments with Perfection</u></a></li>
+<li><a href="https://program-issues.techidaily.com/master-the-troubleshoot-effective-fixes-for-last-epoch-malfunctions-in-pc-systems-2/"><u>Master the Troubleshoot: Effective Fixes for 'Last Epoch' Malfunctions in PC Systems - 2지온</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-comfort-and-minimize-fatigue-with-the-ergodriven-topo-the-ideal-standing-desk-mat-reviewed/"><u>Maximize Comfort and Minimize Fatigue with the Ergodriven Topo - The Ideal Standing Desk Mat Reviewed</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/skyward-elite-unified-ultra-hd-multi-touch-panels/"><u>Skyward Elite Unified, Ultra HD Multi-Touch Panels</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-capabilities-detailed-insights-into-the-netgear-ac1200-ex6200-wi-fi-signal-booster-review/"><u>Unveiling the Capabilities: Detailed Insights Into the Netgear AC1200 (EX6200) Wi-Fi Signal Booster Review</u></a></li>
+</ul></div>
+

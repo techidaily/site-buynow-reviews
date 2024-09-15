@@ -1,7 +1,7 @@
 ---
 title: "From Tiny to Tremendous: Nikon COOLPIX P1000 Zoom Marvel"
-date: 2024-08-03T22:58:29.044Z
-updated: 2024-08-04T22:58:29.044Z
+date: 2024-09-13T05:42:02.112Z
+updated: 2024-09-15T09:45:17.622Z
 categories:
   - BestProducts
 description: "This Article Describes From Tiny to Tremendous: Nikon COOLPIX P1000 Zoom Marvel"
@@ -41,9 +41,6 @@ Lifewire / Andy Zahn
 
 ## Canon PowerShot SX70
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
 
 Lifewire / Andy Zahn
@@ -78,9 +75,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -94,26 +88,35 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Display and Viewfinder: Saturated and clear**
 
  The three-inch, 920,000-dot screen on the SX70 HS looks amazing—perhaps_too_ amazing, as your photos will look better on it than on your phone or computer. The screen is fully articulating and solidly built. Our one complaint would be how easily it picks up smudges, and how difficult those smudges are to remove. An advantage of the articulating screen is that it can be turned face-in to avoid dirt and damage and to save on battery life.
@@ -122,9 +125,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## **Autofocus: Blazing fast**
 
  We were shocked by how fast and consistent the autofocus is in the SX70 HS, even in low-light situations. It rarely fails to lock on to your intended subject, and focus tracking works flawlessly.
@@ -148,6 +148,13 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  RAW files are rich and detailed, and[JPEG images](https://www.lifewire.com/jpeg-myths-and-facts-1701548) are well-rendered, though JPEG images do show the compression artifacts typical of point-and-shoot cameras. The built-in flash raises and lowers manually and is functional if unexceptional.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Modes: Plenty to choose from (and only some are useful)**
 
@@ -187,9 +194,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
@@ -219,8 +223,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  PowerShot SX70
@@ -246,11 +254,25 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-streamlining-tiktok-posts-for-facebook-exposure/"><u>[New] 2024 Approved Streamlining TikTok Posts for Facebook Exposure</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/adding-music-to-photo-online-for-2024/"><u>Adding Music to Photo Online for 2024</u></a></li>
+<li><a href="https://techidaily.com/bios-setup-hands-on-starting-up-into-system-firmware-on-windows-versions/"><u>BIOS Setup Hands-On: Starting Up Into System Firmware on Windows Versions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-a-great-convertible-and-inexpensive-asus-chromebook-with-our-detailed-review/"><u>Experience a Great, Convertible & Inexpensive Asus Chromebook with Our Detailed Review!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-evaluation-of-the-amazon-kindle-oasis-a-pricey-but-stunningly-crafted-ereader/"><u>Expert Evaluation of the Amazon Kindle Oasis: A Pricey but Stunningly Crafted eReader</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-features-of-the-netatmo-smart-weather-station-for-connectivity-conscious-consumers/"><u>Exploring the Features of the Netatmo Smart Weather Station for Connectivity-Conscious Consumers</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-seamlessly-update-your-sata-controllers-software-on-a-windows-pc-beginner-friendly/"><u>How to Seamlessly Update Your SATA Controller's Software on a Windows PC [Beginner-Friendly]</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/iphone-13-user-experience-and-detailed-breakdown/"><u>IPhone 13 User Experience and Detailed Breakdown</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-repair-tips-for-a-broken-headset-microphone-connection/"><u>Step-by-Step Repair Tips for a Broken Headset Microphone Connection</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-dynamic-edge-technique-adding-motion-blur-to-portraits-using-picsart-for-2024/"><u>The Dynamic Edge Technique Adding Motion Blur to Portraits Using Picsart for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-limitations-a-detailed-look-at-pioneer-bdr-xd05b-blu-ray-writer/"><u>Unpacking the Limitations: A Detailed Look at Pioneer BDR-XD05B Blu-Ray Writer</u></a></li>
+</ul></div>
+

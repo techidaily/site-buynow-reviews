@@ -1,7 +1,7 @@
 ---
 title: "The Budget Tech Contender: In-Depth Review and Evaluation of The Amazon Fire HD 8 (8Th Gen) Tablet"
-date: 2024-08-03T22:58:30.506Z
-updated: 2024-08-04T22:58:30.506Z
+date: 2024-09-11T19:49:36.118Z
+updated: 2024-09-15T11:38:25.228Z
 categories:
   - BestProducts
 description: "This Article Describes The Budget Tech Contender: In-Depth Review and Evaluation of The Amazon Fire HD 8 (8Th Gen) Tablet"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/f2cea06ab8ae79e3da9341215d5a2b3791081a5d0
 
 4
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Netgear AC1200 Wireless WiFi Range Extender (EX6200)
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/5uYQ7n2CL2KkI81CwaUI6k-kg6I=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-2LW4043312-1-5c924aa1c9e77c0001e11e41.jpg)
@@ -42,10 +39,6 @@ Lifewire / Fred Meyer
 
 ## Netgear AC1200 Wireless WiFi Range Extender (EX6200)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/ypwoGr7PKp9XOfm_EgF2BsvzZkg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-2LW4043312-1-5c924aa1c9e77c0001e11e41.jpg)
 
 Lifewire / Fred Meyer
@@ -88,20 +81,26 @@ Lifewire / Fred Meyer
 
  For example, our[router](https://www.lifewire.com/what-is-a-router-2618162) sits in the living room entertainment center against one wall. On the opposite side of the wall sits an entertainment center in our bedroom. Now, we could run an Ethernet cord around the wall, through the bedroom door, and to the entertainment center, which would be around 60 feet or so, or we could drill through the wall and install an Ethernet socket. However, with the EX6200 we didn’t have to do either. Since it's right on the other side of the wall, we can set up the EX6200 and get the full signal to hardwire our TV,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and Xbox One, which gives better speed and reliability than if we used them with WiFi-only.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## **Setup Process: A familiar process**
 
  Getting the EX6200 up and running is the same process used with pretty much every wireless extender on the market. Pull the thing out of the box, plug it in within 10-15 feet of your Wi-Fi router, and hit the WPS button. Then head over to your router and hit the corresponding WPS button on it. Voila! You're good to go.
 
  Alternatively, you can either plug into one of the Ethernet ports, or connect via the temporary network the EX6200 creates when you first turn it on. Check the manual for the web address to access the extender's interface (<www.mynetext.net>), and the bottom of the router for the default username and password (change this immediately), log in and follow the wizard that loads to get connected.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/Lny9pSzLcp1hItabWfQAbx8cAoc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-2-5c924b5846e0fb0001f8d14a.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Fred Meyer
 
@@ -121,9 +120,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 Lifewire / Fred Meyer
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## **Connectivity: Hardwire everything**
 
  The Netgear AC1200 Wireless WiFi Range Extender (EX6200) has dual-band Wi-Fi, boasting two antennas. It transmits and receives on the 2.4GHz and 5GHz bands and is compatible with Wi-Fi b/g/n/ac devices. The EX6200 is pretty run-of-the-mill when it comes to wireless connectivity, and its AC1200 rating (300Mbps+900Mbps) puts it roughly in the mid-range category. It's not a speed demon, but it's more than adequate for most applications.
@@ -138,12 +134,23 @@ Lifewire / Fred Meyer
 
  If you have a wired connection to the internet, but no spare router, you can use the EX6200 in Access Point mode and it'll allow you to connect via Wi-Fi. However, unlike a router, it doesn't have a built-in DHCP server (Dynamic Host Configuration Protocol which provides an[IP address](https://www.lifewire.com/what-is-an-ip-address-2625920) ) so you'll still need a device that can handle that task somewhere in your network.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/ZHlEjP4KLtEcUqCvuXTg1eZBnFg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-3-5c924c8f46e0fb0001770187-2a10c24af5834857aeb7b4cfcd1cc6a9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Fred Meyer
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network Performance: Adequate but not spectacular**
 
@@ -153,16 +160,10 @@ Lifewire / Fred Meyer
 
  From our testing, we'd say the sweet spot for the EX6200 is 50 feet or less. Your results, of course, may vary depending on how many walls you place between yourself and the device and their composition. One area we did find the EX6200 excelled in is verticality. It seems like a lot of plug-in models have their range dramatically affected by height, but the EX6200 transmitted to the second floor into a room around 40 feet away in a straight line and we saw speeds around 300 to 350 Mbps.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: A solid balance**
 
  At $99.99 (MSRP) the EX6200 isn't exactly cheap. You can get extenders for $30 or lower that get the job done, but that's all they'll do. We found that the EX6200 struck a good balance between price and features, and is an excellent extender for most use cases.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Middle of the road choice**
 
  The EX6200 doesn't feature any mesh networking capabilities or a dedicated backhaul channel, so if you're wanting to deploy multiple extenders or plan on having heavy traffic, you might want to look at a higher-end model or opt for a mesh setup like[Google WiFi](https://www.lifewire.com/google-wifi-review-4589445) (MSRP $299). Though it comes at a much steeper price, it would allow you to cover a wider area through multiple units.
@@ -181,6 +182,19 @@ Lifewire / Fred Meyer
 
 * [Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008)
 * [TP-Link AC1200 RE305](https://www.lifewire.com/tp-link-ac1200-wifi-range-extender-re305-review-4589559)
+
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -202,14 +216,11 @@ Lifewire / Fred Meyer
 * Number of Wired Ports  Five
 * Range  85 Feet Maximum
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -217,3 +228,20 @@ Lifewire / Fred Meyer
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-gopro-max-360-vs-hero-11-which-takes-the-lead/"><u>2024 Approved GoPro Max 360 vs Hero 11 Which Takes the Lead?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-pinnacle-of-smart-wear-2024s-finest-glasses-reviewed/"><u>Discover the Pinnacle of Smart-Wear: 2024'S Finest Glasses Reviewed</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-setup-accessing-official-canon-mg3620-driver-download-links/"><u>Effortless Setup: Accessing Official Canon MG3620 Driver Download Links</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-itel-a60-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Itel A60 to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/how-to-fix-classpnpsys-driver-errors-on-windows-11-and-windows-7-resolved/"><u>How to Fix CLASSPNP.SYS Driver Errors on Windows 11 and Windows 7 - Resolved</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-to-apple-iphone-14-pro-drfone-by-drfone-ios/"><u>How to Mirror PC to Apple iPhone 14 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-realme-note-50-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Realme Note 50 to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/laughter-ledger-twittersphere-tales/"><u>Laughter Ledger Twittersphere Tales</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/linkedin-plus-a-guide-to-its-prestige-benefits/"><u>LinkedIn Plus - A Guide to Its Prestige Benefits</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-samsung-galaxy-budsplus-personal-usage-insights-and-evaluations/"><u>The Ultimate Guide to Samsung Galaxy Buds+: Personal Usage Insights and Evaluations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-acer-discounts-maximizing-savings-in-novemberdecember-2024/"><u>Ultimate Acer Discounts: Maximizing Savings in November/December 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-comparing-all-ipads-on-the-market/"><u>Ultimate Guide: Comparing All iPads on the Market</u></a></li>
+</ul></div>
+

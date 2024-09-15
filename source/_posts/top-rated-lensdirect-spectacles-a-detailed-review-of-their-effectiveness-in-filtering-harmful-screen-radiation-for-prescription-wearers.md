@@ -1,7 +1,7 @@
 ---
 title: "Top Rated LensDirect Spectacles: A Detailed Review of Their Effectiveness in Filtering Harmful Screen Radiation for Prescription Wearers"
-date: 2024-08-03T22:58:31.423Z
-updated: 2024-08-04T22:58:31.423Z
+date: 2024-09-10T13:37:24.991Z
+updated: 2024-09-15T07:56:06.967Z
 categories:
   - BestProducts
 description: "This Article Describes Top Rated LensDirect Spectacles: A Detailed Review of Their Effectiveness in Filtering Harmful Screen Radiation for Prescription Wearers"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/99663f80a681577ef6d172804500e3555c286bc17
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ## Amazon Halo
 
 ![Amazon Halo](https://www.lifewire.com/thmb/KDrlBicwDSsm8oahXwLC9cx5FSs=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_HeroSquare-2e5c3941b8fe49afbd7464f382164976.jpg)
@@ -70,16 +67,10 @@ Lifewire / Yoona Wagener
 
  As a dedicated fitness tracker user, I was thrown off by the lack of any sort of interface on the Halo, but my full seven-day experience did serve to help me become more aware of my quality of sleep and general activity levels.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Amazon Halo](https://www.lifewire.com/thmb/W0-czfRzA-7ixa5VS8Cb4sBcaqM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_02-b2292f1ee1b54f4e9990c92e582c5a4b.jpg)
 
 Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Design: An accessory that blends in
 
  The Halo band doesn’t overwhelm the senses. I tested a small-sized band in silver and appreciated the streamlined bracelet style form factor. The fabric strap, which is a mix of sweat-wicking synthetics, has an athleisure look and feel: sporty but not to the degree that it screams sport watch. Rounding out the minimalist look is one sole button on the side of the sensor unit, which is flanked by an[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) indicator and one of two internal microphones. The other mic is located on the back, along with the optical sensor; it's largely undetectable if you manage a close fit.
@@ -101,17 +92,18 @@ Lifewire / Yoona Wagener
  As for water resistance, I didn’t test the 50-meter swimproof rating of the Halo in a pool, but I did shower with the device for three days. Despite the band’s moisture-wicking band material, it remained damp far longer than was comfortable and compared to a fast-drying silicone band. If you’re an avid swimmer or prefer not to remove your wearable while showering, the sport band option will most likely be the more desirable option.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Performance: Constantly monitoring movement, not performance
 
  While this streamlined device doesn’t log detailed workout metrics, the Halo has the upper hand when it comes to continuously monitoring movement—and sedentary stints throughout the day. Whether you’re sitting at a desk or venture out for an errand, the Halo will capture that and pretty accurately categorize it. It consistently registered walking and running activities, though the readout wasn’t very accurate for the latter. Truthfully, I don’t get the impression that that’s the point of the Halo.
 
  Instead, the Halo presents all activity data through a convenient point-tracking system. The weekly goal is 150, which converts to 150 minutes of cardiovascular activity, as recommended by the American Heart Association. Periods of movement and exercise count toward this point goal, while periods of non-movement subtract from points earned. It’s a digestible system that offers a new twist on the steps or movement alert functions you’ll find in fitness trackers and[smartwatches](https://www.lifewire.com/an-introduction-to-smart-watches-3441381) from Samsung, Garmin, Fitbit, and others. This system was an encouraging reset from those reminders that sometimes feel more annoying than motivating.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Amazon Halo](https://www.lifewire.com/thmb/FjdFyV6Y4mTXNsqccZ4aEBJNpV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_05-e671ee9f77cc4cee8e2580a2dba449d5.jpg)
 
  Lifewire / Yoona Wagener.
@@ -123,6 +115,13 @@ Lifewire / Yoona Wagener
  All voice data and images used for the body scan are deletable from the app, though you can also choose to back up body data in the cloud, which Amazon assures is private and well secured.
 
  The body fat scan is based on pictures uploaded to the app—and based on prompts from the app. While it felt invasive and isn’t a feature I’d seek out in a fitness tracker, it worked without issue. Amazon reports that this technology is twice as accurate as smart scales. For the right user who feels comfortable with this kind of data compilation, this feature also offers visualizations of how different body fat percentages would look on your frame and stores your scans for a look at trends over time. All voice data and images used for the body scan are deletable from the app, though you can also choose to back up body data in the[cloud](https://www.lifewire.com/what-is-cloud-computing-817770) , which Amazon assures is private and well secured.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Software: An essential and user-friendly mobile app
 
@@ -142,15 +141,25 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/fBsShcBruhAWkg-kTKPWkYUaImo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_04-ee532fbe8d2f4e8195e63ed9dd45611a.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
 ## Price: A reasonable price for the feature set
 
  Retailing for just about $100, the Amazon Halo band certainly won’t break the bank for budget-minded shoppers. While the lack of display could be a deterrent, the solid mobile app provides convenient access to the detailed sleep, automatic activity tracking, and specialized tone of voice and body fat analysis the Halo provides.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Amazon Halo vs. WHOOP Strap 3
 
  The WHOOP Strap 3 is another screen-less fitness tracker with a minimalist bent but a bigger buy-in and emphasis on performance. Unlike the Halo, the WHOOP Strap requires a WHOOP membership, which, at the lowest end, costs $30 monthly for a 6-month membership or $180 total (band included). The Halo band comes with a free six-month subscription to Halo app services, then a $3.99 monthly charge, so it’s considerably cheaper—especially since WHOOP recommends replacing their fabric strap every six months as well.
@@ -164,17 +173,18 @@ Lifewire / Yoona Wagener
  The Amazon Halo isn’t for everyone with its lack of display and additional layers of data tracking to capture tone of voice and body fat percentage. But for the user that wants a little less hardware but more forward-thinking fitness/health tracking, this unique wearable offers a different approach to increasing activity and wellness awareness on a daily basis.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Apple Watch Series 5](https://www.lifewire.com/apple-watch-series-6-review-5087552)
 * [Fitbit Sense](https://www.lifewire.com/fitbit-sense-review-5085832)
 * [Ticwatch Pro](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Halo
@@ -197,11 +207,27 @@ Lifewire / Yoona Wagener
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-picture-perfect-with-soundtracked-clips/"><u>[New] Picture Perfect with Soundtracked Clips</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-social-media-savvy-top-101-bio-tips-and-techniques-for-facebookers/"><u>[New] Social Media Savvy Top 101 Bio Tips & Techniques for Facebookers</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unparalleled-production-choosing-the-top-webcam-for-podcasts/"><u>[New] Unparalleled Production Choosing the Top Webcam for Podcasts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-boost-engagement-on-youtube-by-adding-emojis-for-2024/"><u>[Updated] Boost Engagement on YouTube by Adding Emojis for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-secretive-approach-to-watching-insta-stories-for-2024/"><u>[Updated] Secretive Approach to Watching Insta-Stories for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-eufy-t8200-a-revolutionary-subscriptionless-smart-doorbell-solution/"><u>Comprehensive Guide to the Eufy T8200 - A Revolutionary Subscriptionless Smart Doorbell Solution</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/download-our-selection-of-festive-free-ebooks-now/"><u>Download Our Selection of Festive Free eBooks Now!</u></a></li>
+<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-nokia-c22-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-podcast-live-the-straightforward-fix/"><u>In 2024, Podcast Live The Straightforward Fix</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nintendo-switch-review-the-best-portable-gaming-console/"><u>Nintendo Switch Review: The Best Portable Gaming Console</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/quality-sound-for-less-a-review-of-senso-buds/"><u>Quality Sound for Less: A Review of Senso Buds</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-features-of-amazonbasics-secure-micro-cut-shredder-product-analysis/"><u>Unpacking the Features of AmazonBasics' Secure Micro-Cut Shredder – Product Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/weatherproof-and-wide-viewing-sunbrite-55-unrivaled-outdoor-4k-hdr-television/"><u>Weatherproof and Wide-Viewing SunBrite 55 - Unrivaled Outdoor 4K HDR Television</u></a></li>
+</ul></div>
+
