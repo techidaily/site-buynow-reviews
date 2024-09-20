@@ -1,7 +1,7 @@
 ---
 title: Canon PowerShot G9 X Mark II Review
-date: 2024-09-07T21:51:25.578Z
-updated: 2024-09-14T22:43:30.727Z
+date: 2024-09-13T17:32:46.742Z
+updated: 2024-09-20T16:08:17.158Z
 categories:
   - BestProducts
 description: This Article Describes Canon PowerShot G9 X Mark II Review
@@ -96,13 +96,6 @@ Lifewire / Andy Zahn
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
@@ -117,6 +110,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Autofocus: Blazing fast**
 
  We were shocked by how fast and consistent the autofocus is in the SX70 HS, even in low-light situations. It rarely fails to lock on to your intended subject, and focus tracking works flawlessly.
@@ -124,13 +124,6 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -163,10 +156,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
@@ -200,10 +193,16 @@ Lifewire / Andy Zahn
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
@@ -221,6 +220,13 @@ Lifewire / Andy Zahn
  **A tremendously fun camera that is exceedingly well-rounded if a bit pricey.**
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -262,20 +268,20 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/iscover-essential-list-of-7-high-performance-mobile-video-streaming-tools-iphoneandroid/"><u>[New] Discover Essential List of 7 High-Performance Mobile Video Streaming Tools (iPhone/Android)</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-obsudios-screencast-analysis-best-tools-for-live-streaming/"><u>[New] Obsudio's Screencast Analysis Best Tools for Live Streaming</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-zippyzoom-tortoisepic-timestretch-for-2024/"><u>[New] ZippyZoom TortoisePic TimeStretch for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-discovering-the-quintessential-25-influence-kings-and-queens-for-2024/"><u>[Updated] Discovering The Quintessential 25 Influence Kings and Queens for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-currently-hot-in-vr-tech/"><u>2024 Approved Currently Hot in VR Tech</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/browser-security-alert-decoded-how-to-deal-with-firefox-secerrorunknownissuer/"><u>Browser Security Alert Decoded - How to Deal with FireFox SEC_ERROR_UNKNOWN_ISSUER</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/cameras-absent-in-depth-analysis-of-the-new-generation-google-nest-hub/"><u>Cameras Absent: In-Depth Analysis of the New Generation Google Nest Hub</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/explore-the-intelligent-functions-of-the-stunning-samsung-un65ru8000fxza-display-in-our-review/"><u>Explore the Intelligent Functions of the Stunning Samsung UN65RU8000FXZA Display in Our Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-google-pixel-6-capturing-moments-with-perfection/"><u>In-Depth Analysis of the Google Pixel 6: Capturing Moments with Perfection</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-voice-transcription-tools-a-comprehensive-guide/"><u>Leading Voice Transcription Tools : A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximize-comfort-and-minimize-fatigue-with-the-ergodriven-topo-the-ideal-standing-desk-mat-reviewed/"><u>Maximize Comfort and Minimize Fatigue with the Ergodriven Topo - The Ideal Standing Desk Mat Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/next-level-innovation-in-a-slim-profile-a-comprehensive-look-at-macbook-pro-m1-2020/"><u>Next-Level Innovation in a Slim Profile: A Comprehensive Look at MacBook Pro M1 (2020)</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-lava-blaze-2-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Lava Blaze 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-capabilities-detailed-insights-into-the-netgear-ac1200-ex6200-wi-fi-signal-booster-review/"><u>Unveiling the Capabilities: Detailed Insights Into the Netgear AC1200 (EX6200) Wi-Fi Signal Booster Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-digital-front-door-securing-it-from-hackers/"><u>Your Digital Front Door: Securing It From Hackers</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unleash-your-vision-the-best-tiktok-editing-guide/"><u>[New] Unleash Your Vision The Best TikTok Editing Guide</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-ultimate-slomo-videography-tool-assessment/"><u>[Updated] In 2024, Ultimate SloMo Videography Tool Assessment</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/a-complete-breakdown-of-what-pfp-means-on-tiktok-for-2024/"><u>A Complete Breakdown of What PFP Means on TikTok for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/critical-considerations-for-acquiring-digital-recorders/"><u>Critical Considerations for Acquiring Digital Recorders</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-best-in-blue-light-filtering-frames-for-prescription-wearers-a-comprehensive-review/"><u>Discover the Best in Blue Light Filtering Frames for Prescription Wearers - A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-power-of-apples-m4-silicon-news-update-on-release-and-full-technical-breakdown/"><u>Discover the Power of Apple's M4 Silicon: News Update on Release and Full Technical Breakdown</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/enhance-clear-speech-on-skype-calls-for-2024/"><u>Enhance Clear Speech on Skype Calls for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/explore-top-tier-hardware-reviews-with-toms-electronics-insights/"><u>Explore Top-Tier Hardware Reviews with Tom's Electronics Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-enables-2fa-via-whatsapp-for-secure-access/"><u>Instagram Enables 2FA via WhatsApp for Secure Access</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-home-networks-with-netgear-orbi-the-premier-mesh-router-on-the-market/"><u>Mastering Home Networks with Netgear Orbi – The Premier Mesh Router on the Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nw-a35-walkman-sonic-perfection/"><u>NW-A35 Walkman: Sonic Perfection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfect-ru-alphabets-phonetics-recognition/"><u>Perfect RU Alphabets' Phonetics Recognition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-2024-quietest-earbuds-and-headsets/"><u>Top 2024 Quietest Earbuds & Headsets</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-savings-an-authoritative-review-of-apples-best-yet-budget-friendly-ipad-with-a-dynamic-102-display/"><u>Unveiling the Power of Savings: An Authoritative Review of Apple's Best-Yet, Budget-Friendly iPad with a Dynamic 10.2 Display</u></a></li>
 </ul></div>
 

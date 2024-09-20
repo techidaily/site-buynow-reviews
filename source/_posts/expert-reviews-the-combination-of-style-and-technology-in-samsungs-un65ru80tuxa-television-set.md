@@ -1,7 +1,7 @@
 ---
 title: "Expert Reviews: The Combination of Style and Technology in Samsung's UN65RU80TUXA Television Set"
-date: 2024-09-14T09:28:37.238Z
-updated: 2024-09-14T23:01:13.740Z
+date: 2024-09-18T18:09:05.062Z
+updated: 2024-09-20T18:17:36.456Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Reviews: The Combination of Style and Technology in Samsung's UN65RU80TUXA Television Set"
@@ -76,13 +76,6 @@ thumbnail: https://thmb.techidaily.com/2d6ac4daab03782e87bc719b2db632da8a61451d4
 
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Humans have never been so annoying**
 
  The game begins with a multi-hour long tutorial program, which I highly recommend you undertake before playing the game. There are so many various aspects to the game—basic needs, threats to your colony, resources to import and export—that it would be disastrous not to get caught up to speed. It took me a total of five hours to complete these tutorials, but I had to restart a couple after a couple operator error moments when I accidentally destroyed my only water vaporizer and had no idea how to rebuild it. So, it will probably take you less.
@@ -96,6 +89,13 @@ thumbnail: https://thmb.techidaily.com/2d6ac4daab03782e87bc719b2db632da8a61451d4
  In over twenty hours of gameplay, I learned the hard way that humans in this game are not only picky, but they demand the life of luxury the second they step off the rocket and into the dome. It didn’t matter that only twelve called a single dome home. It didn’t matter that there was barely enough of them to cover operating the grocery store and space bar. A lack of space for these amenities fell upon deaf ears. They wanted access to their art stores, electronics, and fine dining immediately. In that regard, I’m a little conflicted; as much as I wanted more shopping options for Mars, I realized not long after humans arrived that Haemimont Games, in reality, gave me a blessing by keeping a bland palate. Plus, more buildings and items become available as research, funding, and planetary discoveries allow.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -123,13 +123,6 @@ thumbnail: https://thmb.techidaily.com/2d6ac4daab03782e87bc719b2db632da8a61451d4
 
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Competition: Other city-building games**
 
  What makes Surviving Mars unique is that technically it is a city-[building game](https://www.lifewire.com/best-offline-building-games-4580415) , but instead of building bus lines, you have to build oxygen and water lines to ensure colony survival. However, just like city-building games, you are building infrastructure. If you’re solely focused on building up a city, Surviving Mars would be a great addition to your library, but so would[Cities: Skylines](https://store.steampowered.com/app/255710/Cities%5FSkylines/) (view on Steam). Both focus on creating a habitat from scratch—one just happens to be hundreds of thousands of miles away while the other could be in a tropical or a Midwestern climate.
@@ -141,6 +134,13 @@ thumbnail: https://thmb.techidaily.com/2d6ac4daab03782e87bc719b2db632da8a61451d4
  **A interesting new take on city-builders, if you can stomach the micromanagement.**
 
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -169,16 +169,15 @@ thumbnail: https://thmb.techidaily.com/2d6ac4daab03782e87bc719b2db632da8a61451d4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-clips.techidaily.com/new-crossing-platforms-upload-video-to-twittertumblr/"><u>[New] Crossing Platforms Upload Video to Twitter/Tumblr</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-streamline-your-video-workflow-youtube-to-mpeg-essentials/"><u>[New] Streamline Your Video Workflow YouTube-to-MPEG Essentials</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-unveiling-drone-racings-secrets-and-surpassing-fpv-drones-for-2024/"><u>[New] Unveiling Drone Racing's Secrets & Surpassing FPV Drones for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-the-beginners-pathway-to-leveraging-facebook-statistics/"><u>[Updated] The Beginner's Pathway to Leveraging Facebook Statistics</u></a></li>
-<li><a href="https://article-helps.techidaily.com/essential-tips-for-compelling-screenplay-narration-for-2024/"><u>Essential Tips for Compelling Screenplay Narration for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-features-that-make-samsung-galaxy-note-nine-a-game-changer-in-extra-large-smartphone-market/"><u>Exploring the Features that Make Samsung Galaxy Note Nine a Game-Changer in Extra-Large Smartphone Market</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-latest-3rd-generation-echo-dot-discovering-all-thats-possible-with-alexa-in-a-portable-package/"><u>Exploring the Latest 3Rd Generation Echo Dot: Discovering All That's Possible with Alexa in a Portable Package</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-watch-dogs-legion-an-in-depth-look-at-a-fresh-cityscape/"><u>Exploring Watch Dogs: Legion - An In-Depth Look at a Fresh Cityscape</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/quick-download-hp-envy-5055-laptop-drivers-get-them-fast/"><u>Quick Download: HP ENVY 5055 Laptop Drivers – Get Them Fast!</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-merits-of-swipe-and-tap-in-social-media-platforms/"><u>The Merits of Swipe and Tap in Social Media Platforms</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-list-the-7-finest-mobile-deals-for-elderly-users-this-year/"><u>Ultimate List: The 7 Finest Mobile Deals for Elderly Users This Year</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-iphone-saving-and-utilizing-gifs-effectively/"><u>2024 Approved Mastering iPhone Saving & Utilizing GIFs Effectively</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-top-10-viral-music-videos-on-social-media/"><u>2024 Approved Top 10 Viral Music Videos on Social Media</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-realme-11-5g-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Realme 11 5G System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/creative-labs-2013-sound-blaster-zxr-in-depth-analysis-and-expert-evaluation/"><u>Creative Labs' 2013 Sound Blaster ZXR - In-Depth Analysis and Expert Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/family-friendly-durable-cams-for-splashing-and-snapping/"><u>Family-Friendly Durable Cams for Splashing and Snapping</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/o-add-text-to-youtube-video/"><u>How to Add Text to YouTube Video</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-speedy-sonic-tuning-devices-index-pc-tablet/"><u>In 2024, Speedy Sonic Tuning Devices Index (PC, Tablet)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-mobile-reception-amplifiers/"><u>Top-Rated Mobile Reception Amplifiers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unlock-the-secrets-to-social-media-success-with-igtv-hashtag-techniques/"><u>Unlock the Secrets to Social Media Success with IGTV Hashtag Techniques</u></a></li>
 </ul></div>
 

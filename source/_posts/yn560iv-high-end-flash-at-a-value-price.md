@@ -1,7 +1,7 @@
 ---
 title: "YN560IV: High-End Flash at a Value Price"
-date: 2024-09-11T08:05:09.144Z
-updated: 2024-09-14T23:32:16.926Z
+date: 2024-09-17T17:12:22.638Z
+updated: 2024-09-20T18:16:35.964Z
 categories:
   - BestProducts
 description: "This Article Describes YN560IV: High-End Flash at a Value Price"
@@ -100,13 +100,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: A lot of reading before use**
 
  Once you unpack your flash and install the four AA batteries, you’re going to want to familiarize yourself with the buttons and menu system a little. The YN560 IV has a lot of functionality, but it doesn’t have the most intuitive interface. The front of the device contains a top row of four buttons (a Light/Music icon, Mode, a Wi-Fi icon, and Zoom). Below this is a charge indicator button marked “PILOT”, a direction pad, and an On/Off button.
@@ -127,6 +120,19 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Yongnuo YN560 IV Wireless Flash Speedlite Master vs Neewer TT560 Flash Speedlite**
 
  Photographers just starting out (or with significantly less complicated lighting ambitions) might be better served by getting a dead-simple option like the Neewer TT560 Flash Speedlite. It’s a no-fuss option with very few extraneous controls that will be a good starting point for most users, and solid for pros who don’t want more than optical trigger functionality on a flash.
@@ -141,18 +147,18 @@ Lifewire / Jonno Hill
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master may not be a very simple flash, but it packs enough functionality to make a very versatile platform for more aspirational photographers. Buyers that want full manual control and radio transmission without paying an arm and a leg will be more than pleased with what they get.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Canon Speedlite 430EX III-RT Flash](https://www.lifewire.com/canon-speedlite-430ex-iii-rt-flash-review-4686835)
 * [Nikon D3400](https://www.lifewire.com/nikon-d3400-review-4776644)
 * [Fovitec SPK10-037 Softbox Lighting Kit](https://www.lifewire.com/fovitec-spk10-037-softbox-lighting-kit-review-4692503)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -186,18 +192,20 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-twitter-connect-optimizing-your-tiktok-content-for-2024/"><u>[New] Twitter Connect Optimizing Your TikTok Content for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/decoding-tablet-sizes-your-comprehensive-guide-to-lighter-more-compact-options/"><u>Decoding Tablet Sizes: Your Comprehensive Guide to Lighter, More Compact Options</u></a></li>
-<li><a href="https://facebook.techidaily.com/evaluating-feed-structure-facebooks-proposed-research-approach/"><u>Evaluating Feed Structure: Facebook's Proposed Research Approach</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/exploring-high-resolution-with-lgs-digital-cinema-31mu97-b/"><u>Exploring High-Resolution with LG's Digital Cinema 31MU97-B</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-style-and-power-a-detailed-review-of-the-apple-imac-215-4k-monitor/"><u>Exploring Style & Power: A Detailed Review of the Apple iMac 21.5 4K Monitor.</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Motorola Edge+ (2023)? | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-deciphering-youtubes-shorts-funding-mechanism/"><u>In 2024, Deciphering YouTube's Shorts Funding Mechanism</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Samsung Galaxy F04? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/microsoft-surface-ergonomic-keyboard-review/"><u>Microsoft Surface Ergonomic Keyboard Review</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-definitive-selection-of-top-tier-80s-movie-classics-for-modern-audiences/"><u>The Definitive Selection of Top-Tier '80S Movie Classics for Modern Audiences</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-essential-5-points-to-think-about-prior-to-purchasing-a-fitness-device/"><u>The Essential 5 Points to Think About Prior to Purchasing a Fitness Device</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-ultimate-resource-for-morphvox-audio-transformation/"><u>The Ultimate Resource for MorphVOX Audio Transformation</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-step-by-step-for-launching-your-own-livestream-channel/"><u>[New] Step-by-Step for Launching Your Own Livestream Channel</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-selecting-the-optimal-mac-microphone-recorders-our-expert-picks-of-5/"><u>[Updated] 2024 Approved Selecting the Optimal Mac Microphone Recorders Our Expert Picks of 5</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-best-low-end-screen-recorder-options-summarized/"><u>2024 Approved Best Low-End Screen Recorder Options Summarized</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/city-life-simulation-at-its-best-a-comprehensive-cities-skylines-critique/"><u>City Life Simulation at Its Best: A Comprehensive Cities: Skylines Critique</u></a></li>
+<li><a href="https://extra-information.techidaily.com/click-inducing-headline-whiz/"><u>Click-Inducing Headline Whiz</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-asus-rt-ac68u-a-perfect-blend-of-speed-and-security-in-modern-5g-wi-fi-technology/"><u>Evaluating the Asus RT-AC68U: A Perfect Blend of Speed and Security in Modern 5G Wi-Fi Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-bold-step-into-the-clubhouse-arena-with-audio-features/"><u>Facebook's Bold Step Into the Clubhouse Arena with Audio Features</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-no-stress-just-nfts-a-beginners-handbook/"><u>In 2024, No Stress, Just NFTs A Beginner’s Handbook</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/steps-to-avoid-automatic-podcast-suggestions-on-spotify-for-2024/"><u>Steps to Avoid Automatic Podcast Suggestions on Spotify for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-prime-picks-best-storytelling-channels-fans/"><u>The Prime Picks Best Storytelling Channels Fans</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-simple-yet-powerful-clearstream-eclipse-antenna-review/"><u>The Simple Yet Powerful ClearStream Eclipse Antenna Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-powershot-compact-for-long-distance-photography/"><u>The Ultimate PowerShot Compact for Long-Distance Photography</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-list-of-fun-games-perfect-for-your-next-downtime-session/"><u>Ultimate List of Fun Games Perfect for Your Next Downtime Session</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlocking-the-secrets-of-grok-by-elon-musk-an-exploration-of-its-artificial-intelligence-potential-and-cost/"><u>Unlocking the Secrets of Grok by Elon Musk: An Exploration of Its Artificial Intelligence Potential and Cost</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unraveling-the-mystery-how-does-the-netgear-c3000-stack-against-modern-modem-routers-in-a-comparative-analysis/"><u>Unraveling the Mystery: How Does the Netgear C3000 Stack Against Modern Modem-Routers in a Comparative Analysis?</u></a></li>
 </ul></div>
 

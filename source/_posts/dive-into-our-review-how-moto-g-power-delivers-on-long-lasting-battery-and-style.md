@@ -1,7 +1,7 @@
 ---
 title: "Dive Into Our Review: How Moto G Power Delivers on Long-Lasting Battery and Style"
-date: 2024-09-13T19:13:44.732Z
-updated: 2024-09-15T04:51:42.465Z
+date: 2024-09-19T18:16:38.565Z
+updated: 2024-09-20T18:24:34.571Z
 categories:
   - BestProducts
 description: "This Article Describes Dive Into Our Review: How Moto G Power Delivers on Long-Lasting Battery and Style"
@@ -84,16 +84,10 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -118,7 +112,21 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Only worth it if you’re keen on the story**
 
@@ -127,13 +135,6 @@ Lifewire / Kelsey Simon
  That said, if role-playing games with a text-heavy focus are of interest to you, then the game does have a lot to offer for the cost. The world of Numenera is vast, and considering all the prompts that alter the story, the game also has a lot of replayability. While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else, and for those players, the $50 cost will be worth it.
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Other story focused RPGs**
 
@@ -146,13 +147,6 @@ Lifewire / Kelsey Simon
  **A text-heavy RPG that doesn’t live up to its predecessor.**
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -177,18 +171,16 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-video-framing-technique-adding-bb-and-letterbox-overlays-to-fb/"><u>[New] In 2024, Video Framing Technique Adding BB and Letterbox Overlays to FB</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-top-10-best-offline-ios-games-for-2024/"><u>[New] Top 10 Best Offline iOS Games for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-analyzing-the-spectrum-of-hdr-with-asus-professional-screen/"><u>2024 Approved Analyzing the Spectrum of HDR with ASUS Professional Screen</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-deciphering-the-process-of-bulk-downloads-from-tiktoks-treasure-trove/"><u>2024 Approved Deciphering the Process of Bulk Downloads From TikTok's Treasure Trove</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-why-the-samsung-galaxy-tab-s5e-reigns-as-an-android-tablet-king/"><u>Comprehensive Review: Why the Samsung Galaxy Tab S5e Reigns as an Android Tablet King</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-samsung-cf591-assessment-top-choice-for-gamers/"><u>Comprehensive Samsung CF591 Assessment: Top Choice for Gamers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/corsair-one-pro-review-a-creative-and-efficient-gaming-pc/"><u>Corsair One Pro Review: A Creative and Efficient Gaming PC</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-next-level-gaming-on-philipss-49-inch-proven-oled-curved-screen/"><u>Experience Next-Level Gaming on Philips's 49-Inch Proven OLED Curved Screen</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-unlock-apple-id-without-phone-number-from-iphone-6s-plus-by-drfone-ios/"><u>In 2024, Unlock Apple ID without Phone Number From iPhone 6s Plus</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/mastering-the-bing-ai-chat-feature-an-android-users-guide/"><u>Mastering the Bing AI Chat Feature: An Android User's Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionary-tech-mastery-exploring-the-superiority-of-iphone-12-by-apple/"><u>Revolutionary Tech Mastery: Exploring the Superiority of iPhone 12 by Apple</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-gaming-hub-vs-content-creators-haven-twitch-and-youtube-compared/"><u>The Gaming Hub vs Content Creator's Haven Twitch & YouTube Compared</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlocking-value-with-the-apple-watch-series-se-a-cost-conscious-review/"><u>Unlocking Value with the Apple Watch Series SE: A Cost-Conscious Review</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-crafting-chuckles-in-cyberspace-diy-memes-of-the-metaverse/"><u>[New] Crafting Chuckles in Cyberspace DIY Memes of the Metaverse</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-decoding-how-to-grab-youtube-captions-3-effective-techniques-revealed-for-2024/"><u>[New] Decoding How To Grab YouTube Captions 3 Effective Techniques Revealed for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-toggle-picture-in-picture-feature-for-youtube-app/"><u>[Updated] Toggle Picture-in-Picture Feature for Youtube App</u></a></li>
+<li><a href="https://change-location.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/boost-your-fitness-journey-fitbit-versa-3s-integrated-gps-and-wellness-tools-for-extra-drive/"><u>Boost Your Fitness Journey: Fitbit Versa 3'S Integrated GPS and Wellness Tools for Extra Drive</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-oneplus-12r-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on OnePlus 12R Quickly | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/innovative-dual-functionality-of-the-arlo-video-doorbell-for-modern-homes/"><u>Innovative Dual Functionality of the Arlo Video Doorbell for Modern Homes</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-no-frills-guide-to-basic-hdr-techniques/"><u>The No-Frills Guide to Basic HDR Techniques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/things-to-consider-before-buying-a-dvr/"><u>Things to Consider Before Buying a DVR</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-10-alternatives-to-youtube-discover-new-video-platforms-for-a-superior-viewing-experience/"><u>Top 10 Alternatives To YouTube: Discover New Video Platforms For A Superior Viewing Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-tier-performance-evaluation-for-the-new-samsung-galaxy-tab-s7plus-a-true-android-marvel/"><u>Top-Tier Performance Evaluation for the New Samsung Galaxy Tab S7+ - A True Android Marvel</u></a></li>
 </ul></div>
 

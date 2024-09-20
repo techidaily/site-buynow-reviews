@@ -1,7 +1,7 @@
 ---
 title: "Syma X8 Heli Copter Evaluation: Budget-Friendly Aerial Fun From the Comfort of Your Couch"
-date: 2024-09-11T09:12:32.795Z
-updated: 2024-09-15T12:56:38.310Z
+date: 2024-09-14T17:15:53.394Z
+updated: 2024-09-20T17:04:53.574Z
 categories:
   - BestProducts
 description: "This Article Describes Syma X8 Heli Copter Evaluation: Budget-Friendly Aerial Fun From the Comfort of Your Couch"
@@ -103,10 +103,10 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Hit the switch**
@@ -134,13 +134,6 @@ Lifewire / Zach Sweat
  For example, if you set the Switch Lite as your primary system, nobody can play games you've bought and downloaded on your home Switch unless they log into your account. You could always keep that other Switch as your primary, but then your Switch Lite will need Wi-Fi to access titles. It's easy to see the problem there, but apparently, Nintendo doesn't.
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/kQx9K3tATPBWAMgyJJymqBqYPao=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-3-7349fa7d79f34dbaa50c25cb59aec820.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -200,6 +193,19 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Battery Life: Slightly better, but not the best**
 
  Battery life on the original Switch was just okay, to put it lightly, but typically you were lucky to get anything over 3 hours of screen time with most titles. It eventually received a bigger battery in a minor hardware revision, which helped. The Switch Lite has a slightly smaller battery than the revised Switch but also has lower power needs due to its small screen.
@@ -213,6 +219,13 @@ Lifewire / Zach Sweat
  A portable charger is still one of the best accessories you can pick up for the Switch, and there are many quality options out that are approved by Nintendo. I recommend picking one up, but be careful which one you choose. I've stuck with reputable brands and haven't had any trouble, but I have heard horror stories from people who have bricked their consoles with unsupported options.
 
  Lastly, the battery is internal, so you can't easily pop in a new one when it starts to degrade. While I haven't seen any degradation with mine, it'll happen at some point. When it does, sending it to Nintendo for repair is the only real option.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Inexpensive console gaming in your hands**
 
@@ -244,13 +257,6 @@ Lifewire / Zach Sweat
 
  Despite being stripped of some of the Switch’s more unique features and strengths, the Switch Lite is a perfect console for gamers on the go or those who prefer handheld. It features an extensive library of exclusives that are perfect for a highly mobile system like Animal Crossing—and it’s hard to argue with the price.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 [Nintendo Switch Review](https://www.lifewire.com/nintendo-switch-review-4707563)
@@ -262,10 +268,10 @@ Lifewire / Zach Sweat
 [Sony PlayStation 5 Review](https://www.lifewire.com/sony-playstation-5-review-5088394)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -300,20 +306,19 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/xclusive-guide-to-affordable-premium-video-editors-for-2024/"><u>[New] Exclusive Guide to Affordable, Premium Video Editors for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-pictolaugh-design-humor-graphics-for-2024/"><u>[Updated] PictoLaugh Design Humor Graphics for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-musical-notes-on-call-creating-and-cutting-tamil-alert-songs/"><u>2024 Approved Musical Notes on Call Creating & Cutting Tamil Alert Songs</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-swift-simplified-steps-mastering-iphone-screen-recordings/"><u>2024 Approved Swift, Simplified Steps Mastering Iphone Screen Recordings</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/breaking-barriers-with-openai-free-ai-applications/"><u>Breaking Barriers with OpenAI-Free AI Applications</u></a></li>
-<li><a href="https://windows11.techidaily.com/dissecting-the-dichotomy-microsoft-vs-native-user-account-on-windows-os/"><u>Dissecting the Dichotomy: Microsoft vs Native User Account on Windows OS</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-of-sealinks-55-4k-outdoor-television-the-ultimate-compact-choice/"><u>Expert Review of Sealink's 55 4K Outdoor Television - The Ultimate Compact Choice</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-highest-quality-power-inverters-2n4/"><u>Expert Review: Highest Quality Power Inverters - 2N4</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/inside-look-free-powerful-photo-editing-with-photoscape-software-breakdown/"><u>Inside Look: Free, Powerful Photo Editing with PhotoScape Software Breakdown</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/precision-and-convenience-in-pet-care-with-petsafes-innovative-mealtime-manager/"><u>Precision and Convenience in Pet Care with PetSafe's Innovative Mealtime Manager</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/the-art-of-visual-branding-with-professional-grade-fb-covers/"><u>The Art of Visual Branding with Professional-Grade FB Covers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-fun-side-of-overwatch-an-in-depth-review-on-dynamic-online-firefights/"><u>The Fun Side of Overwatch: An In-Depth Review on Dynamic Online Firefights</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/unleashing-sonic-beauty-with-the-loud-and-lovely-blueant-soundblade-comprehensive-review/"><u>Unleashing Sonic Beauty with the Loud & Lovely BlueAnt Soundblade - Comprehensive Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlock-the-full-potential-of-your-imac-expert-advice-on-intel-processor-upgrades/"><u>Unlock the Full Potential of Your iMac: Expert Advice on Intel Processor Upgrades</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-apple-m4-processor-launch-details-and-technical-specifications/"><u>Unveiling the Apple M4 Processor: Launch Details & Technical Specifications</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-accelerated-guide-to-transforming-srt-into-txt-files/"><u>[Updated] 2024 Approved Accelerated Guide to Transforming SRT Into TXT Files</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-xiaomi-redmi-k70e-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Xiaomi Redmi K70E Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discovering-the-latest-gadgets-with-toms-hardware-experts/"><u>Discovering the Latest Gadgets with Tom's Hardware Experts</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/efficiently-tackling-excessive-c-drive-data-usage/"><u>Efficiently Tackling Excessive C: Drive Data Usage</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-opinions-confirm-iphone-12-is-a-game-changer-for-apple-enthusiasts/"><u>Expert Opinions Confirm - iPhone 12 Is a Game-Changer for Apple Enthusiasts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/find-out-which-phones-make-the-best-friends-with-gear-vr/"><u>Find Out Which Phones Make the Best Friends with Gear VR</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-windows-update-failed-with-error-0x8024c01c-in-modern-operating-systems/"><u>How to Fix 'Windows Update Failed with Error 0X802^4C01C' In Modern Operating Systems</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-xiaomi-redmi-note-12-pro-4g-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Xiaomi Redmi Note 12 Pro 4G for Free? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nba-2k19-ultimate-virtual-hoops-experience/"><u>NBA 2K19 - Ultimate Virtual Hoops Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/next-level-smartwatch-experience-with-the-newly-released-samsung-galaxy-watch-active2/"><u>Next-Level Smartwatch Experience with the Newly Released Samsung Galaxy Watch Active2</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stadia-by-google-an-in-depth-look-at-its-strengths-and-weaknesses/"><u>Stadia by Google - An In-Depth Look at Its Strengths & Weaknesses</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ultimate-guide-play-tiny-tinas-stunning-open-world-adventure-now-fully-functional-on-pc/"><u>Ultimate Guide: Play Tiny Tina's Stunning Open World Adventure - Now Fully Functional on PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-play-an-exhaustive-review-of-the-asus-zephyrus-g14-gaming-laptop/"><u>Unveiling the Power of Play: An Exhaustive Review of the Asus Zephyrus G14 Gaming Laptop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/utility-meets-durability-in-urban-armor-gears-macbook-pro-defense-cover-reviewed/"><u>Utility Meets Durability in Urban Armor Gear's MacBook Pro Defense Cover Reviewed</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Expert Analysis of the Economical and Durable Fellowes Microban Wired Keyboard
-date: 2024-09-11T03:49:45.397Z
-updated: 2024-09-14T18:42:03.384Z
+date: 2024-09-19T17:34:26.241Z
+updated: 2024-09-20T16:02:56.221Z
 categories:
   - BestProducts
 description: This Article Describes Expert Analysis of the Economical and Durable Fellowes Microban Wired Keyboard
@@ -84,6 +84,13 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
@@ -91,10 +98,16 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
@@ -116,10 +129,10 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
@@ -135,13 +148,6 @@ Lifewire / Emily Isaacs
 [Microsoft Surface Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-surface-ergonomic-keyboard-review-4780282)
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -185,18 +191,15 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-core-principles-youtubes-social-contract/"><u>[New] 2024 Approved Core Principles YouTube's Social Contract</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-identifying-the-best-on-the-market-for-hdr-photography/"><u>[New] Identifying the Best on the Market for HDR Photography</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-iphone-models-for-mobile-gaming-in-2-comparison-and-reviews/"><u>Best iPhone Models for Mobile Gaming in 2# Comparison and Reviews</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/decoding-fashion-and-functionality-expert-reviews-of-the-iconic-michael-kors-access-gen-5e/"><u>Decoding Fashion & Functionality: Expert Reviews of the Iconic Michael Kors Access Gen 5E</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/easy-steps-get-your-samsung-usb-drives-working-on-windows-10-computers/"><u>Easy Steps: Get Your Samsung USB Drives Working on Windows 10 Computers</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-avoiding-auditory-peaks-control-volume-levels-in-logic-pro/"><u>In 2024, Avoiding Auditory Peaks Control Volume Levels in Logic Pro</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/insightful-reviews-for-garmin-vivosmart-4-the-new-era-in-body-energy-and-stress-evaluation/"><u>Insightful Reviews for Garmin Vivosmart 4 - The New Era in Body Energy & Stress Evaluation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-definitive-review-of-bybs-exceptional-e430-led-lamp-with-advanced-swivel-feature/"><u>The Definitive Review of BYB's Exceptional E430 LED Lamp with Advanced Swivel Feature</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-evolution-of-gaming-artistry-how-new-visuals-enhance-the-unforgettable-demons-souls-experience/"><u>The Evolution of Gaming Artistry: How New Visuals Enhance the Unforgettable Demon's Souls Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-step-by-step-tutorial-on-how-to-use-the-print-function-in-photoshop/"><u>The Ultimate Step-by-Step Tutorial on How to Use the 'Print' Function in Photoshop</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-review-twelve-south-compass-pro-device-delivers-superior-stability-performance/"><u>Top Rated Review: Twelve South Compass Pro Device Delivers Superior Stability Performance</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Samsung Galaxy A24? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/xvid-converterand/"><u>Xvid Converterインストール&利用ガイド：高品質変換を守る戦略</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2023-convert-facebook-video-to-mp4-720p1080phd-online-and-free-in-2024/"><u>[Updated] 2023 | Convert Facebook Video to MP4 720P/1080p/HD Online and Free, In 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-quick-guide-to-free-online-facebook-video-to-mp4-converter-hd-tutorial/"><u>2024 Approved Quick Guide to Free Online Facebook Video to MP4 Converter (HD) Tutorial</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/an-overview-of-user-dissatisfaction-with-windows-11-upgrade/"><u>An Overview of User Dissatisfaction with Windows 11 Upgrade</u></a></li>
+<li><a href="https://common-error.techidaily.com/defeating-the-darkness-effective-tips-and-solutions-to-restore-your-windows-11-visuals/"><u>Defeating the Darkness: Effective Tips and Solutions to Restore Your Windows 11 Visuals</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-discover-the-power-and-reliability-of-fujitsus-scansnap-ix1600-desktop-unit/"><u>Expert Review: Discover the Power and Reliability of Fujitsu's ScanSnap iX1600 Desktop Unit</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-honor-magic-v2-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Honor Magic V2 to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-or-downgrade-apple-iphone-6s-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade Apple iPhone 6s Without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-honor-magic-6-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Honor Magic 6 Activity | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-console-marketplace-crucial-5-points-for-savvy-gamers-pre-purchase/"><u>Navigating the Console Marketplace: Crucial 5 Points for Savvy Gamers Pre-Purchase</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/noise-cancelling-necessities-apple-vs-samsung-hearing-device-showdown/"><u>Noise Cancelling Necessities: Apple Vs. Samsung Hearing Device Showdown</u></a></li>
 </ul></div>
 

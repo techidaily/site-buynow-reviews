@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Sophistication of the Michael Kors Access Gen 5E MKGO: When Couture Meets Cleverness"
-date: 2024-09-14T00:04:11.237Z
-updated: 2024-09-14T16:00:52.061Z
+date: 2024-09-17T17:31:59.716Z
+updated: 2024-09-20T17:04:45.623Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring the Sophistication of the Michael Kors Access Gen 5E MKGO: When Couture Meets Cleverness"
@@ -86,13 +86,6 @@ Lifewire / Yoona Wagener
 
 Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Comfort: Streamlined but not immune to typical fit issues
 
  While the easy-adjusting Velcro strap is a welcome departure from the typical notch-and-clasp closure on most fitness trackers, adjusting the fit or removing the device wasn’t as smooth as I’d expected it to be. The end of the strap is finished with hardware that prevents the strap from coming completely undone from the loop. The band also includes a series of five strong Velcro strips/notches that serve as sizing adjusters. This construction helps prevent accidental drops when taking the band on/off, which is never a bad thing. On the other hand, though, the Velcro strips are so sturdy that they restricted quick adjustments and made removing the band less swift overall.
@@ -103,6 +96,13 @@ Lifewire / Yoona Wagener
 
  As for water resistance, I didn’t test the 50-meter swimproof rating of the Halo in a pool, but I did shower with the device for three days. Despite the band’s moisture-wicking band material, it remained damp far longer than was comfortable and compared to a fast-drying silicone band. If you’re an avid swimmer or prefer not to remove your wearable while showering, the sport band option will most likely be the more desirable option.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Performance: Constantly monitoring movement, not performance
 
  While this streamlined device doesn’t log detailed workout metrics, the Halo has the upper hand when it comes to continuously monitoring movement—and sedentary stints throughout the day. Whether you’re sitting at a desk or venture out for an errand, the Halo will capture that and pretty accurately categorize it. It consistently registered walking and running activities, though the readout wasn’t very accurate for the latter. Truthfully, I don’t get the impression that that’s the point of the Halo.
@@ -112,10 +112,10 @@ Lifewire / Yoona Wagener
 ![Amazon Halo](https://www.lifewire.com/thmb/FjdFyV6Y4mTXNsqccZ4aEBJNpV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_05-e671ee9f77cc4cee8e2580a2dba449d5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener.
@@ -128,6 +128,13 @@ Lifewire / Yoona Wagener
 
  The body fat scan is based on pictures uploaded to the app—and based on prompts from the app. While it felt invasive and isn’t a feature I’d seek out in a fitness tracker, it worked without issue. Amazon reports that this technology is twice as accurate as smart scales. For the right user who feels comfortable with this kind of data compilation, this feature also offers visualizations of how different body fat percentages would look on your frame and stores your scans for a look at trends over time. All voice data and images used for the body scan are deletable from the app, though you can also choose to back up body data in the[cloud](https://www.lifewire.com/what-is-cloud-computing-817770) , which Amazon assures is private and well secured.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Software: An essential and user-friendly mobile app
 
  Without a visual display to interact with, the accompanying Halo mobile app is absolutely essential to the user experience. It delivers helpful explanations and guidance that most users want. Compatible with[iOS](https://www.lifewire.com/what-is-ios-1994355) and[Android](https://www.lifewire.com/what-is-google-android-1616887) phones, the Halo app makes everything from the initial setup to body scanning and voice tracking straightforward. Sleep data is backed up by explanations as is the activity point tracking system. Automatically tracked workout data is also easily accessible and so is the option to manually upload workout activities (there are 38 to choose from, including an all-encompassing Other category).
@@ -137,6 +144,13 @@ Lifewire / Yoona Wagener
  Like Fitbit, the Halo also comes with a free 6-month trial to a Halo membership, which includes various guided wellness programs from the Discover tab of the app. I followed along with various circuit, HIIT, and equipment-free workouts all of which offered some sort of video to follow along with as well as audio instructions. The Halo band would certainly lack the same sort of appeal without access to these programs that are great if you want to sneak in a quick workout, or you’re an avid at-home exerciser who likes to mix things up.
 
  The app makes everything from the initial setup to body scanning and voice tracking straightforward.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Battery: Enough juice to last nearly a week
 
@@ -164,31 +178,11 @@ Lifewire / Yoona Wagener
 
  The Amazon Halo isn’t for everyone with its lack of display and additional layers of data tracking to capture tone of voice and body fat percentage. But for the user that wants a little less hardware but more forward-thinking fitness/health tracking, this unique wearable offers a different approach to increasing activity and wellness awareness on a daily basis.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Apple Watch Series 5](https://www.lifewire.com/apple-watch-series-6-review-5087552)
 * [Fitbit Sense](https://www.lifewire.com/fitbit-sense-review-5085832)
 * [Ticwatch Pro](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
-
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -221,14 +215,17 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-from-zero-to-hero-on-instagram-top-5-tips-with-examples-from-elites/"><u>[New] In 2024, From Zero to Hero on Instagram Top 5 Tips with Examples From Elites</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-snapseed-simplified-photo-edits-for-beginners/"><u>[Updated] Snapseed Simplified Photo Edits for Beginners</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-eero-pro-mesh-network-router-assessment-perfect-for-whole-house-wi-fi/"><u>Comprehensive Eero Pro Mesh Network Router Assessment - Perfect for Whole House Wi-Fi</u></a></li>
-<li><a href="https://program-issues.techidaily.com/effective-solutions-for-preventing-forza-horizon-5-from-crashing-on-desktop-systems/"><u>Effective Solutions for Preventing Forza Horizon 5 From Crashing on Desktop Systems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-budget-friendly-topmate-c302-pc-chiller-cost-effective-performance/"><u>Expert Analysis of the Budget-Friendly TopMate C302 PC Chiller: Cost-Effective Performance</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/imessages-unlock-the-feature-on-an-android-phone-heres-how/"><u>IMessages: Unlock the Feature on an Android Phone – Here's How</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Realme C67 5G? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mobvoi-ticwatch-e2-overview-cost-effective-but-questionable-value-for-money/"><u>Mobvoi TicWatch E2 Overview: Cost-Effective but Questionable Value for Money</u></a></li>
-<li><a href="https://driver-install.techidaily.com/step-by-step-guide-refreshing-your-hp-omen-15-drivers/"><u>Step-by-Step Guide: Refreshing Your HP Omen 15 Drivers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/oes-paying-regularly-for-youtube-premium-give-you-more-than-just-an-ad-free-view-in-2024/"><u>[New] Does Paying Regularly For YouTube Premium Give You More Than Just An Ad-Free View, In 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-mastering-youtube-on-facebook-the-art-of-video-creation/"><u>[New] Mastering YouTube on Facebook The Art of Video Creation</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-melodic-instagram-reels-blending-music-voiceovers-for-2024/"><u>[New] Melodic Instagram Reels Blending Music, Voiceovers for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mobile-focus-top-gimbal-systems-for-dynamic-shooting/"><u>[Updated] Mobile Focus Top Gimbal Systems for Dynamic Shooting</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/deciding-on-top-gen-ai-tools-analyzing-the-benefits-of-notion-ai-and-chatgpt/"><u>Deciding on Top Gen AI Tools - Analyzing the Benefits of Notion AI and ChatGPT</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-find-happiness-in-pokemon-shining-pearl-an-ultimate-gamers-guide/"><u>How to Find Happiness in 'Pokemon Shining Pearl' - An Ultimate Gamer's Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-mastering-igtv-a-comprehensive-guide-for-beginners/"><u>In 2024, Mastering IGTV A Comprehensive Guide for Beginners</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/innovative-chargeless-illumination-evaluating-the-robustness-of-romers-rechargeable-lantern/"><u>Innovative Chargeless Illumination: Evaluating the Robustness of Romer's Rechargeable Lantern</u></a></li>
+<li><a href="https://apple-account.techidaily.com/tips-and-tricks-for-apple-id-locked-issue-on-iphone-7-plus-by-drfone-ios/"><u>Tips and Tricks for Apple ID Locked Issue On iPhone 7 Plus</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-limitations-in-the-latest-pioneer-bdr-xd05b-blu-ray-player-review/"><u>Unveiling Limitations in the Latest Pioneer BDR-XD05B Blu-Ray Player Review</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/what-lies-beneath-understanding-trillers-different-tiktok-approach/"><u>What Lies Beneath Understanding Triller's Different TikTok Approach</u></a></li>
+<li><a href="https://driver-install.techidaily.com/win10-enhanced-drawing-toolkit-wacom-intuos-4-driver-free/"><u>Win10 Enhanced Drawing Toolkit: Wacom Intuos 4 Driver [Free]</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Intuitive Action Capture: In-Depth Analysis of the Budget-Friendly Z-Edge Z3 Plus"
-date: 2024-08-03T22:58:26.331Z
-updated: 2024-08-04T22:58:26.331Z
+date: 2024-09-16T18:17:11.409Z
+updated: 2024-09-20T16:44:15.033Z
 categories:
   - BestProducts
 description: "This Article Describes Intuitive Action Capture: In-Depth Analysis of the Budget-Friendly Z-Edge Z3 Plus"
@@ -39,9 +39,6 @@ Lifewire / Erika Rawes
 
 ## Antop AT-127
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
 
 Lifewire / Erika Rawes
@@ -65,9 +62,6 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -94,16 +88,17 @@ Lifewire / Erika Rawes
 
  The attached coax cable isn’t as long as I’ve seen on other similarly-priced antennas, but it is long enough (10 feet) to place the antenna up high without an extender.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Range: Could be better**
 
  My test home is in a rural area, and there’s a lot of tree cover on the property. The omnidirectional Antop AT-127 has a 40-mile range, which was enough to pick up local channels from neighboring cities.
@@ -112,17 +107,18 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -137,8 +133,12 @@ Lifewire / Erika Rawes
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  AT-127
@@ -155,14 +155,11 @@ Lifewire / Erika Rawes
 * Screen Resolution  1080p
 * Connectivity Options  Quick push “E-Z connect” F connector (coaxial cable)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -170,3 +167,22 @@ Lifewire / Erika Rawes
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-from-standard-definition-to-high-dynamic-range-a-comprehensive-tutorial/"><u>[New] From Standard Definition to High Dynamic Range - A Comprehensive Tutorial</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-digital-media-mapper/"><u>[New] In 2024, Digital Media Mapper</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-depth-analysis-cutzone-pro-review-unveiled/"><u>[New] In-Depth Analysis CutZone Pro Review Unveiled</u></a></li>
+<li><a href="https://win-dash.techidaily.com/achieve-perfect-synergy-between-sandisk-and-windows-10-expert-guide-to-downloading-and-installing-drivers-instantly/"><u>Achieve Perfect Synergy Between SanDisk & Windows 10: Expert Guide to Downloading and Installing Drivers Instantly</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/breakdown-of-features-in-the-latest-microsoft-surface-laptop-setting-new-standards/"><u>Breakdown of Features in the Latest Microsoft Surface Laptop - Setting New Standards</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-remarkable-dell-xps-13-2-in-1-notebook-performance-review/"><u>Comprehensive Analysis of the Remarkable Dell XPS 13 2-in-1 Notebook Performance Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-razer-portals-web-connectivity-best-wireless-laptop-for-gamers/"><u>Evaluating the Razer Portal's Web Connectivity: Best Wireless Laptop for Gamers</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-latest-brother-mfc-l2740dw-windows-compatible-drives-free/"><u>Get the Latest Brother MFC-L2740DW Windows Compatible Drives Free</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-hidden-harmonics-discreetly-lowering-garageband-tones/"><u>In 2024, Hidden Harmonics Discreetly Lowering Garageband Tones</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-oppo-a59-5g-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Oppo A59 5G Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-unleashing-the-potential-of-maxoaks-premium-battery-pack-with-185wh50000mah-capacity/"><u>In-Depth Analysis: Unleashing the Potential of MaxOak's Premium Battery Pack with 185Wh/50000mAh Capacity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-perfect-blend-of-style-and-convenience-a-detailed-look-at-swagtrons-chic-and-swift-swagger-electric-scooter-for-urban-travelers/"><u>The Perfect Blend of Style and Convenience: A Detailed Look at Swagtron's Chic and Swift Swagger Electric Scooter for Urban Travelers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-youtube-writers-royalties-with-ad-driven-earnings-cpm-for-2024/"><u>Unlocking YouTube' Writers' Royalties with Ad-Driven Earnings (CPM) for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-paying-for-youtube-premium-is-a-smart-choice/"><u>Why Paying for YouTube Premium Is a Smart Choice</u></a></li>
+</ul></div>
+

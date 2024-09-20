@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Guide: In-Depth Look at Anthropics' Smart Photo Editing Tool"
-date: 2024-09-13T23:50:42.145Z
-updated: 2024-09-15T09:05:22.672Z
+date: 2024-09-19T17:54:56.746Z
+updated: 2024-09-20T16:24:00.609Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Guide: In-Depth Look at Anthropics' Smart Photo Editing Tool"
@@ -91,13 +91,6 @@ Andrew Hayward / Lifewire
 
  Andrew Hayward / Lifewire
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tracking and Controllers: Some improvements, some drawbacks
 
  The Oculus Quest 2 uses the same kind of “inside-out” tracking system that relies on four cameras on the visor to track the wireless controllers or even your hands, rather than relying on external tracking sensors as some PC-based systems do. Like the original, it works amazingly well, allowing for fluid, six-degrees-of-freedom movement in games and minimizing both initial setup and the time it takes to get going each session. It also means that you can use the Oculus Quest 2_anywhere_ without the need for any kind of external hardware or accessories.
@@ -105,13 +98,6 @@ Andrew Hayward / Lifewire
  The Quest 2’s wireless, motion-sensing Oculus Touch controllers are identical in function to the original, but are a little heavier and have a larger surface with space to rest your thumb when not in use. That’s handy. Each has an analog stick and two face buttons, along with a trigger button and a grip button. Oculus also swapped out the magnetically-attached battery doors from the first Quest controllers—which would sometimes slide open when I used the original—for ones that simply click into place. That’s a win for function over form.
 
 ![Oculus Quest 2 ](https://www.lifewire.com/thmb/1aG6kdNHMuvnim8p8_i1RwH9QG8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-3-eec6cabc11db4ed9be5254aa2bc46ec1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Andrew Hayward / Lifewire
 
@@ -123,14 +109,14 @@ Andrew Hayward / Lifewire
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/gwWuuSfTzWNDoS45b-iG9qG32-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-4-27f169e7e71b4372a38e13332b7b1364.jpg)
 
- Andrew Hayward / Lifewire
-
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Andrew Hayward / Lifewire
 
 ## Setup Process: You’ll need a phone… and Facebook
 
@@ -139,6 +125,19 @@ Andrew Hayward / Lifewire
  Part of the setup process, and the process each time you use the headset, is to designate your play space by “drawing” a barrier within the augmented view of your surroundings seen through the headset’s cameras. From there, the headset determines whether you have enough space for active, room-scale experiences, or you can choose a stationary setup for seated play modes. During active play, a virtual barrier called the Oculus Guardian appears when you get close to the edges of your designated play space to help you avoid crashing into your surroundings. It’s all rather clever and effective.
 
  There’s one other potential hitch with the Oculus Quest 2 that wasn’t present with the original: the new headset_requires_ a[Facebook account](https://www.lifewire.com/tutorial-how-facebook-works-2654610) and there’s no way around it. Facebook owns Oculus, and while the first Quest could be used simply with an Oculus account, the new one requires the social media account. For some, that may be a deal-breaker, given frustrations over privacy and the increasing role that Facebook plays in our society, so just know that going in.
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Performance: It’s a big upgrade
 
@@ -188,6 +187,13 @@ Andrew Hayward / Lifewire
 
  The $299 edition of the headset comes with 64GB of internal storage and the $399 version nets you 256GB, with some of each tally taken up by system software and resources. Luckily, the games and apps themselves aren’t huge, typically weighing in between 1-4GB apiece, sometimes less, and they’re pretty quick to download again if you want to revisit something. The 64GB edition should provide enough space for most players, as you could probably comfortably have a dozen or more games installed, along with streaming media apps, but anyone who wants to have a robust VR library on hand at all times without waiting might consider spending the extra cash.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Games: A good, growing selection
 
  Although those aforementioned games and some others are still only found on PC (or maybe PlayStation VR on the PlayStation 4 or 5), the Oculus Quest platform has amassed a very nice selection of native games that you can download and play right on the headset.There is no difference in compatibility between the headsets: all Quest games play on Quest 2 and vice versa, just with performance differences.
@@ -200,14 +206,14 @@ Andrew Hayward / Lifewire
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/FqVvo044zoPghSD_PR1g2e0L2rs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-5-216bbf638cbe407b8b6f332abc94ae47.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Andrew Hayward / Lifewire
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Price: It’s an amazing value
 
@@ -216,13 +222,6 @@ Andrew Hayward / Lifewire
 ![Oculus Quest 2](https://www.lifewire.com/thmb/TDsFPvRGkhZaFzIaNnKRk1_xO4s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-8-Comparison-1b0c51b029da41389167e103a4c4843a.jpg)
 
  Andrew Hayward / Lifewire
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Oculus Quest 2 vs. PlayStation VR
 
@@ -237,6 +236,13 @@ Andrew Hayward / Lifewire
 **The best VR device, all things considered.**
 
  The significant performance upgrade and surprising price drop outweigh some of the annoying design shifts with the Oculus Quest 2, making it the must-have VR headset for just about everyone. Not only does it play a great library of on-headset games, but it can also connect to a powerful PC to play even more games on top of that. Add to that the ease of use, quality gameplay, and immersive visuals, and the Oculus Quest 2 is another brilliant VR game console.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -275,21 +281,16 @@ Andrew Hayward / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-affordable-pc-frame-capture-apps/"><u>[New] Affordable PC Frame Capture Apps</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-strategies-for-using-youtube-to-boost-classroom-engagement/"><u>[New] In 2024, Strategies for Using YouTube to Boost Classroom Engagement</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unveiling-the-key-to-thriving-in-online-communities-like-reddit/"><u>[New] Unveiling the Key to Thriving in Online Communities Like Reddit</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/boost-your-phones-range-with-the-top-signal-strengtheners-on-the-market/"><u>Boost Your Phone's Range with the Top Signal Strengtheners on the Market</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-new-ways-to-boost-your-nes-classic-console-game-selection/"><u>Discover New Ways to Boost Your NES Classic Console Game Selection</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-why-learning-german-is-essential/"><u>Discover Why Learning German Is Essential</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-streaming-sensations-worlds-most-popular-video-content-makers/"><u>Elite Streaming Sensations World's Most Popular Video Content Makers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/explore-the-world-of-streaming-with-roku-express-top-reviews-on-quality-and-savings/"><u>Explore the World of Streaming with Roku Express - Top Reviews on Quality & Savings</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-2023s-best-mobile-emulators-top-choices-for-your-classic-psp-adventures/"><u>In 2024, 2023'S Best Mobile Emulators Top Choices for Your Classic PSP Adventures</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-realme-narzo-n55-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Realme Narzo N55? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/invest-in-peace-of-mind-with-smaller-devices-how-miniscule-trackers-can-deliver-maximum-security-for-belongings/"><u>Invest in Peace of Mind with Smaller Devices - How Miniscule Trackers Can Deliver Maximum Security for Belongings</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/pioneering-tech-advancements-the-six-sweepstakes-of-gpts-conductor/"><u>Pioneering Tech Advancements - The Six Sweepstakes of GPT's Conductor</u></a></li>
-<li><a href="https://windows11.techidaily.com/say-farewell-to-windows-subsys-embracing-alternatives-for-android/"><u>Say Farewell to Windows Subsys: Embracing Alternatives for Android</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-using-the-amazon-fire-hd-10-ideal-for-family-movie-nights-and-more/"><u>The Ultimate Guide to Using the Amazon Fire HD 10, Ideal for Family Movie Nights and More</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-verdict-on-lenovo-tab-4-a-cost-effective-android-tablet-with-trade-offs-explored/"><u>The Verdict on Lenovo Tab 4: A Cost-Effective Android Tablet with Trade-Offs Explored</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-reviews-for-razers-portable-wi-fi-solution-the-portal/"><u>Top Reviews for Razer's Portable Wi-Fi Solution - The Portal</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/battle-of-the-titans-gopro-hero5-black-vs-session/"><u>Battle of the Titans GoPro Hero5 Black VS Session</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-picks-the-most-effective-cell-phone-signal-strengtheners-of-the-year/"><u>Expert Picks: The Most Effective Cell Phone Signal Strengtheners of the Year</u></a></li>
+<li><a href="https://games-able.techidaily.com/find-your-perfect-price-point-with-top-gaming-displays/"><u>Find Your Perfect Price-Point with Top Gaming Displays</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/shotspotter-framing-innovation-meets-high-price/"><u>ShotSpotter Framing: Innovation Meets High Price</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-police-scanners-of-2024/"><u>The Best Police Scanners of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-reveal-of-asus-rog-gt-a5300-router-specially-designed-for-gamers-and-tech-enthusiasts/"><u>The Ultimate Reveal of Asus ROG GT-A5300 Router: Specially Designed for Gamers & Tech Enthusiasts</u></a></li>
+<li><a href="https://techidaily.com/top-iphone-xr-message-recovery-software-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Top iPhone XR Message Recovery Software | Stellar</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-tips-solving-common-oculus-hardware-issues/"><u>Troubleshooting Tips: Solving Common Oculus Hardware Issues</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-strengths-a-critical-look-at-ankers-enduring-outdoor-lighting-tool/"><u>Unveiling the Strengths: A Critical Look at Anker's Enduring Outdoor Lighting Tool</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-venture-validation-benchmarking-against-business-rivals-for-2024/"><u>Video Venture Validation Benchmarking Against Business Rivals for 2024</u></a></li>
 </ul></div>
 

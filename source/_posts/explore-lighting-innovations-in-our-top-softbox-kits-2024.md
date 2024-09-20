@@ -1,7 +1,7 @@
 ---
 title: Explore Lighting Innovations in Our Top Softbox Kits 2024
-date: 2024-08-03T22:58:25.778Z
-updated: 2024-08-04T22:58:25.778Z
+date: 2024-09-15T16:07:38.007Z
+updated: 2024-09-20T17:31:20.353Z
 categories:
   - BestProducts
 description: This Article Describes Explore Lighting Innovations in Our Top Softbox Kits 2024
@@ -13,9 +13,6 @@ thumbnail: https://www.lifewire.com/thmb/iAh6B4TvHm9Nvf5fdXeT63v5zAE=/400x300/fi
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Microsoft Surface Laptop 4
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/XootaRyVCeCUWEitc2sglk8R7ko=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Microsoft-Surface-Laptop-4-1-6dfa98797a3d4223834c350422c3cb57.jpg)
@@ -82,9 +79,6 @@ Lifewire / Matthew S. Smith
 
  A tall 3:2 display aspect ratio defines the laptop’s boxy shape. This was the Surface Laptop’s most distinctive feature on its debut and had the benefit of providing more usable screen space. Many companies have since copied Microsoft’s decision:[the Lenovo ThinkPad X1 Titanium Yoga](https://www.lifewire.com/lenovo-thinkpad-x1-titanium-yoga-review-5179212) is one example.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/LKKMWXF9Y9QgcLz3uT0B5mx2h-Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-6-d4eff9347d784715b769c5bc6a8d196e.jpg)
 
 Lifewire / Matthew S. Smith
@@ -97,15 +91,19 @@ Lifewire / Matthew S. Smith
 
  Size is the Surface Laptop 4’s only downside. It has a 13.5-inch screen with large bezels, and it’s significantly larger than a typical 13.3-inch laptop with a 16:9 display aspect ratio. The Laptop 4 takes up more space than you’d expect in a bag or on your desk, and its overall footprint is closer to a 14-inch laptop.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Display: Pixel dense but mediocre
 
  The 13.5-inch Surface Laptop 4 has a[3:2 display aspect ratio](https://www.lifewire.com/what-is-aspect-ratio-1846860) with a resolution of 2,496 by 1,664\. That works out to 201 pixels per inch, which is less than the 220 pixels per inch that Apple shoots for with[Retina displays](https://www.lifewire.com/what-is-retina-display-2000362) , but I doubt you’ll notice a difference. The display looks crystal-clear when using Word or viewing 1440p video.
 
  Color performance is solid but not exceptional. The Surface Laptop 4 has a standard IPS panel and lacks special features, like[Apple’s True Tone](https://www.lifewire.com/what-is-true-tone-display-4048131) or[HDR support](https://www.lifewire.com/why-hdr-on-the-ios-youtube-app-matters-5087235) , to help it stand out. The gap between the Surface Laptop 4 and superior competitors is most noticeable in movies or other high-quality streaming content. Video often looks plain or dull on the Laptop 4.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/R0s49jnCo3YtH06-VrsuVbmKx0c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-2-2ba46ec5877c4c809b945380501eaf44.jpg)
 
 Lifewire / Matthew S. Smith
@@ -116,9 +114,6 @@ Lifewire / Matthew S. Smith
 
  The touchscreen is compatible with the Surface Pen. This isn’t especially useful given that the Surface Laptop 4 is, well, a laptop, but it’s nice to have the option. I often use the touchscreen as an alternative to the touchpad in casual use, like online shopping or watching YouTube.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ## Performance: AMD and Intel options hold their own
 
  Microsoft offers both AMD and Intel processors for the Surface Laptop 4\. I tested the base model, which has AMD’s Ryzen 5 4680U six-core processor with nine AMD Radeon graphics cores. It also had 8GB of RAM and a 256GB solid-state drive.
@@ -131,13 +126,17 @@ Lifewire / Matthew S. Smith
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/MrzPvS6-5_LUBvEOlNjt4wv1BTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-3-e45e7bbc46054a69b2065cedce12519a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
 
  Still, the Surface Laptop 4 can handle basic gaming needs. Titles like Minecraft and Fortnite are enjoyable at modest detail settings. Newer, demanding games like Metro Exodus are technically playable, but you’ll have to set detail to low and play at a reduced resolution. Even then, you may see hiccups and stutters while playing.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ## Productivity: A portable multitasking powerhouse
 
  The 3:2 display aspect ratio not only dominates the Surface Laptop 4’s design, but also its functionality in day-to-day use. It offers 12 percent more screen space than a 13.3-inch with a 16:9 aspect ratio. Most 13-inch laptops can’t comfortably fit two documents side-by-side, but this works well on the Laptop 4.
@@ -155,8 +154,12 @@ Lifewire / Matthew S. Smith
  The Surface Laptop 4’s touchpad is large, measuring four and a half inches wide by three inches deep. It’s responsive but doesn’t pick up unintended input. Multi-touch gestures work extremely well, helping you get the most out of[Windows’ underrated multitasking touchpad shortcuts](https://www.lifewire.com/how-to-use-windows-10-touchpad-gestures-4587314) .
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Audio: Going loud
 
  The Surface Laptop 4 has punchy speakers with excellent volume. There’s great separation between lows, mids, and highs, which avoids the muddy sound that is common to many laptops as speaker volume nears maximum. There’s no subwoofer, so bass can sound flat, but the Laptop 4 provides some sense of depth without overwhelming the rest of the track you’re enjoying.
@@ -169,9 +172,6 @@ Lifewire / Matthew S. Smith
 
  4G LTE cellular data is not available. That’s a bit disappointing, as LTE is available in some Surface Pro devices and in competitors like the ThinkPad X1 Titanium Yoga and HP Spectre x360 13t. Optional LTE would be a match for the Surface Laptop 4’s productivity-first design.
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ## Camera: An okay webcam with Windows Hello
 
  The Surface Laptop 4 has a 720p front-facing camera that suffers all the shortcomings you’d expect from a laptop webcam. It looks ok in a bright room, but even a moderately dim setting will lead to grainy, soft video. The camera fails at proper exposure when lighting is uneven.
@@ -182,9 +182,6 @@ Lifewire / Matthew S. Smith
 
  Microsoft says the Surface Laptop 4 will last up to 19 hours on a charge. The laptop might be capable of hitting that number, but it’s misleading. Real-world battery life is much less than Microsoft’s ads would have you believe.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/mOdEoB5ucAztqgsA5IjD6moCN3w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-4-2b59b6b46693409a868e88392e980df1.jpg)
 
 Lifewire / Matthew S. Smith
@@ -193,17 +190,17 @@ Lifewire / Matthew S. Smith
 
  You can drain the battery more quickly, however. I used the laptop for an hour-long session of heavier photo editing in GIMP and chewed through about 20 percent of the battery. This is a downside of the laptop’s fast six-core processor.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Software: Keep It Stock
 
  The Surface Laptop 4 ships with[Windows 10 Home](https://www.lifewire.com/windows-10-home-vs-pro-4177144) installed. There’s otherwise not much to say about the software which, for most people, will be good news. The Laptop 4’s stock Windows installation has zero bloatware.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Price: It’s not cheap, but it’s good value
 
  I tested the entry-level Surface Laptop 4 with an AMD Ryzen 5 Surface Edition processor. This model starts at $1,000 with 8GB of RAM and a 256GB solid-state drive. Intel models start at $1,300 for a Core i5 processor with the same RAM and storage.
@@ -220,9 +217,6 @@ Lifewire / Matthew S. Smith
 
  I think most buyers will be happy with either laptop, but the Laptop 4’s performance feels worth the extra $100\.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Microsoft Surface Laptop 4 vs. Apple MacBook Air
 
  The Microsoft Surface Laptop 4 and Apple MacBook Air are both portable laptops that start at $999\. Microsoft’s option is larger and heavier with a more useful screen, while the MacBook Air has a smaller but more attractive display.
@@ -246,6 +240,13 @@ Lifewire / Matthew S. Smith
 * [Microsoft Surface Laptop Go](https://www.lifewire.com/microsoft-surface-laptop-go-review-5088869)
 * [Microsoft Surface Pro 7](https://www.lifewire.com/microsoft-surface-pro-7-review-4797020)
 * [Microsoft's Surface Laptop 2](https://www.lifewire.com/microsoft-surface-laptop-2-review-4779760)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -272,11 +273,30 @@ Lifewire / Matthew S. Smith
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-tips.techidaily.com/new-the-ultimate-guide-to-fixing-rtmp-streams-in-premiere/"><u>[New] The Ultimate Guide to Fixing RTMP Streams in Premiere</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-from-twitter-to-snaps-a-guide-to-cross-platform-posting/"><u>[Updated] From Twitter to Snaps A Guide to Cross-Platform Posting</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-itel-s23plus-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Itel S23+ Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/critical-considerations-for-acquiring-digital-recorders/"><u>Critical Considerations for Acquiring Digital Recorders</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/cutting-edge-ai-engines-revolutionizing-internet-information-access/"><u>Cutting-Edge AI Engines Revolutionizing Internet Information Access</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-power-of-apples-m4-silicon-news-update-on-release-and-full-technical-breakdown/"><u>Discover the Power of Apple's M4 Silicon: News Update on Release and Full Technical Breakdown</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/eargasms-ultimate-companion-for-music-lovers/"><u>Eargasm's Ultimate Companion for Music Lovers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fashion-meets-functionality-in-swagtron-swagger-e-scooter-a-thorough-review/"><u>Fashion Meets Functionality in Swagtron Swagger E-Scooter - A Thorough Review</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-sony-xperia-5-v-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Sony Xperia 5 V Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-peeking-at-perfection-a-compreayer-look-at-lgs-27ud68-display/"><u>In 2024, Peeking at Perfection A Compreayer Look at LG’s 27UD68 Display</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-samsung-galaxy-s23plus-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Samsung Galaxy S23+ FRP</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-home-networks-with-netgear-orbi-the-premier-mesh-router-on-the-market/"><u>Mastering Home Networks with Netgear Orbi – The Premier Mesh Router on the Market</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/quick-fixes-when-your-sennheiser-gamer-mic-wont-work-a-comprehensive-guide/"><u>Quick Fixes When Your Sennheiser Gamer Mic Won't Work: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-streaming-the-arrival-of-the-chromecast-with-google-tv-say-goodbye-to-fire-tv/"><u>Revolutionizing Streaming: The Arrival of the Chromecast with Google TV - Say Goodbye to Fire TV!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-guide-to-the-ion-audio-tailgater-plus-enjoy-longer-playback-and-superior-bass-quality-with-simplicity/"><u>The Definitive Guide to the Ion Audio Tailgater Plus: Enjoy Longer Playback and Superior Bass Quality with Simplicity</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-essential-guide-to-enjoying-endless-tunes-with-our-selection-of-7-premium-free-music-apps/"><u>The Essential Guide to Enjoying Endless Tunes with Our Selection of 7 Premium-Free Music Apps</u></a></li>
+</ul></div>
+

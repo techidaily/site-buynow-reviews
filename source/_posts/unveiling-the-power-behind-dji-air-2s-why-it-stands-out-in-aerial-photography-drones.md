@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Power Behind DJI Air 2S: Why It Stands Out in Aerial Photography Drones"
-date: 2024-09-13T21:28:01.723Z
-updated: 2024-09-15T10:40:47.279Z
+date: 2024-09-15T17:29:08.573Z
+updated: 2024-09-20T18:03:49.077Z
 categories:
   - BestProducts
 description: "This Article Describes Unveiling the Power Behind DJI Air 2S: Why It Stands Out in Aerial Photography Drones"
@@ -77,6 +77,19 @@ Lifewire / Yoona Wagener
 
  The all-black build and face design gives this watch a sporty feel, extended by the two large buttons that serve as handy controls for launching workouts or waking the display. This display is also touch-responsive, which I found functioned well generally. There were moments when taps and swipes didn't seem to register immediately. These incidents were infrequent and minor when compared to the general user-friendliness of the device.
 
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Comfort: Bulky for extended wear
 
  The TicWatch Pro 3 shed some weight from its previous iteration, making it slimmer and lighter overall, according to Mobvoi. Still, the stainless steel face isn't exactly light at 1.48 ounces. The display also measures nearly 1.9 inches across and about 0.5 inches deep. Those dimensions presented challenges for my 5.5-inch wrist.
@@ -94,10 +107,16 @@ Lifewire / Yoona Wagener
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/dmQpg73jtc8s6Xxx-CSGe6DOKEc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_04-262f4af125a04f3fab6055508f2c6d3b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
@@ -113,13 +132,6 @@ Lifewire / Yoona Wagener
 Lifewire / Yoona Wagener
 
  Sleep data was a little inconsistent in terms of when the device detected sleep. Sometimes the sleep start times were a couple of hours off. Generally, I was pleased with the presentation of sleep and exercise data. It's easy enough to glance at results from the watch and entirely forego a companion app.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Software: Feature overlap creates some confusion
 
@@ -141,13 +153,6 @@ Lifewire / Yoona Wagener
 
  The TicWatch Pro 3 does have 8GB of onboard storage, which makes this watch attractive for Android smartphone users who want to use it for onboard music storage. Apps like NavMusic make this easy. Android users also have easier control over and access to third-party fitness, productivity, and other useful apps from the[Google Play](https://www.lifewire.com/what-is-google-play-1616720) store than iOS users—who will likely find this a bit clunky to manage.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Battery: Solid 72-hour longevity
 
  Mobvoi touts the 72-hour battery life of the TicWatch Pro 3 in smart mode, and it delivers. I used the TicWatch Pro 3 exclusively in this highly connected mode, including a workout a day, and this watch was still chugging along by day three. Of course, battery performance always varies depending on usage. I didn't run any extra apps, store and play music, or leave the display to the always-on setting, which all helped me reach the three-day mark.
@@ -160,14 +165,14 @@ Lifewire / Yoona Wagener
 
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/O2h1ls6gDrmzljZ5SvO0QEkrLIE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_02-03e93150d27d41f89e14d807aad2d10d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Price: A bit costly for those missing a few premium features
 
@@ -196,6 +201,13 @@ Lifewire / Yoona Wagener
 * [Apple Watch SE](https://www.lifewire.com/apple-watch-se-review-5088223)
 * [Garmin Vivomove HR](https://www.lifewire.com/garmin-vivomove-hr-review-4843913)
 * [Mobvoi TicWatch Pro 4G LTE](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -232,17 +244,18 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-chill-championships-highlighting-cold-climates-sports/"><u>[Updated] 2024 Approved Chill Championships Highlighting Cold Climates Sports</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/consistent-nutrition-for-your-furry-friend-using-the-petsafe-auto-feeder/"><u>Consistent Nutrition for Your Furry Friend Using the PetSafe Auto Feeder</u></a></li>
-<li><a href="https://video-capture.techidaily.com/essential-tips-and-techniques-for-obs-setup-use-on-a-mac/"><u>Essential Tips & Techniques for OBS Setup, Use, on a Mac</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fb-to-your-device-download-videos/"><u>In 2024, FB to Your Device - Download Videos</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Tecno Spark 10 4G? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-ultimate-list-of-costless-online-editors-for-professionals/"><u>In 2024, Ultimate List of Costless Online Editors for Professionals</u></a></li>
-<li><a href="https://fox-links.techidaily.com/macs-best-choices-for-mkv-file-viewing/"><u>Mac's Best Choices for MKV File Viewing</u></a></li>
-<li><a href="https://win11.techidaily.com/the-art-of-windows-understanding-report-generation-and-analysis/"><u>The Art of Windows Understanding: Report Generation & Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-fujitsus-high-performance-scansnap-ix1600-for-office-use/"><u>The Ultimate Review of Fujitsu's High-Performance ScanSnap iX1600 for Office Use</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-apple-iphone-7-plus-and-android-phones-by-drfone-ios/"><u>Top IMEI Unlokers for Apple iPhone 7 Plus and Android Phones</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/transform-your-photos-effortlessly-premium-features-of-the-free-lightzone-editor-on-windows-mac-and-linux/"><u>Transform Your Photos Effortlessly: Premium Features of the Free LightZone Editor on Windows, Mac & Linux</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-evaluation-of-the-ps4-pro-achieving-4k-visuals/"><u>Ultimate Evaluation of the PS4 Pro: Achieving 4K Visuals</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-15-steps-towards-perfecting-your-educational-video-content-for-youtube/"><u>[Updated] 2024 Approved 15 Steps Towards Perfecting Your Educational Video Content for YouTube</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-htc-u23-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/enchant-your-e-images-with-electronic-soundtracks/"><u>Enchant Your E-Images with Electronic Soundtracks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-the-world-of-overwatch-fun-strategic-shooter-games-for-teams/"><u>Explore the World of Overwatch: Fun, Strategic Shooter Games for Teams</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-vivo-x-flip-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Vivo X Flip to Roku | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-xiaomi-13t-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Xiaomi 13T by Name | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-9-top-tier-youtube-fitness-tips-to-captivate-audiences-movement/"><u>In 2024, 9 Top-Tier YouTube Fitness Tips to Captivate Audience's Movement</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-c67-4g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Realme C67 4G Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/intellectual-growth-for-your-portable-computing-device/"><u>Intellectual Growth for Your Portable Computing Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-choices-for-vertical-gaming-mice-2024-edition/"><u>Leading Choices for Vertical Gaming Mice - 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-activity-levels-with-cubefits-terramat-the-ultimate-guide-to-standing-fitness-equipment/"><u>Maximize Activity Levels with CubeFit's TerraMat - The Ultimate Guide to Standing Fitness Equipment</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-shoppers-list-select-box-personalization-sites-for-2024/"><u>Ultimate Shopper's List Select Box Personalization Sites for 2024</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/unhindered-access-to-lost-data-free-of-cost/"><u>Unhindered Access to Lost Data Free-of-Cost</u></a></li>
 </ul></div>
 

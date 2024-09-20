@@ -1,7 +1,7 @@
 ---
 title: Dell XPS 13 7390 Convertible - A Review of Its Elegance and Versatile Performance in a Thin-and-Light Frame
-date: 2024-09-08T21:20:58.436Z
-updated: 2024-09-14T21:15:42.914Z
+date: 2024-09-13T16:35:46.476Z
+updated: 2024-09-20T18:18:50.991Z
 categories:
   - BestProducts
 description: This Article Describes Dell XPS 13 7390 Convertible - A Review of Its Elegance and Versatile Performance in a Thin-and-Light Frame
@@ -97,13 +97,6 @@ Lifewire / Andrew Hayward
 
  The Chromebook Flip’s keyboard feels great in action. The one-piece chiclet keyboard has a scissor-style key design with 1.4mm of travel, which gives it a more satisfying feel than the latest MacBooks’ keys (which have very little travel), and the keys are responsive and not especially loud in usage. It’s also brightly backlit, which isn’t always the case with Chromebooks. The touchpad below is nicely sized and wider than some we’ve seen, although not nearly as large as Apple’s luxurious trackpads of late.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: No sweat whatsoever**
 
  Setting up a Chromebook is incredibly easy. Just power it on (the button is on the left side), connect to a network, accept the terms of service and choose from any options that you’re prompted to, and then plug in your Google account info. If you do already have a Google account, then any bookmarks, Chrome extensions, and apps will automatically be added. If you don’t have a Google account, then you’ll need to sign up for one to use the Chromebook. In any case, this whole process shouldn’t take more than a matter of minutes to complete.
@@ -111,20 +104,13 @@ Lifewire / Andrew Hayward
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/AFQh-ERthm-g0pAMcnQlyA2Rjgw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_bent_02-3dfd0720309d4d12beb5ae695a007aa1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Display: Small, but strong**
 
@@ -152,15 +138,22 @@ Lifewire / Andrew Hayward
 
  The tiny speaker grates on the left and right side of the Chromebook Flip don’t look too promising, but the playback quality was better than expected. Music output isn’t big and bold, but it’s pretty clear and it can get loud without getting too muddled. Video playback via YouTube and Netflix was sometimes too quiet at full volume, however.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Network: No complaints here**
 
  The Chromebook Flip has dual-band Wi-Fi that can connect to both 2.4Ghz and 5Ghz networks, and we had no issues with either during our testing. We went online at a home network and a Starbucks Google network alike, and things were routinely speedy. On the home network, we saw speeds of about 33Mbps and upload speeds in excess of 10Mbps—essentially the same as we’ve seen with[other laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) and[smartphones](https://www.lifewire.com/best-smartphones-4043781) .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Battery: Nearly a day’s worth**
@@ -172,6 +165,13 @@ Lifewire / Andrew Hayward
  Our laptop video rundown test, which streams a Netflix movie over Wi-Fi while at 100 percent brightness, delivered a similar result: it lasted 6 hours, 57 minutes before the Chromebook Flip shut down. In both use cases, we were pleasantly surprised by the battery performance of the device—it even beat the 2018 MacBook Air.
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/VR5Y-1tDILHowNSeA408pnLVtgg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_closed_04-bde5ec8f988c4bb49e4019f95cc47c31.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -187,6 +187,13 @@ Lifewire / Andrew Hayward
 
  Luckily, the Chromebook’s reputation as an online-only device isn’t true. For example, Google Docs can be used offline, you can view and edit photos, watch locally-stored media, and play games that don’t require an online connection. It’s really not that different in approach to other PCs, but the overall feel and flow of the experience varies in some key ways.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: It feels like a steal**
 
  Here’s where the Asus Chromebook Flip really makes its biggest impact. As mentioned, it’s a capable computer for most everyday tasks, it has a very good screen, and the battery life is stellar. Best of all, it’s priced at $499, although you can find it for a little bit less (we’re seeing it around $400-450 lately). There are cheaper Chromebooks out there that skimp on features and functionality, such as skipping the convertible hinge or touch functionality, or using a lower-end processor. You can spend a lot less and still get a solid laptop.
@@ -196,13 +203,6 @@ Lifewire / Andrew Hayward
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/NHrMPSrgOWsOuCEYg0M-STQUfsU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Air-v-Surface-Comparison-a255967a27e14762b5c2ad9c442df77f.jpg)
 
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Asus Chromebook Flip C302CA vs. Apple MacBook Air**
 
@@ -250,19 +250,19 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-tracing-view-count-to-cash-flow-on-youtube-platform/"><u>[New] In 2024, Tracing View Count to Cash Flow on YouTube Platform</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-optimal-orientation-top-tripods-for-iphones-and-androids/"><u>[Updated] 2024 Approved Optimal Orientation Top Tripods for iPhones & Androids</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-fix-missing-fb-watch-icon-quick-guide/"><u>[Updated] In 2024, Fix Missing FB Watch Icon - Quick Guide</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-seamless-sound-shift-best-10-youtube-audio-converters/"><u>[Updated] Seamless Sound Shift Best 10 YouTube Audio Converters</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/crafting-metropolises-in-cities-skylines-an-irresistible-city-building-adventure/"><u>Crafting Metropolises in 'Cities: Skylines': An Irresistible City-Building Adventure</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enhancing-typing-ergonomics-elite-keyboard-rests/"><u>Enhancing Typing Ergonomics: Elite Keyboard Rests</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-durability-in-education-tech-the-asus-chromebook-c202sa-evaluation/"><u>Exploring Durability in Education Tech: The Asus Chromebook C202SA Evaluation</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Realme C67 5G | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-prime-8-virtual-vision-composition-program/"><u>In 2024, Prime 8 Virtual Vision Composition Program</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/insta360-one-x2-review-immersive-wet-and-ready-to-dive-in/"><u>Insta360 One X2 Review: Immersive, Wet & Ready to Dive In</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/professional-xp-pen-artist-16-pro-tablet-a-comprehensive-guide-and-reaction/"><u>Professional Xp-Pen Artist 16 Pro Tablet: A Comprehensive Guide and Reaction</u></a></li>
-<li><a href="https://win-dash.techidaily.com/quick-download-install-your-thrustmaster-t150-gamepad-with-expert-guides/"><u>Quick Download: Install Your Thrustmaster T150 Gamepad with Expert Guides</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/the-best-methods-to-unlock-the-iphone-locked-to-owner-for-apple-iphone-7-by-drfone-ios/"><u>The Best Methods to Unlock the iPhone Locked to Owner for Apple iPhone 7</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/vive-cosmos-headset-analysis-superior-immersion-with-intense-industry-competition/"><u>Vive Cosmos Headset Analysis: Superior Immersion with Intense Industry Competition</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-game-streaming-tool-analysis-choose-obs-or-shadowplay/"><u>[New] 2024 Approved Game Streaming Tool Analysis Choose OBS or ShadowPlay?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-alternative-game-capture-software-no-more-fbx-dependence-for-2024/"><u>[New] Alternative Game Capture Software No More FBX Dependence for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagrams-slow-motion-secrets-reels-done-right/"><u>[New] In 2024, Instagram's Slow Motion Secrets Reels Done Right</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-illuminate-canon-cameras-combining-freebies-and-paid-lut-sets/"><u>[Updated] In 2024, Illuminate Canon Cameras Combining Freebies and Paid LUT Sets</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-oneplus-open-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On OnePlus Open</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/beyond-the-hype-an-objective-look-at-bose-quiet-control-30/"><u>Beyond the Hype: An Objective Look at Bose Quiet Control 30</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/creative-labs-2013-sound-blaster-zxr-in-depth-analysis-and-expert-evaluation/"><u>Creative Labs' 2013 Sound Blaster ZXR - In-Depth Analysis and Expert Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/defend-against-malware-the-creme-de-la-creme-of-iphone-security-apps/"><u>Defend Against Malware: The Crème De La Crème of iPhone Security Apps</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-update-scansnap-drivers-seamlessly-on-windows-a-simple-guide/"><u>Download & Update ScanSnap Drivers Seamlessly on Windows – A Simple Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/family-friendly-durable-cams-for-splashing-and-snapping/"><u>Family-Friendly Durable Cams for Splashing and Snapping</u></a></li>
+<li><a href="https://techidaily.com/how-to-hard-reset-poco-f5-pro-5g-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Poco F5 Pro 5G Without Password | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-5-solutions-for-asus-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Asus Unlock Without Password</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-clearstream-eclipse-antenna-top-notch-functionality-in-an-easy-package/"><u>The ClearStream Eclipse Antenna: Top-Notch Functionality in an Easy Package</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-mobile-reception-amplifiers/"><u>Top-Rated Mobile Reception Amplifiers</u></a></li>
 </ul></div>
 

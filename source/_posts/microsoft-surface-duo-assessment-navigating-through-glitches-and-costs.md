@@ -1,7 +1,7 @@
 ---
 title: "Microsoft Surface Duo Assessment: Navigating Through Glitches & Costs"
-date: 2024-09-10T16:22:21.645Z
-updated: 2024-09-14T21:37:04.917Z
+date: 2024-09-16T16:30:28.781Z
+updated: 2024-09-20T17:35:28.087Z
 categories:
   - BestProducts
 description: "This Article Describes Microsoft Surface Duo Assessment: Navigating Through Glitches & Costs"
@@ -89,13 +89,6 @@ Lifewire / Gannon Burgett
 
  Moving onto the included accessories, the Surface Keyboard, Surface Mouse, and Surface Pen all felt well-built and thoughtfully designed. They didn’t blow us away, but they feel substantial and should easily last the life of the computer without issue. We would’ve liked to see a Surface Dial tossed in there as well, considering how much the Surface Studio 2 costs and artists and graphic designers being the clear target market.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Quick and simple**
 
  Setting up the Microsoft Surface Studio 2 was rather straightforward. The box it comes in is securely packaged, and designed to handle a bit of abuse on the way to your house. After unpacking, all we had to do was plug in the computer and remove the plastic battery tabs on the Surface Keyboard and Surface Mouse. The Surface Pen should work just fine out of the box.
@@ -104,14 +97,20 @@ Lifewire / Gannon Burgett
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/2YGEvu4_h4VAgUiecjNAvd56F9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-7-0e52038c30364530a5a9bd0ac7011cb7.jpg)
 
- Lifewire / Gannon Burgett
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Gannon Burgett
 
 ## **Display: A treat for your eyes**
 
@@ -124,6 +123,13 @@ Lifewire / Gannon Burgett
  The Zero Gravity hinge allows it for easy adjustment, letting us use it at almost, ranging from nearly flat to fully upright. If you have the Surface Dial you can also unlock a lot of functionality when it comes to photo and video editing. Its omission despite the high price of the Studio feels like a big downside.
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/WBpMM3f4iH20J7-9H_NzD1zeBl4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-8-22d53ea12b7c48988b4840af9fb744c4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -143,13 +149,6 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Network: Quick wireless connection with hardwired backup**
 
  The Microsoft Surface Studio 2 features both hardwired and wireless networking options. On the rear of the computer is a Gigabit Ethernet (RJ-45) port for the hardwired connection while an internal Wi-Fi antenna supports 802.11ac connectivity with a/b/g/n compatibility as well.
@@ -158,19 +157,20 @@ Lifewire / Gannon Burgett
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/rkvuGygIghO9k9Je4rikzH5HvaE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-4-1b719f36dcb3448c9da40160faa18954-a32c44e2f9ca4ed3b4d670458dc6d5f0.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Camera: Decent and usable**
@@ -193,16 +193,16 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: One word—ridiculous**
 
  At $3,499 MSRP, the Surface Studio 2 is incredibly expensive for the specs it offers. It’s twice as costly as the 21.5-inch 4K iMac ($1,299) and the base model of the 27-inch iMac ($1,799). The Surface Studio 2 is clearly trying to compete with the $4,999 iMac Pro, but with its older hardware and sometimes clunky software, it’s simply not as good of an experience for professionals and creatives, most of whom can get by with the more affordable iMac models anyway.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: More affordable rivals, but lacking effective touchscreens**
 
@@ -257,21 +257,15 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-influence-of-thumbnail-size-on-viewership-numbers/"><u>[New] 2024 Approved The Influence of Thumbnail Size on Viewership Numbers</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-finding-frame-frames-the-art-of-isolating-images-on-windows-10/"><u>[New] Finding Frame Frames The Art of Isolating Images on Windows 10</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-seeking-access-to-all-mutually-shared-media-in-chats/"><u>[Updated] Seeking Access to All Mutually-Shared Media in Chats</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-sociostreamer-convert-tweets-to-videos/"><u>2024 Approved SocioStreamer Convert Tweets to Videos</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/delving-into-the-world-of-the-acer-chromebook-prise-and-it-can-be-reused-for-other-projects-that-require-similar-functionality/"><u>Delving Into the World of the Acer Chromebook Prise, and It Can Be Reused for Other Projects that Require Similar Functionality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-dell-inspiron-3671-desktop-a-reliable-choice-for-everyday-computing-needs/"><u>Evaluating the Dell Inspiron ^ 3671 Desktop: A Reliable Choice for Everyday Computing Needs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-enhanced-features-of-chromecast-now-packaged-with-google-tv/"><u>Exploring the Enhanced Features of Chromecast Now Packaged with Google TV</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-from-poco-f5-5g-by-drfone-android/"><u>How to Bypass FRP from Poco F5 5G?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-xiaomi-redmi-note-13-5g-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Xiaomi Redmi Note 13 5G</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-vivo-v30-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Vivo V30 to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/in-2024-unlocking-the-door-to-joining-a-tiktok-gathering/"><u>In 2024, Unlocking the Door to Joining a TikTok Gathering</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-the-levels-of-rayman-legends-a-critique-on-its-platformer-excellence/"><u>Mastering the Levels of Rayman Legends: A Critique on Its Platformer Excellence</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximizing-wifi-speeds-an-insightful-look-into-the-netgear-nighthawk-x10-ad7200-routers-capabilities/"><u>Maximizing WiFi Speeds: An Insightful Look Into the Netgear Nighthawk X10 (AD7200) Router's Capabilities</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolving-usb-device-not-recognized-descriptive-error-corrected/"><u>Resolving 'USB Device Not Recognized: Descriptive Error Corrected</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stylish-and-functional-garmin-vivomove-hr-smartwatch-your-perfect-fitness-companion/"><u>Stylish and Functional: Garmin Vivomove HR Smartwatch - Your Perfect Fitness Companion</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-comprehensive-breakdown-of-huions-luxurious-kamvas-gt-191-masterpiece-pen-display/"><u>The Comprehensive Breakdown of Huion's Luxurious Kamvas GT- 191 Masterpiece Pen Display</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-text-tactics-top-10-best-practices/"><u>[Updated] In 2024, Text Tactics Top 10 Best Practices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-virtual-extension-instant-fb-stories-archive/"><u>[Updated] Virtual Extension Instant FB Stories Archive</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-breakthrough-techniques-for-streaming-success-obs-studio-android/"><u>2024 Approved Breakthrough Techniques for Streaming Success OBS Studio (Android)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/analyzing-the-truecaller-application-a-detailed-review/"><u>Analyzing the Truecaller Application: A Detailed Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insights-into-lenovos-iconic-ideapad-320-blending-mobility-with-unparalleled-keyboard-design/"><u>Expert Insights Into Lenovo's Iconic IdeaPad 320: Blending Mobility with Unparalleled Keyboard Design</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-boundless-playlist-public-domain-music-for-games/"><u>In 2024, Boundless Playlist Public Domain Music for Games</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-splendidly-priced-xiaomi-mi-smart-band/"><u>In Depth Analysis of the Splendidly Priced Xiaomi Mi Smart Band</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/movavi-converter-online-gratuito-para-arquivos-nef-em-png/"><u>Movavi: Converter Online Gratuito Para Arquivos NEF Em PNG</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-karaoke-parties-with-singing-machines-plug-and-play-sml385btbk-a-colorful-user-friendly-review/"><u>Revolutionize Your Karaoke Parties with Singing Machine's Plug & Play SML385BTBK - A Colorful, User-Friendly Review!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-the-normalizdll-not-found-error-on-your-pc/"><u>Troubleshooting the 'Normaliz.dll Not Found' Error on Your PC</u></a></li>
 </ul></div>
 

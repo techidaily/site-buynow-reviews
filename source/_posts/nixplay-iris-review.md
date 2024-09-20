@@ -1,7 +1,7 @@
 ---
 title: Nixplay Iris Review
-date: 2024-08-03T22:58:28.157Z
-updated: 2024-08-04T22:58:28.157Z
+date: 2024-09-16T16:39:12.859Z
+updated: 2024-09-20T16:36:23.418Z
 categories:
   - BestProducts
 description: This Article Describes Nixplay Iris Review
@@ -13,9 +13,6 @@ thumbnail: https://www.lifewire.com/thmb/Pn_QeKyTjTvxeq0UWxnW2hC1nmQ=/400x300/fi
 
 3.8
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Days Gone
 
 ![Days Gone](https://www.lifewire.com/thmb/Tqpk70Y2I4WyH7fJQ4l_C66NHaI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Days-Gone-Zombie-Game-PS4-1-ecafdc83e8e0460cbc31b8b0e4976faa.jpg)
@@ -39,14 +36,8 @@ Lifewire / Kelsey Simon
 
 3.8
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Days Gone
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Days Gone](https://www.lifewire.com/thmb/OhLBxtaDQ5jb89rJmIMnan1soS4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Days-Gone-Zombie-Game-PS4-1-ecafdc83e8e0460cbc31b8b0e4976faa.jpg)
 
 Lifewire / Kelsey Simon
@@ -70,9 +61,6 @@ Lifewire / Kelsey Simon
 
  Days Gone is another action-adventure survival game in the zombie genre. It does a lot of things that other similar titles do―crafting, stealth, and gathering resources―but with an added emphasis on your character’s vehicle.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Days Gone](https://www.lifewire.com/thmb/ryi3-WPMYdCrQ8y_6kRDMiMzxZ0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-6-0cbb39a028324cf9a576db1941bce0a4.jpg)
 
  Lifewire / Kelsey Simon
@@ -81,12 +69,16 @@ Lifewire / Kelsey Simon
 
  If you purchased the game on disc, when you first pop it into your PlayStation 4 you’ll have to update. The update is fairly large, so be prepared to wait. The game finally launches, you'll be prompted to select between easy, normal, or hard difficulty, and then treated to a scene-setting introductory cutscene.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Days Gone](https://www.lifewire.com/thmb/HE8j4XoxbKMWIQagUtGCXFf6bKo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-2-3b29272bf1b2423781e104041dc00457.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Plot: A man who lost his wife**
 
@@ -100,10 +92,14 @@ As in most zombie fiction, the real monster is man.
 
  You'll have issues with a cult group called Rippers, and bandits who survive by preying on anyone who's not well armed or capable enough to defend what's theirs. Unfortunately, Boozer gets badly hurt in one of these encounters, and while you’re trying to find him the help he needs, you get a lead that perhaps Sarah, who you assumed was dead, is still alive. The rest of the game involves exploring this open-world, helping the people you meet, and trying to find Sarah, all while keeping your friend Boozer alive.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Days Gone](https://www.lifewire.com/thmb/XWR-CgFF865KBE1ipv7cwdi-P3w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-5-b1914ac9859b409d9460fea24fc7f251.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -139,9 +135,6 @@ As in most zombie fiction, the real monster is man.
 
  On the official PlayStation Store, the game goes for $40, but you can regularly find it on sale on Amazon or other online retailers (as of this writing, it's down to $20). At a discount, Days Gone is an easy purchase, a big, entertaining, open-world zombie romp that rarely if ever stagnates until the credits roll.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ## **Days Gone vs. The Last of Us Remastered**
 
  There are a fair amount of other zombie survival games out there. On the PlayStation 4, another popular title is The Last of Us Remastered. The Last of Us doesn't have the expansive open world that Days Gone does, but the crafting system is far better, and the plot is stronger.
@@ -153,14 +146,17 @@ As in most zombie fiction, the real monster is man.
  Days Gone is a game that tried very hard to combine two tropes very much in the entertainment zeitgeist in the past few years—zombies and bikers. It's graphically strong, with great character animations and detailed environments and character models. The clunky controls and some pacing issues may make recommending it at full price difficult, but on sale, it's an easy pickup, especially for zombie fans shopping for an entertaining PS4 game.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Days Gone
 * Price  $40.00
 * Available Platforms  Playstation 4
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -168,11 +164,30 @@ As in most zombie fiction, the real monster is man.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-silence-the-algorithmic-intrusions-on-ig/"><u>[New] 2024 Approved Silence the Algorithmic Intrusions on IG</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-become-audio-prodigy-installing-vrecorder-made-ahead/"><u>[New] In 2024, Become Audio-Prodigy - Installing VRecorder Made Ahead</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-direct-video-tweet-sharing-content-without-including-others-tweets/"><u>[New] In 2024, Direct Video Tweet Sharing Content Without Including Others' Tweets</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/adjusted-permissions-enable-secure-download-access-with-updated-security-preferences/"><u>Adjusted Permissions: Enable Secure Download Access with Updated Security Preferences</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/decoding-the-mysteries-of-vlcs-hidden-tools/"><u>Decoding the Mysteries of VLC's Hidden Tools</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-the-asus-rt-ac68u-fast-secure-and-advanced-wireless-networking-revealed/"><u>Expert Insights on the Asus RT-AC68U - Fast, Secure and Advanced Wireless Networking Revealed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-miniaturized-marvel-a-comprehensive-review-of-the-new-echo-dot-2020-powered-by-alexa/"><u>Exploring the Miniaturized Marvel: A Comprehensive Review of the New Echo Dot (2020) Powered by Alexa</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-do-you-unlock-your-iphone-14-pro-learn-all-4-methods-by-drfone-ios/"><u>In 2024, How Do You Unlock your iPhone 14 Pro? Learn All 4 Methods</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-oppo-reno-11f-5g-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Oppo Reno 11F 5G for Parents | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovo-chromebook-duet-overview-affordable-hybrid-laptoptablet-analysis/"><u>Lenovo Chromebook Duet Overview: Affordable Hybrid Laptop/Tablet Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mohu-blade-tv-antenna-analysis-unmatched-design-and-superior-performance-in-your-home/"><u>Mohu Blade TV Antenna Analysis: Unmatched Design & Superior Performance in Your Home</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-screen-unresponsive-error-on-windows-11/"><u>Overcoming 'Screen Unresponsive' Error on Windows 11</u></a></li>
+<li><a href="https://techidaily.com/remove-google-frp-lock-on-oppo-reno-11-5g-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Oppo Reno 11 5G</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-aphaca-bt69s-performance-as-a-high-quality-compact-fm-transmitter-with-bluetooth-connectivity/"><u>Review of Aphaca BT69's Performance as a High-Quality Compact FM Transmitter with Bluetooth Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-the-sleek-sealink-55/"><u>Review: The Sleek Sealink 55</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-portable-omnicharge-omni-20-power-bank-featuring-qi-wireless-technology/"><u>The Ultimate Guide to the Portable Omnicharge Omni 20 Power Bank: Featuring Qi Wireless Technology</u></a></li>
+</ul></div>
+

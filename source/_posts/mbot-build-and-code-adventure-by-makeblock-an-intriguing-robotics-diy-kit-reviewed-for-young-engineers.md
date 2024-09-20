@@ -1,7 +1,7 @@
 ---
 title: MBot Build & Code Adventure by Makeblock – An Intriguing Robotics DIY Kit Reviewed for Young Engineers
-date: 2024-09-07T23:25:27.533Z
-updated: 2024-09-15T13:53:21.292Z
+date: 2024-09-19T17:41:01.307Z
+updated: 2024-09-20T18:08:42.667Z
 categories:
   - BestProducts
 description: This Article Describes MBot Build & Code Adventure by Makeblock – An Intriguing Robotics DIY Kit Reviewed for Young Engineers
@@ -104,19 +104,6 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/FjdFyV6Y4mTXNsqccZ4aEBJNpV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_05-e671ee9f77cc4cee8e2580a2dba449d5.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Yoona Wagener.
 
  The Halo also offers around-the-clock heart rate monitoring and quite detailed sleep tracking analysis and explanations of data tracked. The sleep metrics surpass the high-level data I’ve experienced from devices such as the[Fitbit Sense](https://www.lifewire.com/fitbit-sense-review-5085832) or[Samsung Fit2](https://www.lifewire.com/samsung-galaxy-fit2-review-5094526) and helped me feel more attuned to how I was sleeping each night based on my sleep score, disturbances logged, and how long it took me to fall asleep.
@@ -128,10 +115,10 @@ Lifewire / Yoona Wagener
  The body fat scan is based on pictures uploaded to the app—and based on prompts from the app. While it felt invasive and isn’t a feature I’d seek out in a fitness tracker, it worked without issue. Amazon reports that this technology is twice as accurate as smart scales. For the right user who feels comfortable with this kind of data compilation, this feature also offers visualizations of how different body fat percentages would look on your frame and stores your scans for a look at trends over time. All voice data and images used for the body scan are deletable from the app, though you can also choose to back up body data in the[cloud](https://www.lifewire.com/what-is-cloud-computing-817770) , which Amazon assures is private and well secured.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Software: An essential and user-friendly mobile app
@@ -143,6 +130,13 @@ Lifewire / Yoona Wagener
  Like Fitbit, the Halo also comes with a free 6-month trial to a Halo membership, which includes various guided wellness programs from the Discover tab of the app. I followed along with various circuit, HIIT, and equipment-free workouts all of which offered some sort of video to follow along with as well as audio instructions. The Halo band would certainly lack the same sort of appeal without access to these programs that are great if you want to sneak in a quick workout, or you’re an avid at-home exerciser who likes to mix things up.
 
  The app makes everything from the initial setup to body scanning and voice tracking straightforward.
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Battery: Enough juice to last nearly a week
 
@@ -158,6 +152,13 @@ Lifewire / Yoona Wagener
 
  Retailing for just about $100, the Amazon Halo band certainly won’t break the bank for budget-minded shoppers. While the lack of display could be a deterrent, the solid mobile app provides convenient access to the detailed sleep, automatic activity tracking, and specialized tone of voice and body fat analysis the Halo provides.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Amazon Halo vs. WHOOP Strap 3
 
  The WHOOP Strap 3 is another screen-less fitness tracker with a minimalist bent but a bigger buy-in and emphasis on performance. Unlike the Halo, the WHOOP Strap requires a WHOOP membership, which, at the lowest end, costs $30 monthly for a 6-month membership or $180 total (band included). The Halo band comes with a free six-month subscription to Halo app services, then a $3.99 monthly charge, so it’s considerably cheaper—especially since WHOOP recommends replacing their fabric strap every six months as well.
@@ -170,13 +171,6 @@ Lifewire / Yoona Wagener
 
  The Amazon Halo isn’t for everyone with its lack of display and additional layers of data tracking to capture tone of voice and body fat percentage. But for the user that wants a little less hardware but more forward-thinking fitness/health tracking, this unique wearable offers a different approach to increasing activity and wellness awareness on a daily basis.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Apple Watch Series 5](https://www.lifewire.com/apple-watch-series-6-review-5087552)
@@ -184,16 +178,10 @@ Lifewire / Yoona Wagener
 * [Ticwatch Pro](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
 
 <!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -227,20 +215,20 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-a-deeper-dive-into-high-definition-online-visibility/"><u>[New] A Deeper Dive Into High Definition Online Visibility</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-win-and-mac-top-8-excellent-subtitles-converters-to-srt/"><u>[Updated] 2024 Approved Win & Mac Top 8 Excellent Subtitles Converters to SRT</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-innovative-approaches-to-enhance-the-impact-of-your-youtube-intro/"><u>[Updated] Innovative Approaches to Enhance the Impact of Your YouTube Intro</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-plex-vs-studio-prodigies/"><u>[Updated] Plex vs Studio Prodigies</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-top-techniques-succeeding-in-spotify-advertising/"><u>[Updated] Top Techniques Succeeding in Spotify Advertising</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-the-definitive-users-manual-for-youtube-tv/"><u>2024 Approved The Definitive User's Manual for YouTube TV</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-from-iphone-12-pro-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out From iPhone 12 Pro How to Bypass?</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/essential-shortcuts-for-efficient-mac-screen-recording/"><u>Essential Shortcuts for Efficient Mac Screen Recording</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-using-the-versatile-maxoak-50000mah-battery-pack-in-depth-analysis/"><u>Expert Insights on Using the Versatile MaxOak 50,000mAh Battery Pack - In-Depth Analysis</u></a></li>
-<li><a href="https://techidaily.com/how-to-upgrade-or-downgrade-apple-iphone-12-pro-max-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade Apple iPhone 12 Pro Max Without Losing Anything? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-lenovos-tab-p11-pro-stellar-performance-with-certain-shortcomings/"><u>In-Depth Look at Lenovo's Tab P11 Pro: Stellar Performance with Certain Shortcomings</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-of-samsung-un65nu8000fxza-an-overpriced-average-performance-smart-television/"><u>Review of Samsung UN65NU8000FXZA: An Overpriced Average-Performance Smart Television</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stay-driven-the-power-of-built-in-gps-and-apps-for-holistic-health-on-fitbit-versa-3/"><u>Stay Driven: The Power of Built-In GPS and Apps for Holistic Health on Fitbit Versa 3</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-oculus-quest-2-stellar-vr-gaming-for-a-fantastic-deal/"><u>The Ultimate Guide to the Oculus Quest 2 - Stellar VR Gaming for a Fantastic Deal!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-asus-routers-on-the-market/"><u>Top-Rated ASUS Routers on the Market</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-expert-netflix-tips-maximizing-screenshots-with-your-mac-for-2024/"><u>[New] Expert Netflix Tips Maximizing Screenshots with Your Mac for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-transferring-tv-episodes-downloading-youtube-content-ios-style/"><u>[New] In 2024, Transferring TV Episodes Downloading YouTube Content iOS-Style</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-maximize-your-screen-recording-experience-with-w8-tools-for-2024/"><u>[New] Maximize Your Screen Recording Experience with W8 Tools for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-privacy-first-explore-the-best-10-no-cost-highly-secured-video-calling-apps-for-smartphones/"><u>[Updated] 2024 Approved Privacy First Explore the Best 10 No-Cost, Highly-Secured Video Calling Apps for Smartphones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/avoid-the-last-batch-meltdown-expert-strategies-for-windows-systems-updated-for-2024/"><u>Avoid the Last Batch Meltdown: Expert Strategies for Windows Systems (Updated for 202#4)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/galaxy-showdown-s24-ultra-versus-s23-ultra-the-detailed-review/"><u>Galaxy Showdown: S24 Ultra Versus S23 Ultra – The Detailed Review</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-frp-on-samsung-galaxy-a05-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass FRP on Samsung Galaxy A05</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-comcast-xfinity-vs-tivo-which-dvr-reigns-supreme/"><u>In 2024, Comcast Xfinity vs TiVo Which DVR Reigns Supreme?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-reimagining-your-images-effective-uses-of-the-background-eraser-in-adobe-photoshop/"><u>In 2024, Reimagining Your Images Effective Uses of the Background Eraser in Adobe Photoshop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-2024s-wireless-earbud-brands/"><u>Leading 2024'S Wireless Earbud Brands</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-aphaca-bt69s-performance-as-a-high-quality-compact-fm-transmitter-with-bluetooth-connectivity/"><u>Review of Aphaca BT69's Performance as a High-Quality Compact FM Transmitter with Bluetooth Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sky-high-excellence-unveiling-why-dji-mavic-air-2-sets-new-standards-in-drone-technology/"><u>Sky High Excellence - Unveiling Why DJI Mavic Air 2 Sets New Standards in Drone Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tech-faceoff-is-the-samsung-galaxy-s24-ultra-a-worthy-upgrade-over-the-s23-ultra/"><u>Tech Faceoff: Is the Samsung Galaxy S24 Ultra a Worthy Upgrade Over the S23 Ultra?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/undo-motion-recapturing-video-from-mobile-devices-for-2024/"><u>Undo Motion Recapturing Video From Mobile Devices for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/valheims-optimal-seed-selection-strategies/"><u>Valheim's Optimal Seed Selection Strategies</u></a></li>
 </ul></div>
 

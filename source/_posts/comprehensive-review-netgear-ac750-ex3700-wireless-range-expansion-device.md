@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Review: Netgear AC750 EX3700 Wireless Range Expansion Device"
-date: 2024-09-12T19:04:57.679Z
-updated: 2024-09-15T05:01:53.579Z
+date: 2024-09-19T16:15:48.107Z
+updated: 2024-09-20T18:25:22.555Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Review: Netgear AC750 EX3700 Wireless Range Expansion Device"
@@ -90,13 +90,6 @@ Lifewire / Jeremy Laukkonen
 
  For a premium device with a premium price like the Omni 20+, I’d like to see a different material used for the case.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Initial Setup: Frustrating due to a lack of documentation**
 
  While it’s clear that a lot of thought and care went into designing the Omni 20+, it’s just as clear that almost no thought was given over to the packaging and documentation. When you open the box, you’re greeted with the battery itself, a USB-A to C cable, a[USB-C](https://www.lifewire.com/usb-c-4149490) to C cable, and a couple of brochures. One of those brochures is marked as a quick start guide, but it really isn’t.
@@ -113,6 +106,13 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/QOfV3Sc5THi3Z0gKZq0e-ciPUEE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-5-000854ae3c4347b7adc13130dcb9d1b9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 ## **Display: Crisp and easy to read, but confusing**
@@ -122,10 +122,10 @@ Lifewire / Jeremy Laukkonen
  I’ve already covered the issue with the manual in the previous section, so suffice it to say I recommend avoiding frustration and just downloading the manual from the Omnicharge website rather than trying to figure out the display and controls on your own.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Sockets and Ports: Excellent array, including wireless**
@@ -144,19 +144,6 @@ Lifewire / Jeremy Laukkonen
 
  On the front of the power bank, next to the display, you’ll find two USB-A ports. These ports are capable of charging all your standard USB devices. One is a Qualcomm 3.0 compatible quick charge port, and the other is a standard USB port that’s capable of putting out up to 3A.
 
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery: Decent battery capacity for the size**
 
  The Omni 20+ includes a 20,000 mAh battery, which is a decent capacity for the size of this power bank. I’d like to see a larger capacity based on the price of this unit, but it’s clear that you’re paying for extra features like fast USB-Charging and[wireless charging](https://www.lifewire.com/qi-wireless-charging-4151894) instead of a big battery.
@@ -172,10 +159,10 @@ Lifewire / Jeremy Laukkonen
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/aZDfINCcUg9uIHRuhVr2k3wmX94=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-1-815fe3c777eb4f46a77cb00127bd88c2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
@@ -193,6 +180,19 @@ Lifewire / Jeremy Laukkonen
  By plugging the Omni 20+ into power when available, I found it to be a fantastic replacement for an otherwise bulky assortment of power adapters for my laptop, phone, and other devices.
 
  The built-in Qi charger is capable of putting out 10 watts, and I found it to work just as well as other 10 watt Qi chargers I’ve used. It is a bit touchy in terms of positioning, but I was able to get the hang of it pretty fast.
+
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: High end**
 
@@ -240,19 +240,15 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unlocking-classic-facebook-narratives-laptop-and-mobile-strategies/"><u>[Updated] In 2024, Unlocking Classic Facebook Narratives Laptop & Mobile Strategies</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/best-realme-gt-5-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Realme GT 5 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/how-ai-struggles-to-accurately-identify-original-and-plagiarized-material-online/"><u>How AI Struggles to Accurately Identify Original and Plagiarized Material Online</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-watch-hulu-outside-us-on-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On OnePlus 11 5G | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-honor-100-pro-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Honor 100 Pro</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-itel-a70-by-drfone-android/"><u>In 2024, How to Bypass FRP from Itel A70?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-googles-battery-operated-wireless-nest-doorbells/"><u>In-Depth Analysis of the Google's Battery-Operated Wireless Nest Doorbells</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/overcoming-challenges-with-chatgpt-understanding-google-news-revision-policies-and-ensuring-uninterrupted-internet-access-on-the-go/"><u>Overcoming Challenges with ChatGPT, Understanding Google News Revision Policies & Ensuring Uninterrupted Internet Access on the Go</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revamping-a-classic-the-evolution-of-ratchet-and-clank-gaming-experience/"><u>Revamping a Classic: The Evolution of Ratchet & Clank Gaming Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-mac-and-linux-photography-with-the-powerful-free-darktable-raw-image-editor/"><u>Revolutionize Your Mac & Linux Photography with the Powerful, FREE Darktable RAW Image Editor</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/score-unbeatable-savings-top-notch-tech-specials-during-the-2024-amazon-prime-extravaganza/"><u>Score Unbeatable Savings: Top-Notch Tech Specials During the 2024 Amazon Prime Extravaganza!</u></a></li>
-<li><a href="https://media-tips.techidaily.com/the-ultimate-guide-to-free-web-based-wav-to-mp3-audio-file-conversions-top-4-techniques-revealed/"><u>The Ultimate Guide to Free, Web-Based WAV to MP3 Audio File Conversions – Top 4 Techniques Revealed!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-test-of-the-netgear-nighthawk-rax80-unveiling-the-power-of-wi-fi-6/"><u>Ultimate Test of the Netgear Nighthawk RAX80: Unveiling the Power of Wi-Fi 6</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-the-asus-chromebook-flip-c3ca-stands-out-affordability-convertibility-and-top-notch-quality-reviewed/"><u>Why the Asus Chromebook Flip C3#CA Stands Out: Affordability, Convertibility and Top-Notch Quality Reviewed</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-leading-ways-to-preserve-live-streamed-sports-events-flawlessly/"><u>[Updated] 2024 Approved Leading Ways to Preserve Live-Streamed Sports Events Flawlessly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-digital-domain-your-playground-for-1000-titles/"><u>[Updated] In 2024, Digital Domain Your Playground for 1,000 Titles</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-raise-the-bar-pivotal-youtube-seo-enhancers/"><u>[Updated] Raise the Bar Pivotal YouTube SEO Enhancers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/boosting-performance-in-depth-analysis-of-the-anker-usb-30-superspeed-hub/"><u>Boosting Performance: In-Depth Analysis of the Anker USB 3.0 Superspeed Hub</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/minds-on-trial-best-general-knowledge-channels/"><u>Minds on Trial Best General Knowledge Channels</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/securing-fb-videos-download-on-pcmac-systems/"><u>Securing FB Videos Download on PC/Mac Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/streaming-head-to-head-roku-versus-chromecast-which-wins-out/"><u>Streaming Head-to-Head: Roku Versus Chromecast - Which Wins Out?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-for-panasonics-hc-wxf991/"><u>The Ultimate Review for Panasonic's HC-WXF991</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unfolding-the-pros-and-cons-of-lenovos-revolutionary-x1-fold-laptop-reviewed/"><u>Unfolding the Pros and Cons of Lenovo's Revolutionary X1 Fold Laptop Reviewed</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-discover-the-best-imovie-alternative-for-windows-10-free-paid-and-everything-in-between-for-2024/"><u>Updated Discover the Best iMovie Alternative for Windows 10 Free, Paid, and Everything in Between for 2024</u></a></li>
 </ul></div>
 

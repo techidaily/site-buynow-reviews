@@ -1,7 +1,7 @@
 ---
 title: "Innovative Chargeless Illumination: Evaluating the Robustness of Romer's Rechargeable Lantern"
-date: 2024-09-09T16:51:53.477Z
-updated: 2024-09-15T14:25:33.070Z
+date: 2024-09-13T16:11:28.171Z
+updated: 2024-09-20T18:17:46.941Z
 categories:
   - BestProducts
 description: "This Article Describes Innovative Chargeless Illumination: Evaluating the Robustness of Romer's Rechargeable Lantern"
@@ -90,6 +90,13 @@ Lifewire / Andy Zahn
 
  We did encounter one troublesome bug where the remote partially de-synced from the display so that only the power button functioned properly. This is obviously a known issue, as on-screen instructions immediately appeared to reset the remote and re-establish the connection, and we found these instructions repeated inside the battery compartment of the remote. We also missed having dedicated buttons for popular streaming services such as Netflix and Hulu.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Some assembly required**
 
  The sturdiness of the NU8000’s stand comes at a small price in terms of ease of setup. The back panel of the pillar must be popped off to screw the stand together. The assembled base is then attached to the screen via a plate that slides into place and is then secured by more screws. The caveat is that unless you have a large table available for this process then it's very difficult and requires the cooperation of at least two other people. Once this is complete, insert the batteries into the remote, attach the power cord and any other wired connections, and you’re ready to go.
@@ -99,10 +106,10 @@ Lifewire / Andy Zahn
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/bOGvBL3-atPnw9kBu9ugoXGE9ag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-3-44ef4614305946739623813ea1476c2b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
@@ -125,27 +132,7 @@ Lifewire / Andy Zahn
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/0imcVI8dzYw11TAOKkt8EnXJE5k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-2-0c325c2d3f1e448d9d0b10f24152a097.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Audio Quality: Surprisingly good**
 
@@ -153,20 +140,14 @@ Lifewire / Andy Zahn
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/AXYnUtoRwLv0QLo0Xm0_W28X-zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-5-531f7de77d9746ba993c9966f10920be.jpg)
 
- Lifewire / Andy Zahn
-
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Andy Zahn
 
 ## **Software: A little slow**
 
@@ -179,6 +160,13 @@ Lifewire / Andy Zahn
 ## **Price: Expensive at MSRP**
 
  With an MSRP of $999 the NU8000 is certainly no bargain, especially considering that superior displays are available for the same cost. However, as this is an older TV it may be possible to find steep discounts that make up for its deficiencies.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: NU8000 vs RU8000**
 
@@ -222,18 +210,18 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-audio-archive-checkout-and-scrutiny/"><u>[Updated] In 2024, Audio Archive Checkout & Scrutiny</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-alluring-headline-manufacturer/"><u>2024 Approved Alluring Headline Manufacturer</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-funimate-masterclass-quick-video-access/"><u>2024 Approved Funimate Masterclass Quick Video Access</u></a></li>
-<li><a href="https://driver-install.techidaily.com/elite-sound-driver-amd-and-windows/"><u>Elite Sound Driver: AMD & Windows</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/holiday-memories-revisited-summertimes-best-vacation-flicks/"><u>Holiday Memories Revisited Summertime’s Best Vacation Flicks</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-excellent-20-anime-opening-anthems/"><u>In 2024, Excellent 20 Anime Opening Anthems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/large-display-solid-chrome-experience-the-full-story-on-acers-chromebook-15-review/"><u>Large Display, Solid Chrome Experience: The Full Story on Acer's Chromebook 15 Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/marvels-avengers-movie-critique-surpassingly-ordinary-or-just-fine/"><u>Marvel's Avengers Movie Critique: Surpassingly Ordinary or Just Fine?</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/prime-mac-gif-cutter-for-2024/"><u>Prime Mac GIF Cutter for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-of-the-wonder-workshops-dash-robot-a-highly-interactive-smart-toy/"><u>Review of the Wonder Workshop's Dash Robot - A Highly Interactive Smart Toy</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tablet-vs-e-reader-comparison-ipad-against-kindle-and-nook-devices/"><u>Tablet Vs. E-Reader Comparison: IPad Against Kindle and Nook Devices</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-samsung-galaxy-a05s-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Samsung Galaxy A05s to Gmail | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/user-guide-to-navigating-the-apple-books-digital-library/"><u>User Guide to Navigating the Apple Books Digital Library</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-top-10-best-screen-recorders-for-computer/"><u>[New] Top 10 Best Screen Recorders for Computer</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-elevate-your-instagram-shots-with-strategic-borders/"><u>[Updated] 2024 Approved Elevate Your Instagram Shots With Strategic Borders</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-iphone-12-review/"><u>Apple iPhone 12 Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-mophie-ac-power-station-is-the-high-price-worth-its-portable-advantage/"><u>Evaluating the Mophie AC Power Station: Is the High Price Worth Its Portable Advantage?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-cost-cutting-skysavers-for-heavy-file-holdings/"><u>In 2024, Cost-Cutting SkySavers for Heavy File Holdings</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-can-i-unlock-my-apple-iphone-15-pro-max-after-forgetting-my-pin-code-by-drfone-ios/"><u>In 2024, How Can I Unlock My Apple iPhone 15 Pro Max After Forgetting my PIN Code?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-how-to-create-a-youtube-channel-today/"><u>In 2024, How to Create A YouTube Channel Today</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-watch-perfect-blend-of-style-and-technology/"><u>In-Depth Analysis of the Samsung Galaxy Watch: Perfect Blend of Style & Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-moto-g-play-exceptional-battery-and-reliable-speed/"><u>In-Depth Look at Moto G Play - Exceptional Battery and Reliable Speed</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-fixing-failed-to-initialize-renderer-issues-in-browsers/"><u>Troubleshooting Guide: Fixing 'Failed to Initialize Renderer' Issues in Browsers</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-monitor-not-receiving-signal-easy-fixes-walkthrough/"><u>Troubleshooting Monitor Not Receiving Signal: Easy Fixes Walkthrough</u></a></li>
+<li><a href="https://apple-account.techidaily.com/turning-off-two-factor-authentication-from-iphone-12-pro-5-tips-you-must-know-by-drfone-ios/"><u>Turning Off Two Factor Authentication From iPhone 12 Pro? 5 Tips You Must Know</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-lg-gram-17-lightweight-laptop-with-top-notch-specs-in-depth-review/"><u>Ultimate Guide: LG Gram 17 Lightweight Laptop with Top-Notch Specs - In Depth Review</u></a></li>
 </ul></div>
 

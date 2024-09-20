@@ -1,7 +1,7 @@
 ---
 title: "Testing the Anker PowerCore+ 26800 Battery Pack Duo Setup: Durability & Charging Speed Tested"
-date: 2024-09-13T08:27:18.589Z
-updated: 2024-09-15T04:20:13.041Z
+date: 2024-09-14T18:44:26.658Z
+updated: 2024-09-20T18:50:31.465Z
 categories:
   - BestProducts
 description: "This Article Describes Testing the Anker PowerCore+ 26800 Battery Pack Duo Setup: Durability & Charging Speed Tested"
@@ -91,21 +91,7 @@ thumbnail: https://thmb.techidaily.com/10c291d26c69b79184acc714bd905fecf227774d1
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Connectivity: Smooth sailing**
 
@@ -124,10 +110,16 @@ thumbnail: https://thmb.techidaily.com/10c291d26c69b79184acc714bd905fecf227774d1
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -137,6 +129,13 @@ thumbnail: https://thmb.techidaily.com/10c291d26c69b79184acc714bd905fecf227774d1
  It’s billed as an “8-stream” device, so it should be able to handle several simultaneous media streams at once, with a billed max speed of 4.8Gbps on the 5GHz band and 1.2Gbps on the 2.4GHz band. It has[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) (multiple users, multi-in multi-out) and beamforming capabilities, promising expanded range of up to 2,500 square feet and support for 30+ simultaneous devices.
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: More than most**
 
@@ -153,6 +152,19 @@ thumbnail: https://thmb.techidaily.com/10c291d26c69b79184acc714bd905fecf227774d1
  **Only for early adopters with Wi-Fi 6 routers and devices.**
 
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
+
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -180,15 +192,20 @@ thumbnail: https://thmb.techidaily.com/10c291d26c69b79184acc714bd905fecf227774d1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://hardware-reviews.techidaily.com/discover-cutting-edge-pc-gear-with-toms-technology-insights/"><u>Discover Cutting-Edge PC Gear with Tom's Technology Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-features-that-make-samsung-galaxy-note-nine-a-game-changer-in-extra-large-smartphone-market/"><u>Exploring the Features that Make Samsung Galaxy Note Nine a Game-Changer in Extra-Large Smartphone Market</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-watch-dogs-legion-an-in-depth-look-at-a-fresh-cityscape/"><u>Exploring Watch Dogs: Legion - An In-Depth Look at a Fresh Cityscape</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-honor-x50iplus-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Honor X50i+ to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-revised-question-series-to-connect-with-podcast-audience/"><u>In 2024, Revised Question Series to Connect with Podcast Audience</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-oppo-a56s-5g-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Oppo A56s 5G Phone Hassle-Free</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reasons-for-meizu-21-pro-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Meizu 21 Pro Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/resolved-how-to-fix-google-chrome-when-it-wont-start/"><u>Resolved: How to Fix Google Chrome When It Won't Start</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-list-the-7-finest-mobile-deals-for-elderly-users-this-year/"><u>Ultimate List: The 7 Finest Mobile Deals for Elderly Users This Year</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-avi-editor-for-windows-8-easily-edit-avi-files-on-pc/"><u>Updated AVI Editor for Windows 8 Easily Edit AVI Files on PC</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/harting-out-your-audience-youtubes-blueprint/"><u>[New] Charting Out Your Audience YouTube's Blueprint</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-correcting-obs-darkness-during-live-streams-for-2024/"><u>[Updated] Correcting OBS Darkness During Live Streams for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/a-selection-of-high-quality-tiktok-backdrops-for-2024/"><u>A Selection of High-Quality TikTok Backdrops for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/are-cheap-ssls-a-steal-or-scam/"><u>Are Cheap SSLs a Steal or Scam?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/catch-the-hottest-sales-on-oneplus-gadgets-this-prime-day-sale/"><u>Catch the Hottest Sales on OnePlus Gadgets This Prime Day Sale</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/digital-footprint-how-to-share-your-short-videos-on-computers-and-phones/"><u>Digital Footprint How to Share Your Short Videos on Computers & Phones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-performance-a-complete-guide-to-netgears-c3700-modem-router/"><u>Evaluating Performance: A Complete Guide to Netgear's C3700 Modem Router</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experts-agree-the-best-gaming-powerhouse-is-the-alienware-aurora-r11/"><u>Experts Agree: The Best Gaming Powerhouse Is the Alienware Aurora R11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/flexibility-meets-affordability-in-the-asus-chromebook-flip-c302ca-a-comprehensive-review/"><u>Flexibility Meets Affordability in the Asus Chromebook Flip C302CA - A Comprehensive Review</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-play-7t-phone-without-password-by-drfone-android/"><u>How To Unlock Honor Play 7T Phone Without Password?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/intuitive-design-meets-quality-with-the-z-edge-z3-plus-dashcam/"><u>Intuitive Design Meets Quality with the Z-Edge Z3 Plus Dashcam</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/preventing-print-queue-disruption-in-multiple-oss/"><u>Preventing Print Queue Disruption in Multiple OSs</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quick-access-samsung-m2070fw-driver-downloads-for-immediate-use/"><u>Quick Access: Samsung M2070FW Driver Downloads for Immediate Use</u></a></li>
+<li><a href="https://os-tips.techidaily.com/solving-android-app-malfunctions-top-7-effective-strategies-to-prevent-crashes/"><u>Solving Android App Malfunctions: Top 7 Effective Strategies to Prevent Crashes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-dell-xps-13-2-in-1-peak-performance-meets-style/"><u>Ultimate Guide to the Dell XPS 13 2-in-1: Peak Performance Meets Style</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Premium Keyboard Cushion Covers Ranked: Enhance Typing Comfort"
-date: 2024-09-12T07:44:11.632Z
-updated: 2024-09-14T23:24:00.196Z
+date: 2024-09-19T18:49:15.562Z
+updated: 2024-09-20T17:10:55.824Z
 categories:
   - BestProducts
 description: "This Article Describes Premium Keyboard Cushion Covers Ranked: Enhance Typing Comfort"
@@ -87,24 +87,18 @@ Lifewire / Emily Isaacs
 
  Unlike competitor models which often use a mix of fabric, plastics, and in some instances, metals, the entirety of this keyboard is plastic—even down to the[wrist pad](https://www.lifewire.com/best-keyboard-wrist-rests-4172684) . While we did wish that the wrist pad was made of a more comfortable material, it wasn’t uncomfortable during use. Plus, a different material would likely impact the keyboard’s longevity, since the Microban antimicrobial coating needs to be put on an acrylic, non-porous surface in order to protect against common bacteria, yeasts, molds, and fungi.
 
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Plug and play**
 
  The keyboard doesn’t arrive with much. It comes in a mid-size box with the keyboard itself and an accessory pamphlet that addresses some frequently asked questions regarding Microban technology. Setting up is quite easy. It’s a plug and play device, which means that when the keyboard is connected to the computer, the computer will recognize the device is there and you can begin using it immediately.
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/NycF2nKeSim8iDJ0Yp1gejyIigI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_03-49fdaa8e182941e184cadafc14281a1e.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -119,15 +113,22 @@ Lifewire / Emily Isaacs
  It’s equipped with a 16-character buffer, which means that it can hold onto that many typed characters before they’re processed.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A budget-friendly ergonomic keyboard**
 
  Ergonomic keyboards tend to retail anywhere from $50-$200\. The Fellowes Microban Split Wired Keyboard tends to retail for around $50, which puts this well at the budget end. Its low price point makes it a great introductory ergonomic keyboard, particularly if you’re unsure of what you want and are experimenting with different design choices.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Fellowes Microban Split Design Wired Keyboard vs. Microsoft Sculpt Ergonomic Keyboard**
 
@@ -136,13 +137,6 @@ Lifewire / Emily Isaacs
 [Microsoft Sculpt Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-sculpt-ergonomic-keyboard-review-4780274)
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/9Ei30bgFst4sw8SynCxgEI_b-9I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_04-eff22d3b32274568890dd291e56daab5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -187,16 +181,14 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-recording-rivalry-obs-versus/"><u>[Updated] In 2024, Recording Rivalry OBS Versus</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-seamless-transfer-of-social-media-videos-from-twitter-to-whatsapp/"><u>[Updated] Seamless Transfer of Social Media Videos From Twitter to WhatsApp</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-what-sets-triller-aside-from-traditional-video-platforms-like-tiktok/"><u>2024 Approved What Sets Triller Aside From Traditional Video Platforms Like TikTok</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-whispered-words-web-hidden-voice-recorders-for-smartphones/"><u>2024 Approved Whispered Words Web Hidden Voice Recorders for Smartphones</u></a></li>
-<li><a href="https://win-blog.techidaily.com/5-hassle-free-fixes-to-get-your-genshin-adventure-rolling/"><u>5 Hassle-Free Fixes to Get Your Genshin Adventure Rolling</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/cutting-edge-tech-meets-elegance-in-samsung-un65ru8000fxzas-smart-tv-features/"><u>Cutting-Edge Tech Meets Elegance in Samsung UN65RU8000FXZA's Smart TV Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-brilliance-behind-the-sleek-look-our-in-depth-tcl-32s325-roku-tv-2019-smart-led-television-review/"><u>Discover the Brilliance Behind the Sleek Look: Our In-Depth TCL 32S325 Roku TV (2019) Smart LED Television Review</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-poco-c55-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Poco C55 Devices | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-apple-losing-its-crown-the-alluring-world-of-skagen-falster-2-showcased-in-our-review/"><u>Is Apple Losing Its Crown? The Alluring World of Skagen Falster 2 Showcased in Our Review</u></a></li>
-<li><a href="https://extra-information.techidaily.com/reviewing-the-gopro-hero5-session-series/"><u>Reviewing the GoPro Hero5 Session Series</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/secure-social-scale-the-premier-app-selection-for-ios-and-android-users/"><u>Secure Social Scale - The Premier App Selection for iOS & Android Users</u></a></li>
+<li><a href="https://windows11.techidaily.com/dive-into-windows-powertoys-the-ultimate-guide-to-its-best-uses/"><u>Dive Into Windows PowerToys: The Ultimate Guide to Its Best Uses</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-dji-mavic-air-2s-ultimate-quadcopter-comparison/"><u>Expert Analysis of DJI Mavic Air 2S: Ultimate Quadcopter Comparison</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-address-the-amd-rx-560-driver-conflicts-in-different-windows-editions/"><u>How to Address the AMD RX 560 Driver Conflicts in Different Windows Editions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionary-tech-unleashed-a-comprehensive-analysis-of-the-apple-macbook-air-m1-2020-and-its-game-changing-cpu/"><u>Revolutionary Tech Unleashed: A Comprehensive Analysis of the Apple MacBook Air (M1, 2020) and Its Game-Changing CPU</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-perfect-blend-a-comprehensive-look-at-cost-effective-capability-meets-flagship-flair-in-google-pixel-er/"><u>The Perfect Blend? A Comprehensive Look at Cost-Effective Capability Meets Flagship Flair in Google Pixel Er</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-oneplus-discounts-and-offers-on-prime-day/"><u>Top OnePlus Discounts & Offers on Prime Day</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/ultimate-guide-on-iphone-xr-icloud-activation-lock-bypass-by-drfone-ios/"><u>Ultimate Guide on iPhone XR iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-elevate-your-video-game-the-7-best-free-online-video-enhancers/"><u>Updated 2024 Approved Elevate Your Video Game The 7 Best Free Online Video Enhancers</u></a></li>
+<li><a href="https://change-location.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-vivo-g2-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Vivo G2? | Dr.fone</u></a></li>
 </ul></div>
 

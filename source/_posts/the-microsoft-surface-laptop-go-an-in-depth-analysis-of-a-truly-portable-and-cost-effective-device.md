@@ -1,7 +1,7 @@
 ---
 title: The Microsoft Surface Laptop Go - An In-Depth Analysis of a Truly Portable and Cost-Effective Device
-date: 2024-09-13T10:46:10.086Z
-updated: 2024-09-15T04:51:26.353Z
+date: 2024-09-19T17:55:07.473Z
+updated: 2024-09-20T17:51:29.576Z
 categories:
   - BestProducts
 description: This Article Describes The Microsoft Surface Laptop Go - An In-Depth Analysis of a Truly Portable and Cost-Effective Device
@@ -84,6 +84,13 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
@@ -103,10 +110,10 @@ Lifewire / Emily Isaacs
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Great for the features**
@@ -115,20 +122,14 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
@@ -141,19 +142,6 @@ Lifewire / Emily Isaacs
 [Microsoft Surface Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-surface-ergonomic-keyboard-review-4780282)
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -197,17 +185,15 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-how-to-insert-a-vimeo-video-into-powerpoint/"><u>[New] How to Insert a Vimeo Video Into PowerPoint</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-prime-graphic-hubs-offered-free-with-unmatched-quality-and-design-tools/"><u>[New] In 2024, Prime Graphic Hubs Offered Free, With Unmatched Quality & Design Tools</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-top-11-innovative-sites-for-crafting-impactful-fb-cover-photos/"><u>[New] In 2024, Top 11 Innovative Sites for Crafting Impactful FB Cover Photos</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-exploring-the-metaphysics-of-metaverse-selling/"><u>[Updated] Exploring the Metaphysics of Metaverse Selling</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-battle-of-the-capture-tools-obs-studio-against-bandicam/"><u>[Updated] In 2024, Battle of the Capture Tools OBS Studio Against Bandicam</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/bookbook-v2-review-by-twelve-south-innovative-design-and-functionality-for-your-macbooks-safety/"><u>BookBook V2 Review by Twelve South: Innovative Design and Functionality for Your MacBook's Safety</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/connect-with-ease-discover-how-to-get-in-touch-with-digiarty/"><u>Connect with Ease - Discover How to Get in Touch with Digiarty</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-insights-why-the-jaco-smartpro-is-leading-in-digital-tire-inflators-reviews/"><u>Expert Insights: Why the Jaco SmartPro Is Leading in Digital Tire Inflators Reviews</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/step-by-step-imac-enhancement-manual-focusing-on-intel-models/"><u>Step-by-Step iMac Enhancement Manual: Focusing on Intel Models</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-247-guide-to-the-fitbit-inspire-hr-a-seamless-integration-of-fitness-tracking-into-daily-life/"><u>The 24/7 Guide to the Fitbit Inspire HR: A Seamless Integration of Fitness Tracking Into Daily Life</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-all-rounder-laptop-reviewed-how-asus-zephyrus-g14-masters-both-work-and-play/"><u>The All-Rounder Laptop Reviewed: How Asus Zephyrus G14 Masters Both Work and Play</u></a></li>
-<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-realme-11x-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Realme 11X 5G? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-building-a-bountiful-beauty-channel-fortune/"><u>[New] 2024 Approved Building a Bountiful Beauty Channel Fortune</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-sounding-superior-a-guide-to-altering-voice-on-reels-and-stories/"><u>[New] 2024 Approved Sounding Superior A Guide to Altering Voice on Reels & Stories</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-the-ultimate-checklist-for-movie-maker-videos-on-vimeo/"><u>[Updated] 2024 Approved The Ultimate Checklist for Movie Maker Videos on Vimeo</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-best-auto-tracking-cameras/"><u>[Updated] In 2024, Best Auto Tracking Cameras</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/boosting-collaboration-mastering-real-time-photography-on-google-meet-for-2024/"><u>Boosting Collaboration Mastering Real-Time Photography on Google Meet for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-the-asus-rt-ac68u-fast-secure-and-advanced-wireless-networking-revealed/"><u>Expert Insights on the Asus RT-AC68U - Fast, Secure and Advanced Wireless Networking Revealed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-miniaturized-marvel-a-comprehensive-review-of-the-new-echo-dot-2020-powered-by-alexa/"><u>Exploring the Miniaturized Marvel: A Comprehensive Review of the New Echo Dot (2020) Powered by Alexa</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-the-sleek-sealink-55/"><u>Review: The Sleek Sealink 55</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-portable-omnicharge-omni-20-power-bank-featuring-qi-wireless-technology/"><u>The Ultimate Guide to the Portable Omnicharge Omni 20 Power Bank: Featuring Qi Wireless Technology</u></a></li>
 </ul></div>
 

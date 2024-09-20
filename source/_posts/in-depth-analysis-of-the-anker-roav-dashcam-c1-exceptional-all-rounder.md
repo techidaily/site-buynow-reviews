@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of the Anker Roav DashCam C1: Exceptional All-Rounder"
-date: 2024-09-13T14:23:01.313Z
-updated: 2024-09-15T09:21:01.756Z
+date: 2024-09-17T16:11:36.527Z
+updated: 2024-09-20T16:52:16.141Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis of the Anker Roav DashCam C1: Exceptional All-Rounder"
@@ -96,6 +96,19 @@ Lifewire / Gannon Burgett
 
 ![Max Oak](https://www.lifewire.com/thmb/FlP4JZUVLoJ3DjKoSRUIFuf1peY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_6Web-5c8ff3e6c9e77c0001a926ff.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
  One nice bonus is the power bank can be charged while also giving a charge to a laptop or mobile device, adding an extra element of convenience.
@@ -108,22 +121,15 @@ Lifewire / Gannon Burgett
 
  Moving onto laptops, our ASUS X555LA was able to be charged four and a half times from 0% with the MaxOak power bank, with an average charge time of three hours or so. The ASUS X555LA has a relatively small battery compared to most laptops, which means it falls in line with MaxOak’s claims that its power bank can charge a laptop two times over give or take a little.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Right down the middle**
 
  The MaxOak 50000mAh power bank comes in at $135.99 at the time of this review. This is a reasonable price when taking into consideration how much battery capacity you're getting with it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: One in the same**
@@ -149,10 +155,10 @@ Lifewire / Gannon Burgett
 * [Anker PowerCore+ 26800 Battery Pack Bundle](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -185,16 +191,16 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-making-youtube-intros-interesting-without-costing-a-dime/"><u>[New] Making YouTube Intros Interesting Without Costing a Dime</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-pinnacle-of-smart-wear-2024s-finest-glasses-reviewed/"><u>Discover the Pinnacle of Smart-Wear: 2024'S Finest Glasses Reviewed</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722978654791-explanation-of-hemophilia-as-an-x-linked-recessive-disorder/"><u>Explanation of Hemophilia as an X-Linked Recessive Disorder:</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fixes-for-pc-game-tears-of-threeton-version-7-continuous-crashing-issues/"><u>Fixes for PC Game 'Tears of Threeton' Version 7 Continuous Crashing Issues</u></a></li>
-<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-poco-c55-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Poco C55 | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-sign-out-of-apple-id-from-apple-iphone-15-plus-without-password-by-drfone-ios/"><u>How to Sign Out of Apple ID From Apple iPhone 15 Plus without Password?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/linkedin-plus-a-guide-to-its-prestige-benefits/"><u>LinkedIn Plus - A Guide to Its Prestige Benefits</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-where-can-i-find-dog-sound-effects/"><u>New 2024 Approved Where Can I Find Dog Sound Effects?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-samsung-galaxy-budsplus-personal-usage-insights-and-evaluations/"><u>The Ultimate Guide to Samsung Galaxy Buds+: Personal Usage Insights and Evaluations</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-acer-discounts-maximizing-savings-in-novemberdecember-2024/"><u>Ultimate Acer Discounts: Maximizing Savings in November/December 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-comparing-all-ipads-on-the-market/"><u>Ultimate Guide: Comparing All iPads on the Market</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/enhance-connectivity-free-download-for-qualcomm-atheros-ar3n1-bluetooth-device-drivers-bluetooth-version-3/"><u>[Enhance Connectivity]: Free Download for Qualcomm Atheros AR3n1 Bluetooth Device Drivers (Bluetooth Version 3)</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-binge-worthy-banquet-these-15-unmissable-tiktok-cooking-and-baking-challenges/"><u>[New] 2024 Approved Binge-Worthy Banquet These 15 Unmissable TikTok Cooking and Baking Challenges</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-capture-and-store-5-best-ways-to-save-your-favorite-facebook-videos/"><u>[New] Capture & Store 5 Best Ways to Save Your Favorite Facebook Videos</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-maximizing-impact-with-creative-video-titles/"><u>[New] Maximizing Impact with Creative Video Titles</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dive-into-immersive-storytelling-with-a-review-of-torment-tides-of-numenera-the-sci-fi-rpg-masterpiece/"><u>Dive Into Immersive Storytelling with a Review of 'Torment: Tides of Numenera,' The Sci-Fi RPG Masterpiece</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/djis-sky-high-champion-in-depth-review-of-the-air-2s-quadcopter/"><u>DJI's Sky-High Champion: In-Depth Review of the Air 2S Quadcopter</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/experience-the-next-wave-watching-fb-live-on-roku-for-2024/"><u>Experience the Next Wave Watching FB Live on Roku for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-look-at-fongo-the-premier-choice-for-canadian-business-communications/"><u>Inside Look at Fongo – The Premier Choice for Canadian Business Communications</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-your-huion-stylus-5-effective-methods-to-restore-functionality/"><u>Troubleshooting Your Huion Stylus: 5 Effective Methods to Restore Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-car-decoding-experts-of-the-future/"><u>Ultimate Car Decoding Experts of the Future</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-insights-into-samsungs-latest-flagship-device-the-galaxy-s21/"><u>Unveiling Insights Into Samsung's Latest Flagship Device, the Galaxy S21</u></a></li>
 </ul></div>
 

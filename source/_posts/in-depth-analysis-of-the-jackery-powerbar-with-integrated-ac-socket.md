@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the Jackery PowerBar with Integrated AC Socket
-date: 2024-09-12T02:07:22.163Z
-updated: 2024-09-15T07:46:46.596Z
+date: 2024-09-13T16:43:05.908Z
+updated: 2024-09-20T16:41:38.595Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the Jackery PowerBar with Integrated AC Socket
@@ -104,26 +104,13 @@ Lifewire / Danny Chadwick
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/df0_L-UzAk3OryqSCncsjfqi8QM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_03-2273fff3f71944368711b60f5da9687e.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Camera Quality: Basic**
 
@@ -132,6 +119,13 @@ Lifewire / Danny Chadwick
  When we reviewed the footage captured by the Rexing V1, we found it to be highly detailed and clear when the car was moving along city streets. However, when we hit the freeway, the picture became a little less clear. Signs were hard to read unless you stopped the recording, and small details such as license plates and bumper stickers on other cars couldn’t be made out at all. Nevertheless, the videos yield a good picture of what happens when you drive.
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/9_1pHoEq74JWPJ8reothv8PeI8E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_04-c5d42af8ddfa4296a6c6b1e8551edef6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
 
@@ -149,16 +143,16 @@ Lifewire / Danny Chadwick
 
  Like the rest of the dashboard cameras we tested, the Rexing V1 has the ability to record audio, but it does a middling job of it. Voices in the car and sounds coming from the interior speakers were clear enough to understand, but sounds from outside the vehicle were muddy at best.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: A good value**
 
  The Rexing V1 retails for $130, but as of the time of this writing, can typically be purchased for closer to $100\. We feel like this is a perfectly appropriate price for this device—it falls right in the middle of the typical dashcam price range, providing better performance than super budget models, but without the high-tech features of the more expensive options out there. In short, it’s a good price for a solid, basic device.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Z3 Plus vs. Rexing V1**
 
@@ -205,15 +199,17 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-remote-classroom-video-archive/"><u>[New] In 2024, Remote Classroom Video Archive</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-quick-start-guide-zooming-into-fb-live-on-the-web/"><u>[Updated] 2024 Approved Quick Start Guide Zooming Into FB Live on the Web</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/boost-your-gaming-experience-by-upgrading-your-gpu-the-ultimate-how-to-guide/"><u>Boost Your Gaming Experience by Upgrading Your GPU - The Ultimate How-To Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-insights-why-the-jaco-smartpro-is-leading-in-digital-tire-inflators-reviews/"><u>Expert Insights: Why the Jaco SmartPro Is Leading in Digital Tire Inflators Reviews</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/graphics-card-upgrade-brighter-better-display/"><u>Graphics Card Upgrade: Brighter, Better Display</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-explore-1-5-iphone-podcast-platforms-for-all/"><u>In 2024, Explore #1-#5 iPhone Podcast Platforms for All</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-all-rounder-laptop-reviewed-how-asus-zephyrus-g14-masters-both-work-and-play/"><u>The All-Rounder Laptop Reviewed: How Asus Zephyrus G14 Masters Both Work and Play</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/ultimate-guide-mastering-the-art-of-effective-web-pages/"><u>Ultimate Guide: Mastering the Art of Effective Web Pages</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-contacts-from-infinix-note-30-by-fonelab-android-recover-contacts/"><u>Undelete lost contacts from Infinix Note 30.</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-top-rated-split-screen-video-creators-for-mobile-phones/"><u>Updated In 2024, Top-Rated Split Screen Video Creators for Mobile Phones</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-facebook-lives-demystified-the-best-ways-to-record-a-stream/"><u>[Updated] Facebook Lives Demystified The Best Ways to Record a Stream</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-youtube-integration-in-instagram-narratives/"><u>[Updated] In 2024, YouTube Integration in Instagram Narratives</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-learn-to-soften-edges-and-focus-a-pcmobile-guide/"><u>[Updated] Learn to Soften Edges & Focus A PC/Mobile Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-upload-videos-effortlessly-with-premiere-on-youtube/"><u>[Updated] Upload Videos Effortlessly with Premiere on YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-prime-video-players-our-handpicked-collection/"><u>2024 Approved Prime Video Players Our Handpicked Collection</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-oppo-a58-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/effortlessly-create-engaging-youtube-thumbnails/"><u>Effortlessly Create Engaging YouTube Thumbnails</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/long-term-bisphosphonate-use-can-lead-to-complications-such-as-osteonecrosis-of-the-jaw-onj-due-to-impaired-angiogenesis-in-bone-tissue/"><u>Long-Term Bisphosphonate Use Can Lead to Complications Such as Osteonecrosis of the Jaw (ONJ) Due to Impaired Angiogenesis in Bone Tissue.</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Vivo Y28 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-oneplus-discounts-and-offers-on-prime-day/"><u>Top OnePlus Discounts & Offers on Prime Day</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-verdict-on-xbox-one-x-leading-force-in-todays-gaming-consoles/"><u>Ultimate Verdict on Xbox One X: Leading Force in Today's Gaming Consoles</u></a></li>
+<li><a href="https://os-tips.techidaily.com/unlocking-efficiency-with-your-iphone-ebyte-15-pros-action-button-comprehensive-usage-tips-and-tricks/"><u>Unlocking Efficiency with Your iPhone Ebyte 15 Pro's Action Button: Comprehensive Usage Tips and Tricks</u></a></li>
 </ul></div>
 

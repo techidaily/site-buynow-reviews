@@ -1,7 +1,7 @@
 ---
 title: "The Chameleon Companion for Every Traveler: Patekfly 12"
-date: 2024-09-10T18:21:32.303Z
-updated: 2024-09-14T23:50:08.836Z
+date: 2024-09-17T17:00:25.305Z
+updated: 2024-09-20T18:41:35.879Z
 categories:
   - BestProducts
 description: "This Article Describes The Chameleon Companion for Every Traveler: Patekfly 12"
@@ -90,24 +90,18 @@ Lifewire / Jeff Dojillo
 
  While testing the GoPro HERO7 Black we noticed that the body of the device becomes very hot when used for long periods of time. We tested it for a few hours nonstop and noticed it was still very warm even when it was not recording. This can be a big concern if the device is used for long recordings in hot temperatures.
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Display: Bright and visible**
 
  The back of the GoPro HERO7 Black has a two-inch touchscreen that is bright and easy to read. While testing the camera, we were able to navigate through the menus with the single touch of a finger, which are intuitive and easy to adjust. Simply tap to select.
 
  Lifewire / Jeff Dojillo
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup: Updates out of the box**
 
@@ -116,6 +110,13 @@ Lifewire / Jeff Dojillo
  The HERO7 Black has both Wi-Fi and Bluetooth compatibility, which makes it easy to pair with a smartphone that has the GoPro App downloaded. We were able to make the camera discoverable in the Preferences menu, and then the app could automatically scan and connect to the camera when it was opened.
 
  Lifewire / Jeff Dojillo
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Sensor: Small but mighty**
 
@@ -144,10 +145,10 @@ Lifewire / Jeff Dojillo
  Lifewire / Jeff Dojillo
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Photo Quality: Nothing to brag about**
@@ -170,37 +171,24 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Connectivity: Speedy Wi-Fi and Bluetooth pairing**
 
  Wifi and Bluetooth connectivity is a breeze with the GoPro HERO7 Black. Once we installed the GoPro app on our smartphone, the camera connected instantly. The app also gave us a much larger and easier-to-read interface, plus a live view function that allowed us to use our phone to frame and compose videos and remotely control the camera.
 
  Inside the app, there are also options to edit mode settings, change the original set up, review camera info, changed Wi-Fi remotes, as well as monitor the battery level and[SD card](https://www.lifewire.com/how-to-format-sd-card-camera-4587017) capacity. It also makes it easier to review footage and images that the camera captures.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery Life: High-res video drains it quickly**
 
  When recording 4K video at 60 fps, the HERO7 Black’s battery only lasts about 50 minutes, so if you’re going to be shooting all day, it would be smart to have a few extra batteries available.
 
  Another option to extend shooting time would be to connect the GoPro HERO7 Black to an external battery pack via the[USB port.](https://www.lifewire.com/what-is-a-usb-port-818166)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Fairly priced for what you get**
 
@@ -209,6 +197,13 @@ Lifewire / Jeff Dojillo
  Perfect for adventurers, filmmakers, and vloggers that need a rugged and compact camera to create content on the go.
 
  The portability of the GoPro HERO7 Black is perfect for adventurers, filmmakers, and vloggers that need a rugged and compact camera to create content on the go.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Less rugged, but better with still photography**
 
@@ -237,13 +232,6 @@ Lifewire / Jeff Dojillo
 * [AKASO EK7000 Pro 4K Action Camera](https://www.lifewire.com/akaso-ek7000-pro-4k-action-camera-review-4770265)
 * [Canon PowerShot G7 X Mark II](https://www.lifewire.com/canon-powershot-g7-x-mark-ii-review-4706895)
 * [Sony DSC-W800](https://www.lifewire.com/sony-dsc-w800-review-4589510)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -276,16 +264,16 @@ Lifewire / Jeff Dojillo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-samba-seed-eaters/"><u>[New] Samba Seed Eaters</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/cameras-absent-in-depth-analysis-of-the-new-generation-google-nest-hub/"><u>Cameras Absent: In-Depth Analysis of the New Generation Google Nest Hub</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/consistent-nutrition-for-your-furry-friend-using-the-petsafe-auto-feeder/"><u>Consistent Nutrition for Your Furry Friend Using the PetSafe Auto Feeder</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/o-make-a-cool-youtube-video-intro-in-imovie-step-by-step-for-2024/"><u>How to Make a Cool YouTube Video Intro in iMovie (Step-by-Step) for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-xiaomi-redmi-12-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Xiaomi Redmi 12 5G to New Phone | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-iphones-best-5-podcast-audio-platforms/"><u>In 2024, IPhone's Best 5 Podcast Audio Platforms</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-google-pixel-6-capturing-moments-with-perfection/"><u>In-Depth Analysis of the Google Pixel 6: Capturing Moments with Perfection</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximize-comfort-and-minimize-fatigue-with-the-ergodriven-topo-the-ideal-standing-desk-mat-reviewed/"><u>Maximize Comfort and Minimize Fatigue with the Ergodriven Topo - The Ideal Standing Desk Mat Reviewed</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/seamless-cross-device-data-exchange-connecting-iphone-ipod-ipad-to-mac-using-macx-mounter/"><u>Seamless Cross-Device Data Exchange: Connecting iPhone, iPod, iPad to Mac Using MacX Mounter</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-capabilities-detailed-insights-into-the-netgear-ac1200-ex6200-wi-fi-signal-booster-review/"><u>Unveiling the Capabilities: Detailed Insights Into the Netgear AC1200 (EX6200) Wi-Fi Signal Booster Review</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/1725287329930-xmedia-recode6/"><u>XMedia Recodeでエンコーディングを失敗した場合、解決策として実行すべき6つのステップ</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-unlocking-the-power-of-google-meet-with-your-tech/"><u>[New] Unlocking the Power of Google Meet with Your Tech</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-the-art-of-swapping-gender-representation-in-snapchatfacebook-photos/"><u>[Updated] In 2024, Mastering the Art of Swapping Gender Representation in Snapchat/Facebook Photos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/boost-your-pcs-lifespan-with-the-best-in-class-kootek-cooling-pad/"><u>Boost Your PC’s Lifespan with the Best-in-Class Kootek Cooling Pad</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-motorola-defy-2-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Motorola Defy 2</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/efficiently-saving-your-screen-the-dell-approach-for-2024/"><u>Efficiently Saving Your Screen The Dell Approach for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-the-definitive-ranking-of-all-ipad-models/"><u>Expert Analysis: The Definitive Ranking of All iPad Models</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-acer-chromebook-15-comprehensive-review-of-its-features-and-efficiency/"><u>Exploring the Acer ChromeBook 15 – Comprehensive Review of Its Features and Efficiency</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unpacking-the-impact-of-youtubes-shorts-programme/"><u>In 2024, Unpacking the Impact of YouTube's Shorts Programme</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/michael-kors-gen-5e-mkgo-watch-review-sophisticated-design-meets-intelligent-features/"><u>Michael Kors Gen 5E MKGO Watch Review: Sophisticated Design Meets Intelligent Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-combo-stylish-form-and-sound-quality/"><u>The Ultimate Combo: Stylish Form & Sound Quality</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/why-experts-prevail-over-ai-in-digital-asset-evaluation/"><u>Why Experts Prevail Over AI in Digital Asset Evaluation</u></a></li>
 </ul></div>
 

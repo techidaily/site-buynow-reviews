@@ -1,7 +1,7 @@
 ---
 title: "DJI's Sky-High Champion: In-Depth Review of the Air 2S Quadcopter"
-date: 2024-09-09T20:50:23.079Z
-updated: 2024-09-15T01:11:55.540Z
+date: 2024-09-17T17:03:30.764Z
+updated: 2024-09-20T16:21:31.176Z
 categories:
   - BestProducts
 description: "This Article Describes DJI's Sky-High Champion: In-Depth Review of the Air 2S Quadcopter"
@@ -92,10 +92,10 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -117,16 +117,10 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -136,6 +130,13 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
  It’s billed as an “8-stream” device, so it should be able to handle several simultaneous media streams at once, with a billed max speed of 4.8Gbps on the 5GHz band and 1.2Gbps on the 2.4GHz band. It has[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) (multiple users, multi-in multi-out) and beamforming capabilities, promising expanded range of up to 2,500 square feet and support for 30+ simultaneous devices.
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: More than most**
 
@@ -152,19 +153,6 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
  **Only for early adopters with Wi-Fi 6 routers and devices.**
 
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
-
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -192,20 +180,15 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-youtube-monetization-carryminati-ajey-nagar-youtube-income-2023/"><u>[New] 2024 Approved YouTube Monetization CarryMinati (Ajey Nagar) YouTube Income 2023</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/explore-the-richness-of-sound-with-an-audible-membership/"><u>Explore the Richness of Sound with an Audible Membership</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-can-we-unlock-our-infinix-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Infinix Phone Screen?</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-nokia-130-music-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Nokia 130 Music Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-meizu-21-pro-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Meizu 21 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-integrative-design-embedding-youtube-in-slides/"><u>In 2024, Integrative Design Embedding YouTube in Slides</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-lenovo-ideapad-stunning-construction-for-essential-use/"><u>In-Depth Analysis of the Lenovo Ideapad: Stunning Construction for Essential Use</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/increase-conversational-quality-key-techniques-for-chatgpt-improvement/"><u>Increase Conversational Quality: Key Techniques for ChatGPT Improvement</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-hewlett-packards-newly-released-15-inch-budget-laptop-equipped-for-success-investigating-its-amd-powers-and-performance/"><u>Is Hewlett-Packard’s Newly Released 15-Inch Budget Laptop Equipped for Success? Investigating Its AMD Powers and Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/map-my-ride-review/"><u>Map My Ride Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/master-the-art-of-rest-with-advanced-sleep-innovations/"><u>Master the Art of Rest with Advanced Sleep Innovations</u></a></li>
-<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-oppo-a1x-5g-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Oppo A1x 5G ? Fix It Easily | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-asus-ax6000-rt-ax88u-unveiled-an-elite-wi-fi-6-smart-router-with-exceptional-functionality-explored-in-this-review/"><u>The Asus AX6000 (RT-AX88U) Unveiled - An Elite Wi-Fi 6 Smart Router with Exceptional Functionality Explored in This Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-flexible-computers-detailed-review-and-comparison-including-lenovo-yoga-a940/"><u>Top-Rated Flexible Computers: Detailed Review and Comparison Including Lenovo Yoga A940</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/unraveling-the-mystery-what-causes-frequent-phone-wi-fi-drops/"><u>Unraveling the Mystery: What Causes Frequent Phone Wi-Fi Drops</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastering-sound-and-filter-integration-in-windows-10-photos-app/"><u>[New] Mastering Sound & Filter Integration in Windows 10 Photos App</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-unleashing-the-power-of-time-lapse-photography-using-gopro/"><u>2024 Approved Unleashing the Power of Time-Lapse Photography Using GoPro</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/elite-no-price-fb-photovideo-magic-maker/"><u>Elite No-Price FB Photo/Video Magic Maker</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/final-impressions-how-to-design-a-standout-vimeo-end-screen/"><u>Final Impressions How to Design a Standout Vimeo End Screen</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-look-at-nhl-19-digital-play-a-game-reviewers-perspective/"><u>Inside Look at NHL '19 Digital Play: A Game Reviewer’s Perspective</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-look-at-the-dell-alienware-aurora-r9-cutting-edge-gaming-aesthetics-reviewed/"><u>Inside Look at the Dell Alienware Aurora R9 - Cutting Edge Gaming Aesthetics Reviewed</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722902089809-prank-your-pals-iphone-or-ipad-7-witty-ideas-you-must-try/"><u>Prank Your Pal's iPhone or iPad: 7 Witty Ideas You Must Try</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/skyvault-budget-edition-unlimited-mass-files-save-for-2024/"><u>SkyVault Budget Edition Unlimited Mass Files Save for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-smooth-way-to-transition-to-apples-latest-ventura/"><u>The Smooth Way to Transition to Apple's Latest Ventura</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-features-and-performance-of-lgs-entry-level-um7300-49-inch-4k-tv-is-it-worth-it/"><u>Unveiling the Features and Performance of LG's Entry-Level UM7300 49-Inch 4K TV - Is It Worth It?</u></a></li>
 </ul></div>
 

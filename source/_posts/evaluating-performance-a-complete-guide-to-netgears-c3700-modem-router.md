@@ -1,7 +1,7 @@
 ---
 title: "Evaluating Performance: A Complete Guide to Netgear's C3700 Modem Router"
-date: 2024-09-14T10:34:42.420Z
-updated: 2024-09-15T14:32:25.645Z
+date: 2024-09-14T16:15:37.083Z
+updated: 2024-09-20T16:07:59.696Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating Performance: A Complete Guide to Netgear's C3700 Modem Router"
@@ -82,18 +82,24 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup process: Awkward to position**
 
  It takes almost no time to get the Docooler USB 2.0 12 Megapixel up and running. We just plugged the USB cord into the computer and it worked.
 
  It was easy to set up when we clipped it to a laptop, but terrible when we tried to put it on our HD TV. Every time we moved the computer or the USB cable, the camera slid, twisted, or fell off the TV. The ball joint, which connects the camera to the base, didn’t move smoothly, so we struggled to point the Docooler USB 2.0 12 Megapixel in the right direction, and we were too worried about breaking the plastic to try and force it.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Camera Quality: Not even close to advertised**
 
@@ -105,20 +111,13 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/BxI5asxQavdUO5cT3iIpSIqM9Mk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_10_Final_Horiz-8acc6be9290c439496f17a63684115ae.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / James Huenink
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Underwhelming performance in video and audio**
@@ -132,6 +131,13 @@ Lifewire / James Huenink
  We had trouble getting the focus right, too. The focus ring was hard to turn, so we had to put our hand over the lense to get a good grip. We turned the ring a little, and then we’d pull away to check the focus. Then we’d repeat until it was ready, a frustrating experience.
 
  The audio performance of the Docooler USB 2.0 12 Megapixel was also lackluster. The built-in microphone produced poor quality sound, and when we tested it on Skype, voices were both muffled and echoey. People on the other end could understand what we were saying, but it was an unpleasant experience.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Cheap price, even cheaper webcam**
 
@@ -183,18 +189,15 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/updated-from-theory-to-canvas-color-essentials-for-2024/"><u>[Updated] From Theory to Canvas Color Essentials for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-best-tech-in-cards-for-4k-video-editing/"><u>[Updated] In 2024, Best Tech in Cards For 4K Video Editing</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-premium-matchmakers-15-perfect-gear-compatible-with-gopro/"><u>[Updated] In 2024, Premium Matchmakers 15 Perfect Gear Compatible with GoPro</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-tailored-for-tech-savvy-audiences-unveil-the-youtuber-who-resonates-with-you-through-six-quizzes/"><u>[Updated] Tailored for Tech-Savvy Audiences Unveil the YouTuber Who Resonates with You Through Six Quizzes</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/diagnosing-and-fixing-loud-computer-ventilation-units-for-a-silent-workspace/"><u>Diagnosing & Fixing Loud Computer Ventilation Units for a Silent Workspace</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-infinite-possibilities-with-ai-generating-viral-video-titles/"><u>In 2024, Infinite Possibilities with AI Generating Viral Video Titles</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/joint-design-is-crucial-for-distributing-loads-evenly-across-the-welded-structure/"><u>Joint Design Is Crucial for Distributing Loads Evenly Across the Welded Structure.</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-s-finest-the-ultimate-list-of-2d-animation-software-free-paid-and-everything-in-between/"><u>New In 2024, S Finest The Ultimate List of 2D Animation Software Free, Paid, and Everything In Between</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/partition-performance-topping-recorder-showdown-for-2024/"><u>Partition Performance Topping Recorder Showdown for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/run-faster-with-the-garmin-forerunner-45-in-depth-gps-tracker-review/"><u>Run Faster with the Garmin Forerunner ˈ45: In-Depth GPS Tracker Review</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-most-popular-and-praised-prime-originals-on-twitter/"><u>The Most Popular & Praised Prime Originals on Twitter</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-x-chair-x4-executive-assessment-why-this-seat-is-a-powerhouse-in-modern-offices/"><u>The X-Chair X4 Executive Assessment: Why This Seat Is a Powerhouse in Modern Offices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/wi-fi-wishful-thinking-with-nikon-coolpix-b500/"><u>Wi-Fi Wishful Thinking with Nikon COOLPIX B500</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-insights-into-youtube-shorts-business-model/"><u>[New] Insights Into YouTube Shorts Business Model</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-ultimate-toolkit-capture-windows-11-displays/"><u>2024 Approved Ultimate Toolkit Capture Windows 11 Displays</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722861175751-anticipating-the-arrival-of-google-pixel-9-estimated-pricing-details-revealed/"><u>Anticipating the Arrival of Google Pixel 9 - Estimated Pricing Details Revealed!</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/automation-revolution-how-rpa-is-shaping-the-modern-workplace-whitepaper-by-abbyy/"><u>Automation Revolution: How RPA Is Shaping the Modern Workplace Whitepaper by ABBYY</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-netgear-ac750-ex3700-wireless-range-expansion-device/"><u>Comprehensive Review: Netgear AC750 EX3700 Wireless Range Expansion Device</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Xiaomi 13T Pro? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/kids-choice-awards-highlight-arrival-of-nickwatch-in-the-usa/"><u>Kids' Choice Awards Highlight Arrival of NickWatch in the USA</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/switch-lite-unveiled-the-wallet-friendly-handheld-alternative-to-nintendos-console/"><u>Switch Lite Unveiled - The Wallet-Friendly, Handheld Alternative to Nintendo's Console</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-top-tips-solve-black-ops-4-severe-system-failures/"><u>Troubleshooting Top Tips: Solve Black Ops 4 Severe System Failures</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleash-your-photography-potential-nixplay-iris-meets-cloud/"><u>Unleash Your Photography Potential: Nixplay Iris Meets Cloud</u></a></li>
 </ul></div>
 

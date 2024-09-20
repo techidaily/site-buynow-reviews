@@ -1,7 +1,7 @@
 ---
 title: "Conquer Dead Cells: The Comprehensive Breakdown of the Sturdy Beatit BT-D11 Jumpstarter"
-date: 2024-08-03T22:58:26.266Z
-updated: 2024-08-04T22:58:26.266Z
+date: 2024-09-15T17:11:44.993Z
+updated: 2024-09-20T17:27:01.159Z
 categories:
   - BestProducts
 description: "This Article Describes Conquer Dead Cells: The Comprehensive Breakdown of the Sturdy Beatit BT-D11 Jumpstarter"
@@ -13,14 +13,8 @@ thumbnail: https://thmb.techidaily.com/4413b601ad195439beff9581253d1c8f619535fc7
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Antop AT-127
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/6eJwPC0xPwMxCh4aQhG73X9dkzU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
 
 Lifewire / Erika Rawes
@@ -45,10 +39,6 @@ Lifewire / Erika Rawes
 
 ## Antop AT-127
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
 
 Lifewire / Erika Rawes
@@ -85,8 +75,12 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup: Easier than most**
 
  Setting up the antenna is relatively intuitive. You just connect the antenna to the coaxial/antenna-in connection on your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) . The antenna has an easy-push connector, instead of a connector you have to twist onto the threading. This makes for easier setup because you don’t have to struggle behind your TV with trying to screw on the[coaxial cable](https://www.lifewire.com/coaxial-vs-optical-digital-cable-3134605) .
@@ -105,9 +99,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## **Range: Could be better**
 
  My test home is in a rural area, and there’s a lot of tree cover on the property. The omnidirectional Antop AT-127 has a 40-mile range, which was enough to pick up local channels from neighboring cities.
@@ -116,17 +107,34 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
  You can find indoor antennas for less than $15 (view on[Amazon](https://www.amazon.com/dp/B075ZQXB26/?tag=lifewire-onsite-prod-20&ascsubtag=4845583%7Cna0f30cabffec4337b279a8df3e4c99b015%7C) ). The[AmazonBasics](https://www.lifewire.com/amazonbasics-flat-tv-antenna-review-4845569) 35-mile range antenna is a good example, though it doesn’t come with a stand or have the easy-push connector. Aesth etically, the AmazonBasics antenna doesn’t hold a candle to the Antop antenna, but it does cost significantly less.
@@ -137,9 +145,6 @@ Lifewire / Erika Rawes
 
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  AT-127
@@ -156,14 +161,11 @@ Lifewire / Erika Rawes
 * Screen Resolution  1080p
 * Connectivity Options  Quick push “E-Z connect” F connector (coaxial cable)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -171,3 +173,23 @@ Lifewire / Erika Rawes
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-stand-out-with-yt-shorts-essential-guidelines-to-follow/"><u>[Updated] 2024 Approved Stand Out with YT Shorts Essential Guidelines to Follow</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-icons-of-illusion-youtubes-most-influential-gurus/"><u>[Updated] Icons of Illusion YouTube's Most Influential Gurus</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-superior-image-quality-the-power-of-youtubes-av1-settings-for-2024/"><u>[Updated] Superior Image Quality The Power of YouTube's AV1 Settings for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-travel-bloggers-blueprint-strategies-for-professional-growth/"><u>[Updated] The Travel Blogger's Blueprint Strategies for Professional Growth</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cities-skylines-review-an-addictive-city-builder/"><u>Cities: Skylines Review: An Addictive City-Builder</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-elevation-tripod-capture-from-anywhere/"><u>Expert Elevation Tripod: Capture From Anywhere</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/from-silicon-chips-to-printed-pages-discover-devices-and-books-for-every-enthusiast/"><u>From Silicon Chips to Printed Pages: Discover Devices and Books for Every Enthusiast.</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-top-notch-solutions-for-disabled-apple-id-from-apple-iphone-14-making-it-possible-by-drfone-ios/"><u>In 2024, Top-Notch Solutions for Disabled Apple ID From Apple iPhone 14 Making It Possible</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-samsung-55-inch-ru7300-a-cut-above-with-its-4k-and-smart-features-in-depth-review/"><u>Is the Samsung 55-Inch RU7300 a Cut Above with Its 4K and Smart Features? In-Depth Review!</u></a></li>
+<li><a href="https://games-able.techidaily.com/non-commercial-competitive-titles-you-can-play/"><u>Non-Commercial, Competitive Titles You Can Play</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-hewlett-packard-budget-notebook-with-amd-cpu-effective-workstation-or-just-a-bargain-bin-find/"><u>Review of the Hewlett-Packard Budget Notebook with AMD CPU: Effective Workstation or Just a Bargain Bin Find?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/seamless-movements-and-reliable-connections-discover-the-power-of-sabrents-premium-travel-mouse/"><u>Seamless Movements and Reliable Connections - Discover the Power of Sabrent's Premium Travel Mouse</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/secure-and-savvy-why-the-fintie-case-is-your-best-bet-for-macbook-pro-13-defense-check-out-our-review/"><u>Secure and Savvy: Why the Fintie Case Is Your Best Bet for MacBook Pro 13 Defense Check Out Our Review!</u></a></li>
+<li><a href="https://driver-download.techidaily.com/step-by-step-solution-how-to-get-and-enable-broadcom-ethernet-drivers-for-your-windows-10-pc/"><u>Step-by-Step Solution: How to Get and Enable Broadcom Ethernet Drivers for Your Windows 10 PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-premier-tech-giants-of-computing/"><u>Unveiling the Premier Tech Giants of Computing</u></a></li>
+</ul></div>
+

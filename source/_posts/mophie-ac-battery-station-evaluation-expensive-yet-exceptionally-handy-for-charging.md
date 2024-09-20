@@ -1,7 +1,7 @@
 ---
 title: "Mophie AC Battery Station Evaluation: Expensive Yet Exceptionally Handy for Charging"
-date: 2024-09-13T14:45:21.551Z
-updated: 2024-09-15T12:07:58.584Z
+date: 2024-09-17T16:09:57.428Z
+updated: 2024-09-20T16:24:58.505Z
 categories:
   - BestProducts
 description: "This Article Describes Mophie AC Battery Station Evaluation: Expensive Yet Exceptionally Handy for Charging"
@@ -85,10 +85,10 @@ Lifewire / Emily Isaacs
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Batteries required**
@@ -96,6 +96,13 @@ Lifewire / Emily Isaacs
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -115,14 +122,14 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
- Lifewire / Emily Isaacs
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Emily Isaacs
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
@@ -147,13 +154,6 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -185,18 +185,21 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-mastering-photo-editing-advanced-3d-lut-techniques-in-ps/"><u>[New] Mastering Photo Editing Advanced 3D LUT Techniques in PS</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-social-media-showdown-continues-the-ongoing-debate-on-igtv-and-youtube/"><u>[New] Social Media Showdown Continues The Ongoing Debate on IGTV and YouTube</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-from-zero-to-hero-your-first-time-streaming-to-youtube/"><u>[Updated] From Zero to Hero Your First Time Streaming to Youtube</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-transform-your-team-sessions-masterful-use-of-slack-and-filmora-tools/"><u>[Updated] In 2024, Transform Your Team Sessions Masterful Use of Slack & Filmora Tools</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-quieting-unwanted-sounds-obs-audio-issue-fixed-for-2024/"><u>[Updated] Quieting Unwanted Sounds OBS Audio Issue Fixed for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/decoding-tablet-sizes-your-comprehensive-guide-to-lighter-more-compact-options/"><u>Decoding Tablet Sizes: Your Comprehensive Guide to Lighter, More Compact Options</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-style-and-power-a-detailed-review-of-the-apple-imac-215-4k-monitor/"><u>Exploring Style & Power: A Detailed Review of the Apple iMac 21.5 4K Monitor.</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-checklist-for-video-praise-mastery/"><u>In 2024, The Ultimate Checklist for Video Praise Mastery</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/microsoft-surface-ergonomic-keyboard-review/"><u>Microsoft Surface Ergonomic Keyboard Review</u></a></li>
-<li><a href="https://howto.techidaily.com/realme-12plus-5g-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Realme 12+ 5G Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/secrets-to-optimize-gopro-camera-energy-consumption-for-2024/"><u>Secrets to Optimize GoPro Camera Energy Consumption for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-essential-5-points-to-think-about-prior-to-purchasing-a-fitness-device/"><u>The Essential 5 Points to Think About Prior to Purchasing a Fitness Device</u></a></li>
-<li><a href="https://fox-info.techidaily.com/the-filmmakers-guide-to-masterful-panoramic-videos-9-must-know-tips-for-2024/"><u>The Filmmaker's Guide to Masterful Panoramic Videos (9 Must-Know Tips) for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-hone-your-image-by-removing-surroundings/"><u>[New] Hone Your Image by Removing Surroundings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-calculating-youtubes-adsense-gains-per-thousand-viewer-income/"><u>[New] In 2024, Calculating Youtube's AdSense Gains Per Thousand Viewer Income</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-charting-success-navigating-a-3-step-strategy-for-tracking-youtube-income-for-2024/"><u>[Updated] Charting Success Navigating a 3-Step Strategy for Tracking YouTube Income for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-laugh-and-cry-on-instagram-best-meme-accounts-of-the-year/"><u>[Updated] Laugh and Cry on Instagram Best Meme Accounts of the Year</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/analyzing-the-compact-cp24-from-criacr-your-guide-to-the-pros-and-cons-of-this-bluetooth-fm-transmitter/"><u>Analyzing the Compact CP24 From CRIACR - Your Guide to the Pros & Cons of This Bluetooth FM Transmitter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-watch-series-6-assessment-incremental-enhancements-yet-unsurpassed-excellence/"><u>Apple Watch Series 6 Assessment: Incremental Enhancements Yet Unsurpassed Excellence</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/beyond-expectations-a-critical-look-at-pixel-slates-performance-on-chromeos/"><u>Beyond Expectations? A Critical Look at Pixel Slate's Performance on ChromeOS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/high-cost-unmatched-quality-inside-the-microsoft-surface-studio-2-experience/"><u>High Cost, Unmatched Quality: Inside the Microsoft Surface Studio 2 Experience</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/improving-cyberpunk-2077s-gameplay-experience-fixed-frames-per-second-drop-problem/"><u>Improving Cyberpunk 2077'S Gameplay Experience: Fixed Frames Per Second Drop Problem</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/insiders-guide-to-bouncie-connect-gadget-cost-effective-navigation-companion-reviewed/"><u>Insider's Guide to Bouncie Connect Gadget: Cost-Effective Navigation Companion Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-cable-modems-available-now-2024-edition/"><u>Leading Cable Modems Available Now - 2024 Edition</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-viral-cellphone-alert-songs-you-cant-ignore/"><u>New 2024 Approved Viral Cellphone Alert Songs You Cant Ignore</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pump-up-the-volume-top-exercise-tunes-2024/"><u>Pump Up the Volume: Top Exercise Tunes 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/simplify-your-pets-diet-with-the-smart-six-meal-petfeeding-system-from-petsafe/"><u>Simplify Your Pet’s Diet with the Smart Six-Meal PetFeeding System From PetSafe</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/slimsky-saver-big-files-low-costs/"><u>SlimSky Saver - Big Files, Low Costs</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-vivo-s17e-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Vivo S17e? | Dr.fone</u></a></li>
 </ul></div>
 

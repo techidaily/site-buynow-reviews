@@ -1,7 +1,7 @@
 ---
 title: "Dive Into Immersive Storytelling with a Review of 'Torment: Tides of Numenera,' The Sci-Fi RPG Masterpiece"
-date: 2024-09-10T23:15:58.330Z
-updated: 2024-09-14T23:08:46.627Z
+date: 2024-09-15T18:51:22.442Z
+updated: 2024-09-20T18:34:14.678Z
 categories:
   - BestProducts
 description: "This Article Describes Dive Into Immersive Storytelling with a Review of 'Torment: Tides of Numenera,' The Sci-Fi RPG Masterpiece"
@@ -77,16 +77,10 @@ thumbnail: https://thmb.techidaily.com/a1eaffde65a5d9aa5d6c9c56b7c923db02320385e
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Humans have never been so annoying**
@@ -142,10 +136,10 @@ thumbnail: https://thmb.techidaily.com/a1eaffde65a5d9aa5d6c9c56b7c923db02320385e
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -175,18 +169,18 @@ thumbnail: https://thmb.techidaily.com/a1eaffde65a5d9aa5d6c9c56b7c923db02320385e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/artistic-excellence-foremost-ios-art-tools-for-2024/"><u>Artistic Excellence Foremost iOS Art Tools for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-oneplus-nord-n10-5g-the-budget-phone-that-stands-out/"><u>Comprehensive Guide to the OnePlus Nord N10 5G - The Budget Phone That Stands Out</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-microsoft-surface-duo-a-pricey-tech-with-persistent-bugs-and-clumsiness/"><u>Evaluating Microsoft Surface Duo: A Pricey Tech with Persistent Bugs and Clumsiness</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/expert-picked-7-ai-innovations-revolutionizing-math-problem-solving/"><u>Expert-Picked: 7 AI Innovations Revolutionizing Math Problem Solving</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/full-tutorial-to-bypass-your-vivo-y36-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Vivo Y36 Face Lock?</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/ideal-choice-best-free-reliable-mac-screenshot-tools-for-2024/"><u>Ideal Choice Best Free, Reliable Mac Screenshot Tools for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-iphone-8-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, iPhone 8 iCloud Activation Lock Bypass</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-simplified-steps-for-photo-motion-blur-in-photoshop/"><u>In 2024, Simplified Steps for Photo Motion Blur in Photoshop</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/latest-amd-rx-6900-xt-drivers-download-for-windows-111087-supported-systems/"><u>Latest AMD RX 6900 XT Drivers: Download for Windows 11/10/8/7 Supported Systems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stress-free-pet-nutrition-with-the-arf-pets-smart-feeder/"><u>Stress-Free Pet Nutrition with the Arf Pets Smart Feeder</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-tips-no-more-crashes-for-watch-dogs-legion-players-on-windows-1011/"><u>Troubleshooting Tips: No More Crashes for Watch Dogs Legion Players on Windows 10/11</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-pros-and-cons-of-the-google-pixel-5-a-blend-of-economy-and-elite/"><u>Unveiling the Pros and Cons of the Google Pixel 5: A Blend of Economy and Elite</u></a></li>
-<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-oppo-reno-10-pro-5g-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Oppo Reno 10 Pro 5G? Here is How | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/choosing-the-right-partners-for-a-safer-tiktok-expansion-for-2024/"><u>Choosing the Right Partners for a Safer TikTok Expansion for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/ditch-sony-vegas-find-a-better-video-editing-solution-for-your-windows-pc/"><u>Ditch Sony Vegas Find a Better Video Editing Solution for Your Windows PC</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fun-and-riveting-overwatch-review-a-high-octane-cooperative-shooter-gaming-adventure/"><u>Fun & Riveting Overwatch Review: A High-Octane, Cooperative Shooter Gaming Adventure</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/game-changer-logitec-g-pro-xs-sonic-revolution/"><u>Game Changer: Logitec G Pro X's Sonic Revolution</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-vivo-y36i-lock-screen-password-by-drfone-android/"><u>How To Change Vivo Y36i Lock Screen Password?</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-samsung-galaxy-a25-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Samsung Galaxy A25 5G without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-motorola-edgeplus-a-flagship-contender-or-misses-the-mark/"><u>Is Motorola Edge+ a Flagship Contender or Misses the Mark?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mlb-the-show-19-when-baseball-meets-rpgs-beauty-and-intrigue-abound/"><u>MLB The Show 19: When Baseball Meets RPGs, Beauty & Intrigue Abound</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/nextgen-hd-optimizer-multiplatform-compatible/"><u>NextGen HD Optimizer Multiplatform Compatible</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-case-for-applecare-plus-extended-plan-a-detailed-look/"><u>The Case for AppleCare Plus Extended Plan: A Detailed Look</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-mp4-video-encoder-professionelle-tipps-zur-komprimierung-von-mp4-dateien/"><u>Top MP4 Video Encoder - Professionelle Tipps Zur Komprimierung Von MP4 Dateien</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-device-guide-to-chilling-by-seapool/"><u>Ultimate Device Guide to Chilling by Sea/Pool</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/your-guide-to-choosing-the-ideal-handheld-console-2024-edition/"><u>Your Guide to Choosing the Ideal Handheld Console - 2024 Edition</u></a></li>
 </ul></div>
 

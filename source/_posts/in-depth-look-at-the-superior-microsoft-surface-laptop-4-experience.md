@@ -1,7 +1,7 @@
 ---
 title: In-Depth Look at the Superior Microsoft Surface Laptop 4 Experience
-date: 2024-09-13T08:21:18.786Z
-updated: 2024-09-14T21:25:57.077Z
+date: 2024-09-16T18:44:07.928Z
+updated: 2024-09-20T17:28:21.495Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Look at the Superior Microsoft Surface Laptop 4 Experience
@@ -91,16 +91,10 @@ Lifewire / Andy Zahn
  Port selection is rather limited, with a[USB-C](https://www.lifewire.com/usb-c-4149490) port, a USB-A port, a 3.5mm audio jack, and a Surface Connect port which is used for power but can also be used to connect to a Surface Dock. This is really the bare minimum for I/O, and was one of the most frustrating issues for me when using the device.
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Display: Ideal for productivity**
@@ -108,13 +102,6 @@ Lifewire / Andy Zahn
  The 12.4-inch display on the Surface Laptop Go seems larger than the size would suggest, thanks to its 3:2 aspect ratio. Because of that aspect ratio, this laptop is purpose-built for productivity. In fact, it was the ideal device for typing out this article. The 1536x1024 resolution is quite sharp, and colors are sharp and accurate with great contrast. Due to the 3:2 aspect ratio, you get black bars on the top and bottom when watching movies and shows, but they still look great due to the quality of the screen.
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/kz6EW4svzivooWEtdVJ5TAnOYOs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_06-07315e6a9862481bba3820f745d49887.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -130,6 +117,13 @@ Lifewire / Andy Zahn
 
  The Surface Laptop Go is certainly not the most powerful laptop around, but with 8GB of RAM, an Intel Core i5-1035G1 CPU, and a fast solid-state drive for storage it feels zippy and responsive.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Decent power for the price**
 
  The Surface Laptop Go is certainly not the most powerful laptop around, but with 8GB of RAM, an Intel Core i5-1035G1 CPU, and a fast solid-state drive for storage it feels zippy and responsive. It’s competent for most productivity tasks, including light photo editing, word processing, and web browsing, essentially filling the same niche as a Chromebook.
@@ -138,22 +132,15 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/dzb-7fUK5xGots6oe-9ZhkMnnTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_07-3d9500befc3a4b50baf014cc571210a5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
 
  Another limiting factor is the storage capacity of the Surface Laptop Go. The configuration I tested only had 128GB of space on its solid-state drive, and the maximum configuration only comes with 256GB. You’re not going to be storing a lot of data locally on this machine forcing you to resort to cloud storage most of the time.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: Modern hardware**
@@ -167,6 +154,13 @@ Lifewire / Andy Zahn
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/R8WVIj9pTzxwTOIwiZpDPRc6Bws=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_03-d503f456e6df4db4a3ad76a6a9a49e72.jpg)
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: A decision to make**
 
@@ -204,16 +198,10 @@ Lifewire / Andy Zahn
 * [Google Pixelbook Go](https://www.lifewire.com/google-pixelbook-go-review-4797012)
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -246,21 +234,18 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-essential-info-on-crafting-engaging-yt-shorts/"><u>[New] 2024 Approved Essential Info on Crafting Engaging YT Shorts</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-essential-strategies-for-impressive-gopro-timelapses/"><u>[Updated] In 2024, Essential Strategies for Impressive GoPro Timelapses</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-infinix-hot-30-5g-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Infinix Hot 30 5G</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/best-3-vivo-y36i-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Vivo Y36i Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/boost-your-traffic-with-automated-cookiebot-technology/"><u>Boost Your Traffic with Automated Cookiebot Technology</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-of-sealinks-55-4k-outdoor-television-the-ultimate-compact-choice/"><u>Expert Review of Sealink's 55 4K Outdoor Television - The Ultimate Compact Choice</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-highest-quality-power-inverters-2n4/"><u>Expert Review: Highest Quality Power Inverters - 2N4</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/from-calm-to-captivating-techniques-for-motion-blur-mastery/"><u>From Calm to Captivating Techniques for Motion Blur Mastery</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on OnePlus Ace 3? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/inside-look-free-powerful-photo-editing-with-photoscape-software-breakdown/"><u>Inside Look: Free, Powerful Photo Editing with PhotoScape Software Breakdown</u></a></li>
-<li><a href="https://win11.techidaily.com/instant-guide-forcibly-disable-windows-11-print-devices/"><u>Instant Guide: Forcibly Disable Windows 11 Print Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/precision-and-convenience-in-pet-care-with-petsafes-innovative-mealtime-manager/"><u>Precision and Convenience in Pet Care with PetSafe's Innovative Mealtime Manager</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-fun-side-of-overwatch-an-in-depth-review-on-dynamic-online-firefights/"><u>The Fun Side of Overwatch: An In-Depth Review on Dynamic Online Firefights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlock-the-full-potential-of-your-imac-expert-advice-on-intel-processor-upgrades/"><u>Unlock the Full Potential of Your iMac: Expert Advice on Intel Processor Upgrades</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-apple-m4-processor-launch-details-and-technical-specifications/"><u>Unveiling the Apple M4 Processor: Launch Details & Technical Specifications</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/update-your-targus-graphics-cards-fresh-drivers-for-windows-1087-downloaded/"><u>Update Your Targus Graphics Cards: Fresh Drivers for Windows 10/8/7 Downloaded</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-hilarious-youtube-moments-top-10-quirky-short-film-concepts/"><u>[Updated] 2024 Approved Hilarious YouTube Moments Top 10 Quirky Short Film Concepts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-from-concept-to-click-an-in-depth-look-at-gif-memes-for-2024/"><u>[Updated] From Concept to Click An In-Depth Look at GIF Memes for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-obs-upgrade-tips-clearer-footage/"><u>[Updated] In 2024, OBS Upgrade Tips Clearer Footage</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-fitbit-inspire-hr-the-ultimate-247-health-and-activity-monitor/"><u>Comprehensive Guide to the Fitbit Inspire HR: The Ultimate 24/7 Health and Activity Monitor</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-sleek-design-of-the-acer-aspire-c27-the-ultimate-all-in-one-desk-companion/"><u>Discover the Sleek Design of the Acer Aspire C27 - The Ultimate All-in-One Desk Companion</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-correct-the-deadly-coding-mistakes-hindering-gameplay-in-activisions-call-of-duty-franchise/"><u>How to Correct the Deadly Coding Mistakes Hindering Gameplay in Activision's Call of Duty Franchise</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-excel-2000-has-encountered-a-problem-by-stellar-guide/"><u>How to Fix Excel 2000 has Encountered a Problem</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-perform-an-amd-graphics-card-update-on-windows-10-11-and-7/"><u>How to Perform an AMD Graphics Card Update on Windows 10, 11 & 7</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-sign-out-of-apple-id-on-apple-iphone-12-mini-without-password-by-drfone-ios/"><u>How to Sign Out of Apple ID On Apple iPhone 12 mini without Password?</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/mastering-devices-with-precision-the-comprehensive-toms-hardware-encyclopedia/"><u>Mastering Devices with Precision - The Comprehensive Tom's Hardware Encyclopedia</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-using-the-petsafe-automatic-pet-feeder-for-optimal-health-and-weight-regulation/"><u>The Ultimate Guide to Using the PetSafe Automatic Pet Feeder for Optimal Health and Weight Regulation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potential-of-the-amplifi-hd-wireless-router-system-eliminate-your-homes-dead-zones-for-good/"><u>Unveiling the Potential of the Amplifi HD Wireless Router System: Eliminate Your Home's Dead Zones for Good</u></a></li>
 </ul></div>
 
