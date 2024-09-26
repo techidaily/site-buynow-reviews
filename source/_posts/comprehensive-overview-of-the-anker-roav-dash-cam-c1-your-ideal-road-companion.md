@@ -175,16 +175,5 @@ Harran is a whole different city at night.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-forging-a-massive-online-following-on-facebook/"><u>[New] In 2024, Forging a Massive Online Following on Facebook</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-roadmap-to-instagram-star-status-9-must-do-tactics/"><u>[New] The Roadmap to Instagram Star Status 9 Must-Do Tactics</u></a></li>
-<li><a href="https://article-tips.techidaily.com/audiophiles-guide-to-the-premier-8-4k-blu-rays-for-2024/"><u>Audiophile's Guide to the Premier 8 4K Blu-Rays for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/boost-your-fitness-journey-fitbit-versa-3s-integrated-gps-and-wellness-tools-for-extra-drive/"><u>Boost Your Fitness Journey: Fitbit Versa 3'S Integrated GPS and Wellness Tools for Extra Drive</u></a></li>
-<li><a href="https://techtrends.techidaily.com/futureproof-your-device-elite-list-of-immune-smartphone-cases-against-water-damage/"><u>Futureproof Your Device: Elite List of Immune Smartphone Cases Against Water Damage</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-ensure-your-insta-pics-are-real-a-comprehensible-guide/"><u>In 2024, Ensure Your Insta Pics Are Real - A Comprehensible Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/innovative-dual-functionality-of-the-arlo-video-doorbell-for-modern-homes/"><u>Innovative Dual Functionality of the Arlo Video Doorbell for Modern Homes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/things-to-consider-before-buying-a-dvr/"><u>Things to Consider Before Buying a DVR</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-imac-with-m1-transformative-design-meets-cutting-edge-performance/"><u>Unveiling the iMac with M1: Transformative Design Meets Cutting-Edge Performance</u></a></li>
-</ul></div>
+
 

@@ -170,16 +170,5 @@ Harran is a whole different city at night.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-stream-smoothness-tweets-buffering-in-chrome-for-2024/"><u>[New] Stream Smoothness Tweets Buffering in Chrome for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-brand-consistency-in-action-inserting-logoswatermarks-into-videos-for-2024/"><u>[Updated] Brand Consistency in Action Inserting Logos/Watermarks Into Videos for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-top-users-on-snapchat/"><u>2024 Approved Exploring Top Users on Snapchat</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-originality-of-knack-breaking-down-its-distinct-hero-in-a-familiar-setting/"><u>Evaluating the Originality of 'Knack': Breaking Down Its Distinct Hero in a Familiar Setting</u></a></li>
-<li><a href="https://fox-http.techidaily.com/from-zero-to-hero-funimates-apk-unleashed-playbook/"><u>From Zero to Hero Funimate's APK Unleashed Playbook</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-best-budget-friendly-choice-for-your-desk-the-in-depth-review-of-fellowes-microban-keyboard/"><u>The Best Budget-Friendly Choice for Your Desk: The In-Depth Review of Fellowes Microban Keyboard</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unboxing-the-secrets-to-stunning-shorts-thumbnails/"><u>Unboxing the Secrets to Stunning Shorts Thumbnails</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleashing-the-power-of-spyro-a-comprehensive-look-at-a-gaming-gem/"><u>Unleashing the Power of Spyro: A Comprehensive Look at a Gaming Gem</u></a></li>
-<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Oppo Find X7? | Dr.fone</u></a></li>
-</ul></div>
+
 

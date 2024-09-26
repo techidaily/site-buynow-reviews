@@ -175,16 +175,5 @@ Harran is a whole different city at night.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-invaluable-list-of-prime-no-charge-sites-for-seamless-video-editing-experience/"><u>[New] 2024 Approved Invaluable List of Prime No-Charge Sites for Seamless Video Editing Experience</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/family-bonding-through-film-the-ultimate-classics-list-for-2024/"><u>Family Bonding Through Film The Ultimate Classics List for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-honor-play-8t-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Honor Play 8T Like A Pro 5 Easy Ways</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/ignite-discussion-with-custom-creative-story-inquiries-for-2024/"><u>Ignite Discussion with Custom, Creative Story Inquiries for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/insignia-ns-43df710na19-reviewed-affordable-alexa-and-ultra-hd-fire-tv-experience-examined/"><u>Insignia NS- 43DF710NA19 Reviewed – Affordable Alexa and Ultra HD Fire TV Experience Examined</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/iphone-tips-how-to-access-and-enjoy-shared-albums/"><u>IPhone Tips: How to Access and Enjoy Shared Albums</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-it-just-an-update-or-a-full-blown-software-revamp/"><u>Is It Just an Update or a Full-Blown Software Revamp?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/masterclass-on-the-eero-pro-wi-fi-solution-a-thorough-review-of-whole-house-connectivity-and-reliability/"><u>Masterclass on the Eero Pro Wi-Fi Solution: A Thorough Review of Whole-House Connectivity & Reliability</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-powerhouse-2020-apple-mac-mini-m1-chip-surpassing-rival-computers/"><u>Unveiling the Powerhouse: 2020 Apple Mac Mini (M1 Chip) - Surpassing Rival Computers</u></a></li>
-</ul></div>
+
 
