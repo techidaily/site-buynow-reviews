@@ -1,7 +1,7 @@
 ---
 title: "HERO9 Review: Exquisite GoPro, But Weighs on Wallet"
-date: 2024-09-13T16:27:17.870Z
-updated: 2024-09-20T17:28:29.347Z
+date: 2024-09-19T21:21:26.652Z
+updated: 2024-09-26T16:13:39.572Z
 categories:
   - BestProducts
 description: "This Article Describes HERO9 Review: Exquisite GoPro, But Weighs on Wallet"
@@ -45,6 +45,13 @@ Lifewire / Claire Cohen
 
 ![Netgear Nighthawk C7000](https://www.lifewire.com/thmb/OV2nfW5mduqPEhexOyXCeTMKajo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4082541-4-9cd1eee50edf4975a739591263d7f54d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Claire Cohen
 
 [View On Amazon $245](https://www.amazon.com/dp/B0781Z5PCL?tag=lifewire-onsite-prod-20&ascsubtag=4686068%7Cn0364dbe56a744fb1aabede9b46623c1413%7CB0781Z5PCL) [View On Walmart $192](https://www.walmart.com/ip/46179354) [View On Best Buy $193](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F4403100.p)
@@ -81,13 +88,20 @@ Lifewire / Claire Cohen
 
 ![Netgear Nighthawk C7000](https://www.lifewire.com/thmb/XBxyGD8RCZUzuy5c-9PSfLF4OBY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4082541-3-a9db59bb3f7a4f6aa4d7b1d852f4ee99.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Claire Cohen
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Setup: Easy for a modem
@@ -108,13 +122,6 @@ Lifewire / Claire Cohen
 
  The Best Cable Modems Router Combos
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Connectivity: Everything you’ll need
 
  As far as physical ports are concerned, you get four Gigabit Ethernet ports and a USB 2.0 port. This isn’t the richest array of ports we’ve ever seen, but it should be fine for most people— we were able to connect a few different game consoles and a desktop.
@@ -129,13 +136,6 @@ Lifewire / Claire Cohen
 
  Even less tech-literate users should be able to handle everything from setup to security without getting too lost.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Performance: Great for an all-in-one
 
  Because this modem has a built-in router, we kind of expected the wireless performance to suffer. All-in-one devices, generally speaking, tend to perform worse than specialized equipment. That’s definitely true for the Netgear Nighthawk C7000, but we were pleasantly surprised by how well it performed considering it’s an all-in-one.
@@ -145,6 +145,13 @@ Lifewire / Claire Cohen
  The wired performance, on the other hand, wasn’t quite as good. We were able to get a consistent 210 Mbps in most scenarios—which is more than enough for our typical usage—but even with a Cat7 Ethernet cable, we weren’t able to get our rated speeds.
 
  We should also note that the Netgear Nighthawk C7000 doesn’t support[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) or QoS capabilities, which is a disappointing omission in a device this expensive. However, we set up 6 different devices in our living room, all streaming HD video on YouTube. We then ran a speed test to see how it affected the network. We still got about 152 Mbps, even under all that stress. You won’t get full speed when everyone’s hitting the network hard, but it’ll still be serviceable.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Price: A premium that’s worth it
 
@@ -160,6 +167,13 @@ Lifewire / Claire Cohen
 
  **Recommended for anyone with a fast broadband connection.**
  The fact that this modem can pay for itself in time is really the main appeal. But with fantastic performance and good looks thrown in, the Nighthawk C7000 is a no brainer.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -198,5 +212,22 @@ Lifewire / Claire Cohen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-from-unverified-beginnings-to-high-flying-fame-on-instagram-unveil-the-6-keys/"><u>[New] 2024 Approved From Unverified Beginnings to High-Flying Fame on Instagram Unveil the 6 Keys</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/8-cutting-edge-skins-perfect-for-your-laptop/"><u>8 Cutting-Edge Skins Perfect for Your Laptop</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-transformative-power-of-the-m1-chip-in-apples-latest-imac-release/"><u>Exploring the Transformative Power of the M1 Chip in Apple's Latest iMac Release</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-oppo-a1-5g-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Oppo A1 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/ice-cream-video-recorder-exploration-in-depth-for-2024/"><u>Ice Cream Video Recorder Exploration in Depth for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-samsung-galaxy-s24-ultra-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Samsung Galaxy S24 Ultra Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-microsoft-surfaces-ergonomic-keyboard-premium-comfort-and-performance/"><u>In-Depth Analysis of the Microsoft Surface's Ergonomic Keyboard - Premium Comfort & Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-minecraft-unparalleled-fun-for-players-everywhere/"><u>In-Depth Review of Minecraft: Unparalleled Fun for Players Everywhere</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-the-surprising-complexity-and-adventure-in-yokus-island-express/"><u>In-Depth Review: The Surprising Complexity and Adventure in Yoku's Island Express</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/innovative-pet-care-solution-evaluation-of-the-petsafe-automatic-feeder-to-maintain-your-furry-friends-ideal-weight/"><u>Innovative Pet Care Solution: Evaluation of the PetSafe Automatic Feeder to Maintain Your Furry Friend’s Ideal Weight</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/iphone-vs-samsung-a-battle-of-tech-giants-to-find-your-perfect-phone-match/"><u>IPhone vs Samsung: A Battle of Tech Giants to Find Your Perfect Phone Match</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-iphone-or-ipod-battery-replacement-worth-it/"><u>Is iPhone or iPod Battery Replacement Worth It?</u></a></li>
+<li><a href="https://games-able.techidaily.com/master-lockdown-mode-implement-passcode-on-nintendo-switch-console/"><u>Master Lockdown Mode: Implement Passcode on Nintendo Switch Console</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/offline-driver-setup-for-windows-systems-no-internet-required/"><u>Offline Driver Setup for Windows Systems - No Internet Required!</u></a></li>
+</ul></div>
 

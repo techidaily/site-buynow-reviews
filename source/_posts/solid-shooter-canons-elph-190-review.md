@@ -1,7 +1,7 @@
 ---
 title: "Solid Shooter: Canon's ELPH 190 Review"
-date: 2024-09-14T17:33:47.061Z
-updated: 2024-09-20T19:10:32.765Z
+date: 2024-09-24T18:59:17.464Z
+updated: 2024-09-26T23:03:53.710Z
 categories:
   - BestProducts
 description: "This Article Describes Solid Shooter: Canon's ELPH 190 Review"
@@ -45,6 +45,19 @@ Lifewire / Todd Braylor
 ## Garmin Forerunner 45
 
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/o718az7uF1ea0o2yiaw0vFBeQvU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-HeroSquare-2cc58de569434b0fa44a3c79eb0c1777.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -129,19 +142,25 @@ Lifewire / Todd Braylor
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/n0CH4Oi-eCGFGFAbYCvyN1zYh5s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-05-60bd2ccaf84c4b588407fb69ec57cf39.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Minimal graphics with widgets in place of apps**
@@ -158,6 +177,13 @@ Lifewire / Todd Braylor
 
  The safety alert is similar, allowing you to send a preset alert message with your location as a follow link to a designated emergency contact. But unlike incident detection, the safety alert is sent manually and designed to be used any time you find yourself in a potentially unsafe situation while out running or biking. Both of these features require that your smartphone is within Bluetooth range.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Training essentials for a decent price**
 
  The Garmin Forerunner 45 carries an MSRP of $199.99, which is a pretty decent deal for a GPS watch with the added Garmin Coach features.
@@ -165,13 +191,6 @@ Lifewire / Todd Braylor
  Garmin has clearly designed the FR45 to be one of the more affordable GPS running watches in its line up, with a prerogative to deliver all the core fitness essentials without any of the ancillary features like maps, music storage, or Garmin Pay that the pricier models play up.
 
  Unless you are specifically looking for other features in a Garmin GPS watch for specific uses, chances are you won't miss them for daily running with the Forerunner 45.
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Garmin Forerunner 45 vs. Polar Ignite**
 
@@ -200,10 +219,10 @@ Lifewire / Todd Braylor
 * [Fitbit Inspire HR](https://www.lifewire.com/fitbit-inspire-hr-review-4768656)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -239,5 +258,23 @@ Lifewire / Todd Braylor
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-explore-the-best-of-both-worlds-with-these-5-cams/"><u>[New] Explore the Best of Both Worlds with These 5 Cams</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-zte-nubia-flip-5g-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On ZTE Nubia Flip 5G</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/experience-unmatched-warmth-and-sound-with-rotibox-beanie-hat-our-in-depth-review/"><u>Experience Unmatched Warmth & Sound with Rotibox Beanie Hat: Our In-Depth Review</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-edit-your-fax-cover-using-windows-11-tools/"><u>How to Edit Your Fax Cover Using Windows 11 Tools</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-honor-x50-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Honor X50</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-proven-techniques-to-store-your-mov-videos-on-windows-10/"><u>In 2024, Proven Techniques to Store Your .mov Videos on Windows 10</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mars-mayhem-ensues-as-urban-development-game-causes-whirlwind-entertainment-experience-outlandish-fun-in-the-faraway-world/"><u>Mars Mayhem Ensues as Urban Development Game Causes Whirlwind Entertainment - Experience Outlandish Fun in the Faraway World</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-your-pcs-lifespan-with-the-cost-effective-topmate-c3-02-cooler-pad-a-detailed-assessment/"><u>Maximize Your PC's Lifespan with the Cost-Effective TopMate C3 02 Cooler Pad – A Detailed Assessment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/offworld-trading-company-game-breakdown-survive-and-thrive-in-the-unforgiving-space-economy/"><u>Offworld Trading Company Game Breakdown: Survive & Thrive in the Unforgiving Space Economy</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/optimal-locations-mastering-your-ps4-webcam-setup/"><u>Optimal Locations: Mastering Your PS4 Webcam Setup</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/optimizing-your-fitness-goals-with-the-samsung-galaxy-watch-active-an-in-depth-review/"><u>Optimizing Your Fitness Goals with the Samsung Galaxy Watch Active - An In-Depth Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/portable-moko-keyboard-with-built-in-wireless-technology-for-any-device/"><u>Portable MoKo Keyboard with Built-In Wireless Technology for Any Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/prime-portable-charging-solutions-2024/"><u>Prime Portable Charging Solutions 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sonys-playstation-showdown-exploring-key-distinctions-of-ps5-vs-ps5-slim-variants/"><u>Sony's PlayStation Showdown: Exploring Key Distinctions of PS5 vs PS5 Slim Variants</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/tp-link-archer-c80-the-top-choice-for-fast-connectivity-under-100/"><u>TP-Link Archer C80 - The Top Choice for Fast Connectivity Under $100</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/understanding-the-legacy-of-electric-vehicles-through-time/"><u>Understanding the Legacy of Electric Vehicles Through Time</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Twelve South's Newest Creation: A Detailed Look at the Cleverly Designed BookBook V2 MacBook Case"
-date: 2024-09-16T16:00:10.226Z
-updated: 2024-09-20T17:20:41.526Z
+date: 2024-09-24T17:49:47.522Z
+updated: 2024-09-26T17:59:13.114Z
 categories:
   - BestProducts
 description: "This Article Describes Twelve South's Newest Creation: A Detailed Look at the Cleverly Designed BookBook V2 MacBook Case"
@@ -101,6 +101,19 @@ Lifewire/Jeremy Laukkonen
 
 ![Apple iMac M1 (2021)](https://www.lifewire.com/thmb/UXQsm7-2bXrWZaRKJCYnriKsm2Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iMacM12021_5-6ad0711fc0d04f55b6f77624fb1479af.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire/Jeremy Laukkonen
 
  Regardless of which model you’re looking at, the bottom line is the 2021 iMac doesn’t have enough ports. The four Thunderbolt and USB-C ports found on the higher-end model aren’t enough, and the paltry two ports you get with the lower-end model definitely fall short. Expect to invest in a USB-C hub if you don’t already have one.
@@ -131,13 +144,6 @@ Lifewire/Jeremy Laukkonen
 
  While I had to go back to my Windows machine for most of my gaming due to a lack of compatibility, the iMac performed surprisingly well in the games I did play. I was particularly impressed with how well it ran[Final Fantasy 14](https://www.lifewire.com/what-is-final-fantasy-4157832) , which doesn’t have a native M1 client. I was able to squeeze out 30 FPS with relatively high settings and main tank runs of both Tower at Paradigm’s Breach and Delubrum Reginae without incident.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Productivity: Pro users may want to hold off, but the M1 iMac is ready for work
 
  Apple’s powerful M1 chip and a big 4.5K display combine to turn the 2021 iMac into a productivity powerhouse. I used it for my main work machine for about a month without incident, primarily for word processing, image editing, and other productivity tasks. I especially appreciated the size and resolution of the display for image editing. Although I don’t have any specific need for the pro-level wide color gamut, it’s there for those who do require it.
@@ -155,10 +161,10 @@ Lifewire/Jeremy Laukkonen
  The Magic Mouse 2 that comes with the M1 iMac is the same mouse that’s been around since 2015, with one minor tweak. The glass top is still while, but the sides and bottom are color-matched to your iMac. The lightning charger connector is still inexplicably located on the bottom, so you can’t use it while charging, and it feels uncomfortably small in my hand.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Audio: Excellent built-in speakers and decent Bluetooth for wireless headphones
@@ -172,15 +178,22 @@ Lifewire/Jeremy Laukkonen
 ![Apple iMac M1 (2021)](https://www.lifewire.com/thmb/2aQbf-BzdAnbs61RJL_5e7pUGzw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iMacM12021_4-92a8c431947c41c382624699198b96ff.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire/Jeremy Laukkonen
 
  If you do want to use headphones, the 2021 iMac features an audio jack on the left side of the frame. It also has built-in Bluetooth connectivity, so you can hook up your favorite pair of headphones.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Network: Great speeds over Ethernet and Wi-Fi 6
 
@@ -190,11 +203,25 @@ Lifewire/Jeremy Laukkonen
 
  In addition to Wi-Fi and wired connections, the M1 iMac also features[Bluetooth 5.0](https://www.lifewire.com/bluetooth-5-4160255) . The Bluetooth connection is primarily used to connect the Magic Keyboard and Magic Mouse 2, but I also used it with a pair of AirPods Pro and my Avantree Ario Podio headphones. Sound quality and range were both excellent thanks to the Bluetooth 5.0 support, and I was able to listen to music and podcasts throughout my house.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Camera: 1080P FaceTime camera
 
  The M1 iMac packs in a 1080P full HD[FaceTime](https://www.lifewire.com/what-is-facetime-2000237) camera that’s backed up by Apple’s M1 image signal processor. In practical terms, the camera turns in a uniformly decent image in a variety of light conditions—including low light where a lot of webcams really struggle. It’s a big improvement over the camera included with the MacBook Pro, although the image can look a bit soft or washed out in some lighting conditions.
 
  Paired with the improved camera, the M1 iMac also includes a massively improved built-in microphone array. The three high-quality microphones leverage directional beamforming and a high signal-to-noise ratio to turn in surprisingly good results.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Software: Big Sur with some beautiful custom backgrounds
 
@@ -203,6 +230,13 @@ Lifewire/Jeremy Laukkonen
  Support for mobile apps is a little spotty, as a lot of apps don’t show up in the Mac App store. For example, smash hit Zelda-clone Genshin Impact isn’t available despite the fact it now supports controllers. Legacy Intel Mac app support is a lot better, and I didn’t run into any trouble running apps through Rosetta 2\. Most notably, Photoshop ran without a hitch, and the Final Fantasy 14 client also ran surprisingly well.
 
  Photoshop and other popular apps are slated to eventually get M1 support, but I’ve found Rosetta 2 to deliver more than acceptable performance in the meantime.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What’s New: Apple’s M1 chip and a visual refresh
 
@@ -218,13 +252,6 @@ Lifewire/Jeremy Laukkonen
 
 Lifewire/Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## M1 iMac (2021) vs. M1 Mac mini
 
  This might seem like an odd comparison, but it’s an important one. The 2021 iMac and 2020 Mac mini have very similar hardware, with the major difference being the iMac is an all-in-one with a beautiful display, while the Mac mini doesn’t have a built-in display.
@@ -238,13 +265,6 @@ Lifewire/Jeremy Laukkonen
 **Trade in your Intel iMac for a splash of color.**
 
  The new iMac (M1, 2021) is a massive improvement over its predecessor, offering excellent performance, a beautiful Retina display, great sound, and a slick, colorful look. Power users who need more memory or a more powerful graphics chip may want to wait for an update to the iMac Pro line, but just about everyone else should be satisfied by this hardware.  
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -286,5 +306,24 @@ Lifewire/Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-ethical-and-safe-tiktok-following-hacks-for-2024/"><u>[New] Ethical and Safe TikTok Following Hacks for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-why-is-virtual-realitys-creative-palette-still-barren-update/"><u>[New] In 2024, Why Is Virtual Reality's Creative Palette Still Barren? - Update</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-navigating-creator-studio-your-expert-manual/"><u>[New] Navigating Creator Studio Your Expert Manual</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-obs-streamers-toolkit-for-captivating-sessions-for-2024/"><u>[New] OBS Streamer’s Toolkit for Captivating Sessions for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-epiccollab-unify-instagram-videos-on-devices/"><u>[Updated] 2024 Approved EpicCollab Unify Instagram Videos on Devices</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/1723341739768-exploring-wartime-velocity-the-unconventional-flsun-s1-solar-charger-reviewed/"><u>Exploring Wartime Velocity - The Unconventional FLSun S1 Solar Charger Reviewed!</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-install-epson-xp-245-driver-on-windows-7810-step-by-step-download-tutorials/"><u>How to Install Epson Xp-245 Driver on Windows 7/8/10: Step by Step Download Tutorials</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-phone-number-from-your-apple-id-from-your-iphone-x-by-drfone-ios/"><u>How To Remove Phone Number From Your Apple ID from Your iPhone X?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hunt-down-the-best-ever-acer-discounts-during-amazon-prime-day-2024/"><u>Hunt Down the Best-Ever Acer Discounts During Amazon Prime Day 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/immerse-yourself-in-crystal-clear-visuals-with-the-sony-49-xbr49x900f-a-detailed-examination/"><u>Immerse Yourself In Crystal Clear Visuals With the Sony 49 XBR49X900F: A Detailed Examination</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/imo-instant-messenger-review/"><u>Imo Instant Messenger Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/impressive-and-affordable-the-ultimate-motorola-one-hyper-review-analysis/"><u>Impressive & Affordable: The Ultimate Motorola One Hyper Review Analysis</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-linksys-velop-a-high-performance-mesh-networking-solution/"><u>In-Depth Analysis of Linksys Velop: A High-Performance Mesh Networking Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-samsungs-galaxy-chromebook-version-2-a-game-changer-for-on-the-go-workers/"><u>In-Depth Analysis: Samsung's Galaxy Chromebook Version 2 - A Game-Changer for On-the-Go Workers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-monster-hunter-world-mastering-combat-with-extraordinary-and-perilous-monsters/"><u>In-Depth Review of Monster Hunter: World - Mastering Combat with Extraordinary and Perilous Monsters</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ipad-air-4-versus-galaxy-tab-s7plus-which-premium-tablet-reigns-supreme/"><u>IPad Air 4 Versus Galaxy Tab S7+ - Which Premium Tablet Reigns Supreme?</u></a></li>
+</ul></div>
 

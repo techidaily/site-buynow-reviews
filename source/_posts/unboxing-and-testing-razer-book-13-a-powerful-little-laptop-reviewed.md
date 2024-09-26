@@ -1,7 +1,7 @@
 ---
 title: "Unboxing and Testing Razer Book 13: A Powerful Little Laptop Reviewed"
-date: 2024-09-14T16:41:14.107Z
-updated: 2024-09-20T19:17:04.294Z
+date: 2024-09-19T22:40:46.923Z
+updated: 2024-09-26T23:15:45.047Z
 categories:
   - BestProducts
 description: "This Article Describes Unboxing and Testing Razer Book 13: A Powerful Little Laptop Reviewed"
@@ -42,6 +42,13 @@ Lifewire / Yoona Wagener
 [View On Amazon $120](https://www.amazon.com/dp/B08BRFWGMC/?tag=lifewire-onsite-prod-20&ascsubtag=5120915%7Cnc635061288084b3aac8ef97dc66e8cb722%7CB08BRFWGMC) [View On Walmart $170](https://www.walmart.com/ip/753687122) [View On Adorama.com $300](https://www.adorama.com/mbp10320003a.html)
 
 4.2
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Mobvoi TicWatch Pro 3 GPS
 
@@ -93,20 +100,13 @@ Lifewire / Yoona Wagener
 
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/dmQpg73jtc8s6Xxx-CSGe6DOKEc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_04-262f4af125a04f3fab6055508f2c6d3b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Performance: A well-rounded wearable
@@ -117,9 +117,23 @@ Lifewire / Yoona Wagener
 
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/24UwZRaSR9Dx9_LbhC0ICDpEF2s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_03-35584bf0589a4ad19fcd9280d973018c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
  Sleep data was a little inconsistent in terms of when the device detected sleep. Sometimes the sleep start times were a couple of hours off. Generally, I was pleased with the presentation of sleep and exercise data. It's easy enough to glance at results from the watch and entirely forego a companion app.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Software: Feature overlap creates some confusion
 
@@ -132,13 +146,6 @@ Lifewire / Yoona Wagener
  You have options for catering the experience to you, which is appealing, but this watch does present a bit of an identity crisis between Wear OS and Mobvoi rather than a seamless partnership.
 
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/ThEB2Hv12xN060OsalPhyRbn4bY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_05-15d86ca8cd8548709c66efced9dfb14a.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -160,13 +167,6 @@ Lifewire / Yoona Wagener
 
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/O2h1ls6gDrmzljZ5SvO0QEkrLIE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_02-03e93150d27d41f89e14d807aad2d10d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Yoona Wagener
 
 ## Price: A bit costly for those missing a few premium features
@@ -176,6 +176,13 @@ Lifewire / Yoona Wagener
  Android users who can find a great fit will enjoy well-rounded connectivity and fitness tracking.
 
  Though the strap is replaceable, the size of the display could be prohibitively unwieldy. But for an Android smartphone user who can find a great fit, this watch promises well-rounded connectivity and fitness tracking.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Mobvoi TicWatch Pro 3 GPS vs. Samsung Galaxy Watch3
 
@@ -230,5 +237,20 @@ Lifewire / Yoona Wagener
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-streamlined-sound-collection-adding-itunes-podcasts-with-ease/"><u>[New] In 2024, Streamlined Sound Collection Adding iTunes Podcasts with Ease</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-uncharted-territory-6-secrets-to-documenting-your-minecraft-journey/"><u>[New] In 2024, Uncharted Territory 6 Secrets to Documenting Your Minecraft Journey</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-mirthful-selfies-step-by-step-for-the-cartoon-face-lens/"><u>[New] Mastering Mirthful Selfies Step-by-Step for the Cartoon Face Lens</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-revealing-top-streamers-expert-tips-on-choosing-right/"><u>[New] Revealing Top Streamers Expert Tips on Choosing Right</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/creative-labs-sound-blaster-zxr-is-this-the-pinnacle-of-flagship-gaming-audio-in-2er/"><u>Creative Labs' Sound Blaster ZXR - Is This the Pinnacle of Flagship Gaming Audio in 2Er?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On OnePlus Nord N30 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-expert-secrets-for-effective-ipad-sound-capture/"><u>In 2024, Expert Secrets for Effective iPad Sound Capture</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/portable-sonos-hits-top-tier-audio-quality-nomad/"><u>Portable Sonos Hits: Top-Tier Audio Quality Nomad</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/raspberry-pi-400-comprehensive-analysis-the-ultimate-hybrid-keyboard-computer/"><u>Raspberry Pi 400 Comprehensive Analysis: The Ultimate Hybrid Keyboard-Computer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-extollo-lansocket-1500-ultra-fast-performance-with-minimal-delay-and-built-in-power-sharing/"><u>Review of Extollo LANSocket 1500: Ultra-Fast Performance with Minimal Delay & Built-In Power Sharing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-ergodriven-topo-anti-fatigue-desk-mat-a-game-changer-for-standing-stations/"><u>Review of the Ergodriven Topo Anti-Fatigue Desk Mat: A Game Changer for Standing Stations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsungs-highly-priced-un65nu8000fxza-an-in-depth-review-of-its-features-and-value/"><u>Samsung's Highly Priced UN6^5NU8000FXZA - An In-Depth Review of Its Features and Value</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/secure-and-stable-expert-reviews-on-the-most-robust-apc-backup-systems-for-gamers/"><u>Secure and Stable: Expert Reviews on the Most Robust APC Backup Systems for Gamers</u></a></li>
+</ul></div>
 

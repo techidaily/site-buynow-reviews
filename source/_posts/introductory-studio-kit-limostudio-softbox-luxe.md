@@ -1,7 +1,7 @@
 ---
 title: "Introductory Studio Kit: LimoStudio Softbox Luxe"
-date: 2024-09-18T18:55:08.905Z
-updated: 2024-09-20T17:49:41.872Z
+date: 2024-09-22T21:21:15.405Z
+updated: 2024-09-26T16:28:26.121Z
 categories:
   - BestProducts
 description: "This Article Describes Introductory Studio Kit: LimoStudio Softbox Luxe"
@@ -47,6 +47,13 @@ Lifewire / Gannon Burgett
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/NDm3E4PyU6ziij20SUPJFRRc6pY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4045927-1-64302c6de74c465d96dcc32ed60ef388.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Gannon Burgett
 
 [View On Amazon $2,744](https://www.amazon.com/dp/B07HZ88879/?tag=lifewire-onsite-prod-20&ascsubtag=4689102%7Cn3abb18ca771f4923adac9b68daf5476608%7CB07HZ88879) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6302206.p) [View On B&H Photo Video $4,799](https://www.bhphotovideo.com/c/product/1435925-REG/microsoft%5Flam%5F00001%5F28%5Fsurface%5Fstudio%5F2.html)
@@ -89,6 +96,13 @@ Lifewire / Gannon Burgett
 
  Moving onto the included accessories, the Surface Keyboard, Surface Mouse, and Surface Pen all felt well-built and thoughtfully designed. They didn’t blow us away, but they feel substantial and should easily last the life of the computer without issue. We would’ve liked to see a Surface Dial tossed in there as well, considering how much the Surface Studio 2 costs and artists and graphic designers being the clear target market.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Quick and simple**
 
  Setting up the Microsoft Surface Studio 2 was rather straightforward. The box it comes in is securely packaged, and designed to handle a bit of abuse on the way to your house. After unpacking, all we had to do was plug in the computer and remove the plastic battery tabs on the Surface Keyboard and Surface Mouse. The Surface Pen should work just fine out of the box.
@@ -100,10 +114,10 @@ Lifewire / Gannon Burgett
  Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Display: A treat for your eyes**
@@ -117,13 +131,6 @@ Lifewire / Gannon Burgett
  The Zero Gravity hinge allows it for easy adjustment, letting us use it at almost, ranging from nearly flat to fully upright. If you have the Surface Dial you can also unlock a lot of functionality when it comes to photo and video editing. Its omission despite the high price of the Studio feels like a big downside.
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/WBpMM3f4iH20J7-9H_NzD1zeBl4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-8-22d53ea12b7c48988b4840af9fb744c4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -141,14 +148,14 @@ Lifewire / Gannon Burgett
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/DQ79oTyDKH66WhnF-xIt9ZmemlY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-2-ccf0f17e9c0743edafecfed3f5621135.jpg)
 
- Lifewire / Gannon Burgett
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Gannon Burgett
 
 ## **Network: Quick wireless connection with hardwired backup**
 
@@ -158,18 +165,18 @@ Lifewire / Gannon Burgett
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/rkvuGygIghO9k9Je4rikzH5HvaE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-4-1b719f36dcb3448c9da40160faa18954-a32c44e2f9ca4ed3b4d670458dc6d5f0.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Gannon Burgett
 
 ## **Camera: Decent and usable**
 
  The only camera on the Surface Studio 2 is a 5-megapixel front-facing camera. In addition to capturing stills and Windows Hello facial authentication, it also records 1080p video with dual microphones for audio. The camera proved impressive for an integrated camera and is more than good enough to use for conference calls and even streaming if you have a decent light source on hand.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Still not a touchscreen or Pen-driven experience**
 
@@ -185,14 +192,14 @@ Lifewire / Gannon Burgett
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/InfbJKGzeNqjfIRVMxjjUixt0sY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-3-8fd4fb8053044a528f896d4dc2872611.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Gannon Burgett
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: One word—ridiculous**
 
@@ -249,5 +256,20 @@ Lifewire / Gannon Burgett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-essential-notebooks-excellent-in-media-post-production-for-2024/"><u>[New] Essential Notebooks Excellent in Media Post-Production for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-quickguide-optimizingyoucamrecord-for-2024/"><u>[New] QuickGuide OptimizingYouCamRecord for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-find-your-fit-understanding-basic-to-pro-plans-at-vimeo/"><u>[Updated] Find Your Fit Understanding Basic to Pro Plans at Vimeo</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-optimizing-obs-video-compression/"><u>2024 Approved Optimizing OBS Video Compression</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/cutting-edge-innovation-unleashed-stellar-takes-the-lead-in-photo-repair-software-technology/"><u>Cutting-Edge Innovation Unleashed: Stellar Takes the Lead in Photo Repair Software Technology</u></a></li>
+<li><a href="https://win-blog.techidaily.com/guide-to-fix-recurring-pc-issues-with-content-warning-software-failures/"><u>Guide to Fix Recurring PC Issues with 'Content Warning' Software Failures</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-mastering-the-art-of-choosing-high-quality-hdr-cameras/"><u>In 2024, Mastering the Art of Choosing High-Quality HDR Cameras</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-the-preview-app-a-comprehensive-guide-to-editing-images-on-your-mac/"><u>Mastering the Preview App: A Comprehensive Guide to Editing Images on Your Mac</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-music-with-a-premium-spotify-subscription/"><u>Maximizing Music with a Premium Spotify Subscription</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-performance-in-depth-apple-iphone-12-pro-max-evaluation-why-more-is-often-merrier/"><u>Maximizing Performance: In-Depth Apple iPhone 12 Pro Max Evaluation - Why More Is Often Merrier</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/professional-assessment-the-byb-e430-ergonomic-led-lamp-reviewed/"><u>Professional Assessment: The BYB E430 Ergonomic LED Lamp Reviewed</u></a></li>
+<li><a href="https://games-able.techidaily.com/smarter-modeling-techniques-for-game-excellence/"><u>Smarter Modeling Techniques for Game Excellence</u></a></li>
+</ul></div>
 

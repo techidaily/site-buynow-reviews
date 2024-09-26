@@ -1,7 +1,7 @@
 ---
 title: Mastering Tamriel's Lore & Quests in the Immersive World of Skyrim - A Detailed Review for Switch Players
-date: 2024-09-15T17:38:00.167Z
-updated: 2024-09-20T18:21:03.308Z
+date: 2024-09-21T20:25:33.246Z
+updated: 2024-09-26T16:58:24.169Z
 categories:
   - BestProducts
 description: This Article Describes Mastering Tamriel's Lore & Quests in the Immersive World of Skyrim - A Detailed Review for Switch Players
@@ -74,29 +74,22 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -113,16 +106,10 @@ Lifewire / Emily Ramirez
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
@@ -133,13 +120,6 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
 
 ## **Software: Lots of options with mixed utility**
@@ -149,6 +129,13 @@ Lifewire / Emily Ramirez
  For the tinkerers out there, Sound Blaster provides a myriad of audio adjustments through their Z-Series software package.
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Unjustified expense**
 
@@ -174,10 +161,24 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -215,5 +216,24 @@ Lifewire / Emily Ramirez
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/updated-audio-mastery-in-logic-pro-x-creating-fluidity/"><u>[Updated] Audio Mastery in Logic Pro X Creating Fluidity</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-ultimate-users-companion-for-durecorder/"><u>[Updated] In 2024, Ultimate User’s Companion for DuRecorder</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/awesome-online-destinations-for-advanced-text-customization-for-2024/"><u>Awesome Online Destinations for Advanced Text Customization for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/can-chatgpt-concoct-a-perfect-cocktail-a-review-of-its-expertise/"><u>Can ChatGPT Concoct a Perfect Cocktail: A Review of Its Expertise</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/high-fidelity-portals-to-ps3-gaming-on-pcs-for-2024/"><u>High-Fidelity Portals to Ps3 Gaming on PCs for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-androids-ultimate-capture-secrets-revealed/"><u>In 2024, Android's Ultimate Capture Secrets Revealed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-banish-youtube-shorts-forever-with-ease/"><u>In 2024, Banish YouTube Shorts Forever with Ease</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-google-maps-on-ios-a-comprehensive-review/"><u>In-Depth Analysis: Google Maps on iOS - A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-travelers-guide-to-portable-reading-unveiling-the-kobo-clara-hd-features-and-benefits/"><u>The Traveler’s Guide to Portable Reading: Unveiling the Kobo Clara HD Features & Benefits</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-face-off-evaluating-the-apple-watch-series-9-against-fitbits-charge-grope/"><u>The Ultimate Face-Off: Evaluating the Apple Watch Series 9 Against Fitbit's Charge Grope</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-choosing-a-ring-doorbell-plus-features-performance-and-reviews/"><u>The Ultimate Guide to Choosing a Ring Doorbell Plus: Features, Performance & Reviews</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722571073827-the-ultimate-tcl-50s425-50-smart-led-4k-tv-roku-2019-review-for-budget-shoppers/"><u>The Ultimate TCL 50S425 50 Smart LED 4K TV - Roku 2019 Review for Budget Shoppers!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-waterproof-and-affordable-camera-nikon-w100/"><u>The Ultimate Waterproof and Affordable Camera? Nikon W100</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-5k-tcl-tvs-in-depth-look-at-the-tcl-50s425-50-inch-smart-roku-tv-of-2019/"><u>Top 5K TCL TVs: In-Depth Look at the TCL 50S425 50-Inch Smart Roku TV of 2019</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transition-mechanisms/"><u>Transition Mechanisms</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshoot-and-resolve-csgo-login-woes-with-these-5-methods/"><u>Troubleshoot and Resolve CS:GO Login Woes with These 5 Methods</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-aerial-thrills-at-home-an-expert-review-of-the-syma-yali-672-rc-helicopter/"><u>Unleashing Aerial Thrills at Home: An Expert Review of the Syma Yali 672 RC Helicopter</u></a></li>
+</ul></div>
 

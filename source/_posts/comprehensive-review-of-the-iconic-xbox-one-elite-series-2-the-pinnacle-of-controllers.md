@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Review of the Iconic Xbox One Elite Series 2 - The Pinnacle of Controllers
-date: 2024-09-15T17:47:08.085Z
-updated: 2024-09-20T17:43:09.248Z
+date: 2024-09-19T18:48:56.731Z
+updated: 2024-09-26T21:30:36.563Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Review of the Iconic Xbox One Elite Series 2 - The Pinnacle of Controllers
@@ -40,6 +40,13 @@ Lifewire / Jonno Hill
 [View On Amazon $35](https://www.amazon.com/dp/B01HQ4BRIG/?tag=lifewire-onsite-prod-20&ascsubtag=4843098%7Cnd0143d72158b4d609e6ef9a213c7445e18%7CB01HQ4BRIG) [View On Walmart $33](https://www.walmart.com/ip/Antennas-Direct-ECL-Clear-Stream-Eclipse-Sure-Grip-Indoor-HDTV-Antenna/146091443?slfpid=3)
 
 4.4
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Clearstream ECLIPSE
 
@@ -82,13 +89,6 @@ Lifewire / Jonno Hill
 
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Above average**
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
@@ -99,13 +99,20 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Not bad for the performance**
@@ -113,10 +120,10 @@ Lifewire / Jonno Hill
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
@@ -154,5 +161,22 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-ultimate-playbook-cutting-edge-methods-for-remarkable-mobizen-recordings-for-2024/"><u>[New] Ultimate Playbook Cutting-Edge Methods for Remarkable Mobizen Recordings for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-charting-course-videos-as-catalysts-in-teaching/"><u>[Updated] Charting Course Videos as Catalysts in Teaching</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-maximize-your-google-meet-experience-with-effective-use-of-digital-boards-on-any-os-for-2024/"><u>[Updated] Maximize Your Google Meet Experience with Effective Use of Digital Boards on Any OS for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-ultimate-top-viewers-playlist-on-youtube-history/"><u>2024 Approved Ultimate Top Viewers' Playlist on YouTube History</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-the-slim-vs-standard-playstation-5-which-one-wins/"><u>Comparing the Slim vs Standard PlayStation 5: Which One Wins?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-samsung-galaxy-s21-a-reduced-features-approach/"><u>Comprehensive Analysis of the Samsung Galaxy S21: A Reduced Features Approach</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-garmin-vivosmart-4-a-deep-dive-into-its-capabilities-for-energy-tracking-stress-monitoring-and-additional-functions/"><u>Comprehensive Guide to Garmin Vivosmart 4: A Deep Dive Into Its Capabilities for Energy Tracking, Stress Monitoring & Additional Functions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-lensdirects-prescription-sunglasses-for-digital-screen-protection/"><u>Comprehensive Review: LensDirect’s Prescription Sunglasses for Digital Screen Protection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/conquer-zombie-apocalypse-as-a-rebel-motorcyclist-in-days-gone-in-depth-critique/"><u>Conquer Zombie Apocalypse as a Rebel Motorcyclist in 'Days Gone': In-Depth Critique</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cutting-edge-insight-on-apple-tv-4k-third-gen-version-assessment/"><u>Cutting-Edge Insight on Apple TV 4K - Third Gen Version Assessment</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-step-by-step-on-vlc-screen-recording/"><u>In 2024, Step-by-Step on VLC Screen Recording</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/navigating-through-motion-perception-systems-for-2024/"><u>Navigating Through Motion Perception Systems for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>Reasons why Pokémon GPS does not Work On Apple iPhone 15 Pro? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/top-6-instagram-money-calculator-safe-and-effective-for-2024/"><u>Top 6 Instagram Money Calculator - Safe & Effective for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-discounted-samsung-products-during-the-prime-shopping-event-dont-miss-out/"><u>Top Discounted Samsung Products During the Prime Shopping Event - Don't Miss Out!</u></a></li>
+</ul></div>
 

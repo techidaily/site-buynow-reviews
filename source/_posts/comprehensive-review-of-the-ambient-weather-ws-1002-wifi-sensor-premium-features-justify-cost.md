@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Review of the Ambient Weather WS-1002 WiFi Sensor - Premium Features Justify Cost
-date: 2024-09-15T18:10:51.374Z
-updated: 2024-09-20T16:55:25.935Z
+date: 2024-09-22T17:33:09.728Z
+updated: 2024-09-26T20:17:29.255Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Review of the Ambient Weather WS-1002 WiFi Sensor - Premium Features Justify Cost
@@ -75,10 +75,10 @@ Lifewire / Jonno Hill
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup: Simple and easy**
@@ -89,9 +89,23 @@ Lifewire / Jonno Hill
 
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Above average**
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: Fair to middling**
 
@@ -99,18 +113,18 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
 
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
@@ -121,13 +135,6 @@ Lifewire / Jonno Hill
 **The best unpowered indoor antenna.**
 
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -154,5 +161,19 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-a-comprehensive-look-at-vivacut-in-the-2024-landscape/"><u>[New] A Comprehensive Look at VivaCut in the 2024 Landscape</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-unlock-6-figure-videos-top-hashtag-trends/"><u>[New] In 2024, Unlock 6-Figure Videos Top Hashtag Trends</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-spatial-symphony-with-mac-recording/"><u>[New] Spatial Symphony with Mac Recording</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/4k-video-powerhouse-panasonic-wxf991/"><u>4K Video Powerhouse: Panasonic WXF991</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-guide-to-montage-apps-8-leading-options-iphoneandroid/"><u>In 2024, The Ultimate Guide to Montage Apps 8 Leading Options (iPhone/Android)</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-walk-of-shadows-a-comprehensive-list-of-intense-zombie-games/"><u>In 2024, Walk of Shadows A Comprehensive List of Intense Zombie Games</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-worlds-richest-content-creator-on-youtube/"><u>In 2024, World's Richest Content Creator on YouTube</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-tips-for-optimal-online-vhs-photo-enhancement-for-2024/"><u>Top Tips for Optimal Online VHS Photo Enhancement for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-buyers-list-the-most-effective-wireless-range-boosters-for-2-exceptional-long-distance-routers-to-enhance-your-network/"><u>Ultimate Buyer's List: The Most Effective Wireless Range Boosters for 2# Exceptional Long-Distance Routers to Enhance Your Network</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-nintendo-switch-guide-top-choice-in-portable-gaming/"><u>Ultimate Nintendo Switch Guide: Top Choice in Portable Gaming</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unexpected-revelations-in-ufo-logic-by-aminy/"><u>Unexpected Revelations in UFO Logic by Aminy</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-the-nintendo-switch-stands-out-a-detailed-overview-of-handheld-gamings-finest/"><u>Why the Nintendo Switch Stands Out: A Detailed Overview of Handheld Gaming's Finest</u></a></li>
+</ul></div>
 

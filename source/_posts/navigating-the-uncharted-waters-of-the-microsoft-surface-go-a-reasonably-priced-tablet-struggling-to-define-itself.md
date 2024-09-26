@@ -1,7 +1,7 @@
 ---
 title: "Navigating the Uncharted Waters of the Microsoft Surface Go: A Reasonably Priced Tablet Struggling to Define Itself"
-date: 2024-09-15T17:32:59.922Z
-updated: 2024-09-20T17:01:52.215Z
+date: 2024-09-21T19:51:46.295Z
+updated: 2024-09-26T19:50:47.101Z
 categories:
   - BestProducts
 description: "This Article Describes Navigating the Uncharted Waters of the Microsoft Surface Go: A Reasonably Priced Tablet Struggling to Define Itself"
@@ -66,6 +66,13 @@ thumbnail: https://thmb.techidaily.com/06629510e11e9d29470adf181e231bb23d34ab4b2
 
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -75,6 +82,13 @@ thumbnail: https://thmb.techidaily.com/06629510e11e9d29470adf181e231bb23d34ab4b2
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Humans have never been so annoying**
 
@@ -89,6 +103,13 @@ thumbnail: https://thmb.techidaily.com/06629510e11e9d29470adf181e231bb23d34ab4b2
  In over twenty hours of gameplay, I learned the hard way that humans in this game are not only picky, but they demand the life of luxury the second they step off the rocket and into the dome. It didn’t matter that only twelve called a single dome home. It didn’t matter that there was barely enough of them to cover operating the grocery store and space bar. A lack of space for these amenities fell upon deaf ears. They wanted access to their art stores, electronics, and fine dining immediately. In that regard, I’m a little conflicted; as much as I wanted more shopping options for Mars, I realized not long after humans arrived that Haemimont Games, in reality, gave me a blessing by keeping a bland palate. Plus, more buildings and items become available as research, funding, and planetary discoveries allow.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -114,21 +135,7 @@ thumbnail: https://thmb.techidaily.com/06629510e11e9d29470adf181e231bb23d34ab4b2
 
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Other city-building games**
 
@@ -141,6 +148,13 @@ thumbnail: https://thmb.techidaily.com/06629510e11e9d29470adf181e231bb23d34ab4b2
  **A interesting new take on city-builders, if you can stomach the micromanagement.**
 
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -167,5 +181,20 @@ thumbnail: https://thmb.techidaily.com/06629510e11e9d29470adf181e231bb23d34ab4b2
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-from-silence-to-sonata-cropping-and-mixing-music-into-video-content/"><u>[New] From Silence to Sonata Cropping & Mixing Music Into Video Content</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-legal-lens-for-tiktoks-pre-upload-rights-and-compliance/"><u>[New] Legal Lens for TikToks Pre-Upload Rights & Compliance</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-maximize-gameplay-efficiency-with-top-monitor-extensions/"><u>[New] Maximize Gameplay Efficiency With Top Monitor Extensions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-elite-list-of-gaming-platforms-features-specs-and-user-ratings-compared/"><u>2024'S Elite List of Gaming Platforms: Features, Specs & User Ratings Compared</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-ultimate-selection-elite-vertical-mouse-choices-for-gamers-and-professionals-alike/"><u>2024'S Ultimate Selection: Elite Vertical Mouse Choices for Gamers & Professionals Alike</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comparative-look-fitbit-senses-edge-over-the-apple-watch-in-personal-health/"><u>A Comparative Look: Fitbit Sense's Edge Over the Apple Watch in Personal Health</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-review-of-knack-striking-charisma-meets-a-tinge-of-repetitiveness-in-design/"><u>A Review of Knack: Striking Charisma Meets a Tinge of Repetitiveness in Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-bluetooth-whispers-best-sound-companion/"><u>Budget Bluetooth Whispers: Best Sound Companion</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-xiaomi-redmi-13c-5g-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Xiaomi Redmi 13C 5G Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-lenovo-thinkphone-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Lenovo ThinkPhone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-master-the-art-of-cutting-a-video-editors-handbook-for-instagram/"><u>In 2024, Master the Art of Cutting A Video Editor's Handbook for Instagram</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-vivo-s17-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Vivo S17 with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722642525619-the-tcl-32s325-roku-experience-a-blend-of-smart-technology-and-stylish-design-as-explored-in-our-comprehensive-2019-review/"><u>The TCL 32S325 Roku Experience - A Blend of Smart Technology and Stylish Design, as Explored in Our Comprehensive 2019 Review</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Explore the Power and Style of Netgear's Nighthawk RAX80: A Full Wi-Fi 6 Router Evaluation"
-date: 2024-09-17T18:51:11.922Z
-updated: 2024-09-20T19:17:08.138Z
+date: 2024-09-21T22:15:29.867Z
+updated: 2024-09-26T17:04:06.099Z
 categories:
   - BestProducts
 description: "This Article Describes Explore the Power and Style of Netgear's Nighthawk RAX80: A Full Wi-Fi 6 Router Evaluation"
@@ -44,9 +44,23 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/_gP-SgRbIGXPYdlmqqhNJSxhmSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_HeroSquare-61fda9713bb44c89bf3c2f1f74386bee.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -91,10 +105,10 @@ Lifewire / Erika Rawes
  The app guides you through creating separate 2.4 and 5GHz networks, but you can also take advantage of a feature called smart connect, which combines your networks and designates your devices based on optimal performance. You can create a guest network, as well as manage and monitor your devices individually. The initial setup process took me about ten minutes in total.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: Superfast speeds**
@@ -107,14 +121,14 @@ Lifewire / Erika Rawes
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/y2V4Ncx3Z1ul8B-4lsc_IeiyCRQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_04-9e452ddedd2b4a46893fddd147c06d4f.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Network performance: Stellar**
 
@@ -141,10 +155,10 @@ Lifewire / Erika Rawes
  The router has two USB 3.0 storage ports on the back for connecting an external hard drive.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Nighthawk App**
@@ -158,13 +172,6 @@ Lifewire / Erika Rawes
 ## **Price: Expensive**
 
  The Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router will cost you a pretty penny—it sells for $400, which is $100 lower than its original retail price of $500\. But it’s still on the higher end of the price spectrum, especially considering it doesn’t include any sort of mesh points, and you only get the router, power supply, and an Ethernet cable.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Netgear Nighthawk RAX120 vs. TP-Link Archer AX6000**
 
@@ -212,5 +219,26 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ed-cutting-edge-editing-a-roadmap-for-high-quality-youtube-sounds-for-2024/"><u>[Updated] Cutting-Edge Editing A Roadmap for High-Quality YouTube Sounds for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-beginners-choice-syma-x5c-racing-copter-evaluation/"><u>Affordable Beginner's Choice: SYMA X5C Racing Copter Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/audio-technica-at-lp60xbt-bk-review/"><u>Audio-Technica AT-LP60XBT-BK Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bright-ideas-for-your-office-or-study-an-insightful-guide-to-the-modern-features-of-the-taotronics-tt-dl16-led-desk-lamp/"><u>Bright Ideas for Your Office or Study: An Insightful Guide to the Modern Features of the TaoTronics TT-DL16 LED Desk Lamp</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/can-you-improve-laptop-speed-by-adding-more-memory/"><u>Can You Improve Laptop Speed by Adding More Memory?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-about-tecno-spark-20c-frp-bypass-by-drfone-android/"><u>In 2024, About Tecno Spark 20C FRP Bypass</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-best-slideshow-apps-iphone-series-8-series-12/"><u>In 2024, Best Slideshow Apps (iPhone Series 8-Series 12)</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-explore-new-realms-the-ultimate-guide-to-iphone-vr-gaming/"><u>In 2024, Explore New Realms The Ultimate Guide to IPhone VR Gaming</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-honor-magic-6-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Honor Magic 6 PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Samsung Galaxy A14 4G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-motorola-moto-g14-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Motorola Moto G14 Phone Hassle-Free</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/linksys-ae1200-support-your-fast-path-to-downloading-and-installing-the-right-drivers/"><u>Linksys AE1200 Support - Your Fast Path to Downloading and Installing the Right Drivers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-zmi-powerpack-20000-your-go-to-portable-energy-solution/"><u>The Ultimate Review of ZMI PowerPack 20000 - Your Go-To Portable Energy Solution</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-nine-game-streaming-haven-explored/"><u>Top Nine Game Streaming Haven Explored</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-xiaomi-mi-smart-band/"><u>Top Rated Xiaomi Mi Smart Band</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-sonys-value-proposition-with-the-xbr65x850f-an-in-depth-review-of-a-reasonably-priced-4k-tv-set/"><u>Unlocking Sony's Value Proposition with the XBR65X850F – An In-Depth Review of a Reasonably Priced 4K TV Set</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-youtube-mastery-of-video-segmentation-for-2024/"><u>Unlocking YouTube Mastery of Video Segmentation for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-agptek-the-gateway-to-portable-music/"><u>Unveiling AGPTEK: The Gateway to Portable Music</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-excellence-in-timekeeping-a-review-of-the-strikingly-crafted-samsung-galaxy-watch/"><u>Unveiling the Excellence in Timekeeping: A Review of the Strikingly Crafted Samsung Galaxy Watch</u></a></li>
+</ul></div>
 

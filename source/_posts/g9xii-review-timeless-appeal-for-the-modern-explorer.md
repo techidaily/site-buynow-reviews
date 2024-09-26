@@ -1,7 +1,7 @@
 ---
 title: G9XII Review – Timeless Appeal for the Modern Explorer
-date: 2024-09-19T18:09:59.123Z
-updated: 2024-09-20T16:04:40.795Z
+date: 2024-09-22T21:13:50.218Z
+updated: 2024-09-26T21:16:32.461Z
 categories:
   - BestProducts
 description: This Article Describes G9XII Review – Timeless Appeal for the Modern Explorer
@@ -72,6 +72,13 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/MW5wYA5ujBjG5LdXn-w9bTJd5WQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-2-a59091cd21c04d99a42270199349fc2a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
 ## **Setup Process: Easy thanks to Steam**
@@ -81,6 +88,13 @@ Lifewire / Rebecca Isaacs
  One of the nicest aspects about 7 Days is that when you boot up a game, and even after, you have a plethora of options to customize gameplay. Do you want Scavenger (easiest setting) or do you want to play on the hardest settings in which the game actually tells you, “You’re one bad mother!”? Do you want the 24-hour cycle to span 30 minutes or two hours of real time? Do you want zombies to sprint at night? How many zombies do you want in your day 7 horde? These are all great options for creating unique and challenging gameplay.
 
 ![7 Days to Die](https://www.lifewire.com/thmb/Eq0YCIdbj82yj3lOCWEdZS7jX6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-4-341174c3997543728bd2b024c6e2a309.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -97,13 +111,6 @@ Lifewire / Rebecca Isaacs
  The other, titular part of the plot: every seven days, a zombie horde descends upon you. They know your location. They will find you and claw their way to you, and you have to fend yourself and your base from them. As the 7 days pass, they get harder to defeat. Our understanding is that the end goal of 7 Days is to add a story, but right now they’re focused on honing in general gameplay. We hope that the story will be optional since as a survival horror sandbox, it works very well.
 
 ![7 Days to Die](https://www.lifewire.com/thmb/U2XChOqkiQvFhP69V0cQ5mYcYME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-3-d19d9b4d19734cffb022d6e0db90382e.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -129,6 +136,13 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Graphics: Outdated, but detailed on optimal**
 
  For a game that was released in 2013 originally, the graphics could be a little better, even if you play on optimal settings. Back in the day, we played on lower settings rather than splurge on a fancy graphics card. If you play on the lower settings, it’s cringeworthy, though not as cringeworthy as the Witcher 3’s lowest settings.
@@ -136,13 +150,6 @@ Lifewire / Rebecca Isaacs
  7 Days has a decent 3D graphics system that they’ve definitely improved as the alpha updates have been released. As a consequence, the minimum requirements have also increased. Those who play on minimum settings may want to take note of that. While we hope they’ll improve these over the next alpha updates, we are taking the graphics as they are at the time of this review, and right now, while they’re detailed on optimal settings, they could be better.
 
  Because the graphics are a rather mixed bag, the frames per second (fps) can vary dramatically. We experienced drops as low as 18 fps when playing. When surrounded by a horde, that can cost you your life.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Platform: It’s complicated**
 
@@ -167,10 +174,10 @@ Lifewire / Rebecca Isaacs
  Despite flaws in graphics, there’s a lot to love about 7 Days to Die. The challenging skill tree system and dangerous intelligent zombies add an element that’s not typically found in zombie shooters. If you want a game to commit to for hours on end, building bases and exploring dungeon-like homes while slaying zombie cheerleaders, then 7 Days to Die could be a fun way to ease some stress after a long day of work.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -180,10 +187,10 @@ Lifewire / Rebecca Isaacs
 * [Dying Light](https://www.lifewire.com/dying-light-review-4778324)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -211,5 +218,23 @@ Lifewire / Rebecca Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-avoiding-common-mistakes-how-to-go-live-on-tiktok-from-pc/"><u>[Updated] 2024 Approved Avoiding Common Mistakes – How to Go Live On TikTok From PC</u></a></li>
+<li><a href="https://article-tips.techidaily.com/chucklechief-easy-meme-design-tool/"><u>ChuckleChief Easy Meme Design Tool</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-triumphs-of-nintendos-wii-u-console/"><u>Exploring the Triumphs of Nintendo's Wii U Console</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/free-online-video-communication-tools-rated-best/"><u>Free Online Video Communication Tools Rated Best</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hardcore-headset-test-jabra-bluetooth-model-scores-high/"><u>Hardcore Headset Test: Jabra Bluetooth Model Scores High</u></a></li>
+<li><a href="https://win-dash.techidaily.com/hassle-free-update-for-your-hid-keyboards-device-driver-software/"><u>Hassle-Free Update for Your HID Keyboard's Device Driver Software</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-full-guide-to-unlock-iphone-14-pro-max-with-itunes-drfone-by-drfone-ios/"><u>In 2024, Full Guide to Unlock iPhone 14 Pro Max with iTunes | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-apple-books-ereader-platform/"><u>In-Depth Analysis of the Apple Books eReader Platform</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-tropico-6-dominating-an-island-haven/"><u>In-Depth Look at Tropico 6: Dominating an Island Haven</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-cable-modems-of-the-year-2024-picks/"><u>Leading Cable Modems of the Year: 2024 Picks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovo-thinkpad-x1-nano-assessment-the-slim-yet-mighty-notebook-solution/"><u>Lenovo ThinkPad X1 Nano Assessment - The Slim, Yet Mighty Notebook Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovo-thinkpad-x12-detachable-review/"><u>Lenovo ThinkPad X12 Detachable Review</u></a></li>
+<li><a href="https://article-posts.techidaily.com/streamline-your-in-game-communication-pioneering-tips-for-vocal-modifications-pubg/"><u>Streamline Your In-Game Communication Pioneering Tips for Vocal Modifications (PUBG)</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-future-of-social-media-sharing-twitter-videos-on-fb-for-2024/"><u>The Future of Social Media Sharing Twitter Videos on FB for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/xsplit-reviews-in-depth-game-split-analysis-for-2024/"><u>XSplit Reviews In-Depth Game Split Analysis for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The ThermoPro TP67: An Economical Choice with Questionable Dependability"
-date: 2024-09-16T17:04:38.916Z
-updated: 2024-09-20T17:24:19.380Z
+date: 2024-09-21T17:39:09.473Z
+updated: 2024-09-26T22:56:37.549Z
 categories:
   - BestProducts
 description: "This Article Describes The ThermoPro TP67: An Economical Choice with Questionable Dependability"
@@ -43,6 +43,13 @@ Lifewire / Rebecca Isaacs
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Sabrent Mini Travel USB Optical Mouse
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/XBAevViAWBKn-uqOn_jnTLrfwTw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_HeroSquare-6ae9d6d299054d748f84492b5c31f033.jpg)
@@ -78,16 +85,16 @@ Lifewire / Rebecca Isaacs
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/E-UHv94vEiLyLkgwTG1qIFE6uvQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_04-76e4b475ca3f4449a746c22f3713f784.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
  The cable’s addition increases the size of the mouse, bringing the total measurements to 6.44 x 1.5x 2.44 inches (LWH). The Sabrent also comes with a mesh carrying bag, making it easy to pack up and take on the go without scratching it. One more perk: this mouse is adaptable to most[Windows](https://www.lifewire.com/windows-4781566) ,[Mac](https://www.lifewire.com/mac-backup-software-hardware-and-guides-2260931) , and[Linux](https://www.lifewire.com/software-and-apps-4781541) systems, so you can insert it into USB ports across multiple machines for fast use.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Plug and play**
 
@@ -95,7 +102,21 @@ Lifewire / Rebecca Isaacs
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/mM3uSf3Y2pyayDyWJzP8_5uUya4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_05-04e025144b514674b109e77f79129d74.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Precise, but mildly problematic**
 
@@ -105,6 +126,13 @@ Lifewire / Rebecca Isaacs
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/ZAK9csfHFEKVkNFSzE-Knbqabgs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_03-c6a7b875505642c69218c2c6c3449e50.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
  The buttons responded quickly and with ease as well. While the main and right buttons do click with some noise, the constant clacking won’t get on any nerves. The scroller isn’t loud, but it took us a couple rolls of the wheel before it shifted around without any resistance. This ultimately wasn’t a big deal, but it might need a little breaking in, so don’t give up on it straight away.
@@ -113,25 +141,11 @@ Lifewire / Rebecca Isaacs
 
  The cable length left something to be desired in a work PC, however. At 25 inches, it sounds like a dream come true, however, testing it on a standing desk where the PC tower is located further away from the keyboard and mouse we realized there was a problem. The length cable prevented us from shifting our grip on the mouse, and the tugging was a frustrating physical constraint. Laptop users won’t even notice the cable, but PC users may want to look for something a little more wireless.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Comfort: Too small**
 
  Because the mouse is so tiny, and barely fit into the palm of our hand, we constantly had to adjust our fingers to compensate for its size. Granted, we used the mouse for up to eight hours at a time in testing, and our muscles didn’t tire out and hands didn’t cramp, which was a testament to the ergonomic design. However, constantly having to shift our grip to press buttons and scroll was mildly annoying, especially when we were deeply engaged in work.
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/h8ibsbPtDqgJOD0XgpZSD6FOXUU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_02-1331828bbc3f460baebd85cbd24d61e2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -178,5 +192,23 @@ Lifewire / Rebecca Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-how-to-get-a-youtube-video-trending/"><u>[New] 2024 Approved How to Get a YouTube Video Trending</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-link-sharing-instagram-stories-and-posts/"><u>[New] Mastering Link Sharing Instagram Stories & Posts</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-paw-some-profits-the-paychecks-of-pewdiepie/"><u>[Updated] Paw-Some Profits The Paychecks of PewDiePie</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-angle-alchemists-guide-to-transforming-your-videos-youtube-edition/"><u>[Updated] The Angle Alchemist's Guide to Transforming Your Videos (YouTube Edition)</u></a></li>
+<li><a href="https://techtrends.techidaily.com/chatgpts-proprietors-unraveling-the-truth-behind-its-inception/"><u>ChatGPT's Proprietors - Unraveling the Truth Behind Its Inception</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/finding-the-perfect-spot-for-your-ps4-camera-an-in-depth-guide/"><u>Finding the Perfect Spot for Your PS4 Camera: An In-Depth Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fitbit-charge-3-review-still-a-good-option/"><u>Fitbit Charge 3 Review: Still A Good Option?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/garmin-venu-sq-review-your-ultimate-all-in-one-activity-tracker/"><u>Garmin Venu Sq Review: Your Ultimate All-in-One Activity Tracker</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/google-stadia-reviewed-key-aspects-requiring-developmental-progress/"><u>Google Stadia Reviewed - Key Aspects Requiring Developmental Progress</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-tecno-spark-10c-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Tecno Spark 10C FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-professionals-palette-prowess-color-command-secrets/"><u>In 2024, Professionals' Palette Prowess - Color Command Secrets</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-smooth-media-transfer-twitvideos-to-whatsapp-guide/"><u>In 2024, Smooth Media Transfer TwitVideos to WhatsApp Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-star-wars-squadrons-a-riveting-galactic-battle-experience/"><u>In-Depth Analysis of Star Wars: Squadrons - A Riveting Galactic Battle Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-samsung-galaxy-a71-5g-a-smart-pick-comparing-it-to-pricier-leading-phone-brands-in-our-in-depth-review/"><u>Is the Samsung Galaxy A71 5G a Smart Pick? Comparing It to Pricier Leading Phone Brands in Our In-Depth Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/limited-time-only-exceptional-prime-day-savings-on-new-and-refurbished-samsung-electronics/"><u>Limited Time Only: Exceptional Prime Day Savings on New & Refurbished Samsung Electronics</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/optimizing-productivity-4-strategies-with-chatgpt/"><u>Optimizing Productivity: 4 Strategies with ChatGPT</u></a></li>
+</ul></div>
 

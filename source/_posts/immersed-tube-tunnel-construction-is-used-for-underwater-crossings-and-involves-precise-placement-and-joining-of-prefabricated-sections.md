@@ -1,7 +1,7 @@
 ---
 title: Immersed Tube Tunnel Construction Is Used for Underwater Crossings and Involves Precise Placement and Joining of Prefabricated Sections
-date: 2024-09-19T18:17:40.251Z
-updated: 2024-09-20T17:39:52.024Z
+date: 2024-09-19T22:50:49.068Z
+updated: 2024-09-26T22:43:30.299Z
 categories:
   - BestProducts
 description: This Article Describes Immersed Tube Tunnel Construction Is Used for Underwater Crossings and Involves Precise Placement and Joining of Prefabricated Sections
@@ -47,9 +47,23 @@ Andy Zahn / Lifewire
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Cyberpunk 2077
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/sG6odS-sTBDQKNtpoev0kWtdSGg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cyberpunk-2077-1-d90f62b5a126437681da9916c0360527.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -102,6 +116,13 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/NwK7qVv8XDmr_i0b9XzULnmPZ9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-5-664cae2e38304560a7d6fc3ce2a84335.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
 
  The reason behind the driving issues seems to be largely an issue of perception, as they occur at high speeds, but unless you keep an eye on your speedometer it's very difficult to judge how fast you’re going. I often found myself going over a hundred, but my mind said I was traveling at half that or less. It would be better for the sake of gameplay if your wheels stuck to the asphalt a bit better, and it wouldn’t really be that unrealistic, given that it is 2077 after all; it makes sense for cars to handle better than they do in 2020.
@@ -117,10 +138,10 @@ Andy Zahn / Lifewire
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/ByBdwophc_bSfdD-P0CfbqJgbwY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-7-e6be7e2c1ae24ac3a1c5dbfd4a5b595a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
@@ -136,6 +157,19 @@ Andy Zahn / Lifewire
  It may sound as though I hated playing Cyberpunk 2077, with as much complaining as I’m doing about gameplay, but the truth is that I had a blast despite the bugs. Driving through Night City is still exciting after dozens of hours, and I’m still finding new weapons that offer new ways to approach combat.
 
  Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
+
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Customization: Lots to tinker with
 
@@ -155,6 +189,13 @@ Andy Zahn / Lifewire
 
 At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Bugs: Welcome to Glitch City
 
  At launch Cyberpunk 2077 is something of a bug-riddled mess. Even a few months and a few patches later it’s very noticeably in need of major fixes. Right out of the gate I found a collectible card that can only be picked up during the intro, but the game refused to allow me to pick it up, so I was forced to leave it sitting there forlornly, forever gnawing at the completionist streak in me.
@@ -167,21 +208,7 @@ At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/JM3cD1pX6maee1yiQYZnSgc-9pw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-4-624da4fa8225434eb59ba999a53dafd6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Andy Zahn / Lifewire
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Mature content: Pushing the boundaries
 
@@ -211,19 +238,6 @@ Andy Zahn / Lifewire
 
  An alternative worth considering if you have a robust high-speed internet connection is streaming the game on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) . This will allow you to experience the game at its best without having to invest in a two thousand dollar PC. However, it does leave your ability to play the game at the mercy of your ability to access a strong internet connection.
 
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Graphics: Ahead of its time
 
  The star of the show in Cyberpunk 2077 are the visuals, and if you have a PC with the hardware to render the game at its maximum quality while maintaining playable frame rates the world of Night City is absolutely jaw-dropping. Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
@@ -242,14 +256,14 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/o42yZx4igr8SBsJoS2Nc52n6m3U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-6-1b41a87ba1244122adf280147c09e5f1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Andy Zahn / Lifewire
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Multiplayer: Absent for the moment
 
@@ -295,5 +309,26 @@ Andy Zahn / Lifewire
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-unleash-timeliness-iphone-slow-motion-filming/"><u>[New] In 2024, Unleash Timeliness IPhone Slow Motion Filming</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-best-5-high-end-drones-for-professionals/"><u>[Updated] In 2024, Best 5 High-End Drones for Professionals</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-selecting-soundtracks-perfecting-trailers-atmosphere/"><u>[Updated] Selecting Soundtracks Perfecting Trailers' Atmosphere</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-highest-quality-pc-sound-card-picks-a-comprehensive-list/"><u>2024'S Highest Quality PC Sound Card Picks: A Comprehensive List</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-luxury-in-depth-review-of-the-tcl-50s425-50-4k-uhdtv-a-great-deal/"><u>Affordable Luxury: In-Depth Review of the TCL 50S425 50 4K UHDTV - A Great Deal</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-ac68u-wireless-router-analysis-fast-and-safe-5g-connectivity/"><u>Asus AC68U Wireless Router Analysis: Fast & Safe 5G Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cat-s4e2-resilient-phone-insights-exceptional-protection-with-limited-velocity/"><u>CAT S4e2 Resilient Phone Insights: Exceptional Protection with Limited Velocity</u></a></li>
+<li><a href="https://win-studio.techidaily.com/customizing-your-books-cover-in-flipbuilder-replace-default-icon-with-personalized-image/"><u>Customizing Your Book's Cover in FlipBuilder - Replace Default Icon with Personalized Image</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-entertainment-a-revealing-look-at-the-picture-perfection-of-the-lg-oled-c9-65-television/"><u>Elevate Your Entertainment - A Revealing Look at the Picture Perfection of the LG OLED C9 65 Television</u></a></li>
+<li><a href="https://common-error.techidaily.com/expert-tips-to-resolve-no-bootable-device-found-on-your-laptop-or-pc/"><u>Expert Tips to Resolve 'No Bootable Device Found' On Your Laptop or PC</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Vivo X Flip? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-how-to-zoom-inout-in-instagram-stories/"><u>In 2024, How to Zoom In/Out in Instagram Stories</u></a></li>
+<li><a href="https://win-forum.techidaily.com/master-registry-management-in-windows-a-complete-tutorial-on-revouninstaller-tools/"><u>Master Registry Management in Windows: A Complete Tutorial on RevoUninstaller Tools</u></a></li>
+<li><a href="https://win-able.techidaily.com/solve-fortnite-video-memory-crash-effective-fixes-and-workarounds/"><u>Solve Fortnite Video Memory Crash: Effective Fixes & Workarounds</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-selecting-the-perfect-mouse-for-your-mac-in-202/"><u>Ultimate Guide: Selecting the Perfect Mouse for Your Mac in 202</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-locations-to-find-your-perfect-new-phone/"><u>Ultimate Locations to Find Your Perfect New Phone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-the-power-of-dji-robomaster-s1-a-fun-filled-tank-drone-with-interactive-battles-and-learning-opportunities/"><u>Unleashing the Power of DJI RoboMaster S1 – A Fun-Filled Tank Drone with Interactive Battles and Learning Opportunities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-oneplus-9-pro-exquisite-style-high-speed-performance-and-cutting-edge-cameras-review/"><u>Unveiling the OnePlus 9 Pro: Exquisite Style, High Speed Performance, & Cutting-Edge Cameras Review</u></a></li>
+<li><a href="https://techidaily.com/upcoming-innovations-enhanced-typing-and-summary-features-in-your-browsers/"><u>Upcoming Innovations: Enhanced Typing & Summary Features in Your Browsers</u></a></li>
+</ul></div>
 

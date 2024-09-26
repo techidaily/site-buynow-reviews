@@ -1,7 +1,7 @@
 ---
 title: "Assessing the Lenovo 130S Notebook: Battery Limitations Counterbalanced by User-Friendly Design"
-date: 2024-09-19T17:09:34.102Z
-updated: 2024-09-20T16:04:02.410Z
+date: 2024-09-21T18:56:38.184Z
+updated: 2024-09-26T22:17:30.934Z
 categories:
   - BestProducts
 description: "This Article Describes Assessing the Lenovo 130S Notebook: Battery Limitations Counterbalanced by User-Friendly Design"
@@ -73,6 +73,13 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Vanilla**
 
  The 1byone Digital Amplified Indoor Antenna uses a flat rectangular design similar to other powered indoor antennas on the market. The 13.25 x 9.25 inch antenna surface is roughly in line with most of the other products I looked at in this category, the only real difference being that the 1byone has a much more rigid surface.
@@ -91,13 +98,6 @@ Lifewire / Jonno Hill
 
  This should be more than suitable for most people living within a city in relatively close proximity to the source of the TV signal. As for those living further, your mileage may vary.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Range: Middle of the road**
 
  1byone makes no specific promises about the range of their antenna, although they do cite users having positive experiences from as far as 48 miles away in their customer testimonials. Given how many factors impact the effective range, I think it is somewhat wise not to make any promises. Nonetheless, this is clearly a device that will be best suited for people living in or near major metropolitan areas.
@@ -106,15 +106,22 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: A great deal**
 
  The 1byone Digital Amplified Indoor Antenna costs just $25, making it the least expensive option out of the antennas I tested. It picked up all the major channels that I would actually watch, and didn’t have any issues with the signal. So from my perspective, why would I pay more? I think buyers would probably be best served by seeing if an antenna like this works for them. If you discover you need something more substantial, feel free to move on to a pricier option.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **1byone Digital Amplified Indoor HD TV Antenna vs Mohu Leaf 30 TV Antenna**
@@ -130,10 +137,16 @@ Lifewire / Jonno Hill
  The 1byone Digital Amplified Indoor Antenna offers the best value out of all the indoor antennas that we tested. If you can get the performance you need from the 1byone, it’s the antenna to buy. I wouldn’t consider other options unless you’ve already ruled out this one.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -162,5 +175,26 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-strategies-for-seamless-green-screening-in-kinemaster/"><u>[New] Expert Strategies for Seamless Green Screening in KineMaster</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-seamless-speech-to-text-translation-in-microsoft-office-suite-word/"><u>[New] Seamless Speech-to-Text Translation in Microsoft Office Suite (Word)</u></a></li>
+<li><a href="https://win-forum.techidaily.com/how-to-permanently-and-unrecoverably-delete-files-windows-10/"><u>How to Permanently and Unrecoverably Delete Files - Windows 10</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Google Pixel 8? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/insiders-take-on-overwatch-thrilling-squad-warfare-with-a-twist-of-fun/"><u>Insider's Take on Overwatch: Thrilling Squad Warfare with a Twist of FUN</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/large-studiofx-softbox-review-robust-brightness/"><u>Large StudioFX Softbox Review: Robust Brightness</u></a></li>
+<li><a href="https://facebook.techidaily.com/monitoring-means-making-more/"><u>Monitoring Means Making More</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/next-level-gaming-a-detailed-look-at-the-nintendo-switch-lite-vs-oled-comparison/"><u>Next-Level Gaming: A Detailed Look at the Nintendo Switch Lite vs OLED Comparison</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/photonest-frame-prox-top-quality-questionable-value/"><u>PhotoNest Frame ProX: Top Quality, Questionable Value</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pioneer-bdr-xs06-slot-loading-portable-blu-ray-burner-review/"><u>Pioneer BDR-XS06 Slot Loading Portable Blu-Ray Burner Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pros-and-cons-of-lg-k92-with-5g-technology-buy-or-skip/"><u>Pros and Cons of LG K92 with 5G Technology - Buy or Skip?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/protect-your-apple-device-with-these-6-superior-antivirus-apps/"><u>Protect Your Apple Device with These 6 Superior Antivirus Apps</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ps5s-lackluster-launch-title-godfall-an-uninspiring-adventure-in-vain/"><u>PS5's Lackluster Launch Title Godfall: An Uninspiring Adventure in Vain</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-active-smartwatch-review-your-ultimate-health-and-fitness-companion/"><u>Samsung Galaxy Active Smartwatch Review - Your Ultimate Health and Fitness Companion</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-tech-reviews-a-comprehensive-guide-by-toms-hardware/"><u>Tom's Tech Reviews: A Comprehensive Guide by Tom's Hardware</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-your-photos-today-with-the-nixplay-iris-advantage/"><u>Transform Your Photos Today With the Nixplay Iris Advantage</u></a></li>
+<li><a href="https://video-capture.techidaily.com/ultimate-diamond-wizard-backup-solution-analysis-with-detailed-guide-on-installation-and-new-functioning-web-address/"><u>Ultimate Diamond Wizard Backup Solution Analysis with Detailed Guide on Installation & New Functioning Web Address</u></a></li>
+</ul></div>
 

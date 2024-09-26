@@ -1,7 +1,7 @@
 ---
 title: "Mastering the Steam Deck: A List of the 2023 Gaming Essentials"
-date: 2024-09-19T17:31:22.180Z
-updated: 2024-09-20T17:20:19.463Z
+date: 2024-09-20T18:26:27.964Z
+updated: 2024-09-26T22:19:41.684Z
 categories:
   - BestProducts
 description: "This Article Describes Mastering the Steam Deck: A List of the 2023 Gaming Essentials"
@@ -43,6 +43,13 @@ Lifewire / Andy Zahn
 [View On Walmart $562](https://www.walmart.com/ip/Canon-PowerShot-SX70-HS-20-3MP-65x-Optical-Zoom-Digital-Point-Shoot-Camera/773178799?slfpid=3) [View On Adorama.com $699](https://www.adorama.com/icasx70.html) [View On B&H Photo Video $599](https://www.bhphotovideo.com/c/product/1435399-REG/canon%5F3071c001%5Fpowershot%5Fsx70%5Fhs%5Fdigital.html)
 
 4.3
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
@@ -118,6 +125,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Photo Quality: Great colors, average resolution**
 
  We love the warm, natural color tone that[Canon cameras](https://www.lifewire.com/best-new-canon-cameras-493499) produce, and the SX70 HS doesn’t disappoint. Its photos are vibrant and it captures particularly nice portraits.
@@ -135,10 +149,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Modes: Plenty to choose from (and only some are useful)**
@@ -155,6 +169,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Video Quality: A mixed bag**
 
  The SX70 HS fumbles a bit when it comes to video. It’s no slouch by any means, but the footage is nothing to brag about. You can record up to 4K resolution, but unfortunately, the camera has to crop in to record at this resolution. Also, we found that footage is never especially sharp compared to other cameras.
@@ -169,13 +190,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -185,13 +199,6 @@ Lifewire / Andy Zahn
  There is also the option to connect to a[Canon printer](https://www.lifewire.com/best-canon-printers-4584899) and print your images directly from the camera. We found these features useful but also something of a hassle, since the process of connecting devices to the camera is pretty tedious.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Big brand, big price tag**
 
@@ -216,10 +223,10 @@ Lifewire / Andy Zahn
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -260,5 +267,19 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/updated-understanding-the-metaverse-in-contrast-to-multiplemetaverse-explained-guide/"><u>[Updated] Understanding the Metaverse in Contrast to MultipleMetaverse (Explained Guide)</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/15-superior-substitutes-for-windows-movie-maker-your-guide/"><u>15 Superior Substitutes for Windows Movie Maker: Your Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assessing-motorola-edgeplus-performance-vs-premium-competitors/"><u>Assessing Motorola Edge+ Performance Vs. Premium Competitors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/beespeak-41-top-bluetooth-pick-on-a-shoestring/"><u>BeeSpeak 41: Top Bluetooth Pick on a Shoestring</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-apple-homepod-mini-evaluation-features-on-music-playback-and-siri-assistance/"><u>Comprehensive Apple HomePod Mini Evaluation: Features on Music Playback & Siri Assistance</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-installation-hp-envy-5540-drivers-and-firmware-updates/"><u>Easy Installation: HP Envy 5540 Drivers & Firmware Updates</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722543674105-in-depth-analysis-are-you-still-using-a-netgear-c3000-router-heres-why-you-should-switch/"><u>In-Depth Analysis: Are You Still Using a Netgear C3000 Router? Here's Why You Should Switch!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/kann-adobe-premiere-pro-av1-videodateien-importieren-und-exportieren/"><u>Kann Adobe Premiere Pro AV1-Videodateien Importieren Und Exportieren?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/luminous-leap-forward-three-hacks-to-shine-your-iphone-videography-for-2024/"><u>Luminous Leap Forward Three Hacks to Shine Your iPhone Videography for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-acoustic-bridge-to-captivating-trailers/"><u>The Acoustic Bridge to Captivating Trailers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/zany-and-exciting-gaming-experience-in-plants-vs-zombies-battle-for-neighborville-reviewed/"><u>Zany and Exciting Gaming Experience in 'Plants Vs. Zombies: Battle for Neighborville' Reviewed</u></a></li>
+</ul></div>
 

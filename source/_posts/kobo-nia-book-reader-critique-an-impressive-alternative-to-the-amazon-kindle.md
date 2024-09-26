@@ -1,7 +1,7 @@
 ---
 title: "Kobo Nia Book Reader Critique: An Impressive Alternative to the Amazon Kindle"
-date: 2024-09-18T18:44:06.546Z
-updated: 2024-09-20T17:34:55.135Z
+date: 2024-09-20T18:20:17.146Z
+updated: 2024-09-26T16:15:33.394Z
 categories:
   - BestProducts
 description: "This Article Describes Kobo Nia Book Reader Critique: An Impressive Alternative to the Amazon Kindle"
@@ -44,9 +44,23 @@ thumbnail: https://thmb.techidaily.com/a6fbcf7b87c69b74abd8f2d894637274c942b2c57
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -71,6 +85,13 @@ thumbnail: https://thmb.techidaily.com/a6fbcf7b87c69b74abd8f2d894637274c942b2c57
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: A lot of power packed into a small frame**
 
  The Beatit Jump Starter D11’s main unit's effectively a small black brick with red accents. Roughly the size of a small paperback book, the unit's constructed out of durable plastic and features a flashlight at one end. Along one of the long sides there's a small display that shows battery status, the on/off switch, two USB power outputs, and the device’s charging port. On the opposing side a rubber flap covers the jumper cable port; a unique port that the jumper cable accessory plugs in to.
@@ -80,13 +101,6 @@ thumbnail: https://thmb.techidaily.com/a6fbcf7b87c69b74abd8f2d894637274c942b2c57
  Time and again, the Beatit D11 was able to get a car with a very depleted battery started.
 
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: It can’t realistically be much simpler**
 
@@ -103,6 +117,13 @@ thumbnail: https://thmb.techidaily.com/a6fbcf7b87c69b74abd8f2d894637274c942b2c57
  Charging a phone with a jump starter seems like overkill, and the unit’s ability to charge at 1,200mAh confirms that impression. At such an elevated level of charging your phone or other device will likely get its battery topped off in very little time. With 18,000mAh of capacity you can fully charge a modern phone at least twice, and still leave the unit with the juice it needs in order to start a car.
 
  Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
@@ -134,13 +155,6 @@ thumbnail: https://thmb.techidaily.com/a6fbcf7b87c69b74abd8f2d894637274c942b2c57
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  800A BT-D11 Car Jump Starter
@@ -170,5 +184,22 @@ thumbnail: https://thmb.techidaily.com/a6fbcf7b87c69b74abd8f2d894637274c942b2c57
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-unlocking-potential-switch-pro-controller-on-steam-for-2024/"><u>[New] Unlocking Potential Switch Pro Controller on Steam for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unveiling-the-perfect-thumbnail-formula-for-youtube-success/"><u>[New] Unveiling The Perfect Thumbnail Formula for YouTube Success</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-enhancing-insta-videos-3-simple-border-techniques/"><u>[Updated] Enhancing Insta Videos 3 Simple Border Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-facebook-video-maker-how-to-make-facebook-video/"><u>2024 Approved Facebook Video Maker How to Make Facebook Video</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-review-on-tp-links-av1e-network-booster-expectations-vs-reality/"><u>A Comprehensive Review on TP-Link's AV1e Network Booster: Expectations vs Reality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-wireless-excellence-a-comprehensive-review-of-the-tp-link-archer-c/"><u>Affordable Wireless Excellence: A Comprehensive Review of the TP-Link Archer C#</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-watch-series-reviewed-the-impact-of-gps-and-cellular-functions-on-usage/"><u>Apple Watch Series Reviewed: The Impact of GPS and Cellular Functions on Usage</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-wifi-solution-in-depth-tp-link-archer-c9-analysis/"><u>Budget WiFi Solution: In-Depth TP-Link Archer C9 Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-premier-wrist-pads-for-computer-users/"><u>Discover the Premier Wrist Pads for Computer Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-the-perfect-beginner-friendly-tripod-on-amazonbasics/"><u>Discovering the Perfect Beginner-Friendly Tripod on AmazonBasics</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/echo-dot-gen-4-review-fresh-features-and-stylish-revamp/"><u>Echo Dot (Gen 4) Review: Fresh Features and Stylish Revamp</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-videos-from-your-google-by-fonelab-android-recover-video/"><u>How to recover old videos from your Google</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/quickly-connect-live-with-whatsapp-desktop-in-laptop-settings-for-2024/"><u>Quickly Connect Live with WhatsApp Desktop in Laptop Settings for 2024</u></a></li>
+</ul></div>
 

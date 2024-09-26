@@ -1,7 +1,7 @@
 ---
 title: "How the Asus Chromebook C202SA Stands Up for Students and Kids: An In-Depth Durability Analysis"
-date: 2024-09-14T18:54:12.596Z
-updated: 2024-09-20T16:17:49.535Z
+date: 2024-09-25T20:21:15.853Z
+updated: 2024-09-26T21:48:14.885Z
 categories:
   - BestProducts
 description: "This Article Describes How the Asus Chromebook C202SA Stands Up for Students and Kids: An In-Depth Durability Analysis"
@@ -90,19 +90,6 @@ Lifewire / Jeff Dojillo
 
  While testing the GoPro HERO7 Black we noticed that the body of the device becomes very hot when used for long periods of time. We tested it for a few hours nonstop and noticed it was still very warm even when it was not recording. This can be a big concern if the device is used for long recordings in hot temperatures.
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Display: Bright and visible**
 
  The back of the GoPro HERO7 Black has a two-inch touchscreen that is bright and easy to read. While testing the camera, we were able to navigate through the menus with the single touch of a finger, which are intuitive and easy to adjust. Simply tap to select.
@@ -126,15 +113,22 @@ Lifewire / Jeff Dojillo
  It makes your footage impressively stable even when filming handheld or while riding on rough terrain.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Lens: Great for video**
 
  The fixed lens on the GoPro HERO7 Black shoots wide or in SuperView mode, the latter of which is an extra-wide field of view and can sometimes give a kind of distorted fisheye effect to your footage. This distortion can be frustrating, but there are ways to work around it during editing, including using video editing software to correct. And when shooting at a lower resolution, the camera can shoot with a linear field of view which reduces the distortion of the lens. The SuperView is not available when shooting in a 4:3 aspect ratio.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Video Quality: Amazing 4K quality with variable frame rates**
 
@@ -150,6 +144,13 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Photo Quality: Nothing to brag about**
 
  The photo quality on the GoPro HERO7 Black is average, though it does have the ability to create HDR (High Dynamic Range) images.
@@ -157,6 +158,13 @@ Lifewire / Jeff Dojillo
  Due to the lens distortion, the images that this camera produces have a specific look that you may either love or hate. It also has a fixed lens that does not zoom, so that limits its functionality compared to typical point-and-shoot cameras.
 
  But generally speaking, the GoPro HERO7 Black is not a camera known for its stunning photographs—it is known for its stunning video capabilities. It’s not for someone that wants to use it specifically for still photographs.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Sound Quality: Sensitive to the touch**
 
@@ -176,31 +184,11 @@ Lifewire / Jeff Dojillo
 
  Inside the app, there are also options to edit mode settings, change the original set up, review camera info, changed Wi-Fi remotes, as well as monitor the battery level and[SD card](https://www.lifewire.com/how-to-format-sd-card-camera-4587017) capacity. It also makes it easier to review footage and images that the camera captures.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery Life: High-res video drains it quickly**
 
  When recording 4K video at 60 fps, the HERO7 Black’s battery only lasts about 50 minutes, so if you’re going to be shooting all day, it would be smart to have a few extra batteries available.
 
  Another option to extend shooting time would be to connect the GoPro HERO7 Black to an external battery pack via the[USB port.](https://www.lifewire.com/what-is-a-usb-port-818166)
-
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Fairly priced for what you get**
 
@@ -209,6 +197,13 @@ Lifewire / Jeff Dojillo
  Perfect for adventurers, filmmakers, and vloggers that need a rugged and compact camera to create content on the go.
 
  The portability of the GoPro HERO7 Black is perfect for adventurers, filmmakers, and vloggers that need a rugged and compact camera to create content on the go.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Less rugged, but better with still photography**
 
@@ -239,10 +234,10 @@ Lifewire / Jeff Dojillo
 * [Sony DSC-W800](https://www.lifewire.com/sony-dsc-w800-review-4589510)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -274,5 +269,23 @@ Lifewire / Jeff Dojillo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-full-examination-evaluating-the-gecata-analyzer/"><u>[New] 2024 Approved Full Examination Evaluating the Gecata Analyzer</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-champion-top-titles-best-free-video-caption-grabs/"><u>[New] Champion Top Titles Best Free Video Caption Grabs</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-optimal-routines-to-alter-track-tempoplay-in-spotify/"><u>[New] Optimal Routines to Alter Track Tempoplay in Spotify</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-guide-to-successfully-saving-your-iptv-streams-for-2024/"><u>[Updated] Guide to Successfully Saving Your IPTV Streams for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mr-beast-net-worth-overview/"><u>[Updated] Mr. Beast Net Worth Overview</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/conquer-podcast-production-with-garageband-skills/"><u>Conquer Podcast Production with GarageBand Skills</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/decoding-ai-jailbreak-do-you-need-them-for-your-gpt-experience/"><u>Decoding AI Jailbreak: Do You Need Them for Your GPT Experience?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-a-ultimate-guide-to-podcast-names/"><u>In 2024, A Ultimate Guide to Podcast Names</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-top-secret-instagram-stories-viewer-apps/"><u>In 2024, Top Secret Instagram Stories Viewer Apps</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-byb-e430-led-beam-the-premier-pivot-light-system/"><u>In-Depth Analysis: BYB E430 LED Beam - The Premier Pivot Light System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-google-nest-hub-gen-2-missing-the-feature-of-a-built-in-camera/"><u>In-Depth Look at the Google Nest Hub (Gen 2) - Missing the Feature of a Built-In Camera</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-oneplus-nord-n10-5g-essential-insights-for-smartphone-enthusiasts/"><u>In-Depth Review of OnePlus Nord N10 5G: Essential Insights for Smartphone Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/innovative-philips-somneo-alarm-clock-review-leading-the-market-with-elegance-and-functionality/"><u>Innovative Philips Somneo Alarm Clock Review: Leading the Market with Elegance and Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/intelligent-innovation-in-security-a-detailed-examination-of-the-ring-doorbell-pro/"><u>Intelligent Innovation in Security: A Detailed Examination of the Ring Doorbell Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/moto-g-play-analysis-outstanding-battery-life-and-satisfactory-functionality/"><u>Moto G Play Analysis: Outstanding Battery Life & Satisfactory Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-performance-with-asus-rog-gt-ac5300-review-a-dedicated-selection-for-gamers-and-tech-savvies/"><u>Navigating Performance with Asus ROG GT-AC5300 Review: A Dedicated Selection for Gamers & Tech Savvies</u></a></li>
+</ul></div>
 

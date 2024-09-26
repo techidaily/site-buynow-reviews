@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Analysis of the Flawed Microsoft Surface Duo Experience
-date: 2024-09-17T17:03:04.886Z
-updated: 2024-09-20T17:37:01.630Z
+date: 2024-09-23T16:15:45.439Z
+updated: 2024-09-26T23:06:33.849Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Analysis of the Flawed Microsoft Surface Duo Experience
@@ -98,6 +98,19 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/gfeGQoUwG35q5t-JwO07Ax4jm5I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-3-f4e655ec9e684a47855e9ee7373ba4b6.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 ## **Performance** :**Great components for gaming and productivity**
@@ -107,6 +120,13 @@ Lifewire / Jonno Hill
  The desktop scored an impressive 6,967 in the productivity-focused benchmarking application PCMark 10\. On the gaming front, the Omen managed a score of 10,740 in 3DMark’s Time Spy. In real-world use, this means more than 60fps at 4K in many popular titles like GTA V, but less than 60fps in others like Deus Ex: Mankind Divided. In other words, the Omen is mostly capable of 4K gameplay and is nearly always capable of 60+ fps in most common resolutions shy of 4K.
 
  The Omen comes equipped with a 1TB[NVMe SSD](https://www.lifewire.com/what-is-m2-833453) and 32GB of DDR4 2666 memory. This is definitely more RAM than games alone will call for, but it’s merely an adequate amount of RAM for some creative professionals working with more demanding software like Adobe After Effects. Keep in mind though, even those that don’t normally need a lot of RAM can still benefit from having more. Among other things, it gives you the luxury of keeping all of your browser tabs and background applications running without having to start juggling applications on and off, which can be helpful from a productivity standpoint.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Gaming** :**Great for the most demanding titles**
 
@@ -124,13 +144,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Network** :**Great speeds, but software that doesn’t do much**
 
  The HP Omen Obelisk has gigabit LAN and a Wi-Fi 5 (2x2) networking, the latter supporting a maximum speed of 866 Mbps. Everything functioned smoothly from a networking standpoint during my tests.
@@ -147,6 +160,13 @@ Lifewire / Jonno Hill
 
  The option to overclock your system has you first run a nondescript benchmark, which produces a score with no reference point (to establish a baseline). While it’s nice to have the option, this really,_sincerely_ isn’t a system you want to be overclocking. The i9-9900K CPU already runs alarmingly hot, even with its pre-installed water cooling solution. There also isn’t enough room for anything beyond a 120mm AIO watercooler, and not nearly enough clearance for a popular air heatsink like the Noctua NH-D15.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Highly competitive**
 
  The HP OMEN Obelisk with the same specs as this one can be found for around $2,000, at least when it’s in stock. Despite a lot of flaws that I can point to a nit-pick about, the price is one of the main reasons I still consider the OMEN to be a solid deal. I went through the trouble of parting out a similar build on PCPartPicker, going as far as to cut corners where I usually wouldn’t, and still arrived at just under $1800 before tax.
@@ -156,10 +176,10 @@ Lifewire / Jonno Hill
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/J3cZUfrEy-ALtFpRbDRhw7FZI8M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-4-f78d504d7bd348eca19b7e65b4d10289.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
@@ -177,10 +197,10 @@ Lifewire / Jonno Hill
  The HP OMEN Obelisk delivers fantastic value for gamers shopping for a high-performance, pre-built PC. HP has come a long way, and now offers a much more compelling solution that will appeal to a much broader set of buyers. That said, there is work to be done still, as the case suffers from poor airflow, poor thermals, and not a lot of meaningful ways to improve them.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -215,5 +235,21 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-dive-into-the-world-of-cosmetics-launching-a-beauty-channel/"><u>[New] 2024 Approved Dive Into the World of Cosmetics Launching a Beauty Channel</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-optimal-speech-recognition-the-google-methodology/"><u>[New] 2024 Approved Optimal Speech Recognition The Google Methodology</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-from-snapshots-to-videos-your-maccam-adventure/"><u>[New] From Snapshots to Videos Your MacCam Adventure</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-how-to-add-chapters-to-vimeo-video-for-2024/"><u>[New] How to Add Chapters to Vimeo Video for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-unlocking-the-power-of-visuals-zooms-filter-guide/"><u>[Updated] Unlocking the Power of Visuals Zoom's Filter Guide</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/hevc-codec-converter-ottimo-software-di-conversione-h265-per-windows-10-and-mac/"><u>HEVC Codec Converter - Ottimo Software Di Conversione H.265 Per Windows 10 & Mac</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/jabra-steel-review-one-of-the-toughest-bluetooth-headsets-you-can-buy/"><u>Jabra Steel Review: One of The Toughest Bluetooth Headsets You Can Buy</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-pc-sound-card-reviews-the-definitive-list-of-2024-models/"><u>Leading PC Sound Card Reviews - The Definitive List of 2024 Models</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovo-ideapad-flex-5-yoga-a940-comprehensive-evaluation/"><u>Lenovo IdeaPad Flex 5 (Yoga A940) - Comprehensive Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/microsoft-surface-laptop-4-evaluation-top-notch-performance-unveiled/"><u>Microsoft Surface Laptop 4 Evaluation: Top-Notch Performance Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-audio-innovation-with-siri-an-extensive-review-of-apples-compact-homepod-mini/"><u>Navigating Audio Innovation with Siri – An Extensive Review of Apple’s Compact HomePod Mini</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/the-economical-path-to-enhanced-speeds-in-depth-look-at-the-raspberry-pis-ms2-hatplus/"><u>The Economical Path to Enhanced Speeds: In-Depth Look at the Raspberry Pi's M.S2 HAT+</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-potential-with-the-newest-technology-review-of-apples-improved-ipados-on-the-102-inch-screen/"><u>Unlocking Potential with The Newest Technology: Review of Apple's Improved IPadOS on the 10.2 Inch Screen.</u></a></li>
+</ul></div>
 
