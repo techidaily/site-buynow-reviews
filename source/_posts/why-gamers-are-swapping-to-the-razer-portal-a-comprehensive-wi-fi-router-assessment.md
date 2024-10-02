@@ -1,7 +1,7 @@
 ---
 title: Why Gamers Are Swapping to the Razer Portal - A Comprehensive Wi-Fi Router Assessment
-date: 2024-09-24T18:08:14.686Z
-updated: 2024-09-26T16:19:00.736Z
+date: 2024-09-30T20:27:12.908Z
+updated: 2024-10-01T20:25:07.518Z
 categories:
   - BestProducts
 description: This Article Describes Why Gamers Are Swapping to the Razer Portal - A Comprehensive Wi-Fi Router Assessment
@@ -42,23 +42,9 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -81,13 +67,6 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -99,6 +78,13 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup: Easier than most**
 
@@ -116,7 +102,21 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: Could be better**
 
@@ -126,13 +126,6 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
@@ -140,6 +133,13 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -182,24 +182,22 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-warriors-way-selecting-superior-hand-to-hand-titles/"><u>[New] 2024 Approved Warrior's Way Selecting Superior Hand-to-Hand Titles</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-proven-techniques-for-swiftly-locating-your-desired-discord-server-for-2024/"><u>[New] Proven Techniques for Swiftly Locating Your Desired Discord Server for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-capture-every-click-essential-screen-recorders-for-modern-browsers/"><u>2024 Approved Capture Every Click Essential Screen Recorders for Modern Browsers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/driving-smart-with-sound-the-economical-truckers-wireless-earpiece-guide/"><u>Driving Smart with Sound: The Economical Truckers' Wireless Earpiece Guide</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/how-to-reactivate-and-resolve-issues-with-windows-spotlight-on-windows-11-computers/"><u>How to Reactivate and Resolve Issues with Windows Spotlight on Windows 11 Computers</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-itel-s23plus-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Itel S23+ to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-top-30-budget-friendly-after-effects-templates/"><u>In 2024, Top 30 Budget-Friendly After Effects Templates</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-x-plane-11-review-a-cutting-edge-global-flight-experience-with-stunning-graphics/"><u>In-Depth X-Plane 11 Review: A Cutting-Edge Global Flight Experience with Stunning Graphics</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/j5-tactical-v1-pro-flashlight-assessment-unbeatable-durability-and-miniature-design/"><u>J5 Tactical V1-Pro Flashlight Assessment: Unbeatable Durability & Miniature Design</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/marvels-avengers-critique-striving-for-greatness-with-some-shortcomings/"><u>Marvel's Avengers Critique: Striving for Greatness with Some Shortcomings</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-skies-with-dji-mavic-2-pro-the-elite-choice-amongst-professionals/"><u>Mastering Skies with DJI Mavic 2 Pro - The Elite Choice Amongst Professionals</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-unleash-your-creativity-top-highlight-video-editors-for-desktop-and-mobile-devices/"><u>New Unleash Your Creativity Top Highlight Video Editors for Desktop and Mobile Devices</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-honor-90-gt-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Honor 90 GT Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/saving-strategies-securing-your-mov-on-windows-pcs-for-2024/"><u>Saving Strategies Securing Your .mov On Windows PCs for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stand-strong-and-steady-an-in-depth-evaluation-of-the-ergohead-anti-fatigue-mat-for-extended-use/"><u>Stand Strong and Steady: An In-Depth Evaluation of the Ergohead Anti-Fatigue Mat for Extended Use</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tech-meets-fashion-discovering-the-best-smart-glasses-trends-for-202-cuffs/"><u>Tech Meets Fashion: Discovering the Best Smart Glasses Trends for 202 Cuffs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-top-contender-in-ultrabooks-a-close-up-review-of-microsoft-surface-laptop-4/"><u>The Top Contender in Ultrabooks: A Close-Up Review of Microsoft Surface Laptop 4</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-verdict-on-lgs-basic-budget-49-inch-4k-um730aster-tv-performance-test-and-value-insights/"><u>The Ultimate Verdict on LG's Basic Budget 49-Inch 4K UM730aster TV - Performance Test & Value Insights</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-final-cut-pro-on-a-budget-get-90-days-of-free-access-now/"><u>Updated 2024 Approved Final Cut Pro on a Budget Get 90 Days of Free Access Now</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-elite-commanders-showdown-the-pinnacle-total-war-clashes-for-2024/"><u>[New] Elite Commanders' Showdown The Pinnacle Total War Clashes for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-videographys-bright-side-5-must-have-apps/"><u>[New] Videography's Bright Side 5 Must-Have Apps</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-a-comprehensive-tutorial-for-using-movie-maker-on-windows-8-os/"><u>[Updated] A Comprehensive Tutorial for Using Movie Maker on Windows 8 OS</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-pureaiediting-refined-photo-craftsmanship/"><u>2024 Approved PureAiEditing Refined Photo Craftsmanship</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/avoiding-the-ignored-making-your-video-a-staff-pick-on-vimeo-for-2024/"><u>Avoiding the Ignored Making Your Video a Staff Pick on Vimeo for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-upgrading-manual-for-intel-based-imac-systems/"><u>Comprehensive Upgrading Manual for Intel-Based iMac Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-enhanced-realities-in-wasteland-2-directors-cut-revolutionary-turn-based-rpg/"><u>Discover the Enhanced Realities in Wasteland 2 Directors Cut: Revolutionary Turn-Based RPG</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-picks-best-wireless-pointing-devices-for-the-year-2024/"><u>Expert Picks: Best Wireless Pointing Devices for the Year 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-oppo-a78-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Oppo A78 Phone that is Locked?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/huawei-p30-pro-review/"><u>Huawei P30 Pro Review</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-lock-apps-on-vivo-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Vivo to Protect Your Individual Information</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-your-play-the-philips-evonia-a-giant-leap-in-49-inch-gaming-monitors/"><u>Maximize Your Play: The Philips Evonia - A Giant Leap in 49-Inch Gaming Monitors!</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/perfect-your-story-a-roundup-of-best-editing-apps/"><u>Perfect Your Story A Roundup of Best Editing Apps</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/singing-made-simple-discover-the-best-features-of-the-singing-machine-sml385btbk-karaoke-setup/"><u>Singing Made Simple - Discover the Best Features of the Singing Machine SML385BTBK Karaoke Setup</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-insight-into-editing-magic-a-thorough-review-of-anthropics-smart-photo-editor/"><u>Ultimate Insight Into Editing Magic: A Thorough Review of Anthropics' Smart Photo Editor</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-ranking-xbox-one-elite-series-2-controller-a-gaming-classic/"><u>Ultimate Ranking: Xbox One Elite Series 2 Controller - A Gaming Classic</u></a></li>
 </ul></div>
 

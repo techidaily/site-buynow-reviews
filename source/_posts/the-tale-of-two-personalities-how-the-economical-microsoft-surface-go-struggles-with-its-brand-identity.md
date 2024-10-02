@@ -1,7 +1,7 @@
 ---
 title: "The Tale of Two Personalities: How the Economical Microsoft Surface Go Struggles with Its Brand Identity"
-date: 2024-09-20T18:31:03.173Z
-updated: 2024-09-26T18:00:04.089Z
+date: 2024-09-25T22:08:16.194Z
+updated: 2024-10-01T21:27:12.038Z
 categories:
   - BestProducts
 description: "This Article Describes The Tale of Two Personalities: How the Economical Microsoft Surface Go Struggles with Its Brand Identity"
@@ -66,13 +66,6 @@ thumbnail: https://thmb.techidaily.com/6125c16091ce0e7f3e660bdf2f814f5a9cf410dde
 
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -82,13 +75,20 @@ thumbnail: https://thmb.techidaily.com/6125c16091ce0e7f3e660bdf2f814f5a9cf410dde
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Humans have never been so annoying**
 
@@ -123,10 +123,10 @@ thumbnail: https://thmb.techidaily.com/6125c16091ce0e7f3e660bdf2f814f5a9cf410dde
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Decent for what you get**
@@ -150,10 +150,10 @@ thumbnail: https://thmb.techidaily.com/6125c16091ce0e7f3e660bdf2f814f5a9cf410dde
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -183,22 +183,14 @@ thumbnail: https://thmb.techidaily.com/6125c16091ce0e7f3e660bdf2f814f5a9cf410dde
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-achieving-virality-youtube-promotion-no-cost-involved/"><u>[New] In 2024, Achieving Virality YouTube Promotion No Cost Involved</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-enhancing-engagement-with-dynamic-360-videos-on-facebook/"><u>[Updated] Enhancing Engagement with Dynamic 360 Videos on Facebook</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-2023s-best-rated-ps3-virtual-players-for-pc/"><u>[Updated] In 2024, 2023'S Best-Rated PS3 Virtual Players for PC</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-survivors-guide-top-6-mc-house-plans-for-2024/"><u>[Updated] Survivor's Guide Top 6 MC House Plans for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-premier-slow-mo-video-and-photography-apps-iosandroid-devices/"><u>2024 Approved Premier Slow Mo Video & Photography Apps iOS/Android Devices</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-simplifying-content-acquisition-via-funimate/"><u>2024 Approved Simplifying Content Acquisition via Funimate</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-google-maps-app-on-ios-devices/"><u>Comprehensive Evaluation of Google Maps App on iOS Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-power-of-lightzone-professional-grade-photo-editing-on-all-platforms/"><u>Discover the Power of LightZone: Professional-Grade Photo Editing on All Platforms.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-the-asus-ac68u-wi-fi-router-speed-and-security-for-connected-homes/"><u>Expert Analysis: The Asus AC68U Wi-Fi Router, Speed and Security for Connected Homes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-sony-cat-s42-rugged-phone-balancing-protection-and-performance/"><u>Exploring the Sony CAT S42 Rugged Phone: Balancing Protection and Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/future-proof-your-home-network-with-these-premium-asus-routers/"><u>Future-Proof Your Home Network with These Premium ASUS Routers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximizing-tech-savings-with-the-impressive-features-of-the-acer-aspire-e-15-review/"><u>Maximizing Tech Savings with the Impressive Features of the Acer Aspire E 15 Review</u></a></li>
-<li><a href="https://driver-error.techidaily.com/remedying-the-failure-of-enex-driver-integration-in-win11/"><u>Remedying the Failure of eNEX Driver Integration in Win11</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/strategize-expand-rule-the-universe-insights-from-the-ultimate-stellaris-game-guide/"><u>Strategize, Expand, Rule the Universe: Insights From the Ultimate Stellaris Game Guide</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-complete-guide-to-structuring-effective-audio-xml/"><u>The Complete Guide to Structuring Effective Audio XML</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/transform-your-home-networking-game-with-the-amplifi-hd-wireless-mesh-solution-zero-dead-zones/"><u>Transform Your Home Networking Game with the Amplifi HD Wireless Mesh Solution – Zero Dead Zones</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/what-you-want-to-know-about-two-factor-authentication-for-icloud-from-your-apple-iphone-13-by-drfone-ios/"><u>What You Want To Know About Two-Factor Authentication for iCloud From your Apple iPhone 13</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/dopt-the-best-practices-of-live-streaming-with-google-meet-youtube/"><u>[New] Adopt the Best Practices of Live Streaming with Google Meet Youtube</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-innovative-design-source-best-affordable-vectors-online/"><u>[New] Innovative Design Source – Best Affordable Vectors Online</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-tp-link-archer-c50-analysis-great-performance-at-low-prices/"><u>Budget Friendly TP-Link Archer C50 Analysis: Great Performance at Low Prices</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-fix-when-monster-hunter-rise-wont-boot-step-by-step-guide/"><u>How To Fix When Monster Hunter Rise Won't Boot: Step-By-Step Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-asus-rog-rapture-gt-ax11000-review-unleashing-top-gaming-performance-and-lightning-fast-connectivity/"><u>In-Depth Asus ROG Rapture GT-AX11000 Review – Unleashing Top Gaming Performance and Lightning-Fast Connectivity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mastering-mobile-alter-picture-size-on-iphone-easefully/"><u>Mastering Mobile Alter Picture Size on iPhone Easefully</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stanleys-large-jaw-crusher-j5c09-an-in-depth-review-for-heavy-duty-rock-breaking/"><u>Stanley's Large Jaw Crusher J5C09: An In-Depth Review for Heavy Duty Rock Breaking</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/troubleshooting-error-224003-in-media-files/"><u>Troubleshooting Error 224003 in Media Files</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-dbpower-600a-peak-charger-with-18000mah-capacity-unbiased-review/"><u>Ultimate Guide: DBPower 600A Peak Charger with 18,000mAh Capacity - Unbiased Review</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Edit Like a Pro: In-Depth Tips for Using Apple's Hidden Image Editor, Preview"
-date: 2024-09-24T19:00:04.075Z
-updated: 2024-09-26T21:13:27.039Z
+date: 2024-09-29T01:54:58.265Z
+updated: 2024-10-01T17:54:44.471Z
 categories:
   - BestProducts
 description: "This Article Describes Edit Like a Pro: In-Depth Tips for Using Apple's Hidden Image Editor, Preview"
@@ -73,6 +73,13 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Beautiful, with room for improvements**
 
  It shouldn’t come as a surprise that the Apple iMac 21.5-inch 4K is a[beautiful machine](https://www.lifewire.com/best-desktop-pcs-4045927) from top to bottom. Before even turning it on, the design of the computer a striking, aluminum-clad body that’s still subtle enough that it will blend in with nearly any office or home environment.
@@ -88,13 +95,20 @@ Lifewire / Gannon Burgett
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/gM_JxuZjDbSUs7DYtXIwUIqqz0Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-3-d30c5f8414e94cbd9b1ec8aea9b18950.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: One plug and you’re good to go**
 
@@ -116,14 +130,14 @@ Lifewire / Gannon Burgett
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/IKZ75jBAosAG3M1Py_-E0ElYAfM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-5-a705ea67b88b4cf694c53e4715a9aceb-f57b3be92a934d8ab579d90728e23fe8.jpg)
 
-Lifewire / Gannon Burgett
-
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Lifewire / Gannon Burgett
 
 ## **Performance: Impressive performance from an all-in-one**
 
@@ -147,34 +161,13 @@ Lifewire / Gannon Burgett
 
  In our hardwired tests, the iMac maxed out our Gigabit fiber optic internet no problem, with steady download and upload speeds. Wireless connectivity was equally impressive, regardless of whether the iMac was in the same room as the router or a few rooms over. We didn’t notice any drops throughout our tests and both uploading and downloading content was consistent.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Camera: Decent built-in option for basic tasks**
 
  The only camera on the 4K iMac is the integrated webcam, which sits dead center above the display. We would’ve liked to see a 1080p or even 4K webcam included, but the 720p resolution is good enough for basic video messaging.
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/rFu0_k9BjbUxQdoEYOcNGU35LJA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-2-a3d2f38b9509480ba41bbb5b33815d1a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Gannon Burgett
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Everything you need and nothing more**
 
@@ -184,18 +177,18 @@ Lifewire / Gannon Burgett
 
  Unlike Windows, macOS doesn’t come with any bloatware either. There’s a number of pre-installed apps developed by Apple, including four new ones borrowed from Apple’s mobile operating system, iOS, but most of the pre-installed apps are the standard array of programs you’d expect to see on any modern computer.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: The Apple tax is real**
 
  The 21.5-inch 4K iMac we tested with the aforementioned specifications retails for $1,499\. Compared to other Windows PCs with similar specifications, the iMac is without pricey for the specs it offers. However, this is par for the course with Apple, so much so that the term “Apple tax” has become a commonly-used phrase. What you’re paying for is the entire package, wrapped up in one of the best-looking frames out there.
 
  Could you build a PC with better specs for far less money? Absolutely. But it won’t be running macOS and it certainly won’t be as slim and streamlined as the iMac. If you’re invested in the Apple ecosystem and don’t need to shell out for the more expensive 27-inch 5K iMac, the 21.5-inch 4K iMac is priced much more reasonably and still has plenty to offer.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: A unique option in a small market**
 
@@ -220,6 +213,19 @@ Lifewire / Gannon Burgett
 * [Microsoft Surface Studio 2](https://www.lifewire.com/microsoft-surface-studio-2-review-4689102)
 * [Alienware Aurora R7](https://www.lifewire.com/alienware-aurora-r7-review-4689097)
 * [Lenovo ThinkCentre M720 Tower](https://www.lifewire.com/lenovo-thinkcentre-m720-tower-review-4776238)
+
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -252,24 +258,15 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-how-to-create-metaverse-avatar-easily-an-ultimate-guide/"><u>[New] In 2024, How to Create Metaverse Avatar Easily An Ultimate Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-peculiar-picasso-creating-quirky-quick-memes/"><u>[New] Peculiar Picasso Creating Quirky, Quick Memes</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solved-windows-10-wont-shut-down-restarts-instead/"><u>[Solved] Windows 10 Won’t Shut Down, Restarts Instead</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-unleash-creativity-with-these-top-10-instagram-reel-apps/"><u>[Updated] In 2024, Unleash Creativity with These Top 10 Instagram Reel Apps</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-lg-um7300-a-beginners-49-4k-flat-screen-review/"><u>Comprehensive Guide to the LG UM7300 - A Beginner's 49 4K Flat Screen Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-samsung-galaxy-tab-s7-the-ideal-choice-for-android-enthusiasts/"><u>Comprehensive Review of the Samsung Galaxy Tab S7 - The Ideal Choice for Android Enthusiasts</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/diy-reviving-corrupt-videos/"><u>DIY: Reviving Corrupt Videos</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fidos-window-happiness-through-pet-monitoring/"><u>Fido's Window: Happiness Through Pet Monitoring</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/hp-pagewide-pro-477dw-driver-installation-files-for-windows-11-and-earlier-versions/"><u>HP PAGEWIDE Pro 477DW Driver Installation Files for Windows 11 and Earlier Versions</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-samsung-galaxy-z-fold-5-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Samsung Galaxy Z Fold 5 FRP</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/kid-friendly-durability-tested-in-depth-review-of-the-asus-chromebook-c202sa/"><u>Kid-Friendly Durability Tested: In-Depth Review of the Asus Chromebook C202SA</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leveraging-buyselladscom-a-strategy-guide-to-efficient-blogging-monetization/"><u>Leveraging BuySellAds.com: A Strategy Guide to Efficient Blogging Monetization</u></a></li>
-<li><a href="https://windows11.techidaily.com/leveraging-the-benefits-of-windows-11s-auto-hdr/"><u>Leveraging the Benefits of Windows 11'S Auto HDR</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/master-the-art-of-fast-internet-sharing-using-d-links-powerline-technology-your-step-by-step-guide/"><u>Master the Art of Fast Internet Sharing Using D-Link's Powerline Technology - Your Step by Step Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-the-samsung-galaxy-note20-ultra-5g-an-authoritative-product-review-and-comparison/"><u>Mastering the Samsung Galaxy Note20 Ultra 5G: An Authoritative Product Review and Comparison</u></a></li>
-<li><a href="https://win-answers.techidaily.com/overcoming-steams-content-blockage-solutions-for-the-locked-error-message/"><u>Overcoming Steam's Content Blockage: Solutions for the 'Locked' Error Message</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-vivo-x100-pro-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Vivo X100 Pro Device Top 5 Picks to Remove Android Locks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-tier-mobile-experience-with-the-samsung-galaxy-s21-ultra-review-of-androids-elite-device/"><u>Top-Tier Mobile Experience with the Samsung Galaxy S21 Ultra: Review of Android's Elite Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-differences-between-samsungs-flagship-phones-s10plus-versus-s20/"><u>Unveiling the Differences Between Samsung's Flagship Phones: S10+ versus S20</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-is-your-facebook-video-more-engaging-in-a-vertical-format/"><u>2024 Approved Is Your Facebook Video More Engaging in a Vertical Format?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/analyzing-the-promises-vs-performance-of-the-feature-heavy-midland-lxt500vp3-transceiver-range/"><u>Analyzing the Promises Vs. Performance of the Feature-Heavy Midland LXT500VP3 Transceiver Range</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/detailed-analysis-of-garmin-vivosmart-4-smartwatch-focusing-on-energy-monitoring-and-stress-indicators/"><u>Detailed Analysis of Garmin Vivosmart 4 Smartwatch: Focusing on Energy Monitoring & Stress Indicators</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-durability-and-design-with-the-x-chair-x4-an-authoritative-review-of-its-office-worth/"><u>Discovering Durability and Design with the X-Chair X4 - An Authoritative Review of Its Office Worth</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-enjoy-immersive-apple-3d-videos-in-meta-quest-3-virtual-reality-tips-and-tricks-zdnet/"><u>How to Enjoy Immersive Apple 3D Videos in Meta Quest 3 Virtual Reality - Tips & Tricks | ZDNET</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 8? | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-mastering-school-without-edgenuity-videos/"><u>In 2024, Mastering School Without Edgenuity Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-priority-tools-critical-6-fb-lite-downloads/"><u>In 2024, Priority Tools Critical 6 FB Lite Downloads</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-acer-predator-triton-300-se-a-mini-laptop-with-major-gaming-benefits-at-a-great-deal/"><u>Unveiling the Acer Predator Triton 300 SE: A Mini Laptop with Major Gaming Benefits at a Great Deal</u></a></li>
 </ul></div>
 

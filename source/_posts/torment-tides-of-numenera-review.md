@@ -1,7 +1,7 @@
 ---
 title: "Torment: Tides of Numenera Review"
-date: 2024-09-18T18:11:14.012Z
-updated: 2024-09-20T18:14:39.163Z
+date: 2024-09-27T21:49:08.832Z
+updated: 2024-10-01T20:02:03.659Z
 categories:
   - BestProducts
 description: "This Article Describes Torment: Tides of Numenera Review"
@@ -41,6 +41,13 @@ Lifewire / Kelsey Simon
 
 2.7
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
@@ -77,11 +84,25 @@ Lifewire / Kelsey Simon
 
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Gameplay: Dialogue prompts and effort**
 
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -97,13 +118,6 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -112,14 +126,20 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Price: Only worth it if you’re keen on the story**
 
@@ -140,13 +160,6 @@ Lifewire / Kelsey Simon
  **A text-heavy RPG that doesn’t live up to its predecessor.**
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -169,5 +182,24 @@ Lifewire / Kelsey Simon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-optimal-4-strategies-to-fix-faded-iphone-hdr-in-editing/"><u>[New] 2024 Approved [Optimal] 4 Strategies to Fix Faded iPhone HDR in Editing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-critical-review-of-samsungs-digital-photography-advancements/"><u>[New] Critical Review of Samsung's Digital Photography Advancements</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-mastering-live-game-replays-with-fraps/"><u>[Updated] In 2024, Mastering Live Game Replays with Fraps</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-blending-binaries-digital-photographic-techniques/"><u>2024 Approved Blending Binaries Digital Photographic Techniques</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/a-beginners-guide-to-file-transfer-using-curl-on-linux-terminal/"><u>A Beginner's Guide to File Transfer Using cURL on Linux Terminal</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/crafting-your-story-together-the-role-of-chatgpt-in-book-authorship/"><u>Crafting Your Story Together: The Role of ChatGPT in Book Authorship</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-must-watch-shows-on-leading-streaming-services-tailored-for-anime-lovers/"><u>Discover Must-Watch Shows on Leading Streaming Services Tailored for Anime Lovers</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>Dose Life360 Notify Me When Someone Checks My Location On Apple iPhone XS Max? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-playtime-with-top-tier-titles-a-guide-to-locating-superior-games-in-a-sea-of-choices/"><u>Elevate Your Playtime with Top-Tier Titles: A Guide to Locating Superior Games in a Sea of Choices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expanded-device-support-youtubes-consistent-audio-levels-now-arriving/"><u>Expanded Device Support: YouTube's Consistent Audio Levels Now Arriving</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fixing-and-preventing-drifting-issues-on-your-nintendo-switchs-joy-con-controls/"><u>Fixing and Preventing Drifting Issues on Your Nintendo Switch's Joy-Con Controls</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-dota-2-crashes-ultimate-troubleshooting-guide/"><u>Fixing Dota 2 Crashes: Ultimate Troubleshooting Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/get-ready-for-another-surge-in-spotify-subscription-costs/"><u>Get Ready for Another Surge in Spotify Subscription Costs.</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Infinix Hot 40 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/my-journey-away-from-recurring-gaming-memberships-why-you-should-too/"><u>My Journey Away From Recurring Gaming Memberships - Why You Should Too</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/protecting-your-privacy-a-guide-to-preventing-surveillance-by-popular-brands-like-lg-samsung-sony-and-vizio/"><u>Protecting Your Privacy: A Guide to Preventing Surveillance by Popular Brands Like LG, Samsung, Sony & Vizio</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of Microsoft Surface Duo: Costly Yet Faulty Performance"
-date: 2024-09-18T16:37:12.836Z
-updated: 2024-09-20T18:06:51.309Z
+date: 2024-09-28T21:17:43.639Z
+updated: 2024-10-01T22:08:00.157Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis of Microsoft Surface Duo: Costly Yet Faulty Performance"
@@ -46,9 +46,23 @@ Lifewire / Emily Isaacs
 
 4.4
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -76,6 +90,19 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  One unique feature of the Sculpt we loved was the function switch. Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key. Options include refreshing the active page, navigating to the home page in web, opening up the computer’s settings, a play/pause button, switching between active windows, and increasing or decreasing volume.
@@ -90,23 +117,9 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
@@ -115,6 +128,13 @@ Lifewire / Emily Isaacs
  Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design make this keyboard a surefire winner.
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Great for the features**
 
@@ -148,13 +168,6 @@ Lifewire / Emily Isaacs
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  Sculpt Ergonomic Keyboard
@@ -183,5 +196,22 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-harness-the-power-of-video-editing-cropping-to-perfect-instagram-posts-for-2024/"><u>[New] Harness the Power of Video Editing Cropping to Perfect Instagram Posts for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/hat-are-youtube-tags-and-how-can-you-find-great-tags-for-your-videos-for-2024/"><u>[New] What Are YouTube Tags and How Can You Find Great Tags For Your Videos for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-breaking-into-the-tiktok-livestream-realm/"><u>[Updated] Breaking Into the TikTok Livestream Realm</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/anker-usb-30-superspeed-hub-review-all-the-power-you-need/"><u>Anker USB 3.0 SuperSpeed Hub Review: All The Power You Need</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/benchmarking-excellence-the-201e-apple-ipad-pro-11-unveiled-and-reviewed-as-the-pinnacle-tablet-device/"><u>Benchmarking Excellence: The 201E Apple iPad Pro 11 Unveiled and Reviewed as the Pinnacle Tablet Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-elgoog-overview-the-definitive-guide-to-the-ultimate-mirror-website/"><u>Comprehensive ElgooG Overview: The Definitive Guide to The Ultimate Mirror Website</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/from-peter-parker-to-miles-morales-the-transformative-power-of-marvels-latest-spidey-game/"><u>From Peter Parker to Miles Morales: The Transformative Power of Marvel's Latest Spidey Game</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Tecno Spark 20 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-smoothly-integrate-linktree-into-your-tiktok-bio-space/"><u>In 2024, How to Smoothly Integrate Linktree Into Your TikTok Bio Space</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/leading-2023s-iphone-selection-a-comprehensive-guide/"><u>Leading 2023'S iPhone Selection: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-internet-speeds-in-depth-review-of-the-netgear-nighthawk-x10-router-with-ad72n-wireless-technology/"><u>Maximizing Internet Speeds: In-Depth Review of the Netgear Nighthawk X10 Router with AD72n Wireless Technology</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-the-ultimate-guide-to-making-reaction-videos-on-your-phone-for-2024/"><u>New The Ultimate Guide to Making Reaction Videos on Your Phone for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/syncopated-soundscapes-logic-pros-fading-artistry/"><u>Syncopated Soundscapes - Logic Pro's Fading Artistry</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-extollo-lansocket-1500-high-velocity-communication-with-negligible-lag/"><u>Unboxing the Extollo LANSocket 1500: High Velocity Communication with Negligible Lag</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-nest-audios-superiority-in-smart-speaker-market-a-must-have-for-connoisseurs-of-sound/"><u>Unveiling Nest Audio's Superiority in Smart Speaker Market - A Must-Have for Connoisseurs of Sound</u></a></li>
+</ul></div>
 

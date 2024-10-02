@@ -1,7 +1,7 @@
 ---
 title: "RadPower RadCity 5 Plus Evaluation: Strong Performance with Weight Considerations"
-date: 2024-09-20T19:03:28.002Z
-updated: 2024-09-26T16:00:15.071Z
+date: 2024-09-29T16:08:30.648Z
+updated: 2024-10-01T17:41:22.670Z
 categories:
   - BestProducts
 description: "This Article Describes RadPower RadCity 5 Plus Evaluation: Strong Performance with Weight Considerations"
@@ -45,16 +45,16 @@ Lifewire / Yoona Wagener
 
 4.6
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Samsung Galaxy Watch Active2
 
 ![Samsung Galaxy Watch Active2](https://www.lifewire.com/thmb/pQyytjsyngWSMZ0b1hCE3_tAtsA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_GalaxyWatchActive2_HeroSquare-8ec2b040552f4e82b569c140246d3e1f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -81,6 +81,13 @@ Lifewire / Yoona Wagener
 
  Other exciting enhancements revolve around advanced health and fitness features that compete with Apple and Fitbit models. Wellness enthusiasts and runners will enjoy the new VO2 max feature, running analysis, and ECG monitoring support, and all users can claim peace of mind with fall detection. Though iOS users with an iPhone 5 and newer will find compatibility, it’s more limited than Android or Galaxy users.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Sleek and user-friendly
 
  The Samsung Galaxy Watch Active2 is streamlined, sporty, and simple to navigate. It comes with a vibrant SUPER AMOLED 360x360 1.2-inch display that’s easy to view in all different lighting conditions with adjustable brightness levels, the ability to use an upward wrist gesture or tap to wake, and the option of an always-on display.
@@ -95,13 +102,6 @@ Lifewire / Yoona Wagener
 
  The swipe-down quick access menu comes with even more useful features for activating the most relevant settings based on the situation. These helpful aids include shortcuts for enabling night mode to inactivate the screen and any notices while you’re sleeping and freezing the screen from interferences in the pool by turning on the water lock button. I experienced strong feedback and responsiveness with every tap or menu navigation, never feeling as if I’d lost my place or that the watch failed to register my inputs.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What’s New: New sizing, connectivity, and fitness tracking in the Active2
 
  While the general appearance and feature set hasn’t changed dramatically, the Active2 presents some clear differences over the original[Samsung Galaxy Watch Active](https://www.lifewire.com/samsung-galaxy-watch-active-review-4766873) . The Active2 increases the display by 0.1 inches or 0.3 inches in the new larger case size that appeals to more wrist sizes.
@@ -114,13 +114,6 @@ Lifewire / Yoona Wagener
 
  The Active2 also offers more effortless connectivity by remembering text history and offering the ease of quick replies, including[Bitmoji](https://www.lifewire.com/bitmoji-explained-4137793) and canned responses right from the watch. It also doubles down on fitness and wellness tech by improving running analysis and offering ECG monitoring and fall detection. These features put it in direct company with the[Apple Watch](https://www.lifewire.com/apple-watch-basics-4121197) and Fitbit and Garmin smartwatches that dial up the fitness and wellness focus.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Comfort: Ideal for all-day wear
 
  The Active2 offers a comfortable fluoroelastomer rubber band that flexes and repels sweat and moisture with ease, though it does catch lint easily. The device is safe to take in the pool for laps or leisurely soaks, thanks to a 5ATM waterproof rating. The water lock feature was foolproof and easy to turn off and on at will. You can also trust the Gorilla Glass DX+ glass and MIL-STD-810G durability rating to make routine wear and care a breeze.
@@ -129,16 +122,16 @@ Lifewire / Yoona Wagener
 
 ![Samsung Galaxy Watch Active2](https://www.lifewire.com/thmb/IL7xAj-uHT_sJJ1J34PbgpVSibk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_GalaxyWatchActive2_05-08f63a3d72d745ee95763d2bfbdccfbc.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
  Though it has a sporty edge, the band is replaceable for a more formal style, and the color options add personality that rivals models from brands such as Apple, Fitbit, and Garmin. Take color coordination further by adding your favorite shades using the My style watch face. Even if you stick with basic black, the Active2 provides a strong case for 24/7 wear as a smartwatch that blends in nicely for daily wear.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Performance: A much-improved fitness tracker
 
@@ -155,13 +148,6 @@ Lifewire / Yoona Wagener
  A device called Active2 should have the chops to track exercise and wellness, and this watch delivers even better than the original Active.
 
  The Active2 performed with flying colors outside of running, automatically detecting walking and cycling workouts, tracking sleep cycles, and encouraging movement throughout the day. I got a kick out of the friendly animated figures that popped up if I hadn’t moved within the hour, suggesting I take a walk or stretch—and offering a pat on the back when I started and stayed moving.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Battery: Not an overachiever but consistent
 
@@ -187,6 +173,13 @@ Lifewire / Yoona Wagener
 
  Samsung Health for Android also provides access to those new advanced metrics such as VO2 max and running performance analysis along with much more detailed graphs that correspond with all the health data the Active2 captures in the background, such as heart rate, sleep, and stress levels. If you have an iPhone, you’ll get the basics but miss out on all of these advanced perks, unfortunately.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: Right in the sweet spot
 
  The Samsung Galaxy Watch Active2 starts at $250 for the Bluetooth model or $270 for the LTE version. These price points still slot this watch below the top-tier models that ask a premium of well over $400\. Even with the standard Bluetooth and Wi-Fi connected Active2, you’ll find a lineup of apps and tools that cover most smartwatch needs. From automatic fitness tracking and some advanced health metrics to call and text response and music storage, this small and capable wearable is multi-talented and priced reasonably for its abilities.
@@ -208,16 +201,16 @@ Lifewire / Yoona Wagener
  The Samsung Galaxy Watch Active2 performs true to its name as a wearable that helps promote and match an active lifestyle with a slim and durable build, advanced running metrics, ECG monitoring, and a generous suite of apps and connected features. The full customization available on Android and Samsung Galaxy smartphones, in particular, makes the Active2 a compelling smartwatch choice for non-iOS users.
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -225,6 +218,19 @@ Lifewire / Yoona Wagener
 * [Apple Watch SE](https://www.lifewire.com/apple-watch-se-review-5088223)
 * [Garmin Vivomove HR](https://www.lifewire.com/garmin-vivomove-hr-review-4843913)
 * [Mobvoi TicWatch Pro 4G LTE](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
+
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -258,24 +264,22 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-vlog-production-top-8-mirrorless-cameras-ranked/"><u>[New] In 2024, Mastering Vlog Production Top 8 Mirrorless Cameras Ranked</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-ranked-worlds-best-anime-opening-music/"><u>[New] Ranked World's Best Anime Opening Music</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-innovative-approaches-to-social-media-video-making-for-2024/"><u>[Updated] Innovative Approaches to Social Media Video Making for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-ringtone-recorder-the-2024iphone-solution/"><u>[Updated] Ringtone Recorder - The 2024iPhone Solution</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-the-ultimate-compilation-top-vr-games-on-google-cardboard/"><u>[Updated] The Ultimate Compilation Top VR Games on Google Cardboard</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-cutting-edge-tech-mastering-dslr-macpc-for-social-media-broadcasts/"><u>2024 Approved Cutting Edge Tech Mastering DSLR, Mac/PC for Social Media Broadcasts</u></a></li>
-<li><a href="https://extra-information.techidaily.com/action-cameras-for-waterproof-recording-1-7/"><u>Action Cameras for Waterproof Recording #1-7</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-practices-for-mounting-and-using-a-webcam-with-your-playstation-4-console/"><u>Best Practices for Mounting and Using a Webcam with Your PlayStation 4 Console</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-stunning-and-lightweight-lenovo-ideapad/"><u>Comprehensive Analysis of the Stunning and Lightweight Lenovo IdeaPad</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dissecting-bose-qc30s-pros-and-cons/"><u>Dissecting Bose QC30's Pros & Cons</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/essential-advice-on-selecting-the-best-location-for-your-ps4-camera/"><u>Essential Advice on Selecting the Best Location for Your PS4 Camera</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-overview-on-asus-zenwifi-xt8-ax6-6600-review-elevating-mesh-network-performance-at-home/"><u>Expert Overview on ASUS ZenWiFi XT8 AX6 6600 Review: Elevating Mesh Network Performance at Home</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/get-up-close-with-the-new-lenovo-nook-9-inch-tablet-device/"><u>Get Up Close With the New Lenovo Nook 9-Inch Tablet Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/iphone-update-strategy-identifying-the-right-time-to-jump/"><u>IPhone Update Strategy: Identifying the Right Time to Jump</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/kootek-laptop-fan-device-assessment-an-outstanding-all-inclusive-cooling-accessory-choice/"><u>Kootek Laptop Fan Device Assessment: An Outstanding All-Inclusive Cooling Accessory Choice</u></a></li>
-<li><a href="https://techtrends.techidaily.com/resolve-steamdll-error-quickly-and-easily/"><u>Resolve 'Steam.dll' Error Quickly and Easily</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sensible-spending-on-pet-cameras/"><u>Sensible Spending on Pet Cameras</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/the-evolution-of-performance-exploring-the-top-notch-features-and-capabilities-of-2020s-apple-macbook-air-with-m1-processor/"><u>The Evolution of Performance: Exploring The Top-Notch Features and Capabilities of 2020'S Apple MacBook Air with M1 Processor</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/top-10-password-cracking-tools-for-xiaomi-redmi-a2-by-drfone-android/"><u>Top 10 Password Cracking Tools For Xiaomi Redmi A2</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/69518351-new-2024-approved-feast-your-eyes-on-9-whole-film-winter-wonders-no-charge/"><u>[New] 2024 Approved Feast Your Eyes on 9 Whole-Film Winter Wonders No Charge!</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-dynamic-content-presentation-via-fb-slideshows/"><u>[New] In 2024, Dynamic Content Presentation via FB Slideshows</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-innovative-tools-for-image-deformation/"><u>[New] Innovative Tools for Image Deformation</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-videopie-interpretation-platform-for-2024/"><u>[New] VideoPie Interpretation Platform for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-talecraft-triumphs-the-leading-academies-in-narrative-arts/"><u>2024 Approved Talecraft Triumphs The Leading Academies in Narrative Arts</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/avi-movavi-mp4-avi/"><u>網路直接無成本 AVI格式轉移 - 使用Movavi MP4-AVI過渡</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-iphones-and-samsungs-selecting-the-perfect-phone-for-you/"><u>Evaluating iPhones and Samsungs: Selecting the Perfect Phone for You</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/evolution-of-gaming-logging-beyond-fbx-limits/"><u>Evolution of Gaming Logging Beyond FBX Limits</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-dark-side-an-insightful-review-into-barnes-and-nobles-nook-glowlight-3-the-e-reader-for-dim-ambiance-devotees/"><u>Exploring the Dark Side: An Insightful Review Into Barnes & Noble's Nook GlowLight 3 – The E-Reader for Dim Ambiance Devotees.</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-your-latest-msi-bluetooth-driver-for-seamless-windows-11-and-10-experience/"><u>Get Your Latest MSI Bluetooth Driver for Seamless Windows 11 and 10 Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/heft-and-speed-an-in-depth-review-of-netgears-1200-mbps-powerline-networking/"><u>Heft and Speed: An In-Depth Review of Netgear's 1200 Mbps Powerline Networking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-rayman-legends-stellar-2d-gaming-fun-for-all-ages/"><u>In-Depth Look at Rayman Legends - Stellar 2D Gaming Fun for All Ages</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-dreame-bot-l10-pro-your-next-advanced-mopping-and-vacuuming-companion/"><u>In-Depth Look at the Dreame Bot L10 Pro – Your Next Advanced Mopping and Vacuuming Companion</u></a></li>
+<li><a href="https://video-capture.techidaily.com/premium-solutions-for-remote-team-interaction/"><u>Premium Solutions for Remote Team Interaction</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-essential-guide-to-buying-the-best-budget-philips-hf3520-alarm-clock/"><u>The Essential Guide to Buying the Best Budget Philips HF3520 Alarm Clock</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-verdict-on-amazon-luna-a-pleasant-surprise-in-streamed-gameplay-smoothness/"><u>The Verdict on Amazon Luna: A Pleasant Surprise in Streamed Gameplay Smoothness</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unplug-your-music-the-ultimate-review-of-ion-audio-tailgater-plus-for-non-stop-high-bass-enjoyment/"><u>Unplug Your Music: The Ultimate Review of Ion Audio Tailgater Plus for Non-Stop, High-Bass Enjoyment</u></a></li>
 </ul></div>
 

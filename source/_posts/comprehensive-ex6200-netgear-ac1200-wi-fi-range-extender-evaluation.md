@@ -1,7 +1,7 @@
 ---
 title: Comprehensive EX6200 Netgear AC1200 Wi-Fi Range Extender Evaluation
-date: 2024-09-23T16:55:13.034Z
-updated: 2024-09-26T18:27:59.252Z
+date: 2024-09-27T19:21:52.695Z
+updated: 2024-10-01T20:29:00.690Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive EX6200 Netgear AC1200 Wi-Fi Range Extender Evaluation
@@ -43,28 +43,15 @@ Lifewire / Kelsey Simon
 4.2
 
 <!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Dying Light
 
 ![Dying Light](https://www.lifewire.com/thmb/YWkGikwP23JK119N4M7J22dAPJY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -89,27 +76,20 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Setup Process: Straight into the action**
 
  The first time you launch the game you'll be treated to an artistic video over the background of a news report. It explains the situation in Harran, the city where the game takes place. The game proper starts with a cut scene that shows you on a plane, about to parachute out. There’s no character creation here, although once you get a little further into the game, you’ll be able to pick your clothes.
 
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -143,13 +123,6 @@ Harran is a whole different city at night.
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Graphics: Attention to detail**
 
  The graphics of Dying Light compare well to other triple-A titles, though it feels like the developers took more care with the scenery than the characters. Human models look a little plasticky, but the world around you is textured beautifully and rich with small details like posters and graffiti that help make the world around you feel real.
@@ -158,7 +131,21 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Worth the cost, especially with a friend**
 
@@ -175,6 +162,13 @@ Harran is a whole different city at night.
 **An original in the zombie survival genre.**
 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -197,22 +191,20 @@ Harran is a whole different city at night.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/updated-free-video-intro-templates-you-need-to-download/"><u>[Updated] Free Video Intro Templates You Need to Download</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-ideal-online-journey-discovering-custom-ringtones/"><u>2024 Approved Ideal Online Journey Discovering Custom Ringtones</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-budget-wifi-router-of-2021-tp-link-archer-c80-comprehensive-review-and-assessment/"><u>Best Budget WiFi Router of 2021 - TP-Link Archer C80 Comprehensive Review and Assessment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dissecting-the-necessity-and-impact-of-applecare-plus-extended-plan/"><u>Dissecting the Necessity and Impact of AppleCare Plus Extended Plan</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-microsoft-surface-studio-2-is-it-worth-the-investment/"><u>Expert Analysis of the Microsoft Surface Studio 2: Is It Worth the Investment?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/high-definition-video-refiner-for-pcmacos-for-2024/"><u>High Definition Video Refiner for PC/MacOS for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-oppo-reno-9a-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Oppo Reno 9A Devices | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-vivo-y200e-5g-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Vivo Y200e 5G Phone</u></a></li>
-<li><a href="https://techidaily.com/repair-video-tool-repair-all-your-damaged-video-files-of-infinix-note-30-vip-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>Repair Video Tool - Repair all your damaged video files of Infinix Note 30 VIP on Mac</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-authoritative-periscope-users-bible-for-2024/"><u>The Authoritative Periscope User's Bible for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-insiders-guide-to-dynamic-and-engaging-tiktok-edits-for-2024/"><u>The Insider's Guide to Dynamic and Engaging TikTok Edits for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-of-internet-safety-gadgets-router-parental-controls-in-2e24/"><u>Ultimate Selection of Internet Safety Gadgets: Router Parental Controls in 2E24</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-best-bang-for-your-buck-the-tcl-50s425-50-4k-tv-reviewed/"><u>Unveiling the Best Bang for Your Buck: The TCL 50S425 50 4K TV Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-most-impressive-iphone-yet-a-closer-look-at-the-iphone-12/"><u>Unveiling the Most Impressive iPhone Yet - A Closer Look at the iPhone 12</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/what-you-ought-to-consider-before-purchasing-a-smart-tv/"><u>What You Ought to Consider Before Purchasing a Smart TV</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/winegard-fl5500a-flatwave-antenna-analysis-good-quality-steep-cost/"><u>Winegard FL5500A FlatWave Antenna Analysis: Good Quality, Steep Cost</u></a></li>
-<li><a href="https://techtrends.techidaily.com/xbox-one-display-woes-heres-how-you-can-fix-the-notorious-no-signal-error/"><u>Xbox One Display Woes? Here’s How You Can Fix the Notorious 'No Signal' Error!</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-what-does-instantaneous-video-removal-mean-for-user-privacy/"><u>[New] In 2024, What Does Instantaneous Video Removal Mean for User Privacy?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-experience-the-new-unleash-a-set-of-50-designs-for-free/"><u>[Updated] In 2024, Experience the New Unleash a Set of 50 Designs for Free</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-unveiling-facebooks-secrets-30-insider-tricks-for-growth/"><u>[Updated] In 2024, Unveiling Facebook's Secrets 30 Insider Tricks for Growth</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-understanding-youtubes-view-threshold-for-money/"><u>[Updated] Understanding Youtube’s View Threshold for Money</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-visionedit-pro/"><u>[Updated] VisionEdit Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-ipad-air-4-vs-samsung-galaxy-tab-s7plus-the-uncompromising-duel-between-leading-tablets/"><u>Apple iPad Air 4 Vs. Samsung Galaxy Tab S7+: The Uncompromising Duel Between Leading Tablets</u></a></li>
+<li><a href="https://win-able.techidaily.com/experience-the-excitement-with-cod-modern-warfares-newest-fps-release/"><u>Experience the Excitement with Cod: Modern Warfare's Newest FPS Release!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-hunting-exotic-beasts-in-monster-hunter-world-a-comprehensive-guide/"><u>In-Depth Analysis of Hunting Exotic Beasts in Monster Hunter: World - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-stylish-and-practical-blueear-wireless-earphone-cap-balancing-aesthetics-and-sound-clarity/"><u>In-Depth Analysis of the Stylish and Practical Blueear Wireless Earphone Cap: Balancing Aesthetics and Sound Clarity</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/macxdvd-heroic-promotion-initiative/"><u>MacXDVD Heroic Promotion Initiative</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-your-workflow-with-the-high-performing-owc-mercury-pro-hard-drive-review/"><u>Maximizing Your Workflow with the High-Performing OWC Mercury Pro Hard Drive Review</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-solutions-for-repairing-wi-fi-connection-failures-on-a-surface-pro/"><u>Step-by-Step Solutions for Repairing Wi-Fi Connection Failures on a Surface Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-wifi-solution-expert-review-of-eero-pro-mesh-router-and-its-whole-home-coverage-capabilities/"><u>The Ultimate WiFi Solution: Expert Review of Eero Pro Mesh Router and Its Whole Home Coverage Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-simplicity-and-strength-with-the-hp-stream-11-laptop/"><u>Unveiling Simplicity and Strength with the HP Stream 11 Laptop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-apple-m4-chip-features-release-timeline-and-tech-insights/"><u>Unveiling the Apple M4 Chip: Features, Release Timeline & Tech Insights</u></a></li>
 </ul></div>
 

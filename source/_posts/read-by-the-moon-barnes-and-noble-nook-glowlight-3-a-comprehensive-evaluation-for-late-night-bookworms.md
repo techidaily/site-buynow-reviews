@@ -1,7 +1,7 @@
 ---
 title: "Read by the Moon: Barnes & Noble Nook GlowLight 3 - A Comprehensive Evaluation for Late-Night Bookworms"
-date: 2024-09-23T22:26:26.609Z
-updated: 2024-09-26T21:45:41.902Z
+date: 2024-09-25T20:38:27.195Z
+updated: 2024-10-02T00:23:28.490Z
 categories:
   - BestProducts
 description: "This Article Describes Read by the Moon: Barnes & Noble Nook GlowLight 3 - A Comprehensive Evaluation for Late-Night Bookworms"
@@ -46,22 +46,15 @@ Lifewire / Andrew Hayward
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## LG Gram 15.6-inch (2018)
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/R_aYhYLFGT6--hIRDTNUJTlIVn8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_hero-Square-f2b4744360d644a1b93b7541af7eb182.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -119,15 +112,22 @@ Lifewire / Andrew Hayward
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Just follow the directions**
 
  There's little reason to worry about getting the LG Gram 15.6-inch laptop up and running quickly. It has Windows 10 pre-installed, so you'll simply follow the onscreen prompts to enter your Wi-Fi info, check for updates, select a few options, and ultimately find yourself ready to roll on the desktop. It shouldn't take more than a handful of minutes.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Display: Large and capable enough**
 
@@ -140,20 +140,13 @@ Lifewire / Andrew Hayward
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/TFbt9G36hk5JyrBL8cIdIuYQ66E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Keyboard_03-fd7e355ac5944f12a8107746d0afbf24.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Solid power for everyday tasks**
 
@@ -181,13 +174,6 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery: Seriously amazing**
 
  The battery is undoubtedly one of the key highlights of the LG Gram 15.6-inch (2018) experience. This massive 72Wh cell is estimated to provide upwards of 19 hours of uptime, according to LG—but as is usually the case with[laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) , that estimate isn't reflective of typical use cases. Even so, with max brightness, the fact that we could get about half that amount still makes for a long-lasting experience.
@@ -210,6 +196,13 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/5yzhAkphyYfWOMofqawuktHJlA0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-v.-Surface-comparison-4946178bf2e94230820d2b19d2fb7197.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 ## **LG Gram 15.6-inch (2018) vs. Microsoft Surface Laptop 2: Better than Microsoft's own?**
@@ -225,6 +218,13 @@ Lifewire / Andrew Hayward
 **Well-built for productivity.**
 
  There are better all-around ultraportable laptops in this price range, and we had some issues with the feeling of the build, the keyboard layout, and the merely good display quality. However, if you're in the market for an incredibly light laptop with a big screen and a battery that lasts and lasts, it's hard to ignore the LG Gram 15.6-inch (2018). You get a very capable computer for the price, and it's a notebook that can legitimately last through a full workday even at max brightness.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -258,14 +258,22 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-optimal-aspect-ratios-for-video-content-creation/"><u>[Updated] 2024 Approved Optimal Aspect Ratios for Video Content Creation</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-animators-companion-expertly-reviewed-3d-modeling-software/"><u>[Updated] 2024 Approved The Animator's Companion Expertly Reviewed 3D Modeling Software</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-beginners-blueprint-for-speedy-video-on-snapchat-for-2024/"><u>[Updated] Beginner’s Blueprint for Speedy Video on Snapchat for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-ultimate-free-up-space-superior-cloud-pickers-list/"><u>2024 Approved Ultimate Free Up Space Superior Cloud Pickers' List</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/boost-your-wifi-signal-strength-with-the-netgear-ex3700-ac750-range-extender-reviews-and-insights/"><u>Boost Your WiFi Signal Strength with the Netgear EX3700 AC750 Range Extender - Reviews & Insights</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/fixing-wows-catastrophic-glitch-in-windows-11/"><u>Fixing WoW’s Catastrophic Glitch in Windows 11</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/selecting-the-best-speakers-5-critical-questions/"><u>Selecting the Best Speakers: 5 Critical Questions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-showdown-pros-and-cons-of-iphone-versus-samsung-phones/"><u>The Ultimate Showdown: Pros and Cons of iPhone Versus Samsung Phones</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/what-users-are-saying-about-viber-out-review-summary/"><u>What Users Are Saying About Viber Out – Review Summary</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-step-by-step-guide-to-edges-pip-functionality/"><u>[New] Step-by-Step Guide to Edge’s PIP Functionality</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-cross-social-smiles-top-meme-picks-on-reddit-and-twitter-for-2024/"><u>[Updated] Cross-Social Smiles Top Meme Picks on Reddit & Twitter for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-poco-f5-pro-5g-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/boosted-performance-fixing-fps-and-optimizing-pc-gaming-in-valorant/"><u>Boosted Performance: Fixing FPS and Optimizing PC Gaming in Valorant</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/capture-life-simply-with-canons-sx530-compact/"><u>Capture Life Simply with Canon's SX530 Compact</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-fongo-assessment-canadian-voip-solutions-evaluated/"><u>Comprehensive Fongo Assessment: Canadian VOIP Solutions Evaluated</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discover-unique-and-functional-quirky-usb-charging-devices/"><u>Discover Unique and Functional Quirky USB Charging Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-price-quality-relationship-in-apples-earbuds/"><u>Exploring the Price-Quality Relationship in Apple's Earbuds</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-4-things-you-must-know-about-iphone-13-mini-activation-lock-by-drfone-ios/"><u>In 2024, 4 Things You Must Know About iPhone 13 mini Activation Lock</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-efficient-techniques-for-obtaining-ios-audio-files/"><u>In 2024, Efficient Techniques for Obtaining iOS Audio Files</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/in-depth-guide-addressing-and-solving-frame-rate-drop-in-nioh-n-game/"><u>In-Depth Guide: Addressing and Solving Frame Rate Drop in Nioh N Game</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-home-theater-computers-the-2024-roundup/"><u>Leading Home Theater Computers: The 2024 Roundup</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/razer-portal-deep-dive-is-it-the-perfect-wireless-companion-for-serious-gamers/"><u>Razer Portal Deep Dive: Is It the Perfect Wireless Companion for Serious Gamers?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-contemporary-elegance-of-taotronics-tt-dl16-a-comprehensive-review-of-its-stylish-design-and-performance/"><u>The Contemporary Elegance of TaoTronics TT-DL16: A Comprehensive Review of Its Stylish Design and Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-elite-collection-of-2024s-finest-audio-devices/"><u>The Elite Collection of 2024'S Finest Audio Devices</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-top-10-most-accessible-costless-lut-tools-unveiled/"><u>The Top 10 Most Accessible, Costless LUT Tools Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tp-link-wifi-booster-re305-examined-a-comprehensive-user-guide/"><u>TP-Link WiFi Booster RE305 Examined: A Comprehensive User Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unlocking Value with Mohu Leaf #30 Antenna - Top Performer in Budget-Friendly Reviews
-date: 2024-09-25T17:31:05.578Z
-updated: 2024-09-26T22:38:04.814Z
+date: 2024-09-28T22:39:33.350Z
+updated: 2024-10-01T22:34:35.858Z
 categories:
   - BestProducts
 description: This Article Describes Unlocking Value with Mohu Leaf #30 Antenna - Top Performer in Budget-Friendly Reviews
@@ -42,6 +42,19 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
@@ -75,13 +88,6 @@ Lifewire / Erika Rawes
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: Relatively easy**
 
  Setting up the antenna is pretty straightforward. You start by plugging one end of the coaxial cable into the antenna, and then the other end to the coaxial/antenna-in connector to your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) .
@@ -100,19 +106,26 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: 35 miles**
@@ -129,21 +142,7 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
@@ -154,6 +153,13 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -186,20 +192,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-enhance-your-music-library-top-6-free-ios-apps-for-audio-conversion/"><u>[Updated] 2024 Approved Enhance Your Music Library Top 6 Free iOS Apps for Audio Conversion</u></a></li>
-<li><a href="https://games-able.techidaily.com/2024s-ddr5-master-cards-ranked/"><u>2024'S DDR5 Master Cards Ranked</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/asus-rog-rapture-gt-ax1n000-reviewed-revolutionary-gaming-speeds-and-innovative-functions-explored/"><u>Asus ROG Rapture GT-AX1n000 Reviewed – Revolutionary Gaming Speeds and Innovative Functions Explored</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-garmin-forerunner-265-smartwatch/"><u>Comprehensive Analysis of the Garmin Forerunner 265 Smartwatch</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-lenovo-thinkpad-x12-detachable-best-for-hybrid-use-and-unmatched-keys/"><u>Comprehensive Review of the Lenovo ThinkPad X12 Detachable: Best for Hybrid Use & Unmatched Keys</u></a></li>
-<li><a href="https://win-dash.techidaily.com/corsair-k70-gamepad-and-keyboard-software-installation-guide/"><u>Corsair K70 Gamepad and Keyboard Software Installation Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-next-level-viewing-with-the-sony-xbr4ebr49x900f-a-thorough-appraisal-of-its-4k-uhd-technology-and-intelligent-interface/"><u>Experience Next-Level Viewing with the Sony XBR4ebr49X900F - A Thorough Appraisal of Its 4K UHD Technology and Intelligent Interface</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-insight-on-arlo-video-doorbells-combining-video-surveillance-with-immediate-alarms-for-smarter-safety/"><u>Expert Insight on Arlo Video Doorbells - Combining Video Surveillance with Immediate Alarms for Smarter Safety</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-picks-6-best-iphone-virus-scanners-and-defenders-on-the-market/"><u>Expert Picks: 6 Best iPhone Virus Scanners and Defenders on the Market</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-x50-gt-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Honor X50 GT Phone without Any Data Loss</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Oppo A78? | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-rhythmic-resonance-incor-written-by-assistant/"><u>In 2024, Rhythmic Resonance Incor Written by Assistant</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-itel-p40-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Itel P40 Phone FRP Lock</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-ranking-game-systems-a-look-at-the-ultimate-players/"><u>Top-Ranking Game Systems: A Look at the Ultimate Players</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-governments-target-mega-corporations-in-the-digital-age/"><u>Why Governments Target Mega-Corporations in the Digital Age</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-unveiling-premium-displays-the-ultimate-guide-for-xbox-s-series-x/"><u>[Updated] Unveiling Premium Displays The Ultimate Guide for Xbox S Series X</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-deep-dive-into-the-world-of-w15a-photo-frames-features-and-faults/"><u>A Deep-Dive Into the World of W15A Photo Frames - Features & Faults</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722872798411-amazon-prime-day-decoded-must-know-details-for-the-upcoming-shopping-extravaganza-of-233/"><u>Amazon Prime Day Decoded: Must-Know Details for the Upcoming Shopping Extravaganza of 2^3^3^!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bloodborne-game-analysis-exploring-a-hauntingly-beautiful-realm/"><u>Bloodborne Game Analysis: Exploring a Hauntingly Beautiful Realm</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/complete-guide-to-ring-alarm-pro-in-depth-review-and-comparison/"><u>Complete Guide to Ring Alarm Pro: In-Depth Review & Comparison</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-how-the-amazonbasics-cross-cut-shredder-measures-up-a-review-for-savvy-shoppers/"><u>Discover How the AmazonBasics Cross-Cut Shredder Measures Up - A Review for Savvy Shoppers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dji-phantom-4-pro-v-20-review-a-few-feet-from-perfection/"><u>DJI Phantom 4 Pro V. 2.0 Review: A Few Feet From Perfection</u></a></li>
+<li><a href="https://driver-download.techidaily.com/effortless-setup-for-thrustmaster-t150-drivers-get-downloads-now/"><u>Effortless Setup for Thrustmaster T150 Drivers - Get Downloads Now!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/essential-tips-for-domestic-ev-charging-infrastructure/"><u>Essential Tips for Domestic EV Charging Infrastructure</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-tango-the-ultimate-communication-tool-with-complimentary-multimedia-chats/"><u>Explore Tango: The Ultimate Communication Tool with Complimentary Multimedia Chats</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-document-your-playthroughs-with-easy-ps4-image-captures/"><u>How to Document Your Playthroughs with Easy PS4 Image Captures</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Gionee F3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-budget-friendly-samsung-galaxy-s1eboxing-power-in-a-smaller-package/"><u>In-Depth Analysis of the Budget-Friendly Samsung Galaxy S1eboxing Power in a Smaller Package</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instagram-story-audiences-the-untold-details/"><u>Instagram Story Audiences The Untold Details</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/oculus-quest-2s-elite-strap-a-game-changer-with-integrated-battery-and-robust-travel-case-review-insights/"><u>Oculus Quest 2'S Elite Strap: A Game-Changer with Integrated Battery and Robust Travel Case Review Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/resolve-fifa-20-pc-malfunctions-with-this-comprehensive-tutorial/"><u>Resolve FIFA 20 PC Malfunctions with This Comprehensive Tutorial</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-the-mophie-ac-powerstation-balancing-cost-with-convenience-in-mobile-charging-technology/"><u>Review: The Mophie AC Powerstation – Balancing Cost with Convenience in Mobile Charging Technology</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tshtml5movavi-web/"><u>TS動画ファイルをワンクリックでHTML5に自動変換！Movavi Webメーカー</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-vivo-y100i-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Vivo Y100i? Here Is the Answer | Dr.fone</u></a></li>
 </ul></div>
 

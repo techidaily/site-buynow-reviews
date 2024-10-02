@@ -1,7 +1,7 @@
 ---
 title: Master Class Review of the Xbox One Elite Series II Controller - Why It Reigns Supreme
-date: 2024-09-13T16:27:38.942Z
-updated: 2024-09-20T18:20:38.530Z
+date: 2024-09-24T21:05:52.072Z
+updated: 2024-10-01T19:48:18.067Z
 categories:
   - BestProducts
 description: This Article Describes Master Class Review of the Xbox One Elite Series II Controller - Why It Reigns Supreme
@@ -75,10 +75,10 @@ Lifewire / Jonno Hill
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup: Simple and easy**
@@ -89,16 +89,16 @@ Lifewire / Jonno Hill
 
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Above average**
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: Fair to middling**
 
@@ -107,10 +107,10 @@ Lifewire / Jonno Hill
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
@@ -118,6 +118,13 @@ Lifewire / Jonno Hill
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
@@ -154,5 +161,20 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-joke-journey-begins-for-free-our-meme-toolset/"><u>[Updated] 2024 Approved Joke Journey Begins for Free - Our Meme Toolset</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-prolonging-snapstreak-excellence-top-10-advice/"><u>[Updated] 2024 Approved Prolonging Snapstreak Excellence Top 10 Advice</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-compreeved-guide-to-creating-stellar-youtube-outros/"><u>[Updated] In 2024, Compreeved Guide to Creating Stellar YouTube Outros</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-dividedimage-synopsis/"><u>[Updated] In 2024, DividedImage Synopsis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/delving-into-darkness-a-critical-look-at-bloodbornes-world/"><u>Delving Into Darkness: A Critical Look at Bloodborne's World</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-gaming-in-360-degrees-with-pro-x/"><u>Experience Gaming in 360 Degrees with Pro X</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/finding-value-in-design-unpacking-the-similarities-between-ipad-air-and-ipad-pro-models/"><u>Finding Value in Design: Unpacking the Similarities Between iPad Air and iPad Pro Models</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-make-your-windows-10-faster-work-100/"><u>How to Make Your Windows 10 Faster [Work 100%]</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-integrate-advanced-note-organization-on-mematic/"><u>In 2024, Integrate Advanced Note Organization on Mematic</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/innovative-gallery-wall-carving-out-your-moments-in-frames/"><u>Innovative Gallery Wall: Carving Out Your Moments in Frames</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranked-virtual-programming-classes/"><u>Top-Ranked Virtual Programming Classes</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-shader-errors-overcome-black-ops-cold-war-game-freezes/"><u>Troubleshooting Shader Errors - Overcome Black Ops Cold War Game Freezes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unraveling-the-strength-of-beatits-bt-d11-charger-wonderbox-in-a-thorough-review/"><u>Unraveling the Strength of Beatit's BT-D11 Charger Wonderbox in a Thorough Review</u></a></li>
+</ul></div>
 

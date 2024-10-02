@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Evaluation: The Lenovo Yoga A940 Laptop"
-date: 2024-09-20T20:26:47.739Z
-updated: 2024-09-26T18:05:23.756Z
+date: 2024-09-30T19:55:44.651Z
+updated: 2024-10-01T19:12:02.359Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Evaluation: The Lenovo Yoga A940 Laptop"
@@ -45,13 +45,6 @@ Lifewire / Jeff Dojillo
 
 4.3
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## GoPro HERO7 Black
 
 ![GoPro HERO7 Black](https://www.lifewire.com/thmb/GYZOA14ZRWOM3tJzi8ZbmTTASe8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4158963-1-2553e26bad2246dea19f86f8fb2c3714.jpg)
@@ -87,6 +80,13 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Classic action camera design**
 
  The GoPro HERO7 Black measures in at 2.4 x 1.3 x 1.8 inches, so it’s super compact and almost a cube. The device is all black with a very nice rubber casing around the unit that makes it feel soft to the touch.
@@ -96,13 +96,6 @@ Lifewire / Jeff Dojillo
  All these doors protect the camera’s ports from the elements and give it a tough outer shell that’s rugged enough to survive rough falls and submersion in up to 33 feet of water. The HERO7 Black is a great travel camera that can be taken on exotic trips where water adventures and rough terrain are a part of your itinerary.
 
  While testing the GoPro HERO7 Black we noticed that the body of the device becomes very hot when used for long periods of time. We tested it for a few hours nonstop and noticed it was still very warm even when it was not recording. This can be a big concern if the device is used for long recordings in hot temperatures.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Display: Bright and visible**
 
@@ -117,13 +110,6 @@ Lifewire / Jeff Dojillo
  The HERO7 Black has both Wi-Fi and Bluetooth compatibility, which makes it easy to pair with a smartphone that has the GoPro App downloaded. We were able to make the camera discoverable in the Preferences menu, and then the app could automatically scan and connect to the camera when it was opened.
 
  Lifewire / Jeff Dojillo
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Sensor: Small but mighty**
 
@@ -151,6 +137,13 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Photo Quality: Nothing to brag about**
 
  The photo quality on the GoPro HERO7 Black is average, though it does have the ability to create HDR (High Dynamic Range) images.
@@ -158,6 +151,13 @@ Lifewire / Jeff Dojillo
  Due to the lens distortion, the images that this camera produces have a specific look that you may either love or hate. It also has a fixed lens that does not zoom, so that limits its functionality compared to typical point-and-shoot cameras.
 
  But generally speaking, the GoPro HERO7 Black is not a camera known for its stunning photographs—it is known for its stunning video capabilities. It’s not for someone that wants to use it specifically for still photographs.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Sound Quality: Sensitive to the touch**
 
@@ -172,10 +172,10 @@ Lifewire / Jeff Dojillo
  Lifewire / Jeff Dojillo
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: Speedy Wi-Fi and Bluetooth pairing**
@@ -191,10 +191,10 @@ Lifewire / Jeff Dojillo
  Another option to extend shooting time would be to connect the GoPro HERO7 Black to an external battery pack via the[USB port.](https://www.lifewire.com/what-is-a-usb-port-818166)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Fairly priced for what you get**
@@ -206,10 +206,10 @@ Lifewire / Jeff Dojillo
  The portability of the GoPro HERO7 Black is perfect for adventurers, filmmakers, and vloggers that need a rugged and compact camera to create content on the go.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Less rugged, but better with still photography**
@@ -271,19 +271,15 @@ Lifewire / Jeff Dojillo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/updated-iconic-meme-blueprints-of-the-year-for-2024/"><u>[Updated] Iconic Meme Blueprints of the Year for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-dazzling-design-discovering-three-instagram-highlight-hacks/"><u>[Updated] In 2024, Dazzling Design Discovering Three Instagram Highlight Hacks</u></a></li>
-<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-poco-x5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Poco X5 Pro | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-as-a-creative-writing-tool-explore-six-tactics-to-improve-your-craft/"><u>ChatGPT as a Creative Writing Tool: Explore Six Tactics to Improve Your Craft</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-garmin-forerunner-e945-the-ultimate-gps-companion-for-fitness-enthusiasts/"><u>Expert Review: Garmin Forerunner E945 – The Ultimate GPS Companion for Fitness Enthusiasts</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/harnessing-external-light-for-cozy-interior-spaces/"><u>Harnessing External Light for Cozy Interior Spaces</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/high-quality-video-assets-download-storyblocks-professional-library/"><u>High-Quality Video Assets Download – Storyblocks’ Professional Library</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximizing-budget-with-the-75-inch-caixun-4k-smart-tv-a-full-review/"><u>Maximizing Budget with the 75-Inch Caixun 4K Smart TV - A Full Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/pros-and-cons-the-ultimate-guide-to-the-garmin-forerunner-marathon-gps-watch/"><u>Pros and Cons: The Ultimate Guide to the Garmin Forerunner Marathon GPS Watch</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/step-by-step-tutorial-for-installing-blinks-outdoor-4-cameras-with-light-features/"><u>Step-by-Step Tutorial for Installing Blink's Outdoor 4 Cameras with Light Features</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/tips-for-faster-vimeo-video-viewing-for-2024/"><u>Tips for Faster Vimeo Video Viewing for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/top-2024-hevc-video-encoder-software-compared-choose-the-best-for-pc-and-mac/"><u>Top 2024 HEVC Video Encoder Software Compared: Choose the Best for PC and Mac</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-portable-powerhouse-the-pioneer-bdr-xs06s-blu-ray-burning-excellence-reviewed/"><u>Unveiling the Portable Powerhouse: The Pioneer BDR-XS06's Blu-Ray Burning Excellence Reviewed.</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/upgrade-to-the-newest-nvidia-geforce-drivers-for-optimal-windows-gaming-performance/"><u>Upgrade to the Newest NVIDIA GeForce Drivers for Optimal Windows Gaming Performance</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-premium-10-audio-enhancers-for-multiple-systems/"><u>[New] 2024 Approved Premium 10 Audio Enhancers for Multiple Systems</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-vloggers-retreat-excellence-unleashed/"><u>[New] 2024 Approved The Vloggers' Retreat Excellence Unleashed</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-streamlining-facebook-content-for-tv-platforms/"><u>[Updated] 2024 Approved Streamlining Facebook Content for TV Platforms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streamlining-multiple-youtube-videos-into-one/"><u>[Updated] Streamlining Multiple YouTube Videos Into One</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-kick-starting-a-captivating-instagram-live/"><u>2024 Approved Kick-Starting a Captivating Instagram Live</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assessment-the-value-proposition-of-buying-an-ipad/"><u>Assessment: The Value Proposition of Buying an iPad</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-apples-latest-titans-iphone-15-pro-vs-pro-max/"><u>Comparing Apple's Latest Titans: IPhone 15 Pro Vs. Pro Max</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stay-motivated-during-workouts-using-garmin-vivoactive-3s-music-streaming-feature/"><u>Stay Motivated During Workouts Using Garmin Vivoactive 3'S Music Streaming Feature</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-comprehensive-guide-to-boosting-collaboration-with-slack-at-your-job/"><u>The Comprehensive Guide to Boosting Collaboration with Slack at Your Job</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-using-and-enjoying-the-nook-glowlight-plus-from-barnes-and-noble/"><u>The Ultimate Guide to Using and Enjoying the Nook GlowLight Plus From Barnes & Noble</u></a></li>
 </ul></div>
 

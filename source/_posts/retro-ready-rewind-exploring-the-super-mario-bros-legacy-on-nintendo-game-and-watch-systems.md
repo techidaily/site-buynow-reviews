@@ -1,7 +1,7 @@
 ---
 title: "Retro-Ready Rewind: Exploring the Super Mario Bros. Legacy on Nintendo Game & Watch Systems"
-date: 2024-09-20T22:50:02.362Z
-updated: 2024-09-26T23:22:55.964Z
+date: 2024-09-26T20:56:14.023Z
+updated: 2024-10-02T01:53:17.596Z
 categories:
   - BestProducts
 description: "This Article Describes Retro-Ready Rewind: Exploring the Super Mario Bros. Legacy on Nintendo Game & Watch Systems"
@@ -46,16 +46,16 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Garmin Vivosmart 4
 
 ![Garmin Vivosmart 4](https://www.lifewire.com/thmb/ll2Uv9bgkmIddyfa-EOFiFCtsyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Garmin-Vivosmart-4-Fitness-Tracker-1-0a7c6cef1af44b5c9acb1c657c292521.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -79,13 +79,6 @@ Lifewire / Erika Rawes
 
  Fitness trackers have come a long way over the last few years, and you can find options in a variety of shapes, sizes, styles, and price ranges. The Garmin Vivosmart 4 is priced in about the mid-range, and it offers a few cool perks in addition to the standards like calorie counting and step counting. I tested the Garmin Vivosmart 4 for a month to see how it performs compared to other similarly priced fitness trackers on the market.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: You can’t remove the band**
 
  The Vivosmart is lightweight, weighing only 16.5 grams (for the small/medium size). It has a very slim profile, with the silicone band measuring only about a half of an inch in width. Now, this is great for style purposes, as the band looks great on the wrist. But, the slim design isn’t particularly functional, as the screen is extremely small and somewhat hard to read from a distance (especially if you have poor vision like me). The tiny screen measures a mere 0.26 inches wide by 0.70 inches tall.
@@ -94,13 +87,6 @@ Lifewire / Erika Rawes
 
 ![Garmin Vivosmart 4](https://www.lifewire.com/thmb/JsDCEVwOi6EK7WLcs2WJ03jOZb0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivosmart-4-Fitness-Tracker-3-ba9d18a527ae4b41a7242ffaccd1de30.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **Comfort: You’ll forget you’re wearing it**
@@ -108,6 +94,19 @@ Lifewire / Erika Rawes
  The Vivosmart 4 is one of the more comfortable fitness trackers I’ve tested. Most of the time, I’d forget I was even wearing the tracker until it vibrated. The band’s side edges are rounded off, making it feel more comfortable against the skin.
 
  The buckle doesn’t press into the skin or cause irritation, but the sides of the silicone band do leave indents on the wrist after long periods of wear. The Vivosmart 4 is waterproof, and you can wear it in the pool, wear it while showering, and in the rain without damaging the device. You really only have to take off the Vivosmart to charge the battery.
+
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Body battery and stress monitoring**
 
@@ -141,22 +140,29 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery: May last a full seven days**
 
  The battery is supposed to last for up to seven days, but the battery life depends largely on the features you use and how frequently you use the tracker. If you’re only passively tracking a few metrics, your battery might last a full week. If you’re constantly checking your heart rate, pulse ox, stress levels, sleep, and counting reps several times a day, your battery will not last that long. I got three and a half days of battery life when taking full advantage of the fitness tracker’s features.
 
  The battery charges using a clip-on charger. It took an average of 90 minutes to reach a full charge (from about 10% full).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Reasonable**
 
  The Vivosmart 4 retails for $130, which is slightly high for this unit. You can find a refurbished version on Amazon for around $80, which is a more reasonable price.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Garmin Vivosmart 4 vs. Fitbit Charge 3**
 
@@ -169,10 +175,10 @@ Lifewire / Erika Rawes
  The Garmin Vivosmart 4 is a great option for anyone who wants to track their sleep, stress, energy, and cardio, but there are better options out there for weight training.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -215,14 +221,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-instagram-editors-companion-for-effective-video-cropping-for-2024/"><u>[New] The Instagram Editor's Companion for Effective Video Cropping for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-google-nest-wi-fi-fast-and-effortless-mesh-performance/"><u>Expert Analysis of Google Nest Wi-Fi: Fast & Effortless Mesh Performance</u></a></li>
-<li><a href="https://games-able.techidaily.com/explore-fortnites-territory-in-virtual-reality-via-mobile/"><u>Explore Fortnite's Territory in Virtual Reality via Mobile</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/hitmans-grand-finale-a-comprehensive-review-of-hitman-3/"><u>Hitman's Grand Finale: A Comprehensive Review of Hitman 3</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Oppo A78 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-balancing-acts-in-youtube-music-mixes/"><u>In 2024, Balancing Acts in YouTube Music Mixes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-car-safety-with-fun-inside-the-world-of-ddpai-mini3-reviews/"><u>Revolutionizing Car Safety with Fun: Inside the World of DDPai Mini3 Reviews</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/top-seo-techniques-to-boost-your-websites-visibility-and-rankings/"><u>Top SEO Techniques to Boost Your Website's Visibility and Rankings</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/use-of-numbers-and-lists/"><u>Use of Numbers and Lists</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-socialvideocutter-download-feature/"><u>[New] In 2024, SocialVideoCutter Download Feature</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-mastering-the-game-discover-these-top-12-pc-clickers/"><u>[Updated] 2024 Approved Mastering the Game Discover These Top 12 PC Clickers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exclusive-list-of-top-8-wallpapers-for-macbooks/"><u>[Updated] Exclusive List of Top 8 Wallpapers for MacBooks</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-beyond-the-basics-advanced-livestreaming-tools/"><u>2024 Approved Beyond the Basics Advanced Livestreaming Tools</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-professional-portals-15-youtube-economic-insights/"><u>2024 Approved Professional Portals 15 YouTube Economic Insights</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-tecno-spark-10-5g-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Tecno Spark 10 5G</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-huawei-p20-pro-exceptional-photography-meets-quality-smartphone/"><u>Expert Analysis of Huawei P20 Pro: Exceptional Photography Meets Quality Smartphone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Samsung Galaxy A05? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-and-features-review-why-samsung-galaxy-tab-s7-stands-out-among-mid-range-tablets/"><u>In-Depth Analysis and Features Review: Why Samsung Galaxy Tab S7 Stands Out Among Mid-Range Tablets</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovo-ideapad-130s-laptop-analysis-compact-performance-with-impressive-user-experience/"><u>Lenovo IdeaPad 130S Laptop Analysis: Compact Performance with Impressive User Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sound-waves-meet-smooth-streaming-rokus-new-era/"><u>Sound Waves Meet Smooth Streaming: Roku's New Era</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-essential-guide-to-the-2019-amazon-kindle-quality-and-price-review/"><u>The Essential Guide to the 2019 Amazon Kindle – Quality and Price Review</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-hearthstone-pc-crashes-solutions-and-tips/"><u>Troubleshooting Hearthstone PC Crashes - Solutions and Tips</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/understanding-macos-montereys-user-interface-changes/"><u>Understanding macOS Monterey's User Interface Changes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-moto-g-play-powerful-battery-and-competent-device-efficiency/"><u>Unveiling the Moto G Play: Powerful Battery and Competent Device Efficiency</u></a></li>
 </ul></div>
 

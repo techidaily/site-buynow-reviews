@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Lenovo Tab P11 Pro Analysis: Impressive Features Alongside Notable Limitations"
-date: 2024-09-20T20:20:55.052Z
-updated: 2024-09-26T22:25:19.348Z
+date: 2024-09-30T00:59:49.915Z
+updated: 2024-10-01T17:01:17.743Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Lenovo Tab P11 Pro Analysis: Impressive Features Alongside Notable Limitations"
@@ -43,10 +43,10 @@ Lifewire / Jonno Hill
 4
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## HP Omen Obelisk
@@ -82,20 +82,13 @@ Lifewire / Jonno Hill
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/OXMiCXvzh8P7esVvbjPoSorzoxM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-2-7b14850c2ca84af39d5fd116ab483d5d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Design** : **Nice looks and small footprint, with many reservations**
 
@@ -122,10 +115,10 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance** :**Great components for gaming and productivity**
@@ -135,6 +128,13 @@ Lifewire / Jonno Hill
  The desktop scored an impressive 6,967 in the productivity-focused benchmarking application PCMark 10\. On the gaming front, the Omen managed a score of 10,740 in 3DMark’s Time Spy. In real-world use, this means more than 60fps at 4K in many popular titles like GTA V, but less than 60fps in others like Deus Ex: Mankind Divided. In other words, the Omen is mostly capable of 4K gameplay and is nearly always capable of 60+ fps in most common resolutions shy of 4K.
 
  The Omen comes equipped with a 1TB[NVMe SSD](https://www.lifewire.com/what-is-m2-833453) and 32GB of DDR4 2666 memory. This is definitely more RAM than games alone will call for, but it’s merely an adequate amount of RAM for some creative professionals working with more demanding software like Adobe After Effects. Keep in mind though, even those that don’t normally need a lot of RAM can still benefit from having more. Among other things, it gives you the luxury of keeping all of your browser tabs and background applications running without having to start juggling applications on and off, which can be helpful from a productivity standpoint.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Gaming** :**Great for the most demanding titles**
 
@@ -152,18 +152,18 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Network** :**Great speeds, but software that doesn’t do much**
 
  The HP Omen Obelisk has gigabit LAN and a Wi-Fi 5 (2x2) networking, the latter supporting a maximum speed of 866 Mbps. Everything functioned smoothly from a networking standpoint during my tests.
 
  I made a point to try out the Network Booster software found in the OMEN Command Center and didn’t see anything tremendously useful, unfortunately. I tried setting the priority of Steam to “Low” and downloading a game, but the game still downloaded at my maximum internet speed. I took it one step further and toggled the “Block” option for Steam, and tried to resume the download, but Steam kept on downloading at the maximum speed. The software was successful in blocking Chrome when that option was switched on, however.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Just enough options**
 
@@ -231,18 +231,17 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-how-to-preserve-your-gaming-moments-with-windows-10/"><u>[New] In 2024, How to Preserve Your Gaming Moments with Windows 10</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-creating-a-unique-online-presence-using-obs-youtube-and-twitch/"><u>[Updated] 2024 Approved Creating a Unique Online Presence Using OBS, YouTube & Twitch</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-the-ultimate-guide-to-online-streaming-audio-logging-for-2024/"><u>[Updated] The Ultimate Guide to Online Streaming Audio Logging for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-why-is-my-social-media-not-showing-suggested-youtube-videos/"><u>[Updated] Why Is My Social Media Not Showing Suggested YouTube Videos?</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-top-photo-storage-sites/"><u>2024 Approved Top Photo Storage Sites</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-improved-apple-watch-series/"><u>Comprehensive Guide to the Improved Apple Watch Series</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/from-ideas-to-reality-chatgpts-role-in-sound-synthesis/"><u>From Ideas to Reality: ChatGPT's Role in Sound Synthesis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-the-compact-and-convenient-aphaca-bt6n-for-wireless-fm-broadcasting/"><u>In-Depth Evaluation of the Compact and Convenient Aphaca BT6n for Wireless FM Broadcasting</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/most-beneficial-linkedin-training-programs-for-personal-growth-in/"><u>Most Beneficial LinkedIn Training Programs for Personal Growth in 지난해</u></a></li>
-<li><a href="https://techtrends.techidaily.com/samsung-unpacked-2025-your-guide-to-dates-latest-products-and-exclusive-leaks/"><u>Samsung Unpacked 2025: Your Guide to Dates, Latest Products & Exclusive Leaks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-complete-guide-to-using-the-lihan-lhfm1039-best-bluetooth-fm-transmitter-for-a-smarter-driving-experience/"><u>The Complete Guide to Using the LIHAN LHFM1039: Best Bluetooth FM Transmitter for a Smarter Driving Experience</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-audio-device-not-recognized-by-windows-10-fix-headphone-issues/"><u>Troubleshooting: Audio Device Not Recognized by Windows 10 - Fix Headphone Issues</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/unlock-insta-money-potential-with-our-top-7-list-for-2024/"><u>Unlock Insta Money Potential with Our Top 7 List for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-add-radial-blur-effect-to-photos-in-photoshop/"><u>[New] How to Add Radial Blur Effect to Photos in Photoshop</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-creative-geniuses-selecting-the-best-youtube-videos-for-channels/"><u>[Updated] In 2024, Creative Geniuses Selecting the Best YouTube Videos for Channels</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-powerhouse-features-of-the-new-google-pixel-4a-5g-the-smart-choice-for-savvy-consumers/"><u>Discover the Powerhouse Features of the New Google Pixel 4a 5G - The Smart Choice for Savvy Consumers</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-lava-yuva-3mirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Lava Yuva 3Mirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-realme-v30-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-finessing-voices-in-instagrams-storytelling-and-videos/"><u>In 2024, Finessing Voices in Instagram's Storytelling and Videos</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-oppo-a1-5g-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Oppo A1 5G Phone?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nixplay-seed-unmatched-excellence-for-your-pictures/"><u>Nixplay Seed: Unmatched Excellence for Your Pictures</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/selecting-your-ideal-media-player-a-thorough-comparison-between-roku-and-fire-tv-stick/"><u>Selecting Your Ideal Media Player: A Thorough Comparison Between Roku and Fire TV Stick</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/supercharge-your-ps3s-memory-space-hdd-upgrade/"><u>Supercharge Your PS3's Memory Space - HDD Upgrade</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleash-portable-energy-with-poweradd-pilot-pro2-expert-review-on-multi-device-charger/"><u>Unleash Portable Energy with POWERADD Pilot Pro2 - Expert Review on Multi-Device Charger</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unresponsive-iphone-silent-switch-easy-alternative-methods-to-control-your-ringer/"><u>Unresponsive iPhone Silent Switch? Easy Alternative Methods to Control Your Ringer</u></a></li>
 </ul></div>
 

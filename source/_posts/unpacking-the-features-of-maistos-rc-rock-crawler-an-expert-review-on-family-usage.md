@@ -1,7 +1,7 @@
 ---
 title: Unpacking the Features of Maisto's RC Rock Crawler - An Expert Review on Family Usage
-date: 2024-09-19T19:43:00.691Z
-updated: 2024-09-26T21:10:35.927Z
+date: 2024-09-26T23:38:26.567Z
+updated: 2024-10-01T21:15:06.339Z
 categories:
   - BestProducts
 description: This Article Describes Unpacking the Features of Maisto's RC Rock Crawler - An Expert Review on Family Usage
@@ -44,15 +44,22 @@ Lifewire / Scott Gercken
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Pioneer BDR-XD05B Blu-ray Burner
 
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/nC_G9Nr8iQMb-lVdoUhQTXWP5lo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_HeroSquare-7488fe2dd07248ca99020859f82cefaf.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Scott Gercken
 
@@ -79,13 +86,6 @@ Lifewire / Scott Gercken
 
  Check out our buyers guide for more information on what you should look for in an optical drive.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Feels a little flimsy**
 
  The Pioneer BDR-XD05B[Blu-ray Burner](https://www.lifewire.com/best-desktop-blu-ray-drives-832423) is a sleek, small black drive. It’s a tiny 5.12” square by .5” tall with a black cover and a metal bottom. The clamshell case opens to 65 degrees, so it’s easy to slide a disc onto the spindle. The button to open the clamshell is on the front left of the drive, and there’s a blue LED indicator that lights up when the drive is plugged into a power source. The drive comes with an unusually shaped USB cord, with a male micro-B USB 3.0 on one side and two USB A male ends on the other. One is designed to power the drive and one is for data transfer. The back of the drive has both a micro-B USB 3.0 port and a DC power port as a second option for powering it. The Pioneer BDR-XD05B Blu-ray Burner’s look is minimalist, black with just a small gray Blu-ray logo on the top.
@@ -110,20 +110,13 @@ Lifewire / Scott Gercken
 
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/xaXRYsi71hFhblhSiQT18pmQ2Mw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_02-5138fb74431a40c1b0cbb76c30bc6350.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Scott Gercken
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Good for an inexpensive Blu-ray burner**
@@ -133,13 +126,6 @@ Lifewire / Scott Gercken
  Second, we made a backup copy of a 13.32 GB photos library using the MacOS native Blu-ray burning feature. It took 39 minutes to write the file onto a single-layer BD-R. There are a lot of Blu-ray burners that can both read and write much faster than this, but the Pioneer BDR-XD05B combines low cost with portability to make up for it.
 
  Noise was never a problem with this drive. Auto Quiet mode adjusts media discs to a slower speed so it’s quieter, and with both data and movie discs we didn’t notice any noise loud enough to be a bother.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Image Quality: Don’t watch Blu-rays on this drive**
 
@@ -155,11 +141,31 @@ Lifewire / Scott Gercken
 
  Like we wrote above, the included software was a mess to install, with windows popping up all over the place. The included software is called “CyberLink Media Suite 10.” It includes PowerDVD 14, Power2Go 8, and PowerDirector 14 LE. PowerDVD 14 is an app for playing Blu-rays and DVD’s on your[optical drive](https://www.lifewire.com/what-is-an-optical-disc-drive-2618157) . Power2Go 8 is a burning tool, and it has some system recovery tools, too. Powerdirector 14 LE is a movie editing app. All-in-all, this is a pretty useful, basic suite of software without anything that especially stands out. It gets the job done, and that’s what matters.
 
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Good budget Blu-ray burner**
 
  With an MSRP of $100, the Pioneer BDR-XD05B is one of the least expensive Blu-ray burners on the market. You get what you pay for, though—that low price comes with slower read/write speeds and a flimsy design. Still, if you’re looking for a budget Blu-ray burner, this is a good one. If you’re a heavy user, look for something faster.
 
  With an MSRP of $100, The Pioneer BDR-XD05B is one of the least expensive Blu-ray burners on the market.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Performs well in this price range**
 
@@ -210,22 +216,19 @@ Lifewire / Scott Gercken
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-achieving-excellence-in-game-recording-techniques-windows-11-style-for-2024/"><u>[New] Achieving Excellence in Game Recording Techniques, Windows 11 Style for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-best-8-sbt-to-srtr-conversion-tools-pcmac-compatibility/"><u>[New] Best 8 SBT to SRTR Conversion Tools - PC/Mac Compatibility</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-darkened-details-expert-techniques-for-night-photography-success/"><u>[New] In 2024, Darkened Details Expert Techniques for Night Photography Success</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-converting-in-meeting-google-meet-to-youtube-broadcasts-your-guide-for-2024/"><u>[Updated] Converting In-Meeting Google Meet to YouTube Broadcasts Your Guide for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-maximizing-roi-with-snapchat-for-biz-leaders/"><u>[Updated] In 2024, Maximizing ROI with Snapchat for Biz Leaders</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-smart-choices-best-video-call-programs-on-devices-for-2024/"><u>[Updated] Smart Choices Best Video Call Programs on Devices for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-google-meet-broadcast-simplified-youtube-steps/"><u>2024 Approved Google Meet Broadcast Simplified YouTube Steps</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-google-pixel-5-smartphone-balancing-high-end-features-with-adequate-performance/"><u>Comprehensive Analysis of the Google Pixel #5 Smartphone: Balancing High-End Features with Adequate Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-why-the-motorola-one-hyper-is-topping-charts-as-an-impressive-mid-tier-phone/"><u>Discover Why The Motorola One Hyper Is Topping Charts as an Impressive Mid-Tier Phone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enhance-your-training-routine-with-garmin-vivoactive-3s-music-feature-for-athletes/"><u>Enhance Your Training Routine with Garmin Vivoactive 3'S Music Feature for Athletes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-protective-power-and-performance-pace-of-the-cat-s42-smartphone/"><u>Evaluating the Protective Power and Performance Pace of the CAT S42 Smartphone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/inside-the-world-of-ipads-a-detailed-model-comparison-guide/"><u>Inside the World of iPads: A Detailed Model Comparison Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/protect-your-iphone-from-malware-the-top-six-cybersecurity-apps-you-need/"><u>Protect Your iPhone From Malware: The Top Six Cybersecurity Apps You Need</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-s10e-analysis-affordable-yet-striking-performance/"><u>Samsung Galaxy S10e Analysis: Affordable Yet Striking Performance</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-vivo-s17t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Vivo S17t | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/transforming-perceptions-with-virtual-tour-experiences-for-2024/"><u>Transforming Perceptions with Virtual Tour Experiences for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlocking-crystal-clear-visuals-an-insightful-look-at-the-logitech-c920-pro-hd-webcams-video-capabilities/"><u>Unlocking Crystal Clear Visuals: An Insightful Look at the Logitech C920 Pro HD Webcam's Video Capabilities</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-chucklecraft-sign-up-now-and-laugh-later/"><u>[New] ChuckleCraft Sign Up Now & Laugh Later</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-innovating-quickly-2-approaches-to-making-snapchat-filters/"><u>[New] In 2024, Innovating Quickly 2 Approaches to Making Snapchat Filters</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-elite-screenscape-high-quality-4k-panels-for-editors/"><u>2024 Approved Elite Screenscape High-Quality 4K Panels for Editors</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-creative-utilization-of-b-footage-in-media/"><u>2024 Approved The Creative Utilization of B-Footage in Media</u></a></li>
+<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-nubia-red-magic-8s-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/delving-into-the-world-of-the-acer-chromebook-prise-and-it-can-be-reused-for-other-projects-that-require-similar-functionality/"><u>Delving Into the World of the Acer Chromebook Prise, and It Can Be Reused for Other Projects that Require Similar Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-the-portable-versatility-of-the-cost-effective-nintendo-switch-lite/"><u>Discovering the Portable Versatility of the Cost-Effective Nintendo Switch Lite</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-dell-inspiron-3671-desktop-a-reliable-choice-for-everyday-computing-needs/"><u>Evaluating the Dell Inspiron ^ 3671 Desktop: A Reliable Choice for Everyday Computing Needs</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-infinix-hot-40-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Infinix Hot 40 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-9-prime-live-streaming-venues-for-gamers/"><u>In 2024, 9 Prime Live Streaming Venues for Gamers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Oppo A38? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-wifi-speeds-an-insightful-look-into-the-netgear-nighthawk-x10-ad7200-routers-capabilities/"><u>Maximizing WiFi Speeds: An Insightful Look Into the Netgear Nighthawk X10 (AD7200) Router's Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stylish-and-functional-garmin-vivomove-hr-smartwatch-your-perfect-fitness-companion/"><u>Stylish and Functional: Garmin Vivomove HR Smartwatch - Your Perfect Fitness Companion</u></a></li>
+<li><a href="https://driver-install.techidaily.com/usb-driver-fixes-for-7-8-and-earlier-windows-families/"><u>USB Driver Fixes for 7, 8 & Earlier Windows Families</u></a></li>
 </ul></div>
 

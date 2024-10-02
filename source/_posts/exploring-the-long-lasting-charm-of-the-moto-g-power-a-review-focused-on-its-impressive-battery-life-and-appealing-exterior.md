@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Long-Lasting Charm of the Moto G Power: A Review Focused on Its Impressive Battery Life and Appealing Exterior"
-date: 2024-09-19T18:36:03.964Z
-updated: 2024-09-20T18:31:39.969Z
+date: 2024-09-25T00:43:34.582Z
+updated: 2024-10-01T23:34:53.528Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring the Long-Lasting Charm of the Moto G Power: A Review Focused on Its Impressive Battery Life and Appealing Exterior"
@@ -47,6 +47,13 @@ Lifewire / Jeremy Laukkonen
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/KabMCV8f8k1Pxtd-vhM86zkedrw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-HeroSquare-41f20e9c72b84bfd92f578807ae1edaf.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
 [View On Amazon](https://www.amazon.com/Extollo-Powerline-LANSocket-1500-HomePlug/dp/B00Y3XRRI8/?tag=lifewire-onsite-prod-20&ascsubtag=4778158%7Cneae2cae292c94a2b9373551f10cd366c17%7CB00Y3XRRI8)
@@ -75,6 +82,13 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Big, bulky, and basic, with a filtered pass-through**
 
  Extollo won’t win any awards for the basic, blocky design of the LANSocket 1500 adapters. They’re big, plastic, white, and take up a lot of space. That’s somewhat mediated by the inclusion of a pass-through electrical socket, which is a really nice touch.
@@ -91,13 +105,6 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Pain-free plug and play**
 
  Home networking is a complicated subject, but setting up a pair of LANSocket 1500 adapters is about as simple as it gets. The kit includes two adapters and two[Ethernet cables](https://www.lifewire.com/what-is-an-ethernet-cable-817548) , which is really all you need to set up your[powerline network](https://www.lifewire.com/powerline-home-networking-and-homeplug-817720) .
@@ -111,10 +118,10 @@ Lifewire / Jeremy Laukkonen
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/BvO_NJ8pdby7NqO2Fq-orJ_NbFI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-02-40358222569c4a55b4d04e7aadf01af7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
@@ -124,6 +131,13 @@ Lifewire / Jeremy Laukkonen
  The Extollo LANSocket 1500 powerline adapters use the HomePlug AV2 specification, which includes support for[multi-in, multi-out (MIMO)](https://www.lifewire.com/mimo-wifi-routers-818332) with beamforming, which increases both speed and the allowable distance between adapters. This is a significant improvement over the HomePlug AV specification, which is slower and requires you to place your adapters more closely together.
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/B7pek1jOL0gtn-sl7QsuHcO3_CU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-03-04f860db31f049e1a2ecb40196f7aaf7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -142,10 +156,10 @@ Lifewire / Jeremy Laukkonen
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Runs on an embedded Linux distribution**
@@ -190,13 +204,6 @@ Lifewire / Jeremy Laukkonen
 
  The Extollo LANSocket 1500 checks all the right boxes, with some of the highest speeds on the market, a pass-through electrical socket, and a decent price. The high speeds and low latency make this kit a good choice if you need to connect a game console, and the extra memory allowed by the use of Linux really helps out if you stream a lot of video, just be wary of security considerations.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  LANSocket 1500 Powerline Adapter
@@ -225,5 +232,26 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-discover-new-cams-to-beat-out-samsungs-gear-360/"><u>[Updated] 2024 Approved Discover New Cams to Beat Out Samsung's Gear 360</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-decades-best-list-of-budget-friendly-desktop-recorders/"><u>[Updated] Decade's Best List of Budget-Friendly Desktop Recorders</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-top-6-best-4k-full-frame-camera/"><u>[Updated] Top 6 Best 4K Full Frame Camera</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/clearstream-2v-all-weather-tv-antenna-assessment-exceptional-reception-in-an-eye-catching-design/"><u>ClearStream 2V All-Weather TV Antenna Assessment: Exceptional Reception in an Eye-Catching Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-tp-link-re505x-range-extender-assessment/"><u>Comprehensive TP-Link RE505X Range Extender Assessment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/critically-acclaimed-reimagining-of-the-wasteland-2-directors-edition-reviewed/"><u>Critically Acclaimed Reimagining of The Wasteland 2: Director’s Edition Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expertly-selected-highest-quality-usb-drives-of-the-year-2024/"><u>Expertly Selected, Highest Quality USB Drives of the Year 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-the-entry-point-not-available-error-in-fortnite/"><u>Fixing the 'Entry Point Not Available' Error in Fortnite</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-i-fixed-the-tp-link-tl-wn722n-unrecognized-by-pc-issue-a-step-by-step-guide/"><u>How I Fixed the 'TP-LINK TL-WN722N Unrecognized by PC' Issue - A Step-by-Step Guide</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-vivo-y200e-5g-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Vivo Y200e 5G Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-a-stuck-windows-11-taskbar-top-solutions/"><u>How to Fix a Stuck Windows 11 Taskbar: Top Solutions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/how-to-seamlessly-transform-your-mts-video-files-into-mp4-format-for-pc-and-mac-users/"><u>How to Seamlessly Transform Your MTS Video Files Into MP4 Format for PC & Mac Users</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-xiaomi-redmi-note-12t-prowithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Xiaomi Redmi Note 12T Prowith/without a PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-why-the-samsung-gear-s3-frontier-stands-out-amongst-smartwatches-with-its-abundance-of-features/"><u>In-Depth Analysis: Why the Samsung Gear S3 Frontier Stands Out Amongst Smartwatches with Its Abundance of Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-portability-and-performance-with-the-new-razer-stealth-laptop-review/"><u>Mastering Portability and Performance with the New Razer Stealth Laptop Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-remote-communication-a-deep-dive-into-logitechs-high-definition-c920-webcam/"><u>Mastering Remote Communication: A Deep Dive Into Logitech's High-Definition C920 Webcam</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tech-faceoff-which-reigns-supreme-apple-watch-series-9-or-fitbit-charge-6/"><u>Tech Faceoff: Which Reigns Supreme, Apple Watch Series 9 or Fitbit Charge 6?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-capabilities-of-the-samsung-galaxy-a20-why-it-still-stands-out-in-entry-level-smartphones/"><u>Unveiling the Capabilities of the Samsung Galaxy A20: Why It Still Stands Out in Entry-Level Smartphones</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/what-is-auto-gpt-and-how-does-it-differ-from-chatgpt/"><u>What Is Auto-GPT, and How Does It Differ From ChatGPT?</u></a></li>
+</ul></div>
 

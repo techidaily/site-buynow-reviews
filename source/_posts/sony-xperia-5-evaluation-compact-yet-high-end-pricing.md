@@ -1,7 +1,7 @@
 ---
 title: "Sony Xperia 5 Evaluation: Compact Yet High-End Pricing"
-date: 2024-09-25T22:28:14.911Z
-updated: 2024-09-26T19:25:56.254Z
+date: 2024-09-28T22:43:08.983Z
+updated: 2024-10-01T18:35:44.184Z
 categories:
   - BestProducts
 description: "This Article Describes Sony Xperia 5 Evaluation: Compact Yet High-End Pricing"
@@ -67,6 +67,13 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -87,13 +94,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Almost two dozen channels (in a rural area)**
 
  So many things[affect an antenna’s performance](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) —location, household electronics, tree cover, tower location, and more. The antenna displays channels of high quality. However, sometimes the channels would take a few seconds to load, and other times, I’d see a pixelated effect when I first changed the channel that would clear up after a few seconds. Once the picture was fully loaded, it was in clear high definition. The antenna is capable of displaying a clear HD picture, so I couldn’t tell the difference between the antenna’s picture and the picture from streaming services like Hulu or Netflix.
@@ -103,10 +103,16 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: 35 miles**
@@ -117,6 +123,13 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
@@ -126,10 +139,16 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
@@ -141,13 +160,6 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -180,22 +192,16 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/2024-approved-streamlining-data-management-5-leading-cloud-providers/"><u>2024 Approved Streamlining Data Management 5 Leading Cloud Providers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-huawei-p20-pro-analysis-exceptional-photography-capabilities-meet-quality-mobile-device/"><u>Comprehensive Huawei P20 Pro Analysis - Exceptional Photography Capabilities Meet Quality Mobile Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exclusive-oculus-quest-2-elite-gaming-headset-accessory-kit-with-durable-carry-pouch-in-depth-analysis-and-user-guide/"><u>Exclusive Oculus Quest 2 Elite Gaming Headset Accessory Kit with Durable Carry Pouch – In-Depth Analysis & User Guide</u></a></li>
-<li><a href="https://techidaily.com/hard-resetting-an-infinix-smart-7-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Infinix Smart 7 Device Made Easy | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Nokia C22 | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For OnePlus Ace 2V? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-enabling-successful-video-sharing-in-messenger-for-ios-and-android-users/"><u>In 2024, Enabling Successful Video Sharing in Messenger for iOS and Android Users</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-xiaomi-redmi-note-12-pro-4g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Xiaomi Redmi Note 12 Pro 4G to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-samsung-galaxy-xcover-7-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Samsung Galaxy XCover 7</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/installing-and-utilizing-the-yay-tool-in-arch-linux-a-comprehensive-tutorial/"><u>Installing and Utilizing the Yay Tool in Arch Linux – A Comprehensive Tutorial</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/nintendo-3ds-online-how-to-establish-a-user-profile-with-ease/"><u>Nintendo 3DS Online: How to Establish a User Profile with Ease</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/overcoming-lenovos-inactive-touchscreen/"><u>Overcoming Lenovo's Inactive Touchscreen</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-reception-unveiling-the-remarkable-qualities-of-the-clearstream-eclipse-antenna/"><u>Revolutionizing Reception: Unveiling the Remarkable Qualities of the ClearStream Eclipse Antenna</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-elite-selection-of-17-inch-laptops-to-buy/"><u>The Elite Selection of 17-Inch Laptops to Buy</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-lg-gram-156-an-in-depth-review-on-how-this-ultrabook-redefines-lightweight-laptops-with-its-exceptional-battery-life-and-performance/"><u>The LG Gram 15.6: An In-Depth Review on How This Ultrabook Redefines Lightweight Laptops with Its Exceptional Battery Life and Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-pick-the-omnicharge-omni-20-reviewed-portable-power-solutions-for-all-your-devices/"><u>Top Pick: The Omnicharge Omni 20 Reviewed – Portable Power Solutions for All Your Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/transform-your-document-handling-at-home-or-in-a-small-business-with-the-fujitsu-scansnap-ix1400-an-in-depth-review/"><u>Transform Your Document Handling at Home or in a Small Business with the Fujitsu ScanSnap iX1400 - An In-Depth Review</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-leading-webcams-for-windows-10-enthusiasts-for-2024/"><u>[New] Leading Webcams for Windows 10 Enthusiasts for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-the-ultimate-guide-to-vsdc-and-its-rivals/"><u>[New] The Ultimate Guide to VSDC and Its Rivals</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-audience-retention-through-reel-magic-boomers-on-ig/"><u>[Updated] Audience Retention Through Reel Magic Boomers on IG</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-fujitsus-powerful-ix1600-desktop-scanning-solution-unveiled/"><u>Comprehensive Review: Fujitsu's Powerful iX1600 Desktop Scanning Solution Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/find-the-ideal-tablet-for-you-a-comprehensive-look-at-comparing-devices-based-on-physical-specs/"><u>Find the Ideal Tablet for You: A Comprehensive Look at Comparing Devices Based on Physical Specs</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/harmonyhunter-discovering-audio-dimensions/"><u>HarmonyHunter Discovering Audio Dimensions</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-vivo-y100a-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Vivo Y100A Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-how-the-stylish-withings-move-fuses-traditional-aesthetics-with-smart-capabilities/"><u>In-Depth Analysis: How the Stylish Withings Move Fuses Traditional Aesthetics with Smart Capabilities</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/lightweightapp-no-trouble-recording-windows-10-for-2024/"><u>LightweightApp - No-Trouble Recording, Windows 10 for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/oneplus-9-evaluation-numerical-analysis-reveals-deficiencies/"><u>OnePlus 9 Evaluation: Numerical Analysis Reveals Deficiencies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-endless-possibilities-browse-local-treasures-at-no-charge-on-oodle-marketplace/"><u>Unlock Endless Possibilities: Browse Local Treasures at No Charge on Oodle Marketplace</u></a></li>
 </ul></div>
 

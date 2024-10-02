@@ -1,7 +1,7 @@
 ---
 title: "Your Comprehensive Analysis of Kindle Oasis 2019: Diving Into Its Bookish Design & Functionality"
-date: 2024-09-25T19:54:09.459Z
-updated: 2024-09-26T19:00:48.379Z
+date: 2024-09-28T17:38:10.120Z
+updated: 2024-10-01T20:16:08.551Z
 categories:
   - BestProducts
 description: "This Article Describes Your Comprehensive Analysis of Kindle Oasis 2019: Diving Into Its Bookish Design & Functionality"
@@ -78,13 +78,20 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup: Easier than most**
 
@@ -104,6 +111,13 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Range: Could be better**
 
  My test home is in a rural area, and there’s a lot of tree cover on the property. The omnidirectional Antop AT-127 has a 40-mile range, which was enough to pick up local channels from neighboring cities.
@@ -112,31 +126,11 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -151,10 +145,10 @@ Lifewire / Erika Rawes
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -188,24 +182,18 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-essential-tips-for-effective-fb-live-split-screens/"><u>[New] Essential Tips for Effective FB Live Split Screens</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-smooth-silence-integration-in-audio-post-production-audacity-style/"><u>[Updated] In 2024, Smooth Silence Integration in Audio Post-Production - Audacity Style</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-beat-is-in-your-hands-for-free-for-2024/"><u>[Updated] The Beat Is in Your Hands for Free for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-bargain-bin-of-the-clouds-spacious-file-staging-area/"><u>2024 Approved Bargain Bin of the Clouds Spacious File Staging Area</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-breathtaking-lyric-videos-made-easy-by-lyric-video-maker/"><u>2024 Approved Breathtaking Lyric Videos Made Easy by Lyric Video Maker</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-building-a-competitive-advantage-through-in-depth-industry-analysis/"><u>2024 Approved Building a Competitive Advantage Through In-Depth Industry Analysis</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-expert-insight-using-live-photos-effectively/"><u>2024 Approved Expert Insight Using Live Photos Effectively</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/assessing-amazon-primes-value-proposition/"><u>Assessing Amazon Prime's Value Proposition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-powerful-portability-with-sx740-hs-review/"><u>Discovering Powerful Portability with SX740 HS Review</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/enable-automatic-iphone-screen-rotation-for-seamless-full-screen-video-viewing/"><u>Enable Automatic iPhone Screen Rotation for Seamless Full-Screen Video Viewing</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/entry-level-drone-excellence-reviewing-the-syma-xx5c-racing-quadcopters-value-and-performance/"><u>Entry-Level Drone Excellence: Reviewing the SYMA X#X5C Racing Quadcopter's Value and Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fast-and-reliable-unpacking-the-pros-and-cons-of-the-tp-link-av2000-powerline-kit-a-user-perspective/"><u>Fast and Reliable? Unpacking the Pros and Cons of the TP-Link AV2000 Powerline Kit - A User Perspective</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-xiaomi-redmi-note-12-pro-5g-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Xiaomi Redmi Note 12 Pro 5G Device SIM</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-the-flashy-netgear-nighthawk-rax8n-revolutionizing-wi-fi-with-wi-fi-6-capabilities/"><u>In-Depth Review of the Flashy Netgear Nighthawk RAX8n – Revolutionizing Wi-Fi with Wi-Fi 6 Capabilities</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/leap-into-the-new-era-with-ios-15/"><u>Leap Into the New Era with iOS 15</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-the-game-of-selection-key-points-to-ponder-when-buying-a-console/"><u>Mastering the Game of Selection: Key Points to Ponder When Buying a Console</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/pros-vs-cons-unveiling-whats-inside-pidgin-instant-messenger/"><u>Pros Vs. Cons: Unveiling What's Inside Pidgin Instant Messenger</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-how-knack-breaks-the-mold-with-characters-while-navigating-conventional-gaming-tropes/"><u>Review: How Knack Breaks the Mold with Characters While Navigating Conventional Gaming Tropes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-innovative-samsung-galaxy-chromebook-2-review/"><u>The Ultimate Guide to the Innovative Samsung Galaxy Chromebook 2 Review</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-beginning-with-windows-10-sound-recording/"><u>[Updated] In 2024, Beginning with Windows 10 Sound Recording</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-how-to-download-apple-podcasts/"><u>2024 Approved How to Download Apple Podcasts?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/2024s-elite-selection-of-self-driving-car-makers-the-top-four/"><u>2024'S Elite Selection of Self-Driving Car Makers - The Top Four</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-zenwifi-xt8-ax6600-review/"><u>ASUS ZenWiFi XT8 AX6600 Review</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/como-fazer-a-transformacao-gratuita-de-formatos-de-imagem-do-gif-para-o-jpg-tudo-que-voce-precisa-saber/"><u>Como Fazer a Transformação Gratuita De Formatos De Imagem Do GIF Para O JPG - Tudo Que Você Precisa Saber</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-heimvision-a80s-alarm-clock-with-gentle-sunrise-simulation-product-analysis/"><u>Comprehensive HeimVision A80S Alarm Clock with Gentle Sunrise Simulation - Product Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/mass-perception-study-networkings-adverse-effects/"><u>Mass Perception Study: Networking's Adverse Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-concept-and-practical-application-of-sleep-mode-in-messenger-kids/"><u>The Concept & Practical Application of Sleep Mode in Messenger Kids</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ddpai-mini-3-reviewed-how-this-dashcam-brings-joy-to-your-journeys/"><u>The DDpai Mini 3 Reviewed: How This Dashcam Brings Joy to Your Journeys!</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/tips-for-fixing-stalled-video-posts-on-the-social-media-platform-iosandroid/"><u>Tips for Fixing Stalled Video Posts on the Social Media Platform iOS/Android</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-itel-s23plus-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Itel S23+ | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/ultimate-tutorial-on-adding-lyric-display-feature-via-plugin-in-windows-media-player/"><u>Ultimate Tutorial on Adding Lyric Display Feature via Plugin in Windows Media Player</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/uncovering-gaming-history-the-enduring-charm-of-super-mario-bros-on-nintendo-game-and-watch/"><u>Uncovering Gaming History: The Enduring Charm of Super Mario Bros on Nintendo Game & Watch</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Instructions for Saving Picture Previews in MS Office Files
-date: 2024-09-23T17:34:48.505Z
-updated: 2024-09-26T16:31:10.051Z
+date: 2024-09-28T20:29:19.460Z
+updated: 2024-10-01T21:33:05.764Z
 categories:
   - BestProducts
 description: This Article Describes Step-by-Step Instructions for Saving Picture Previews in MS Office Files
@@ -42,16 +42,16 @@ Lifewire / Andrew Hayward
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## TopMate C302 Laptop Cooling Pad
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -93,13 +93,6 @@ Lifewire / Andrew Hayward
 
  The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Setup Process: Plug and play
 
  The C302 is a purely plug-and-play accessory with no flashy perks or settings to deal with, nor any need for software on your computer. Simply place it under your laptop, adjust the feet and holding nubs as desired, and plug the USB port into your computer to power on the pad. The fans will then activate and run at the only available speed, and you can unplug it when you’re done or don’t need it anymore.
@@ -107,6 +100,13 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
 
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Performance: It makes a difference
 
@@ -122,13 +122,6 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Xs71AyeThjZwy-vZJ9LfxIhuXJc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_04-eadbaf270b874af9bb8843b95efe8ca7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
  Lastly, UNIGINE’s Heaven Benchmark hit 162 degrees internally and 109 degrees externally on the Razer Blade 15 alone, and dropped to 154 degrees internally and 105 degrees externally when using the C302\. All told, this lightweight and affordable pad delivered solid cooling power that helped cut down on both the internal and external temperature of the laptop while under significant stress.
@@ -136,10 +129,10 @@ Lifewire / Andrew Hayward
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Price: It’s very affordable
@@ -149,13 +142,20 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## TopMate C302 vs. Kootek Laptop Cooling Pad
 
@@ -201,18 +201,22 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-az-screenscape-full-application-review-alternatives/"><u>[Updated] In 2024, AZ Screenscape Full Application Review, Alternatives</u></a></li>
-<li><a href="https://video-capture.techidaily.com/amoeba/"><u>/Amoeba</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-garageband-strategies-for-perfect-podcast-editing/"><u>2024 Approved GarageBand Strategies for Perfect Podcast Editing</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-ultimate-9-listing-best-virtual-microphones-recorders-2023/"><u>2024 Approved Ultimate 9 Listing Best Virtual Microphones Recorders 2023</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/can-you-store-high-quality-videos-in-128gb/"><u>Can You Store High-Quality Videos in 128Gb?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-call-logs-on-nokia-g310-by-fonelab-android-recover-call-logs/"><u>Complete guide for recovering call logs on Nokia G310</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fellowes-microban-wired-keyboard-evaluation-why-its-a-smart-economical-pick/"><u>Fellowes Microban Wired Keyboard Evaluation - Why It's a Smart, Economical Pick</u></a></li>
-<li><a href="https://techidaily.com/how-to-recover-data-from-apple-iphone-15-pro-max-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Data from Apple iPhone 15 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/read-like-never-before-with-the-201n-kindle-oasis-an-experts-perspective-on-comfort-reading/"><u>Read Like Never Before with The 201N Kindle Oasis – An Expert’s Perspective on Comfort Reading!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stanley-j5c09-review-a-high-performance-drill-press-with-sturdy-build-quality/"><u>Stanley J5C09 Review: A High-Performance Drill Press with Sturdy Build Quality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-swagtron-swagger-electric-scooter-the-chic-way-to-commute-in-style/"><u>The Swagtron Swagger Electric Scooter - The Chic Way to Commute in Style</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-the-lg-oled-c9-television-stunning-visuals-in-a-smart-package/"><u>The Ultimate Review of the LG OLED C9 Television - Stunning Visuals in a Smart Package</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-garmin-forerunner-745-top-gear-in-advanced-multisport-tracking/"><u>Ultimate Guide to the Garmin Forerunner 745: Top Gear in Advanced Multisport Tracking</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-unintended-tiktok-update-how-to-recover-in-2024/"><u>[New] Unintended TikTok Update – How to Recover, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-thrifty-tips-for-hosting-webinars-on-youtube/"><u>[Updated] Thrifty Tips for Hosting Webinars on YouTube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dell-inspiron-3671-computer-system-analysis-an-overview-of-a-solid-midrange-desktop/"><u>Dell Inspiron 3671 Computer System Analysis: An Overview of a Solid Midrange Desktop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-pinnacle-of-smart-wear-2024s-finest-glasses-reviewed/"><u>Discover the Pinnacle of Smart-Wear: 2024'S Finest Glasses Reviewed</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/from-airwaves-to-iphone-essential-knowledge-on-podcast-downloads/"><u>From Airwaves to iPhone Essential Knowledge on Podcast Downloads</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-realme-c33-2023withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Realme C33 2023with/without a PC</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-tackle-write-prohibited-files-in-windows-11/"><u>How to Tackle Write-Prohibited Files in Windows 11</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-polar-pinnacles-beijing-2022-olympic-spotlight/"><u>In 2024, Polar Pinnacles Beijing 2022 Olympic Spotlight</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-vivo-s18e-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Vivo S18e Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-unveiling-instagrams-rule-on-posted-videos/"><u>In 2024, Unveiling Instagram’s Rule on Posted Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/linkedin-plus-a-guide-to-its-prestige-benefits/"><u>LinkedIn Plus - A Guide to Its Prestige Benefits</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/1721384309754-no-emoji-tweets-ahead-linuss-unveiled-secrets-trojan-analysis-and-chatgpt-shortfalls/"><u>No Emoji Tweets Ahead, Linus's Unveiled Secrets, Trojan Analysis, & ChatGPT Shortfalls.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/quality-sound-for-less-a-review-of-senso-buds/"><u>Quality Sound for Less: A Review of Senso Buds</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-acer-discounts-maximizing-savings-in-novemberdecember-2024/"><u>Ultimate Acer Discounts: Maximizing Savings in November/December 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-features-of-amazonbasics-secure-micro-cut-shredder-product-analysis/"><u>Unpacking the Features of AmazonBasics' Secure Micro-Cut Shredder – Product Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-performance-of-logitechs-premium-hd-webcam-c920-a-full-review/"><u>Unveiling the Performance of Logitech's Premium HD Webcam, C920 – A Full Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-the-samsung-galaxy-s21-ultra-reigns-supreme-on-google-play/"><u>Why the Samsung Galaxy S21 Ultra Reigns Supreme on Google Play</u></a></li>
 </ul></div>
 

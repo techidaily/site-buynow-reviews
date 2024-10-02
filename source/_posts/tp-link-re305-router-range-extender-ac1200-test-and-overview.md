@@ -1,7 +1,7 @@
 ---
 title: TP-Link RE305 Router Range Extender AC1200 Test & Overview
-date: 2024-09-22T16:35:37.042Z
-updated: 2024-09-26T17:49:42.179Z
+date: 2024-09-25T17:30:02.980Z
+updated: 2024-10-01T18:15:47.176Z
 categories:
   - BestProducts
 description: This Article Describes TP-Link RE305 Router Range Extender AC1200 Test & Overview
@@ -81,10 +81,10 @@ Lifewire / Claire Cohen
  There's an[Ethernet port](https://www.lifewire.com/what-is-an-ethernet-port-817546) at the bottom of the device as well as a pinhole reset button, just in case it needs rebooted at any point. It's a bit awkward to hang an[Ethernet cord](https://www.lifewire.com/what-is-an-ethernet-cable-817548) from the extender depending on where you've placed it in your home, but it's a useful addition to bring Ethernet to a desktop, TV, or gaming console without having to put holes in your wall.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Simple and quick**
@@ -105,6 +105,19 @@ Lifewire / Claire Cohen
 
  There is one important pain point, however, to keep in mind during setup. The extender's administrative password utilizes a default "admin/admin" login, so you'll want to change that to keep unauthorized users out. It can be changed via the TP-Link Tether app, which isn't clearly lined out in the instructions. It isn't required, but if you want to keep your network as secure as possible, it's an important part of setup.
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Connectivity and Network Performance:** **Strong, multi-device connectivity**
 
  Several devices were connected to our wireless network, including a MacBook Pro,[iPhone X](https://www.lifewire.com/iphone-x-4150706) , iPad Pro,[Nintendo Switch](https://www.lifewire.com/what-is-the-nintendo-switch-4148184) , and[PlayStation 4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) . When testing the wireless extender's range, at 10 feet to around 70 or so feet away from the router in a 2,100 square foot home, its signal was quite strong, with full bars on an iPhone X and iPad Pro in most areas. One bathroom on the first floor did suffer from occasionally spotty connectivity at around 1,500 feet away from the router.
@@ -114,13 +127,6 @@ Lifewire / Claire Cohen
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/Lyz1QcuQDPYlUp5pPBJiL0YKSag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-2-5c9241dcc9e77c0001a92785.jpg)
 
  Lifewire / Claire Cohen
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Clean and easy to understand**
 
@@ -135,20 +141,13 @@ Lifewire / Claire Cohen
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/bG-oXoYxR83gVSUH4vzz37hfYxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-1-5c92424b46e0fb000172f127.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: More of the same**
 
@@ -161,6 +160,13 @@ Lifewire / Claire Cohen
 **A no-frills option for smaller homes.**
 
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -195,18 +201,22 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-mastery-of-gesture-recognition-all-methods-explained/"><u>[New] Mastery of Gesture Recognition All Methods Explained</u></a></li>
-<li><a href="https://win-great.techidaily.com/windows202/"><u>【おすすめ】Windowsで使える最新動画制作ツール202</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-swiftly-swap-songs-in-your-youtube-collection/"><u>2024 Approved Swiftly Swap Songs in Your YouTube Collection</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-youtubes-twist-rearranging-queue-from-end-to-beginning/"><u>2024 Approved YouTube's Twist Rearranging Queue From End to Beginning</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/5-pinterest-video-downloads-no-cost-and-fast-access-online-for-2024/"><u>5 Pinterest Video Downloads – No Cost & Fast Access Online for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-google-wifi-assessment-the-perfect-solution-for-all-your-wireless-needs/"><u>Comprehensive Google WiFi Assessment: The Perfect Solution for All Your Wireless Needs</u></a></li>
-<li><a href="https://review-topics.techidaily.com/motorola-edge-40-neo-cant-play-mp4-video-files-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Motorola Edge 40 Neo can't play MP4 video files</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/motorola-one-review-a-stylish-contender-against-apples-iconic-iphone-at-a-bargain-price/"><u>Motorola One Review: A Stylish Contender Against Apple's Iconic iPhone at a Bargain Price</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/oculus-quest-2-unveiled-immerse-yourself-in-virtual-reality-excellence-at-an-extraordinary-price-point/"><u>Oculus Quest 2 Unveiled: Immerse Yourself in Virtual Reality Excellence at an Extraordinary Price Point</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/powerful-performance-and-stunning-design-unveiling-the-moto-gs-battery-advantages/"><u>Powerful Performance & Stunning Design: Unveiling the Moto G's Battery Advantages</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-battle-of-flagships-analyzing-differences-between-iphone-15-pro-max-and-samsung-s2e-ultra/"><u>The Battle of Flagships: Analyzing Differences Between iPhone 15 Pro Max and Samsung S2e Ultra</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-kobo-nia-an-e-reader-that-gives-amazon-kindle-a-run-for-its-money/"><u>Unveiling the Kobo Nia: An E-Reader That Gives Amazon Kindle a Run for Its Money</u></a></li>
-<li><a href="https://games-able.techidaily.com/what-to-expect-from-amds-graphics-powerhouses-xt-series-review/"><u>What to Expect From AMD's Graphics Powerhouses: XT Series Review</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-chuckle-champs-twitters-humor-heap/"><u>[New] 2024 Approved Chuckle-Champs Twitter’s Humor Heap</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-unveiling-the-5-prized-webcams-for-ultimate-game-broadcasting-for-2024/"><u>[New] Unveiling the 5 Prized Webcams for Ultimate Game Broadcasting for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-charting-the-course-for-your-youtube-music-narrative/"><u>[Updated] In 2024, Charting the Course for Your YouTube Music Narrative</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-the-ultimate-guide-to-effective-screen-recorders-for-2024/"><u>[Updated] The Ultimate Guide to Effective Screen Recorders for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-samsung-galaxy-watch-active-2-superior-connections-extended-functionality-compared-to-first-generation/"><u>Comprehensive Analysis of Samsung Galaxy Watch Active 2 - Superior Connections, Extended Functionality Compared to First Generation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-the-google-pixel-4a-with-5g-the-budget-friendly-powerhouse/"><u>Comprehensive Evaluation of the Google Pixel #4a with 5G - The Budget-Friendly Powerhouse</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-test-drive-the-poweradd-pilot-pro2-ultimate-multi-device-charging-station/"><u>Comprehensive Test Drive: The POWERADD Pilot Pro2 - Ultimate Multi-Device Charging Station</u></a></li>
+<li><a href="https://media-tips.techidaily.com/election-type-and-competitiveness-turnout-is-usually-higher-for-presidential-elections-than-midterm-or-local-ones-as-well-as-when-races-are-closely-conteste52/"><u>Election Type and Competitiveness: Turnout Is Usually Higher for Presidential Elections than Midterm or Local Ones, as Well as when Races Are Closely Contested.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-clearstream-2-v-channel-master-hd-tv-antenna-exceptional-indoorsoutdoors-function-in-a-not-so-attractive-design/"><u>Evaluating the ClearStream 2 V Channel Master HD TV Antenna: Exceptional Indoors/Outdoors Function in a Not-so-Attractive Design</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-nokia-g22-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Nokia G22 Phones with/without a PC</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-itel-p40-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Itel P40</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-your-on-the-go-charging-with-the-halo-bolt-portable-chargerjump-starter-a-comprehensive-guide/"><u>Maximize Your On-The-Go Charging with the Halo Bolt Portable Charger/Jump Starter: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/next-level-nighttime-necessities-a-comprehensive-guide-to-romers-long-lasting-led-torch/"><u>Next-Level Nighttime Necessities: A Comprehensive Guide to Romer’s Long-Lasting LED Torch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/power-and-portability-combined-in-depth-look-at-the-hp-zbook-firefly-15-g8-review/"><u>Power & Portability Combined: In-Depth Look at the HP ZBook Firefly 15 G8 Review</u></a></li>
+<li><a href="https://techidaily.com/resolve-compile-error-in-hidden-module-in-excel-2016-causes-and-solutions-stellar-by-stellar-guide/"><u>Resolve Compile Error in Hidden Module in Excel 2016 Causes & Solutions | Stellar</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/step-by-step-manual-implementing-speech-to-text-with-google-docs/"><u>Step-by-Step Manual Implementing Speech to Text with Google Docs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-choosing-a-top-nixplay-seed-frame/"><u>The Ultimate Guide to Choosing a Top Nixplay Seed Frame</u></a></li>
 </ul></div>
 

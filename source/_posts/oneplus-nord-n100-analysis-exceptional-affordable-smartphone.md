@@ -1,7 +1,7 @@
 ---
 title: "OnePlus Nord N100 Analysis: Exceptional Affordable Smartphone"
-date: 2024-09-17T19:05:33.205Z
-updated: 2024-09-20T17:31:17.679Z
+date: 2024-09-30T20:00:53.436Z
+updated: 2024-10-01T17:13:04.169Z
 categories:
   - BestProducts
 description: "This Article Describes OnePlus Nord N100 Analysis: Exceptional Affordable Smartphone"
@@ -67,6 +67,13 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -74,6 +81,13 @@ Lifewire / Erika Rawes
  It doesn’t come with a stand, but it does include 3M double-sided adhesives you can use to attach the antenna to walls or other surfaces. It also comes with a 10-foot long coax cable, which is removable. The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup: Relatively easy**
 
@@ -85,21 +99,7 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels (in a rural area)**
 
@@ -107,14 +107,14 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: 35 miles**
 
@@ -123,6 +123,13 @@ Lifewire / Erika Rawes
  Even with the short-range, I was able to pick up 16 channels on my first attempt, including The CW, PBS, and more. In a different room in my test home, I was able to get 23 channels, but this is probably because there’s less tree cover outside of the house on that side of the property. Considering the location of my test home, 23 channels is pretty good.
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Super affordable**
 
@@ -171,5 +178,24 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-full-screen-perfection-the-top-4-pcmac-screen-recorders-for-2024/"><u>[New] Full-Screen Perfection The Top 4 PC/Mac Screen Recorders for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-guide-to-securing-superior-quality-pics-without-charges/"><u>[New] Guide to Securing Superior Quality Pics without Charges</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-melody-in-motion-incorporating-music-into-powerpoint/"><u>2024 Approved Melody in Motion Incorporating Music Into PowerPoint</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-propel-innovative-expression-ultimate-guide-to-best-android-drawing-tools/"><u>2024 Approved Propel Innovative Expression Ultimate Guide to Best Android Drawing Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-screening-success-10-movies-that-energize-and-empower/"><u>2024 Approved Screening Success 10 Movies That Energize & Empower</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-compatible-mice-for-your-ipad-enhance-your-experience-today/"><u>Best Compatible Mice for Your iPad - Enhance Your Experience Today!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/gmail-vs-outlook-comparing-top-email-services-to-find-the-ultimate-winner/"><u>Gmail vs Outlook: Comparing Top Email Services to Find the Ultimate Winner</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/grasp-quality-photo-display-with-top-tier-nixplay-seed-frame/"><u>Grasp Quality Photo Display with Top-Tier Nixplay Seed Frame</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/horizon-hours-exploring-auto-advancements-through-reading-book-five-of-fourth-series/"><u>Horizon Hours - Exploring Auto Advancements Through Reading, Book Five of Fourth Series</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-get-your-file-explorer-working-again-on-a-windows-amoled-10-pc-solved/"><u>How to Get Your File Explorer Working Again on a Windows Amoled 10 PC – Solved!</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-comprehensive-manual-mastering-mobizen-recorders/"><u>In 2024, Comprehensive Manual Mastering Mobizen Recorders</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-google-pixel-4a-a-smart-choice-for-everyday-use/"><u>In-Depth Analysis of the Google Pixel 4A: A Smart Choice for Everyday Use</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-swagtron-swaggers-sophisticated-e-scooter-revolutionizing-urban-transportation/"><u>In-Depth Review: Swagtron Swagger's Sophisticated E-Scooter Revolutionizing Urban Transportation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-winegard-fl5500a-worth-it-review-on-its-signal-quality-and-expensive-pricing-structure/"><u>Is the Winegard FL5500A Worth It? Review on Its Signal Quality and Expensive Pricing Structure</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/kostenloze-online-converting-of-videomov-in-swf-format-perfectsolution-videoconversion/"><u>Kostenloze Online Converting of VIDEO_MOV in SWF-Format - PerfectSolution VideoConversion</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-health-insights-without-breaking-the-bank-the-ultimate-fitbit-versa-lite-review/"><u>Maximizing Health Insights without Breaking the Bank: The Ultimate Fitbit Versa Lite Review</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/who-reigns-supreme-obs-vs-twitch-live/"><u>Who Reigns Supreme? OBS vs Twitch Live</u></a></li>
+</ul></div>
 

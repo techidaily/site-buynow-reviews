@@ -1,7 +1,7 @@
 ---
 title: "Underflow Check for Subtraction: Similarly, Underflow Can Be Determined by Checking the Signs of Operands in Relation to Their Difference's Sign"
-date: 2024-09-13T16:55:21.791Z
-updated: 2024-09-20T16:22:06.468Z
+date: 2024-09-25T00:52:51.165Z
+updated: 2024-10-02T02:37:44.658Z
 categories:
   - BestProducts
 description: "This Article Describes Underflow Check for Subtraction: Similarly, Underflow Can Be Determined by Checking the Signs of Operands in Relation to Their Difference's Sign"
@@ -41,6 +41,13 @@ Lifewire / Jonno Hill
 [View On Amazon $88](https://www.amazon.com/dp/B007RH5GZI/?tag=lifewire-onsite-prod-20&ascsubtag=4843109%7Cn245c3b842cae4efcb285c88c84d3394016%7CB007RH5GZI) [View On Walmart $88](https://www.walmart.com/ip/30312147) [View On Tractor Supply Co. $108](https://www.tractorsupply.com/tsc/product/antennas-direct-clearstream-2v-uhf-vhf-indoor-outdoor-dtv-antenna-with-mount-adic2vcjm?slfpid=3)
 
 4.3
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## ClearStream 2V Indoor/Outdoor HDTV Antenna
 
@@ -90,10 +97,10 @@ Lifewire / Jonno Hill
  Once the entire device is assembled, the real work begins in my opinion. Now you have to figure out how and where to mount this beast of an antenna. Antenna’s Direct has you covered here, including a hefty bracket and swiveling mast that will help you mount the antenna to just about anywhere with a flat surface that you don’t mind screwing some bolts into.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Top tier**
@@ -104,13 +111,6 @@ Lifewire / Jonno Hill
 
  In my channel acquisition test, the ClearStream managed 76 channels consistently, far and away the best result from any of the devices I tested. The worst antenna I tested picked up just 47 channels, and the second best, 69\. Needless to say, all the wires, cages, and bulbous plastic spheres are clearly doing something here, because this was the best result I saw.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Range: Extensive**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna is rated for up to 60 miles. These ratings are generally based on relatively unobstructed paths between the signal and your device. There is a lot less than 60 miles between me and my local TV broadcast source, but if the other results are any indication, the ClearStream has a fighting chance at living up to these claims.
@@ -118,6 +118,13 @@ Lifewire / Jonno Hill
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/NoQoQy3-EFUpi1z9oMTpD2JGWHQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_04-70f5a48ac9a347d286c71240b85cbc1c.jpg)
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Performance doesn’t come cheap**
 
@@ -135,10 +142,10 @@ Lifewire / Jonno Hill
  The ClearStream 2V Indoor/Outdoor HDTV Antenna isn’t the cheapest or best-looking antenna on the market, but it gets the job done better than any of the other antennas we tested. Buyers who know they need an antenna with better range and performance will find this to be a noticeable bump from cheaper indoor antennas.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -165,5 +172,16 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-discover-the-hits-top-tracks-on-spotify/"><u>[New] In 2024, Discover the Hits Top Tracks on Spotify</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-evaluating-enterprise-chat-apps-for-peak-productivity-which-one-wins-slack-or-discord-for-2024/"><u>[Updated] Evaluating Enterprise Chat Apps for Peak Productivity Which One Wins, Slack or Discord for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-the-best-of-both-worlds-with-sealocs-slim-and-sleek-55-4k-outdoor-tv/"><u>Experience the Best of Both Worlds with Sealoc's Slim & Sleek 55 4K Outdoor TV</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-top-10-sites-to-download-copyright-free-meditation-music/"><u>In 2024, Top 10 Sites to Download Copyright-Free Meditation Music</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/macbook-face-off-analyzing-the-benefits-of-air-and-pro-models-side-by-side/"><u>MacBook Face-Off: Analyzing the Benefits of Air and Pro Models Side by Side</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/petcube-bites-2-a-love-letter-for-pet-owners-abroad/"><u>Petcube Bites 2: A Love Letter for Pet Owners Abroad</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-vivo-y78-5g-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from Vivo Y78 5G</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-lenovo-ideapad-130s-a-closer-look-at-its-limited-processing-strength-and-surprising-usability/"><u>The Lenovo IdeaPad 130S - A Closer Look at Its Limited Processing Strength and Surprising Usability</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-solutions-for-binkw32dll-not-found-errors/"><u>Troubleshooting Solutions for binkw32.dll Not Found Errors</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "SYMA X5C R/C Helicopter Evaluation: A Budget-Friendly Starter Choice"
-date: 2024-09-20T17:26:13.977Z
-updated: 2024-09-26T18:45:06.573Z
+date: 2024-09-30T19:13:38.715Z
+updated: 2024-10-01T17:05:08.984Z
 categories:
   - BestProducts
 description: "This Article Describes SYMA X5C R/C Helicopter Evaluation: A Budget-Friendly Starter Choice"
@@ -45,6 +45,13 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/9YqP4BNKZ_F27rxIYbc3f1vqzd0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_HERO_3LW4065141_3_Final_Square-204b4e949e864f148cd513b3511eac69.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / James Huenink
 
 [View On Amazon $50](https://www.amazon.com/Logitech-Laptop-Webcam-Design-360-Degree/dp/B004YW7WCY/?tag=lifewire-onsite-prod-20&ascsubtag=4784217%7Cn9a41b5a87a5c491e81f6733af031a52502%7CB004YW7WCY) [View On Best Buy $43](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Flogitech-hd-webcam-c615-black%2F2588445.p%3F) [View On Adorama.com $50](https://www.adorama.com/log615.html)
@@ -69,6 +76,13 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design:** **Flexible, foldable design**
 
  The Logitech C615 is a compact webcam. The whole device folds up into a very small package, just 2.5” wide, 1.25” tall, and 1.5” wide, so you can tuck it into a pocket. When you open it up, the flexible design is simple to position. Unfolded, the webcam has three pieces: the base, neck, and[camera](https://www.lifewire.com/best-digital-cameras-under-100-3897833) . The base is the heaviest part, which means that the camera stays upright even if you don’t perfectly balance everything. The top is made out of a soft, rubbery plastic, and the bottom has a rubbery dot that keeps the base from sliding around. The dot comes off the base to reveal a tripod post, so this camera is compatible with a standard tripod. The only problem is that the dot comes off completely when the tripod post is exposed. If you're prone to losing things, this may be an issue.
@@ -83,13 +97,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Camera Quality: Quality camera with some autofocus troubles**
 
  The camera takes 1080p video and has a 2 MP sensor. We tested the webcam’s photo capabilities by taking a picture of some packaging. Color was well represented, but the autofocus was just a bit off. The image was just a bit blurry, and we couldn’t read the smaller words at all. This wasn’t a problem close up, but it made a bigger difference when people were far away.
@@ -103,13 +110,32 @@ Lifewire / James Huenink
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/Bko9Uk1HIIMt9aNgtBf9ATCy0AA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_14_Final_Horiz-4f1b9fe91b8c4229b17dbbe6afb81b8c.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / James Huenink
+
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Decent sound quality for a small mic**
 
@@ -120,13 +146,6 @@ Lifewire / James Huenink
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/C2UBXNFmxG8nA0udy1IprMH4LBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_9_Final_Horiz-1af52951f8704af9b76d7dd1ec9744a9.jpg)
 
  Lifewire / James Huenink
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Inexpensive HD camera**
 
@@ -147,13 +166,6 @@ Lifewire / James Huenink
  **Strikes a balance between affordability and performance.**
 
  The Logitech C615 Webcam strikes the perfect balance between performance and affordability. The quality design, high definition video, and quality sound make this an excellent webcam for most tasks at a great price.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -187,18 +199,15 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-step-by-step-guide-to-watching-facebook-live-2sy-year/"><u>[New] 2024 Approved Step-by-Step Guide to Watching Facebook Live, 2Sy Year</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-innovative-ways-to-record-youtube-videos-for-2024/"><u>[New] Innovative Ways to Record YouTube Videos for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-transform-avis-into-gifs-a-step-by-step-filmora-guide-for-pc-and-mac/"><u>2024 Approved Transform AVIs Into GIFs A Step-by-Step Filmora Guide for PC and Mac</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/asus-zephyrus-g14-analysis-the-ultimate-non-compromising-gaming-machine/"><u>Asus Zephyrus G14 Analysis - The Ultimate Non-Compromising Gaming Machine</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-assessment-of-the-sumind-bt70b-bluetooth-audio-unit-your-essential-car-companion/"><u>Comprehensive Assessment of the Sumind BT70B Bluetooth Audio Unit: Your Essential Car Companion</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-features-of-the-apple-iphone-se-2020-reason-meets-sophistication/"><u>Exploring the Features of the Apple iPhone SE (2020): Reason Meets Sophistication</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/fixes-for-your-computer-starting-without-showing-anythe-on-monitor/"><u>Fixes for Your Computer Starting Without Showing Anythe on Monitor</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/hassle-free-nutrition-with-arf-automatic-pet-feeder/"><u>Hassle-Free Nutrition with Arf Automatic Pet Feeder</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-bridging-story-and-sound-scriptwriting-for-visual-media/"><u>In 2024, Bridging Story and Sound Scriptwriting for Visual Media</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-from-favorites-to-featured-the-journey-to-a-unique-youtube-list/"><u>In 2024, From Favorites to Featured The Journey to a Unique YouTube List</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-tp-link-re5n5x-wireless-booster-a-users-perspective/"><u>In-Depth Analysis of the TP-Link Re5n5X Wireless Booster - A User's Perspective</u></a></li>
-<li><a href="https://blog-min.techidaily.com/mp4-ts-6/"><u>MP4への完全移行: TS ファイルを上級技術で変換する究極の6手法</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/step-by-step-guide-clearing-your-browser-history-on-microsoft-edge/"><u>Step-by-Step Guide: Clearing Your Browser History on Microsoft Edge</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-a-step-by-step-strategy-to-design-engaging-youtube-teasers/"><u>[New] A Step-by-Step Strategy to Design Engaging YouTube Teasers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-how-to-change-name-in-google-meet/"><u>[New] In 2024, How to Change Name in Google Meet?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/crafting-metropolises-in-cities-skylines-an-irresistible-city-building-adventure/"><u>Crafting Metropolises in 'Cities: Skylines': An Irresistible City-Building Adventure</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhancing-typing-ergonomics-elite-keyboard-rests/"><u>Enhancing Typing Ergonomics: Elite Keyboard Rests</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-cutting-edge-devices-dell-monitor-showcase-anc-headphone-demo-webcam-quality-test/"><u>Experience Cutting-Edge Devices: Dell Monitor Showcase, ANC Headphone Demo, Webcam Quality Test</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/explore-new-horizons-learning-strategies-for-board-games-and-creative-visuals-using-my-gpt-bots/"><u>Explore New Horizons: Learning Strategies for Board Games & Creative Visuals Using My GPT Bots</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-durability-in-education-tech-the-asus-chromebook-c202sa-evaluation/"><u>Exploring Durability in Education Tech: The Asus Chromebook C202SA Evaluation</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-motorola-g24-power-phone-without-google-account-by-drfone-android/"><u>How to Unlock Motorola G24 Power Phone without Google Account?</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solution-guide-getting-microsoft-store-back-online-after-failure-to-open/"><u>Solution Guide: Getting Microsoft Store Back Online After Failure to Open</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Vivo S18 Pro | Dr.fone</u></a></li>
 </ul></div>
 

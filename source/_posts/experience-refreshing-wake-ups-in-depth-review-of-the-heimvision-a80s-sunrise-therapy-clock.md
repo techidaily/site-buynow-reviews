@@ -1,7 +1,7 @@
 ---
 title: "Experience Refreshing Wake-Ups: In-Depth Review of the HeimVision A80S Sunrise Therapy Clock"
-date: 2024-09-23T20:58:57.840Z
-updated: 2024-09-26T19:58:56.548Z
+date: 2024-09-29T16:28:55.393Z
+updated: 2024-10-01T22:10:27.242Z
 categories:
   - BestProducts
 description: "This Article Describes Experience Refreshing Wake-Ups: In-Depth Review of the HeimVision A80S Sunrise Therapy Clock"
@@ -49,13 +49,6 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/Coi6EdMOwuyjB7rdhov_hsKrHmo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Acer-Predator-Triton-300-SE-Gaming-Laptop-1-d6f9eeb5a43845a9a328125976c835b0.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Matthew S. Smith
 
 [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6455816.p) [View On Acer.com](https://www.acer.com/ac/en/US/content/predator-model/NH.QD0AA.002)
@@ -85,13 +78,6 @@ Lifewire / Matthew S. Smith
 
  Acer’s Predator Triton 300 SE is, in many respects, a mid-range gaming laptop, but it succeeds at one very important task: it delivers Nvidia RTX 3060 Max-Q at a reasonable price, and it’s actually in stock not just at, but sometimes below, MSRP. Its value pricing helps the Triton 300 SE stand out against attractive competitors like the Asus ROG Zephyrus G14.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design: Small but sturdy
 
  I’m surprised Acer didn’t slap a “Pro” label on the Predator Triton 300 SE. The spec sheet might scream gaming, but the laptop’s look and feel has more in common with[business laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) . The aluminum exterior and simple silver interior keep this laptop subtle. It’s a bit dull, actually, compared to the sleek elegance of[Razer’s Book 13](https://www.lifewire.com/razer-book-13-review-5176895) or the brash look of[Asus’ ROG Zephyrus G14](https://www.lifewire.com/asus-zephyrus-g14-review-a-no-compromises-gaming-laptop-5084841) .
@@ -104,15 +90,22 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/RkOepytb4JglYF6g8lqap4lR4Uk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-5-b8c978f2d42a4865be1ea11a4785c104.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
 
  All the laptop’s ports are placed near the front of the chassis. You’ll have to deal with tangled cables more often than with a laptop that places most ports on the rear. I found this annoying when using an external mouse, as cables jutting from the laptop’s flanks often bumped my hand while playing games.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What’s New: This one is special
@@ -131,16 +124,16 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/eRv5Q4rKutM9zrhSTCRxbBO4rVc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-6-2af7f9999ae847bda4f5b9b830c9c555.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Matthew S. Smith
 
  There’s one downside: poor viewing angles. This is unusual in a modern laptop, though I’ve noticed this trait in many high-refresh laptop displays. I can’t give the Triton 300 SE too much flak for this given its otherwise excellent performance.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Performance: Great for games, ok for everything else
 
@@ -171,10 +164,10 @@ Lifewire / Matthew S. Smith
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/IiMzYmVU-_I6PnObn0bkjyCzqUk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-3-7cae0e5d13154048bbc93c40976706ca.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
@@ -190,10 +183,16 @@ Lifewire / Matthew S. Smith
  There are limits, of course. It isn’t loud enough to project impressive volume in a living room or kitchen. It can also sound muddy and confused when playing bass-forward music or the most frantic action games. Still, it’s an impressive set of speakers that will rarely leave you wanting for more.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Network: Killer performance
@@ -203,13 +202,6 @@ Lifewire / Matthew S. Smith
  It delivered network speeds of over 800 megabits per second (Mbps) near my router, which is typical. Every[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345#:~:text=Wi%2DFi%206%20is%20the,Fi%20faster%20and%20more%20reliable.) laptop I review manages that. I was impressed by its performance in my detached office, where the Triton 300 SE hit up to 195Mbps. By comparison, the[Lenovo ThinkPad X1 Titanium](https://www.lifewire.com/lenovo-thinkpad-x1-titanium-yoga-review-5179212) hit only 40Mbps in the same space.
 
  This translated to excellent real-world results. I created a real-world stress test by downloading Cyberpunk 2077 on Steam while simultaneously downloading Metro Exodus on Epic. Surprisingly, both downloads averaged in excess of 25Mbps. I’m used to seeing numbers in the teens.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Camera: BYOW (Bring Your Own Webcam)
 
@@ -231,6 +223,13 @@ Lifewire / Matthew S. Smith
 
 Lifewire / Matthew S. Smith
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Software: Planet what now?
 
  Acer ships the Predator Triton 300 SE with Windows 10 Home. It includes a few touches exclusive to Acer, including a Planet9 wallpaper and a few other icons under the same.
@@ -242,6 +241,13 @@ Lifewire / Matthew S. Smith
 ## Price: An outstanding value
 
  Acer sells the Predator Triton 300 SE for $1,400, and it sometimes sells for $1,350 at Best Buy. This is an outstanding price for a laptop packing Nvidia’s RTX 3060\. There’s only a few competitors with the RTX 3060, such as MSI’s GF65 Thin, that can be purchased for less right now. The MSI GF65 manages to undercut the Triton 300 SE by using an older Intel chip and just 8GB of RAM.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Acer Predator Triton 300 SE vs. Asus ROG Zephyrus G14
 
@@ -301,24 +307,24 @@ Lifewire / Matthew S. Smith
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-from-front-to-back-mastering-instagram-video-spins-for-maximum-impact/"><u>[New] In 2024, From Front to Back Mastering Instagram Video Spins for Maximum Impact</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unveiling-excellent-video-creatives/"><u>[New] Unveiling Excellent Video Creatives</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-unveiling-the-pathway-to-high-quality-images-on-deal/"><u>[New] Unveiling the Pathway to High-Quality Images on Deal</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-decoding-veiled-content-on-youtube/"><u>[Updated] 2024 Approved Decoding Veiled Content on YouTube</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-secure-and-effective-methods-for-facetime-audio-preservation/"><u>2024 Approved Secure and Effective Methods for FaceTime Audio Preservation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-gimp-software-assessment-the-ultimate-free-cross-platform-photo-tool/"><u>Comprehensive GIMP Software Assessment: The Ultimate Free Cross-Platform Photo Tool</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-of-tascams-cd-200bt-premium-wireless-studio-player/"><u>Expert Review of Tascam's CD-200BT: Premium, Wireless Studio Player</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-samsung-galaxy-s24-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Samsung Galaxy S24 Pattern Lock Screen</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-vivo-v29-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Vivo V29 | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-bypass-activation-lock-from-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Bypass Activation Lock from iPhone 11 Pro Max</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ipad-pro-vs-macbook-pro-in-depth-analysis-of-differences/"><u>IPad Pro Vs. MacBook Pro – In-Depth Analysis of Differences</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/prime-day-specials-save-big-on-popular-samsung-gadgets-today/"><u>Prime Day Specials: Save Big on Popular Samsung Gadgets Today</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-of-amazons-fire-tv-cube-the-ultimate-speedy-media-streamer/"><u>Review of Amazon's Fire TV Cube - The Ultimate Speedy Media Streamer</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/take-portrait-photo-with-your-old-iphone-x8-plus7-plus/"><u>Take Portrait Photo with Your Old iPhone X/8 Plus/7 Plus</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-case-for-netflix-why-its-a-wise-investment/"><u>The Case for Netflix: Why It's a Wise Investment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-essential-guide-to-aukeys-no-nonsense-sleek-usb-30-hub-review/"><u>The Essential Guide to Aukey's No-Nonsense Sleek USB 3.0 Hub Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-spores-of-b-anthracis-and-c-botulinum-have-significant-implications-for-public-health-due-to-their-role-in-diseases-like-anthrax-and-botulism-respective75/"><u>The Spores of B. Anthracis and C. Botulinum Have Significant Implications for Public Health Due to Their Role in Diseases Like Anthrax and Botulism, Respectively.</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/vector-artistry-unleashed-picks-of-the-year-for-designers/"><u>Vector Artistry Unleashed Picks of the Year for Designers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/z3-plus-dashcam-the-perfect-blend-of-affordability-intuitive-design-and-reliable-performance-uncovered-in-our-comprehensive-review/"><u>Z3 Plus DashCam - The Perfect Blend of Affordability, Intuitive Design, and Reliable Performance Uncovered in Our Comprehensive Review</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-audioadvisor-dacast-and-what-it-should-be-for-2024/"><u>[New] AudioAdvisor DaCast & What It Should Be for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-innovative-dialogues-the-key-to-listener-retention-for-2024/"><u>[New] Innovative Dialogues The Key to Listener Retention for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-entry-level-mic-tips-for-youtube-voice-talents-for-2024/"><u>[Updated] Entry-Level Mic Tips for YouTube Voice Talents for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-integrated-content-the-brands-on-youtube-movement-for-2024/"><u>[Updated] Integrated Content The Brands on YouTube Movement for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-tune-into-success-with-instagram-soundscapes-for-2024/"><u>[Updated] Tune Into Success with Instagram Soundscapes for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-your-streamer-how-apple-tv-4k-stands-up-to-roku-ultra/"><u>Choosing Your Streamer: How Apple TV 4K Stands Up to Roku Ultra</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/decoding-fashion-and-functionality-expert-reviews-of-the-iconic-michael-kors-access-gen-5e/"><u>Decoding Fashion & Functionality: Expert Reviews of the Iconic Michael Kors Access Gen 5E</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/first-impressions-matter-why-godfall-on-ps5-leaves-gamers-wanting-more/"><u>First Impressions Matter: Why Godfall on PS5 Leaves Gamers Wanting More</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/fixing-the-critical-process-died-blue-screen-of-death-on-windows-11/"><u>Fixing the 'Critical Process Died' Blue Screen of Death on Windows 11</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-samsung-galaxy-s24-ultra-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Samsung Galaxy S24 Ultra via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Xiaomi Redmi K70? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-downloading-the-latest-tracks-a-guide-to-free-extractors-for-pc-users/"><u>In 2024, Downloading the Latest Tracks A Guide to Free Extractors for PC Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-and-critique-of-pioneer-bdr-xd05b-blu-ray-player-unveiling-potential-flaws/"><u>In-Depth Analysis & Critique of Pioneer BDR-XD05B Blu-Ray Player - Unveiling Potential Flaws</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-look-at-elgoog-reviewing-the-worlds-most-entertaining-mirror-site/"><u>Inside Look at elgooG - Reviewing the World’s Most Entertaining Mirror Site</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/karaoke-extravaganza-across-america-high-quality-entertainment-below-150/"><u>Karaoke Extravaganza Across America: High-Quality Entertainment Below $150</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/luminous-filmmaking-transform-your-videos-with-pro-tips/"><u>Luminous Filmmaking Transform Your Videos with Pro Tips</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-j5-tactical-pro-series-the-ultimate-v1-pro-flashlight-for-durability-and-portable-illumination/"><u>Review of J5 Tactical Pro Series - The Ultimate V1-Pro Flashlight for Durability and Portable Illumination</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sustainability/"><u>Sustainability</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-step-by-step-tutorial-on-how-to-use-the-print-function-in-photoshop/"><u>The Ultimate Step-by-Step Tutorial on How to Use the 'Print' Function in Photoshop</u></a></li>
 </ul></div>
 

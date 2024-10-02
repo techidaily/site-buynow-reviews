@@ -1,7 +1,7 @@
 ---
 title: "ElgooG Explained: An In-Depth Look at the Definitive Mirror Site"
-date: 2024-09-19T23:07:23.454Z
-updated: 2024-09-26T22:04:40.652Z
+date: 2024-09-30T18:47:11.144Z
+updated: 2024-10-02T00:24:04.269Z
 categories:
   - BestProducts
 description: "This Article Describes ElgooG Explained: An In-Depth Look at the Definitive Mirror Site"
@@ -70,13 +70,6 @@ _Our reviewer already owned this product._
 
  A couple gaming sessions later, and I realized I needed a[laptop cooling pad](https://www.lifewire.com/best-laptop-cooling-pads-4149823) . After taking a look at various models, I decided to try out the HAVIT 5 Gaming Laptop Cooling Pad. It boasts five fans and an adjustable rollout switch to customize my cooling experience. And it offers anti-slip baffles so my curious cat can't knock it off my laptop. After over a year of use, I still use this almost every day for my gaming needs. Read on for our final verdict, as well as thoughts on its specs.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design: Looks like a gamer’s cooling pad
 
  HAVIT offers this laptop cooling pad in two different colors: red and blue. I personally felt that the red would be too bright and opted for the blue; when I pulled it out of the box, I was surprised at how heavy its 1.8 pounds felt in my hand.
@@ -90,10 +83,10 @@ Lifewire / Rebecca Isaacs
  To me, the design seems a little clunky. It has smooth edges, but it’s clearly designed as a gamer’s edgy laptop cooling pad with seemingly unnecessary grooves that serve only to hold dust. If you’re looking for a simple design, this is not your cooling pad. That being said, the metal mesh pad for air circulation can accommodate laptops ranging from 14 to 17 inches thanks to its 15.87 x 11.81 x 1.34 inches (LWH) in dimension.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fans: Wasn’t blown away
@@ -108,16 +101,16 @@ Lifewire / Rebecca Isaacs
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/l2nDOOm1dGSmniJBqJPn708DnK8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_03-71babed64c14425184604e4825680aac.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
 
  That’s not to say that this laptop cooling pad doesn’t help cool it down. Since my Eluktronics is getting some much-needed TLC in the shop, I tested the MSI’s internal temps while running[Tropico Six](https://www.lifewire.com/tropico-6-review-5077604) on my laptop. Without the laptop cooling pad, I was running around 187 degrees Fahrenheit. With the cooling pad, it adjusted to around 169 degrees. It’s not much, but it’s enough to make a difference.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Baffles: Adjustable for gaming and typing
 
@@ -133,26 +126,26 @@ Lifewire / Rebecca Isaacs
 
  And, if you’re on-the-go and travelling, the HAVIT 5 also packs quite nicely into a suitcase. Be sure to play it safe like I did and pack it around clothes. But if you need to go across country and want to take your gaming laptop with you, this is a good one that will hold up well in luggage.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: Ouch
 
  I picked up my HAVIT 5 while it was on sale for around $30 back in 2019, but the usual price is around $50\. That seems a little steep, especially for fans that don’t necessarily pack the punch for gaming that most laptops require. If you keep an eye on Amazon, you can usually get this one for around $30, as it seems to go on sale fairly often.
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/lItC7F6Ja8RbBfTaNXh5l9ufFqY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_05-07577b69f7d04de5a7904e798681ba02-6b3615a38d584594b89077eaf51228b2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## HAVIT 5 vs. Kootak Laptop Cooling Pad
@@ -172,6 +165,13 @@ Lifewire / Rebecca Isaacs
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/urban-armor-gear-macbook-pro-case-review-4689954)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -202,15 +202,24 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-lgs-cinematic-revolution-the-31mu97-b-monitor-breakdown-review/"><u>[Updated] In 2024, LG’s Cinematic Revolution The 31MU97-B Monitor Breakdown Review</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-integrate-playlist-into-facebook-cross-platform-method-for-2024/"><u>[Updated] Integrate Playlist Into Facebook - Cross-Platform Method for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-effortless-audio-transfer-on-iphone-pick-top-6-tools-to-convert-youtube/"><u>2024 Approved Effortless Audio Transfer on iPhone Pick Top 6 Tools to Convert YouTube</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-vrecorder-unpacked-step-by-step-download-procedures/"><u>2024 Approved VRecorder Unpacked Step-by-Step Download Procedures</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-why-huawei-p20-pro-stands-out-for-its-phenomenal-photography-and-performance/"><u>Comprehensive Review: Why Huawei P20 Pro Stands Out for Its Phenomenal Photography & Performance</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-realme-narzo-60x-5g-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Realme Narzo 60x 5G Phones</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-motorola-mg7700-a-steady-pace-in-performance/"><u>In-Depth Analysis of Motorola MG7700 - A Steady Pace in Performance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-by-step-to-mastering-the-turkish-script-easy-reference-for-learners/"><u>Step-by-Step to Mastering the Turkish Script: Easy Reference for Learners</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-best-value-in-large-screen-televisions-a-complete-guide-to-the-sony-xbr65x850f-and-its-features/"><u>The Best Value in Large Screen Televisions - A Complete Guide to the Sony XBR65X850F and Its Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/transform-your-daily-read-with-kobo-clara-hd-an-expert-appraisal-for-portable-literary-devices/"><u>Transform Your Daily Read with Kobo Clara HD - An Expert Appraisal for Portable Literary Devices</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-efface-thin-borders-for-a-seamless-youtube-experience/"><u>[New] 2024 Approved Efface Thin Borders for a Seamless YouTube Experience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-decoding-the-secret-of-highest-quality-youtube-mp3s-for-2024/"><u>[New] Decoding the Secret of Highest Quality YouTube MP3s for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-navigating-the-world-of-instagram-posts-large-imagevideo-uploads/"><u>[New] Navigating the World of Instagram Posts Large Image/Video Uploads</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-amusing-registration-journey/"><u>[Updated] Amusing Registration Journey</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-screen-casting-features-in-vlc-examined/"><u>2024 Approved Screen Casting Features in VLC Examined</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/decoding-tablet-sizes-your-comprehensive-guide-to-lighter-more-compact-options/"><u>Decoding Tablet Sizes: Your Comprehensive Guide to Lighter, More Compact Options</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elite-selection-of-extended-mouse-pads-find-your-perfect-match/"><u>Elite Selection of Extended Mouse Pads - Find Your Perfect Match</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exclusive-review-of-the-eufy-t82er-video-doorbell-the-freedom-from-monthly-fees/"><u>Exclusive Review of the Eufy T82er Video Doorbell: The Freedom From Monthly Fees</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-style-and-power-a-detailed-review-of-the-apple-imac-215-4k-monitor/"><u>Exploring Style & Power: A Detailed Review of the Apple iMac 21.5 4K Monitor.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-features-of-samsungs-latest-gem-a-detailed-look-at-the-qn55q6f-4k-hdr-smart-tv/"><u>Exploring the Features of Samsung's Latest Gem: A Detailed Look at the QN55Q6F 4K HDR Smart TV</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-realme-narzo-60x-5g-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Realme Narzo 60x 5G Without PUK Codes</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-best-vivo-s17-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Vivo S17 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Tecno Spark 10C | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/jumpstart-your-joyful-gaming-on-nintendo-switch/"><u>Jumpstart Your Joyful Gaming on Nintendo Switch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/microsoft-surface-ergonomic-keyboard-review/"><u>Microsoft Surface Ergonomic Keyboard Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nokia-71-smartphone-review-stunning-visual-performance-meets-cost-effectiveness/"><u>Nokia 7.1 Smartphone Review - Stunning Visual Performance Meets Cost-Effectiveness</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-essential-5-points-to-think-about-prior-to-purchasing-a-fitness-device/"><u>The Essential 5 Points to Think About Prior to Purchasing a Fitness Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-best-budget-option-a-comprehensive-review-of-hisenses-40h559esmart-television/"><u>Unveiling the Best Budget Option: A Comprehensive Review of Hisense's 40H559eSmart Television</u></a></li>
+<li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-on-iphone-6-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes On iPhone 6?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Take Great Photos
-date: 2024-09-19T18:40:16.866Z
-updated: 2024-09-26T21:47:25.764Z
+date: 2024-09-25T19:19:00.735Z
+updated: 2024-10-01T23:08:51.695Z
 categories:
   - BestProducts
 description: This Article Describes Take Great Photos
@@ -92,6 +92,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
@@ -101,13 +108,6 @@ Lifewire / Andy Zahn
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
 
@@ -126,10 +126,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
@@ -148,13 +148,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -168,13 +161,6 @@ Lifewire / Andy Zahn
  A problem with all these automated modes and scene settings is that the images they produce are exclusively JPEG, with RAW being unavailable. Fortunately, Program mode is essentially the same as Auto, and you can enable RAW image recording there.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
 
@@ -190,13 +176,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -207,11 +186,25 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
 
@@ -228,6 +221,13 @@ Lifewire / Andy Zahn
  **A tremendously fun camera that is exceedingly well-rounded if a bit pricey.**
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -269,19 +269,21 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/oosting-viewer-interest-with-optimal-video-thumbnail-sizes-for-2024/"><u>[New] Boosting Viewer Interest with Optimal Video Thumbnail Sizes for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-switch-to-shine-with-premium-capture-cards/"><u>[New] In 2024, Switch to Shine with Premium Capture Cards</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitters-hot-takes-the-10-craziest-tweets-for-2024/"><u>[Updated] Twitter's Hot Takes The 10 Craziest Tweets for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-cinematic-coloring-the-11-best-tutorials-ever/"><u>2024 Approved Mastering Cinematic Coloring The 11 Best Tutorials Ever</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comparing-standalone-vs-mesh-networks/"><u>Comparing Standalone Vs. Mesh Networks</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/demystifying-discords-features-and-tools-for-2024/"><u>Demystifying Discord's Features and Tools for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ensuring-continuous-gameplay-with-quality-ups-units-an-in-depth-look-at-apcs-gaming-models/"><u>Ensuring Continuous Gameplay with Quality UPS Units: An In-Depth Look at APC's Gaming Models</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/furry-friends-lens-joyful-home-surveillance/"><u>Furry Friends Lens: Joyful Home Surveillance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/guide-to-upgrading-hardware-components-in-intel-imac-units/"><u>Guide to Upgrading Hardware Components in Intel iMac Units</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-itel-s23plus-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Itel S23+ to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-unboxing-the-apple-watch-series-9/"><u>In-Depth Analysis: Unboxing the Apple Watch Series 9</u></a></li>
-<li><a href="https://games-able.techidaily.com/mastering-nintendos-game-boy-advance-classics-on-your-idevice/"><u>Mastering Nintendo's Game Boy Advance Classics on Your iDevice</u></a></li>
-<li><a href="https://windows11.techidaily.com/minimizing-resource-waste-during-device-integration-on-windows/"><u>Minimizing Resource Waste During Device Integration on Windows</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-best-earbud-picks/"><u>Unveiling the Best Earbud Picks</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-ideal-blueprint-top-6-fresh-mojave-homes/"><u>[New] Ideal Blueprint Top 6 Fresh Mojave Homes</u></a></li>
+<li><a href="https://common-error.techidaily.com/solved-black-screen-on-startup-in-monster-hunter-world/"><u>[Solved] Black Screen on Startup in Monster Hunter: World</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-capture-live-camera-video-using-vlc-media-for-2024/"><u>[Updated] Capture Live Camera Video Using VLC Media for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-top-10-gratis-video-chat-solutions-for-corporate-and-schools/"><u>2024 Approved Top 10 Gratis Video Chat Solutions for Corporate & Schools</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-highs-and-lows-of-cyberpunk-2077-a-beautiful-yet-unpolished-gem/"><u>Exploring the Highs & Lows of Cyberpunk 2077: A Beautiful Yet Unpolished Gem</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/flashy-design-robust-connectivity-a-detailed-look-at-the-netgear-nighthawk-rax80-routers-wi-fi-6-capabilities/"><u>Flashy Design, Robust Connectivity: A Detailed Look at the Netgear Nighthawk RAX80 Router's Wi-Fi 6 Capabilities</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016426967-hp-laptop-muting-mystery-get-it-working-in-windows-10-and-beyond/"><u>HP Laptop Muting Mystery? Get It Working in Windows 10 and Beyond</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Realme 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-trouble-with-apple-iphone-13-mini-swipe-up-try-these-11-solutions-by-drfone-ios/"><u>In 2024, Trouble with Apple iPhone 13 mini Swipe-Up? Try These 11 Solutions</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unleashing-imagination-creating-motion-pictures-with-windows-movie-maker/"><u>In 2024, Unleashing Imagination Creating Motion Pictures with Windows Movie Maker</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-xbox-series-x-the-ultimate-gaming-experience-in-4k/"><u>In-Depth Analysis of the Xbox Series X: The Ultimate Gaming Experience in 4K</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/simplifying-your-home-networking-with-tp-link-deco-p9-in-depth-review/"><u>Simplifying Your Home Networking with TP-Link Deco P9 - In-Depth Review</u></a></li>
+<li><a href="https://driver-install.techidaily.com/streamline-computers-upgrade-chip-drivers/"><u>Streamline Computers: Upgrade Chip-Drivers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/thorough-jackery-power-station-examination-featuring-convenient-internal-ac-outlet/"><u>Thorough Jackery Power Station Examination: Featuring Convenient Internal AC Outlet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-testing-of-eufy-t8200-video-doorbell-no-subscription-required/"><u>Unboxing & Testing of Eufy T8200 Video Doorbell – No Subscription Required!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/upgrading-your-system-selecting-and-installing-the-right-graphics-card-for-optimal-performance/"><u>Upgrading Your System: Selecting & Installing the Right Graphics Card for Optimal Performance</u></a></li>
 </ul></div>
 

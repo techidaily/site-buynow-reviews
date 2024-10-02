@@ -1,7 +1,7 @@
 ---
 title: "The Superzoom Revolution: Introducing the PowerShot SX70 Camera Review"
-date: 2024-09-14T18:50:41.827Z
-updated: 2024-09-20T16:40:51.600Z
+date: 2024-09-29T00:03:46.570Z
+updated: 2024-10-01T18:35:46.718Z
 categories:
   - BestProducts
 description: "This Article Describes The Superzoom Revolution: Introducing the PowerShot SX70 Camera Review"
@@ -80,6 +80,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -91,13 +98,6 @@ Lifewire / Andy Zahn
 [Mini HDMI](https://www.lifewire.com/hdmi-cables-and-connectors-what-you-need-to-know-4685377) , Remote shutter, USB, and microphone ports are included, though unfortunately for audio monitoring, the SX70 HS lacks a headphone jack and hot shoe mount. The port covers are durable and easy to use, and we appreciated the well-placed location of the 3.5mm microphone jack.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
@@ -116,6 +116,13 @@ Lifewire / Andy Zahn
  The electronic viewfinder (EVF) is bright and clear with 2,360,000 dots. It’s not the best EVF we’ve ever used as it seems slightly small and cramped, but it gets the job done. A sensor automatically detects when you put your eye up to it (a function that can be adjusted in the settings), which means you don’t have to hunt for a button to switch the EVF on.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Autofocus: Blazing fast**
 
@@ -140,6 +147,13 @@ Lifewire / Andy Zahn
  RAW files are rich and detailed, and[JPEG images](https://www.lifewire.com/jpeg-myths-and-facts-1701548) are well-rendered, though JPEG images do show the compression artifacts typical of point-and-shoot cameras. The built-in flash raises and lowers manually and is functional if unexceptional.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Modes: Plenty to choose from (and only some are useful)**
 
@@ -180,10 +194,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Big brand, big price tag**
@@ -191,13 +205,6 @@ Lifewire / Andy Zahn
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
 
@@ -216,10 +223,10 @@ Lifewire / Andy Zahn
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -260,5 +267,23 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-innovative-chroma-techniques-for-stunning-visual-storytelling/"><u>[New] 2024 Approved Innovative Chroma Techniques for Stunning Visual Storytelling</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-chuckletunes-directory-select-funny-ringtone-sources/"><u>[New] ChuckleTunes Directory Select Funny Ringtone Sources</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-innovative-screenshot-and-recordings-for-gamers-delight/"><u>[New] In 2024, Innovative Screenshot and Recordings for Gamers' Delight</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-master-the-art-of-sowing-and-cultivation-in-valheim/"><u>[New] Master the Art of Sowing and Cultivation in Valheim</u></a></li>
+<li><a href="https://video-capture.techidaily.com/elite-10-royale-combat-titles-for-2024/"><u>Elite 10 Royale Combat Titles for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/gratuit-mp4-vers-vob-en-ligne-convertisseur-video-rapide-movavi/"><u>Gratuit MP4 Vers VOB en Ligne : Convertisseur Vidéo Rapide - Movavi</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-vivo-y36-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Vivo Y36 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-edit-with-ease-10-video-to-mp3-tools-of-the-trade/"><u>In 2024, Edit with Ease #10 Video-to-Mp3 Tools of the Trade</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-the-controller-a-guide-to-tailoring-pc-gaming-setup-for-southpaws/"><u>Mastering the Controller: A Guide to Tailoring PC Gaming Setup for Southpaws</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-gaming-why-accessing-nintendos-eshop-on-pc-trumps-playstation-network/"><u>Maximize Gaming: Why Accessing Nintendo's eShop on PC Trumps PlayStation Network</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/overcoming-backlogs-the-power-of-new-console-tech-to-revive-old-favorites/"><u>Overcoming Backlogs: The Power of New Console Tech to Revive Old Favorites</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/personalizing-your-roku-configuration-for-enhanced-home-network-security/"><u>Personalizing Your Roku Configuration for Enhanced Home Network Security</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revisit-your-favorite-shows-nbcuniversals-now-enables-time-traveling-through-nextgen-tv-broadcasting/"><u>Revisit Your Favorite Shows: NBCUniversal's 'Now' Enables Time-Traveling Through NextGen TV Broadcasting</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/seamless-switch-from-pc-to-mac-the-ultimate-application-for-running-windows-games/"><u>Seamless Switch From PC to Mac: The Ultimate Application for Running Windows Games</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/section-3b-five-factes-to-remember/"><u>Section 3B: Five Factes to Remember</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/unlock-your-youtube-potential-try-these-proven-growth-strategies-for-2024/"><u>Unlock Your YouTube Potential Try These Proven Growth Strategies for 2024</u></a></li>
+</ul></div>
 

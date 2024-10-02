@@ -1,7 +1,7 @@
 ---
 title: Travel Companion G9 X II – Vintage Charm Meets Functionality
-date: 2024-09-19T19:17:46.351Z
-updated: 2024-09-26T16:37:54.389Z
+date: 2024-09-28T02:36:29.933Z
+updated: 2024-10-01T23:45:32.513Z
 categories:
   - BestProducts
 description: This Article Describes Travel Companion G9 X II – Vintage Charm Meets Functionality
@@ -44,16 +44,16 @@ Lifewire / Anduy Zahn
 
 4.7
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fitbit Charge 4 Fitness Tracker
 
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/3KZYnLSyn9OGGXZdp02JH2_4wB8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Fitbit-Charge-4-Fitness-Tracker-1-c163fbceed1748a6bd3de7883ab66a4d.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Anduy Zahn
 
@@ -87,10 +87,10 @@ Lifewire / Anduy Zahn
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/hXje3GJQ1qjDfhBph7Q2s-LKCTE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-4-Fitness-Tracker-4-5fb3fda3d53d4120bfb7c3e1b418abab.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
@@ -107,6 +107,19 @@ Lifewire / Anduy Zahn
 
  As someone with ridiculously large wrists, I really appreciated that the Charge 4 comes with a larger watch band.
 
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: A digital fitness coach**
 
  No fitness tracker is 100% accurate, and the Charge 4 is no exception, but that’s not as much of a problem as you might assume. Though everything from step counts to elevation change to calories expended and consumed has margins for error, they nonetheless give you goals to work towards, and this rough data is perfectly adequate to help you become more conscious of your physical health.
@@ -122,10 +135,10 @@ Lifewire / Anduy Zahn
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/UlCfm0YzhPSZMR3WWRs3oeCWPsA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-4-Fitness-Tracker-2-6afa07ba83e74effb1bd3521b2b43391-3287de2174dc42359f46f06e6576d80b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
@@ -139,20 +152,13 @@ Lifewire / Andy Zahn
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/wFO4EEqsgPPy2Dq-eUgUTZ1q70A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-4-Fitness-Tracker-3-38e2a0e1ea5a46ee85939b8dec6d6a48.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Battery Life: Awesome, but with caveats**
 
@@ -201,24 +207,24 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-silencing-the-spotlight-avoiding-vloggers-fears/"><u>[New] 2024 Approved Silencing the Spotlight Avoiding Vlogger's Fears</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-infuse-your-instagram-with-funny-flair-a-complete-guide-to-gif-memes/"><u>[New] Infuse Your Instagram with Funny Flair – A Complete Guide to GIF Memes</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/essential-checkpoints-integrating-ai-assisted-mental-support-via-chatgpt/"><u>Essential Checkpoints: Integrating AI-Assisted Mental Support via ChatGPT</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experts-pick-the-ultimate-ranking-of-ipads-based-on-key-attributes/"><u>Expert's Pick: The Ultimate Ranking of iPads Based on Key Attributes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-originality-of-knacks-character-in-an-echoing-video-game-universe/"><u>Exploring the Originality of Knack's Character in an Echoing Video Game Universe</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-samsung-galaxy-s24-ultra-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Samsung Galaxy S24 Ultra Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/inside-the-samsung-galaxy-s20-fe-5g-a-comprehensive-review-for-savvy-tech-lovers/"><u>Inside the Samsung Galaxy S20 FE 5G: A Comprehensive Review for Savvy Tech Lovers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-it-worth-it-a-comprehensive-review-of-the-amazing-amazon-kindle-oasis-and-its-price-point/"><u>Is It Worth It? A Comprehensive Review of the Amazing Amazon Kindle Oasis and Its Price Point</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/kootek-laptop-cooler-evaluation-an-exceptional-general-purpose-choice/"><u>Kootek Laptop Cooler Evaluation: An Exceptional General Purpose Choice</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/scheduling-success-a-step-by-step-approach-to-google-meets-for-2024/"><u>Scheduling Success A Step-by-Step Approach to Google Meets for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tablet-faceoff-determining-the-best-between-ipad-kindle-and-nook/"><u>Tablet Faceoff: Determining the Best Between iPad, Kindle, and Nook</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/tips-for-top-notetakers-using-chatgpt/"><u>Tips for Top Notetakers Using ChatGPT</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-ranked-parental-control-router-reviews/"><u>Top-Ranked Parental Control Router Reviews</u></a></li>
-<li><a href="https://win-dash.techidaily.com/unleash-superior-gaming-audio-download-and-install-the-arctis-5-driver-package-from-steelseries/"><u>Unleash Superior Gaming Audio - Download and Install the Arctis 5 Driver Package From SteelSeries</u></a></li>
-<li><a href="https://techidaily.com/unlock-iphone-8-plus-by-drfone-ios-unlock-ios-unlock/"><u>Unlock iPhone 8 Plus</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unmatched-excellence-a-comprehensive-test-of-speedlite-430ex-iii-rt/"><u>Unmatched Excellence: A Comprehensive Test of Speedlite 430EX III-RT</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-pros-and-cons-of-samsung-galaxy-a71-with-5g-connectivity-why-its-a-worthy-contender-to-flagship-models/"><u>Unveiling the Pros and Cons of Samsung Galaxy A71 with 5G Connectivity: Why It's a Worthy Contender to Flagship Models</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-from-console-to-camera-3-simple-video-game-recording-methods/"><u>Updated 2024 Approved From Console to Camera 3 Simple Video Game Recording Methods</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-enhance-your-images-with-professional-techniques/"><u>[Updated] Enhance Your Images with Professional Techniques</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-navigating-through-complete-circles-on-screen/"><u>[Updated] In 2024, Navigating Through Complete Circles on Screen</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-jackery-powerbar-unit-evaluation-with-integrated-ac-port/"><u>Comprehensive Jackery PowerBar Unit Evaluation with Integrated AC Port</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/criacrs-compact-fm-transmitter-cp24-with-built-in-bluetooth-a-thorough-review-for-audio-enthusiasts/"><u>CRIACR's Compact FM Transmitter (CP24) with Built-In Bluetooth - A Thorough Review for Audio Enthusiasts</u></a></li>
+<li><a href="https://win-blog.techidaily.com/cut-down-baldurs-gate-3-cpu-usage-now-discover-effective-solutions-for-gaming-performance-boost/"><u>Cut Down Baldur’s Gate 3 Cpu Usage Now! Discover Effective Solutions for Gaming Performance Boost</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-lightzone-exceptional-photo-editing-program-compatible-with-pcs-and-macs/"><u>Discover LightZone: Exceptional Photo Editing Program Compatible with PCs & Macs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/distinguishing-ipad-from-ipad-air-understanding-key-contrasts/"><u>Distinguishing iPad From iPad Air: Understanding Key Contrasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-improvements-with-canons-new-eos-t7-kit/"><u>Exploring Improvements with Canon's New EOS T7 Kit</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/graphics-glitch-no-more-error-12-in-mhw-solved/"><u>Graphics Glitch No More: Error 12 in MHW Solved</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-itel-p55plus-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Itel P55+ by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-realme-10t-5g-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Realme 10T 5G</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-amazon-luna-assessment-exceptionally-slick-gaming-streaming-experience/"><u>In-Depth Amazon Luna Assessment: Exceptionally Slick Gaming Streaming Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-the-rca-video-doorbell-camera-top-choice-in-security/"><u>In-Depth Evaluation of the RCA Video Doorbell Camera – Top Choice in Security</u></a></li>
+<li><a href="https://win-forum.techidaily.com/step-by-step-guide-updating-your-windows-11-device-drivers/"><u>Step-by-Step Guide: Updating Your Windows 11 Device Drivers</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-samsung-galaxy-f14-5g-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Samsung Galaxy F14 5G Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-family-friendly-router-options/"><u>Top-Rated Family Friendly Router Options</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-wi-fi-6-with-the-stunning-netgear-nighthawk-rax80-review/"><u>Unveiling the Power of Wi-Fi 6 with the Stunning Netgear Nighthawk RAX80 Review</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-vivo-y77t-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Vivo Y77t Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-11s-disruptive-layout-elements-a-review/"><u>Windows 11'S Disruptive Layout Elements: A Review</u></a></li>
 </ul></div>
 

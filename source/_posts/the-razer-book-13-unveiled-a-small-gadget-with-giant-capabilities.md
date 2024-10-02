@@ -1,7 +1,7 @@
 ---
 title: "The Razer Book 13 Unveiled: A Small Gadget with Giant Capabilities"
-date: 2024-09-24T18:25:40.650Z
-updated: 2024-09-26T16:30:38.735Z
+date: 2024-09-27T22:30:07.990Z
+updated: 2024-10-02T02:20:23.758Z
 categories:
   - BestProducts
 description: "This Article Describes The Razer Book 13 Unveiled: A Small Gadget with Giant Capabilities"
@@ -42,22 +42,16 @@ Lifewire / Zach Sweat
 
 4.2
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Nintendo Switch Lite
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/ral6yRtba1CN2dg2W4Log4OcjAg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Nintendo-Switch-Lite-1-66fc3642c4d448b18f4a0775c059247d.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -84,19 +78,6 @@ Lifewire / Zach Sweat
  Although I appreciate what Nintendo has done here with the Lite, a few key missing features might not make it the optimal choice for everyone.
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/EUqklfDyxuB1ye8-DBboDrjzkUw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-2-225f5107c7b74f159afecba8c3f6174a.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -125,13 +106,6 @@ Lifewire / Zach Sweat
  There’s still the issue with the USB-C port sticking straight out of the bottom, making it hard to sit flat against something, but this is somewhat less annoying since you’ll likely be holding it while gaming. Unfortunately, the Lite does not fit into the dock that came with a Switch. If you want to charge it, you have to plug it directly into the included[USB-C charger](https://www.lifewire.com/best-usb-c-chargers-4155815) or the one on a regular Switch, as they’re the same.
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7502vZ1Vh2D4nRux6hEnq4BL3Rk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-5-2fb7aa309cc54dd79c07bd799ef7fe84.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -162,10 +136,10 @@ Lifewire / Zach Sweat
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/kQx9K3tATPBWAMgyJJymqBqYPao=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-3-7349fa7d79f34dbaa50c25cb59aec820.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -208,6 +182,13 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software: Still a bit drab, but smooth and snappy**
 
  If you’ve got an older Switch already or at least spent some time with one, the software found on the Switch Lite is exactly the same. Thankfully, that means it’s clean and snappy, but also a bit boring.
@@ -224,7 +205,21 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/eFyBn6jL7cdHOO4q7zc6pALdQzw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-6-42a5bc5ea4e544bdb6d3fbbd074583c2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery Life: Slightly better, but not the best**
 
@@ -248,14 +243,14 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7XA6hgAK2B4hDSlWdmB8VQddrjw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-7-Comparison-44dcf88ec51247a2b0756445a3c7884d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Nintendo Switch Lite vs. Nintendo Switch**
 
@@ -276,13 +271,6 @@ Lifewire / Zach Sweat
 **Perfect for gamers who prefer handheld.**
 
  Despite being stripped of some of the Switch’s more unique features and strengths, the Switch Lite is a perfect console for gamers on the go or those who prefer handheld. It features an extensive library of exclusives that are perfect for a highly mobile system like Animal Crossing—and it’s hard to argue with the price.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -326,22 +314,22 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-craft-compelling-fb-video-covers-from-scratch/"><u>[New] How to Craft Compelling FB Video Covers From Scratch</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-ignite-passion-the-top-10-inspirational-films/"><u>[New] Ignite Passion The Top 10 Inspirational Films</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-unleashing-virality-steps-to-skyrocket-your-instagram-content-for-2024/"><u>[New] Unleashing Virality Steps to Skyrocket Your Instagram Content for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unlocking-youtube-studios-power-for-professional-edits/"><u>[Updated] In 2024, Unlocking YouTube Studio's Power for Professional Edits</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/cost-efficient-image-maker-but-ux-troubles-for-nikon-coolpix-a10/"><u>Cost-Efficient Image Maker, but UX Troubles for Nikon COOLPIX A10</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exclusive-cyber-monday-offers-save-big-on-popular-roku-models/"><u>Exclusive Cyber Monday Offers: Save Big on Popular Roku Models!</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/exploring-technology-with-toms-hardware-comprehensive-guides-and-insights/"><u>Exploring Technology with Tom's Hardware - Comprehensive Guides and Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-nuances-of-apples-latest-upgrade-in-their-premier-smartwatch-line/"><u>Exploring the Nuances of Apple's Latest Upgrade in Their Premier Smartwatch Line</u></a></li>
-<li><a href="https://fox-that.techidaily.com/fix-the-mysterious-vanishing-of-app-icons-from-your-iphone-quick-solutions-inside/"><u>Fix the Mysterious Vanishing of App Icons From Your iPhone – Quick Solutions Inside!</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-6-passcode-without-itunes-without-knowing-passcode-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 6 Passcode without iTunes without Knowing Passcode?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Xiaomi Redmi K70 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/innovative-network-solutions-uncovered-ranking-the-best-server-enclosures-and-racks/"><u>Innovative Network Solutions Uncovered: Ranking the Best Server Enclosures and Racks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-iphones-for-a-superior-mobile-gaming-experience/"><u>Leading iPhones for a Superior Mobile Gaming Experience</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/pinnacle-of-performance-new-samsung-bdplus-review-for-2024/"><u>Pinnacle of Performance - New Samsung BD+ Review for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/premium-audio-systems-for-law-enforcement/"><u>Premium Audio Systems for Law Enforcement</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-game-changer-a-detailed-look-at-the-m1-powered-2020-apple-macbook-pro-13-reviews-and-insights/"><u>The Game Changer: A Detailed Look at the M1-Powered 2020 Apple MacBook Pro 13'' – Reviews and Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-understanding-truecallers-capabilities/"><u>The Ultimate Guide to Understanding Truecaller's Capabilities</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-pushing-boundaries-with-enhanced-exposure-controls/"><u>[New] Pushing Boundaries with Enhanced Exposure Controls</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-expert-advice-on-gaming-capture-with-windows-10/"><u>2024 Approved Expert Advice on Gaming Capture with Windows 10</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-transform-screen-shots-to-videos-mastery-in-aiseesofts-screencast-tools/"><u>2024 Approved Transform Screen Shots to Videos Mastery in Aiseesoft's Screencast Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-unraveling-vrs-impact-on-digital-cinema/"><u>2024 Approved Unraveling VR's Impact on Digital Cinema</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-oppo-k11-5g-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Oppo K11 5G Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/benchmarking-excellence-in-depth-insights-on-the-ring-video-doorbell-2/"><u>Benchmarking Excellence: In-Depth Insights on the Ring Video Doorbell 2</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-picks-the-most-effective-cell-phone-signal-strengtheners-of-the-year/"><u>Expert Picks: The Most Effective Cell Phone Signal Strengtheners of the Year</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-utilizing-slug-lines-for-better-content-structure/"><u>In 2024, Utilizing Slug Lines for Better Content Structure</u></a></li>
+<li><a href="https://fox-http.techidaily.com/newbies-pathway-to-stunning-photo-edits-in-ps/"><u>Newbie's Pathway to Stunning Photo Edits in PS</u></a></li>
+<li><a href="https://article-files.techidaily.com/obtaining-high-quality-photos-without-restrictions-for-2024/"><u>Obtaining High-Quality Photos Without Restrictions for 2024</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-xr-data-from-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone XR Data From iTunes | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/shotspotter-framing-innovation-meets-high-price/"><u>ShotSpotter Framing: Innovation Meets High Price</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-police-scanners-of-2024/"><u>The Best Police Scanners of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-testing-your-tp-link-re505x-wireless-extender/"><u>The Ultimate Guide to Testing Your TP-Link Re505X Wireless Extender</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-reveal-of-asus-rog-gt-a5300-router-specially-designed-for-gamers-and-tech-enthusiasts/"><u>The Ultimate Reveal of Asus ROG GT-A5300 Router: Specially Designed for Gamers & Tech Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-comprehensive-review-of-the-gaomon-pd1560-pen-tablet/"><u>Unveiling the Power: Comprehensive Review of the Gaomon PD1560 Pen Tablet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-strengths-a-critical-look-at-ankers-enduring-outdoor-lighting-tool/"><u>Unveiling the Strengths: A Critical Look at Anker's Enduring Outdoor Lighting Tool</u></a></li>
 </ul></div>
 

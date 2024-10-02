@@ -1,7 +1,7 @@
 ---
 title: SX720HS Showcases Long Range Photography on a Small Format
-date: 2024-09-19T16:11:52.941Z
-updated: 2024-09-26T22:59:21.533Z
+date: 2024-09-29T00:40:55.676Z
+updated: 2024-10-01T23:25:21.457Z
 categories:
   - BestProducts
 description: This Article Describes SX720HS Showcases Long Range Photography on a Small Format
@@ -48,10 +48,10 @@ thumbnail: https://www.lifewire.com/thmb/0EPVgMSJ1IAA29TkCpI7Z2tdWpw=/400x300/fi
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/AfRhNgqeOD7JfcVqpjzm5LwPSB4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -79,10 +79,10 @@ thumbnail: https://www.lifewire.com/thmb/0EPVgMSJ1IAA29TkCpI7Z2tdWpw=/400x300/fi
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Pretty awkward**
@@ -106,6 +106,19 @@ thumbnail: https://www.lifewire.com/thmb/0EPVgMSJ1IAA29TkCpI7Z2tdWpw=/400x300/fi
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: Smooth sailing**
 
@@ -131,13 +144,6 @@ thumbnail: https://www.lifewire.com/thmb/0EPVgMSJ1IAA29TkCpI7Z2tdWpw=/400x300/fi
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: More than most**
 
  The Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender is listed at $250, although it’s being sold for $220 at multiple retailers as of this writing. That’s definitely on the higher end for an extender.
@@ -155,10 +161,10 @@ thumbnail: https://www.lifewire.com/thmb/0EPVgMSJ1IAA29TkCpI7Z2tdWpw=/400x300/fi
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -187,19 +193,22 @@ thumbnail: https://www.lifewire.com/thmb/0EPVgMSJ1IAA29TkCpI7Z2tdWpw=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-epic-dramatic-stories-for-the-ears/"><u>[Updated] 2024 Approved Epic Dramatic Stories for the Ears</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-exceptional-value-premium-asmr-microphones-at-low-costs-for-2024/"><u>[Updated] Exceptional Value Premium ASMR Microphones at Low Costs for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-making-the-most-of-virtual-reality-space/"><u>2024 Approved Making the Most of Virtual Reality Space</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2024s-most-effective-wi-fi-network-boosters-a-comprehensive-review/"><u>2024'S Most Effective Wi-Fi Network Boosters: A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/5-highly-rated-power-converters-to-look-out-for-ecofriendlytech/"><u>5 Highly Rated Power Converters to Look Out for #EcoFriendlyTech</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-nhl-2019s-compelling-internet-game-dynamics/"><u>A Closer Look at NHL 2019'S Compelling Internet Game Dynamics</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-taste-of-sophistication-exploring-the-skagen-falster-2-as-an-upscale-alternative-to-apples-offerings/"><u>A Taste of Sophistication: Exploring the Skagen Falster 2 as an Upscale Alternative to Apple's Offerings</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-excellence-with-asus-chromebook-flip-c3e-ca-a-comprehensive-review/"><u>Affordable Excellence with Asus Chromebook Flip C3e CA: A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-truckers-audio-companion-bluetooth-hearing-device-explored/"><u>Affordable Truckers' Audio Companion: Bluetooth Hearing Device Explored</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-conquering-the-dilemma-how-to-send-videos-on-facebook-message/"><u>In 2024, Conquering the Dilemma How to Send Videos on Facebook Message</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-lava-blaze-2-pro-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Lava Blaze 2 Pro Phone Hassle-Free</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/masterclass-reclaiming-personal-eyes-only-images-for-2024/"><u>Masterclass Reclaiming Personal Eyes-Only Images for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/the-ultrawide-uhd-dilemranc-which-monitor-wins-in-2024/"><u>The Ultrawide-UHD Dilemranc Which Monitor Wins, In 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-when-motorola-edge-40-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Motorola Edge 40 Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-amplify-audience-response-with-unique-instagram-quiz-features/"><u>[New] Amplify Audience Response with Unique Instagram Quiz Features</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-vs-dailymotion-key-platform-distinctions/"><u>[New] In 2024, YouTube Vs. Dailymotion Key Platform Distinctions</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-tips-and-tricks-adjusting-aspect-ratios-for-effective-fb-sharing-for-2024/"><u>[New] Tips & Tricks Adjusting Aspect Ratios for Effective FB Sharing for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-constructing-youtube-playlists-made-simple/"><u>[Updated] In 2024, Constructing YouTube Playlists Made Simple</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/analyzing-vyncs-link-reviews-reliable-service-with-complex-membership-tiers/"><u>Analyzing Vyncs Link Reviews: Reliable Service with Complex Membership Tiers</u></a></li>
+<li><a href="https://network-issues.techidaily.com/correcting-windows-7-screen-flip-error/"><u>Correcting Windows 7 Screen Flip Error</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhance-every-room-with-high-definition-via-nixplays-x15d/"><u>Enhance Every Room With High Definition via Nixplay's X15D</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-next-level-performance-a-comprehensive-review-of-the-new-apple-macbook-air-with-m1-processor-202n/"><u>Experience Next-Level Performance: A Comprehensive Review of the New Apple MacBook Air with M1 Processor (202N)</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-do-you-remove-restricted-mode-on-iphone-x-by-drfone-ios/"><u>How Do You Remove Restricted Mode on iPhone X</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-lenovo-thinkphone-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/master-the-quick-transition-convert-mp4-files-into-high-quality-mpeg-4-with-ease/"><u>Master the Quick Transition: Convert MP4 Files Into High-Quality MPEG-4 with Ease</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/perfect-every-moment-the-top-online-photo-printers-for-24/"><u>Perfect Every Moment: The Top Online Photo Printers for '24</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/petcubes-budget-friendly-high-definition-pets-monitor-unveiled/"><u>Petcube’s Budget-Friendly High Definition Pets Monitor Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sound-savings-with-every-step-discovering-the-oneplus-buds/"><u>Sound Savings with Every Step - Discovering the OnePlus Buds</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-desktop-companion-exploring-the-performance-and-features-of-the-raspberry-pi-400-keyboard-pc/"><u>The Ultimate Desktop Companion: Exploring the Performance and Features of the Raspberry Pi 400 Keyboard PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-value-of-xiaomi-mi-smart-band-4-an-essential-guide-for-budget-fitness-enthusiasts/"><u>Unveiling the Value of Xiaomi Mi Smart Band 4: An Essential Guide for Budget Fitness Enthusiasts</u></a></li>
 </ul></div>
 

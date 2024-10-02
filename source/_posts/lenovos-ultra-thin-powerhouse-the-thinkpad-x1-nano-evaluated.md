@@ -1,7 +1,7 @@
 ---
 title: Lenovo's Ultra-Thin Powerhouse - The ThinkPad X1 Nano Evaluated
-date: 2024-09-24T18:52:18.139Z
-updated: 2024-09-26T21:26:24.453Z
+date: 2024-09-29T22:40:35.784Z
+updated: 2024-10-01T21:22:26.618Z
 categories:
   - BestProducts
 description: This Article Describes Lenovo's Ultra-Thin Powerhouse - The ThinkPad X1 Nano Evaluated
@@ -44,19 +44,6 @@ Lifewire / Rebecca Isaacs
 
 4.2
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## HAVIT 5 Fan Laptop Cooler
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/Oc__n9cXABeKwLweBvavtYWeE9M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_HeroSquare-e793f085fe42447396899e6edb8c57b0.jpg)
@@ -91,22 +78,15 @@ _Our reviewer already owned this product._
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/J6RTKS-ZdzNqPyF_Tm9lloOF1iM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_04-5a7071fefb884ba19eb68638fdbf1b2b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
 
  To me, the design seems a little clunky. It has smooth edges, but it’s clearly designed as a gamer’s edgy laptop cooling pad with seemingly unnecessary grooves that serve only to hold dust. If you’re looking for a simple design, this is not your cooling pad. That being said, the metal mesh pad for air circulation can accommodate laptops ranging from 14 to 17 inches thanks to its 15.87 x 11.81 x 1.34 inches (LWH) in dimension.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fans: Wasn’t blown away
@@ -125,13 +105,6 @@ Lifewire / Rebecca Isaacs
 
  That’s not to say that this laptop cooling pad doesn’t help cool it down. Since my Eluktronics is getting some much-needed TLC in the shop, I tested the MSI’s internal temps while running[Tropico Six](https://www.lifewire.com/tropico-6-review-5077604) on my laptop. Without the laptop cooling pad, I was running around 187 degrees Fahrenheit. With the cooling pad, it adjusted to around 169 degrees. It’s not much, but it’s enough to make a difference.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Baffles: Adjustable for gaming and typing
 
  If you feel the laptop needs more circulation, the good news is that HAVIT also anticipated these needs, too. Anti-slip baffles offer a sturdy position on any desk, even if you push up the height to a more angled position.
@@ -142,16 +115,22 @@ Lifewire / Rebecca Isaacs
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/hXjExslBR5KBA1RSMPFlkkvF1uQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_02-f065f40118184391b6f1ba1bffa763bd.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
 
  And, if you’re on-the-go and travelling, the HAVIT 5 also packs quite nicely into a suitcase. Be sure to play it safe like I did and pack it around clothes. But if you need to go across country and want to take your gaming laptop with you, this is a good one that will hold up well in luggage.
+
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Price: Ouch
 
@@ -160,6 +139,13 @@ Lifewire / Rebecca Isaacs
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/lItC7F6Ja8RbBfTaNXh5l9ufFqY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_05-07577b69f7d04de5a7904e798681ba02-6b3615a38d584594b89077eaf51228b2.jpg)
 
 Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## HAVIT 5 vs. Kootak Laptop Cooling Pad
 
@@ -173,11 +159,25 @@ Lifewire / Rebecca Isaacs
 
  It’s not the best out there, but so long as it cools the internal laptop core temperatures by about 20 degrees, it’s a worthy investment. Props go to HAVIT for giving it a roller switch for ultimate adjustability and an LED light that will show how high the fans are blowing. The fans could be stronger, but quieter fans over more power is preferable.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/urban-armor-gear-macbook-pro-case-review-4689954)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -208,20 +208,22 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-balancing-intense-beats-with-fl-studios-easeful-dimming/"><u>[New] Balancing Intense Beats with FL Studio's Easeful Dimming</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-beyond-imagination-cutting-edge-vr-tech/"><u>2024 Approved Beyond Imagination Cutting-Edge VR Tech</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-comparing-digital-dimensions-metaverse-and-multiverse/"><u>2024 Approved Comparing Digital Dimensions Metaverse & Multiverse</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-keeping-the-flow-alive-2023-guide-to-live-video-repairs-on-fb/"><u>2024 Approved Keeping the Flow Alive 2023 Guide to Live Video Repairs on FB</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/crucial-points-to-address-when-buying-upgraded-systems/"><u>Crucial Points to Address When Buying Upgraded Systems</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/effective-methods-to-reduce-webm-size-using-movavis-top-conversion-tool/"><u>Effective Methods to Reduce WebM Size Using Movavi's Top Conversion Tool</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/exceptional-value-in-a-tv-why-the-lg-24lh4830-deserves-your-attention/"><u>Exceptional Value in a TV: Why the LG #24LH4830 Deserves Your Attention</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/generation-4-echo-show-in-depth-analysis-and-improvement-overview/"><u>Generation 4 Echo Show: In-Depth Analysis and Improvement Overview</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-does-fitbit-charge-6-stack-up-an-authoritative-wearable-tech-review/"><u>How Does Fitbit Charge 6 Stack Up? An Authoritative Wearable Tech Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-anker-powercoreplus-26800-charging-station-evaluation/"><u>In-Depth Look at the Anker PowerCore+ 26800 Charging Station Evaluation</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/is-investing-in-a-mechanical-keyboard-worth-it-for-your-mac/"><u>Is Investing in a Mechanical Keyboard Worth It for Your Mac?</u></a></li>
-<li><a href="https://fox-that.techidaily.com/overcoming-idevice-snapshots-hurdles-a-guide-to-better-image-handling-and-correction/"><u>Overcoming iDevice Snapshots Hurdles: A Guide to Better Image Handling and Correction</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ify-collaboration-share-and-connect-through-playlists-for-2024/"><u>Simplify Collaboration Share & Connect Through Playlists for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-best-interactive-online-programming-workshops-of-the-year/"><u>Unveiling the Best Interactive Online Programming Workshops of the Year</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-secrets-in-depth-analysis-and-reviews-of-affordable-6-sheet-amazonbasics-document-destroyer/"><u>Unveiling the Secrets: In-Depth Analysis and Reviews of Affordable 6-Sheet AmazonBasics Document Destroyer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-avoiding-the-common-path-the-route-to-unique-streamer-identities/"><u>[New] 2024 Approved Avoiding the Common Path The Route to Unique Streamer Identities</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-highest-quality-ai-voice-to-text-software-for-2024/"><u>[New] Highest Quality AI Voice to Text Software for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-elevate-video-engagement-top-7-free-thumbnail-design-tools-for-2024/"><u>[Updated] Elevate Video Engagement Top 7 Free Thumbnail Design Tools for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/budget-friendly-interactive-face-to-face-games-for-2024/"><u>Budget-Friendly Interactive Face-to-Face Games for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-vivo-s17e-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Vivo S17e Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-testing-of-hewlett-packards-economical-notebook-does-the-amd-chip-deliver-value/"><u>Comprehensive Testing of Hewlett-Packard’s Economical Notebook – Does the AMD Chip Deliver Value?</u></a></li>
+<li><a href="https://win-able.techidaily.com/crash-free-gaming-solutions-for-left-4-dead-2-stability-problems/"><u>Crash-Free Gaming: Solutions for Left 4 Dead 2 Stability Problems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-the-garmin-forerunner-45-transforms-running-in-depth-analysis/"><u>How the Garmin Forerunner 45 Transforms Running: In-Depth Analysis</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722883251507-how-to-diagnose-and-correct-system-error-eb0a-windows-quickly-and-easily/"><u>How to Diagnose and Correct System Error 'Eb0a' (Windows) Quickly and Easily</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/how-to-record-google-meet-for-2024/"><u>How to Record Google Meet for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-14-pro-max-to-other-iphone-13-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 14 Pro Max to other iPhone 13 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-the-criacr-bluetooth-fm-transmitter-model-cp2n-compact-design-with-noticeable-drawbacks/"><u>In-Depth Review of the Criacr Bluetooth FM Transmitter Model CP2n – Compact Design with Noticeable Drawbacks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-look-at-googles-telephony-offerings-pros-cons-and-user-satisfaction/"><u>Inside Look at Google's Telephony Offerings – Pros, Cons, and User Satisfaction</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-hewlett-packards-economically-priced-15-inch-laptop-worth-the-money-for-its-amd-unit-performance/"><u>Is Hewlett-Packard’s Economically Priced 15-Inch Laptop Worth the Money for Its AMD Unit Performance?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/rotibox-beanie-with-built-in-speakers-reviewed-cozy-headgear-meets-audio-excellence/"><u>Rotibox Beanie with Built-In Speakers Reviewed - Cozy Headgear Meets Audio Excellence</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sony-bravia-x65x850f-a-detailed-analysis-of-the-65-4k-smart-led-tvs-value-and-features/"><u>Sony Bravia X65X850F - A Detailed Analysis of the 65 4K Smart LED TV's Value and Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sustainable-economics-for-your-empire-the-ultimate-offworld-trading-company-critique/"><u>Sustainable Economics for Your Empire: The Ultimate Offworld Trading Company Critique</u></a></li>
 </ul></div>
 

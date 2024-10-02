@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Lenovo 130S Laptop: Balancing Restricted Capabilities and Remarkable User Experience"
-date: 2024-09-24T16:39:45.971Z
-updated: 2024-09-26T19:30:31.391Z
+date: 2024-09-28T20:40:37.150Z
+updated: 2024-10-02T01:54:31.997Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring the Lenovo 130S Laptop: Balancing Restricted Capabilities and Remarkable User Experience"
@@ -45,16 +45,10 @@ Lifewire / Rebecca Isaacs
 4
 
 <!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 7 Days to Die
@@ -87,6 +81,13 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Easy thanks to Steam**
 
  7 Days to Die for PC can be located on Steam, making it easy to set up. It takes a little while to download, but once it boots up, you’re in. You’ll press the “New Game” button and you’ll need to create a new character, which is easy if you choose one of the preset characters from the list. If you’d like to make a unique character, it’s easy with a creation system similar to Skyrim. Everything, down to the very arch on the eyebrows, is customizable.
@@ -112,13 +113,20 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/U2XChOqkiQvFhP69V0cQ5mYcYME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-3-d19d9b4d19734cffb022d6e0db90382e.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Gameplay: Could be better, but solid overall**
 
@@ -140,8 +148,6 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/O0do2JbbpgP_VF7azi5OhENnDpc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-5-13eba1dcdd7d45b48c0c3d07711686e6.jpg)
 
- Lifewire / Rebecca Isaacs
-
 <!-- affiliate ads begin -->
 <span id="1982461">
 					<video width="576" height="240" style="cursor:pointer"
@@ -155,6 +161,8 @@ Lifewire / Rebecca Isaacs
 <img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
+ Lifewire / Rebecca Isaacs
+
 ## **Graphics: Outdated, but detailed on optimal**
 
  For a game that was released in 2013 originally, the graphics could be a little better, even if you play on optimal settings. Back in the day, we played on lower settings rather than splurge on a fancy graphics card. If you play on the lower settings, it’s cringeworthy, though not as cringeworthy as the Witcher 3’s lowest settings.
@@ -163,25 +171,11 @@ Lifewire / Rebecca Isaacs
 
  Because the graphics are a rather mixed bag, the frames per second (fps) can vary dramatically. We experienced drops as low as 18 fps when playing. When surrounded by a horde, that can cost you your life.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Platform: It’s complicated**
 
  7 Days to Die runs on many platforms:[PC](https://www.lifewire.com/what-is-a-mac-4155662) ,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and[Xbox 360](https://www.lifewire.com/xbox-360-buyers-guide-3562451) . We played 7 Days on PC, and at the time of writing, they released a teaser for the Alpha 18 update which would roll out to the PC version of the game.
 
  Last time we checked, the company that owned all console rights, Telltale, went bust, and The Fun Pimps (the developer) were in legal limbo trying to reacquire their own rights. There’s a good chance that there will not be an update in the console versions of the game anytime soon as this issue makes its way through the courts. Therefore, we strongly recommend that you purchase the PC version if you decide this is a game you might like to try.
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Average for an alpha game**
 
@@ -232,17 +226,19 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-boosting-playback-speed-guidelines-for-secure-sound-enhancement/"><u>[New] Boosting Playback Speed Guidelines for Secure Sound Enhancement</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-capture-the-moment-iphone-xs-revolutionary-camera/"><u>[New] Capture the Moment IPhone X's Revolutionary Camera</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-elevate-instagram-creativity-with-musical-elements/"><u>[New] In 2024, Elevate Instagram Creativity with Musical Elements</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-b-roll-builder-kit/"><u>[Updated] B-Roll Builder Kit</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-syncopated-syntax-showcase/"><u>2024 Approved Syncopated Syntax Showcase</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/apple-melodies-enhancing-visual-storytelling/"><u>Apple Melodies Enhancing Visual Storytelling</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/economical-excellence-in-keyboards-a-comprehensive-review-of-the-fellowes-microban-wired-option/"><u>Economical Excellence in Keyboards: A Comprehensive Review of the Fellowes Microban Wired Option</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722970224568-effortless-installation-of-hp-envy-t-5660-driver-software-get-your-download-here/"><u>Effortless Installation of HP ENVY T 5660 Driver Software - Get Your Download Here</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-value-of-the-samsung-galaxy-tab-s3-in-todays-market/"><u>Exploring the Value of the Samsung Galaxy Tab S3 in Today's Market</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/justifying-your-spend-on-apple-tv/"><u>Justifying Your Spend on Apple TV</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-battle-of-tech-giants-how-does-ipad-pro-compare-to-macbook-pro/"><u>The Battle of Tech Giants: How Does iPad Pro Compare to MacBook Pro?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potential-in-depth-insight-into-mobvois-ticwatch-pro-lte-edition/"><u>Unveiling the Potential: In-Depth Insight Into Mobvoi's Ticwatch Pro LTE Edition</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-elicit-entertainment-giphys-meme-makers/"><u>[New] In 2024, Elicit Entertainment Giphy's Meme Makers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-overcoming-grey-screens-in-gaming-recording/"><u>2024 Approved Overcoming Grey Screens in Gaming Recording</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-nokia-c210-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Nokia C210</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/compact-vixia-hf-captures-minus-premium-specs/"><u>Compact VIXIA HF Captures Minus Premium Specs</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/te-your-channels-aesthetics-free-banners-available-for-2024/"><u>Elevate Your Channel's Aesthetics - Free Banners Available for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elite-selection-of-gaming-mini-pcs-for-hardcore-gamers/"><u>Elite Selection of Gaming Mini PCs for Hardcore Gamers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/embracing-delight-throughout-pokemon-alpha-sapphire-and-omega-ruby/"><u>Embracing Delight Throughout 'Pokémon Alpha Sapphire' & 'Omega Ruby'</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixes-and-solutions-how-to-stop-nba-2k21-from-crashing-on-your-pc/"><u>Fixes and Solutions: How to Stop NBA 2K21 From Crashing on Your PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fortnite-season-highlights-and-insights-engaging-gameplay-returns-with-fresh-updates/"><u>Fortnite Season Highlights & Insights: Engaging Gameplay Returns with Fresh Updates</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-moto-g-power-high-performance-and-superior-battery-capacity-revealed/"><u>In-Depth Look at the Moto G Power: High Performance and Superior Battery Capacity Revealed</u></a></li>
+<li><a href="https://howto.techidaily.com/my-videos-arent-playing-on-itel-s23-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Itel S23 – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/rekindle-ambition-top-10-motivational-moments/"><u>Rekindle Ambition Top 10 Motivational Moments</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/resolve-your-printer-connection-issues-in-windows-with-simple-solutions/"><u>Resolve Your Printer Connection Issues in Windows with Simple Solutions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/the-startups-secret-weapon-kit-must-have-items-that-set-you-apart-for-2024/"><u>The Startup's Secret Weapon Kit Must-Have Items That Set You Apart for 2024</u></a></li>
 </ul></div>
 
