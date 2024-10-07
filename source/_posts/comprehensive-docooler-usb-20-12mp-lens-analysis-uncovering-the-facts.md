@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Docooler USB 2.0 12MP Lens Analysis - Uncovering the Facts
-date: 2024-09-27T02:50:07.087Z
-updated: 2024-10-01T18:34:19.687Z
+date: 2024-10-05T02:58:24.209Z
+updated: 2024-10-07T07:09:58.686Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Docooler USB 2.0 12MP Lens Analysis - Uncovering the Facts
@@ -74,6 +74,13 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/OXMiCXvzh8P7esVvbjPoSorzoxM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-2-7b14850c2ca84af39d5fd116ab483d5d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 ## **Design** : **Nice looks and small footprint, with many reservations**
@@ -123,20 +130,13 @@ Lifewire / Jonno Hill
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Network** :**Great speeds, but software that doesn’t do much**
 
@@ -145,10 +145,10 @@ Lifewire / Jonno Hill
  I made a point to try out the Network Booster software found in the OMEN Command Center and didn’t see anything tremendously useful, unfortunately. I tried setting the priority of Steam to “Low” and downloading a game, but the game still downloaded at my maximum internet speed. I took it one step further and toggled the “Block” option for Steam, and tried to resume the download, but Steam kept on downloading at the maximum speed. The software was successful in blocking Chrome when that option was switched on, however.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Just enough options**
@@ -161,19 +161,6 @@ Lifewire / Jonno Hill
 
  The option to overclock your system has you first run a nondescript benchmark, which produces a score with no reference point (to establish a baseline). While it’s nice to have the option, this really,_sincerely_ isn’t a system you want to be overclocking. The i9-9900K CPU already runs alarmingly hot, even with its pre-installed water cooling solution. There also isn’t enough room for anything beyond a 120mm AIO watercooler, and not nearly enough clearance for a popular air heatsink like the Noctua NH-D15.
 
-<!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Highly competitive**
 
  The HP OMEN Obelisk with the same specs as this one can be found for around $2,000, at least when it’s in stock. Despite a lot of flaws that I can point to a nit-pick about, the price is one of the main reasons I still consider the OMEN to be a solid deal. I went through the trouble of parting out a similar build on PCPartPicker, going as far as to cut corners where I usually wouldn’t, and still arrived at just under $1800 before tax.
@@ -185,10 +172,10 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **HP OMEN Obelisk vs Corsair One Pro**
@@ -202,6 +189,13 @@ Lifewire / Jonno Hill
  **High performance and fantastic value, but upsetting thermals.**
 
  The HP OMEN Obelisk delivers fantastic value for gamers shopping for a high-performance, pre-built PC. HP has come a long way, and now offers a much more compelling solution that will appeal to a much broader set of buyers. That said, there is work to be done still, as the case suffers from poor airflow, poor thermals, and not a lot of meaningful ways to improve them.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -237,20 +231,19 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-the-roadmap-to-creating-unforgettable-facebook-cover-videos/"><u>[Updated] In 2024, The Roadmap to Creating Unforgettable Facebook Cover Videos</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-flying-experience-with-the-syma-x5c-ready-to-fly-quadcopter-reviewed/"><u>Affordable Flying Experience with the SYMA X5C Ready-to-Fly Quadcopter Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-tech-at-its-best-why-the-moto-g-stylus-deserves-your-attention-a-full-length-review/"><u>Affordable Tech at Its Best – Why the Moto G Stylus Deserves Your Attention: A Full-Length Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-tech-gear-spotlight-the-omoton-t1-tablet-support-test-drive/"><u>Affordable Tech Gear Spotlight: The Omoton T1 Tablet Support Test Drive</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazfit-gts-showdown-where-style-collides-with-sporty-performance/"><u>Amazfit GTS Showdown: Where Style Collides with Sporty Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amp-up-your-fitness-routine-with-the-garmin-vivoactive-3-syncing-songs-and-steps/"><u>Amp up Your Fitness Routine with the Garmin Vivoactive 3 – Syncing Songs & Steps</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722623303103-best-bargains-in-2019-tcls-50-inch-50s425-roku-smart-tv-our-ultimate-review/"><u>Best Bargains in 2019: TCL's 50-Inch 50S425 Roku Smart TV - Our Ultimate Review</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/fixing-windows-11-bluetooth-connectivity-problems-solutions-unveiled/"><u>Fixing Windows 11 Bluetooth Connectivity Problems: Solutions Unveiled</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-change-honor-magic-vs-2-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Honor Magic Vs 2 Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Realme 10T 5G | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-3-easy-methods-to-unlock-icloud-locked-apple-iphone-12-miniipadipod-by-drfone-ios/"><u>In 2024, 3 Easy Methods to Unlock iCloud Locked Apple iPhone 12 mini/iPad/iPod</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-oppo-a38-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Oppo A38 Lock Screen Password?</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/tech-troubleshooting-stabilizing-ghostwire-tokyo-gameplay-on-pc-systems/"><u>Tech Troubleshooting - Stabilizing Ghostwire: Tokyo Gameplay on PC Systems</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-gaming-iphones-which-model-takes-the-crown/"><u>Top Gaming iPhones: Which Model Takes the Crown?</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-free-mp4-video-editing-software-top-10-picks/"><u>Updated Free MP4 Video Editing Software Top 10 Picks</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-from-still-images-to-time-lapses-ipad-edition/"><u>[New] 2024 Approved From Still Images to Time-Lapses IPad Edition</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-best-mac-tools-excluding-standard-bandicam/"><u>[Updated] In 2024, Best Mac Tools Excluding Standard Bandicam</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-insights-boosting-your-follower-count-for-2024/"><u>[Updated] Instagram Insights Boosting Your Follower Count for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-redefining-social-sharing-alternatives-to-periscope-on-iphones-and-androids/"><u>[Updated] Redefining Social Sharing Alternatives to Periscope on iPhones & Androids</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-art-of-image-hunting-on-pexelscom/"><u>[Updated] The Art of Image Hunting on Pexels.com</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2023s-most-effective-sound-isolation-earphones-reviewed-and-ranked/"><u>2023'S Most Effective Sound Isolation Earphones Reviewed and Ranked!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-tickle-your-needs-with-these-top-15-humorous-youtube-vids/"><u>2024 Approved Tickle Your Needs with These Top 15 Humorous YouTube Vids</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-most-advanced-and-user-friendly-voip-solutions-choose-wisely/"><u>2024'S Most Advanced and User-Friendly VoIP Solutions - Choose Wisely!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-most-durable-and-stylish-options-for-your-samsung-galaxy-s2/"><u>2024'S Most Durable and Stylish Options for Your Samsung Galaxy S2...</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/25-unique-gift-choices-tailored-for-every-android-fanatic/"><u>25 Unique Gift Choices Tailored for Every Android Fanatic</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ace-your-style-with-the-premier-protective-sleeves-for-iphone-15/"><u>Ace Your Style with the Premier Protective Sleeves for iPhone 15</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/how-to-record-overwatch-for-2024/"><u>How to Record Overwatch for 2024</u></a></li>
+<li><a href="https://win-trending.techidaily.com/step-by-step-tutorial-for-transforming-voc-recordings-into-common-digital-audio-files-such-as-mp3-aac-m4a-on-windowsmac-systems/"><u>Step-by-Step Tutorial for Transforming VOC Recordings Into Common Digital Audio Files Such as MP3, AAC, M4A on Windows/Mac Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-wireless-gaming-headsets-for-your-nintendo-switch-the-2024-guide-to-choosing-the-right-pair/"><u>Ultimate Wireless Gaming Headsets for Your Nintendo Switch: The 2024 Guide to Choosing the Right Pair</u></a></li>
 </ul></div>
 

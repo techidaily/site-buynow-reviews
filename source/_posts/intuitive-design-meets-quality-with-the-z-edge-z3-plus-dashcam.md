@@ -1,7 +1,7 @@
 ---
 title: Intuitive Design Meets Quality with the Z-Edge Z3 Plus Dashcam
-date: 2024-09-19T17:06:59.074Z
-updated: 2024-09-20T17:57:01.748Z
+date: 2024-10-05T22:48:05.604Z
+updated: 2024-10-07T00:22:29.478Z
 categories:
   - BestProducts
 description: This Article Describes Intuitive Design Meets Quality with the Z-Edge Z3 Plus Dashcam
@@ -42,6 +42,13 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
@@ -75,13 +82,6 @@ Lifewire / Erika Rawes
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: Relatively easy**
 
  Setting up the antenna is pretty straightforward. You start by plugging one end of the coaxial cable into the antenna, and then the other end to the coaxial/antenna-in connector to your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) .
@@ -92,13 +92,6 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **Performance: Almost two dozen channels (in a rural area)**
@@ -107,14 +100,14 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: 35 miles**
 
@@ -123,6 +116,13 @@ Lifewire / Erika Rawes
  Even with the short-range, I was able to pick up 16 channels on my first attempt, including The CW, PBS, and more. In a different room in my test home, I was able to get 23 channels, but this is probably because there’s less tree cover outside of the house on that side of the property. Considering the location of my test home, 23 channels is pretty good.
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Super affordable**
 
@@ -141,6 +141,13 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -171,5 +178,19 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-audience-focus-the-ultimate-guide-to-creating-powerful-tiktok-captions/"><u>[New] 2024 Approved Audience Focus The Ultimate Guide to Creating Powerful TikTok Captions</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-unveiling-the-premier-android-emulators-for-ps2-games/"><u>[New] 2024 Approved Unveiling the Premier Android Emulators for PS2 Games</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/apture-it-right-essential-camera-lenses-for-video-blogging/"><u>[New] Capture It Right Essential Camera Lenses for Video Blogging</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-in-2024-savory-selections-international-foodie-frenzy-on-tiktok/"><u>[New] In 2024, Savory Selections International Foodie Frenzy on TikTok</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-unveiling-smooth-audioshifting-tricks-in-adobe-premiere/"><u>[Updated] In 2024, Unveiling Smooth Audioshifting Tricks in Adobe Premiere</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-and-simple-comprehensive-review-on-the-procase-for-macbook-air-and-pro-13/"><u>Budget-Friendly & Simple: Comprehensive Review on the ProCase for MacBook Air and Pro 13</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-elite-lineup-of-2024-gaming-consoles/"><u>Discover the Elite Lineup of 2024 Gaming Consoles</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-can-we-bypass-realme-10t-5g-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Realme 10T 5G FRP?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/seamless-transitions-how-to-leverage-iphones-buyback-option/"><u>Seamless Transitions: How to Leverage iPhone's Buyback Option</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transforming-wireless-signal-quality-with-netgear-nighthawk-x-6s-the-definitive-range-extender/"><u>Transforming Wireless Signal Quality with Netgear Nighthawk X 6S - The Definitive Range Extender</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unbeatable-speed-meets-savings-in-depth-review-of-the-tp-link-archer-a9-under/"><u>Unbeatable Speed Meets Savings: In-Depth Review of the TP-Link Archer A9 Under $</u></a></li>
+</ul></div>
 

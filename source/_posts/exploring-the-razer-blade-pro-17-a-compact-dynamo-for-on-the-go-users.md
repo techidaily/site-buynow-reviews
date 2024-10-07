@@ -1,7 +1,7 @@
 ---
 title: Exploring the Razer Blade Pro 17 - A Compact Dynamo for On-the-Go Users
-date: 2024-09-30T22:49:09.008Z
-updated: 2024-10-01T17:32:56.019Z
+date: 2024-10-04T06:44:33.032Z
+updated: 2024-10-07T07:55:57.624Z
 categories:
   - BestProducts
 description: This Article Describes Exploring the Razer Blade Pro 17 - A Compact Dynamo for On-the-Go Users
@@ -44,13 +44,6 @@ Lifewire / Yoona Wagener
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Amazon Halo
 
 ![Amazon Halo](https://www.lifewire.com/thmb/3Kfyp4XgBEtCuXPHAVw99RFqQs8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_HeroSquare-2e5c3941b8fe49afbd7464f382164976.jpg)
@@ -84,10 +77,16 @@ Lifewire / Yoona Wagener
 Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Design: An accessory that blends in
@@ -97,6 +96,13 @@ Lifewire / Yoona Wagener
  Slightly less sophisticated, however, is the charging clip. It’s a boxy bar with a hinge that opens to place the device inside. Because it’s so lightweight—venturing on flimsy—I experienced the clip part slipping and snapping closed before I could place the wearable in the charging cradle. This slightly inelegant charging accessory seems a bit at odds with the more polished tracker design.
 
 ![Amazon Halo](https://www.lifewire.com/thmb/QHImxX0EsYwunnnS2aNtTX9j80s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_03-66da73beea854cd39f6c35c06975ef4e.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -111,10 +117,10 @@ Lifewire / Yoona Wagener
  As for water resistance, I didn’t test the 50-meter swimproof rating of the Halo in a pool, but I did shower with the device for three days. Despite the band’s moisture-wicking band material, it remained damp far longer than was comfortable and compared to a fast-drying silicone band. If you’re an avid swimmer or prefer not to remove your wearable while showering, the sport band option will most likely be the more desirable option.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Performance: Constantly monitoring movement, not performance
@@ -124,13 +130,6 @@ Lifewire / Yoona Wagener
  Instead, the Halo presents all activity data through a convenient point-tracking system. The weekly goal is 150, which converts to 150 minutes of cardiovascular activity, as recommended by the American Heart Association. Periods of movement and exercise count toward this point goal, while periods of non-movement subtract from points earned. It’s a digestible system that offers a new twist on the steps or movement alert functions you’ll find in fitness trackers and[smartwatches](https://www.lifewire.com/an-introduction-to-smart-watches-3441381) from Samsung, Garmin, Fitbit, and others. This system was an encouraging reset from those reminders that sometimes feel more annoying than motivating.
 
 ![Amazon Halo](https://www.lifewire.com/thmb/FjdFyV6Y4mTXNsqccZ4aEBJNpV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_05-e671ee9f77cc4cee8e2580a2dba449d5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener.
 
@@ -152,6 +151,13 @@ Lifewire / Yoona Wagener
 
  The app makes everything from the initial setup to body scanning and voice tracking straightforward.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Battery: Enough juice to last nearly a week
 
  Amazon says that with tone tracking enabled, the band should last up to seven days on a single charge. There are two options for tracking tone: one for more accuracy and one to optimize battery life. I chose the latter and found that the band lasted for six days, which comes close to the manufacturer’s claims. I also noticed that by manually muting the mic, the battery drained far less quickly than when I left it on to listen at all times.
@@ -165,13 +171,6 @@ Lifewire / Yoona Wagener
 ## Price: A reasonable price for the feature set
 
  Retailing for just about $100, the Amazon Halo band certainly won’t break the bank for budget-minded shoppers. While the lack of display could be a deterrent, the solid mobile app provides convenient access to the detailed sleep, automatic activity tracking, and specialized tone of voice and body fat analysis the Halo provides.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Amazon Halo vs. WHOOP Strap 3
 
@@ -190,6 +189,13 @@ Lifewire / Yoona Wagener
 * [Apple Watch Series 5](https://www.lifewire.com/apple-watch-series-6-review-5087552)
 * [Fitbit Sense](https://www.lifewire.com/fitbit-sense-review-5085832)
 * [Ticwatch Pro](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -222,17 +228,18 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-clear-video-borders-streamline-webcam-footage/"><u>[New] In 2024, Clear Video Borders Streamline Webcam Footage</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-sneak-peek-into-facebooks-off-activity-tracking-is-it-safe/"><u>[Updated] Sneak Peek Into Facebook's Off-Activity Tracking – Is It Safe?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-best-free-subtitles-and-downloader-guide/"><u>2024 Approved Best Free Subtitles & Downloader Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/excellent-quiet-earphones-review-2024/"><u>Excellent Quiet Earphones Review 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-on-the-kootek-laptop-fan-stand-the-ideal-choice-for-cooling-needs/"><u>Expert Analysis on the Kootek Laptop Fan Stand - The Ideal Choice for Cooling Needs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-evaluation-of-lenovo-tab-p11-pro-high-quality-yet-flawed/"><u>Expert Evaluation of Lenovo Tab P11 Pro: High Quality, Yet Flawed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-insight-discover-the-unmatched-potency-of-the-samsung-galaxy-tab-s7plus-android-marvel/"><u>Expert Insight: Discover the Unmatched Potency of the Samsung Galaxy Tab S7+ Android Marvel</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-the-corsair-one-pro-top-performance-for-gamers-and-content-creators/"><u>Expert Insights on the Corsair One Pro - Top Performance for Gamers & Content Creators</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/guide-mastering-the-art-of-snapping-screenshots-with-windows/"><u>Guide: Mastering the Art of Snapping Screenshots with Windows ✨🖥️</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-vivo-y28-5g-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Vivo Y28 5G to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
-<li><a href="https://discover-docs.techidaily.com/live-streaming-made-easy-discover-the-power-of-manycam-top-ranked-virtual-camera-software/"><u>Live Streaming Made Easy: Discover the Power of ManyCam - Top-Ranked Virtual Camera Software</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/lock-your-nokia-g42-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Nokia G42 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-picks-youtube-to-hd-mastering-quality-conversions/"><u>[Updated] Top Picks YouTube to HD - Mastering Quality Conversions</u></a></li>
+<li><a href="https://win-blog.techidaily.com/crash-free-gaming-proven-fixes-to-keep-your-state-of-decay-2-running-smoothly/"><u>Crash-Free Gaming: Proven Fixes to Keep Your State of Decay 2 Running Smoothly</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-why-the-huion-kamvas-gt-191-is-a-masterpiece-pen-display-for-artists/"><u>Expert Review: Why the Huion Kamvas GT-191 Is a Masterpiece Pen Display for Artists</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/game-changer-logitec-g-pro-xs-sonic-revolution/"><u>Game Changer: Logitec G Pro X's Sonic Revolution</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-vivo-y56-5g-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Vivo Y56 5G Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-or-downgrade-apple-iphone-x-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade Apple iPhone X Without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-motorola-edgeplus-a-flagship-contender-or-misses-the-mark/"><u>Is Motorola Edge+ a Flagship Contender or Misses the Mark?</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-the-ultimate-how-to-syncing-audio-with-newly-updated-avi-content/"><u>New In 2024, The Ultimate How-To Syncing Audio with Newly Updated AVI Content</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-updating-your-atheros-wifi-network-adapter-on-windows-10/"><u>Step-by-Step Guide: Updating Your Atheros WiFi Network Adapter on Windows 10</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-case-for-applecare-plus-extended-plan-a-detailed-look/"><u>The Case for AppleCare Plus Extended Plan: A Detailed Look</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-8-immersive-titles-with-oculus-support-for-2024/"><u>Top 8 Immersive Titles with Oculus Support for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-device-guide-to-chilling-by-seapool/"><u>Ultimate Device Guide to Chilling by Sea/Pool</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/your-guide-to-choosing-the-ideal-handheld-console-2024-edition/"><u>Your Guide to Choosing the Ideal Handheld Console - 2024 Edition</u></a></li>
 </ul></div>
 

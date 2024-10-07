@@ -1,7 +1,7 @@
 ---
 title: "Unveiling Horde Mode: An In-Depth Look at Sony's New Take on the Zombie Apocalypse with Bikes"
-date: 2024-09-28T22:49:26.034Z
-updated: 2024-10-02T01:39:45.527Z
+date: 2024-09-30T22:11:28.891Z
+updated: 2024-10-07T02:05:49.222Z
 categories:
   - BestProducts
 description: "This Article Describes Unveiling Horde Mode: An In-Depth Look at Sony's New Take on the Zombie Apocalypse with Bikes"
@@ -42,16 +42,16 @@ Lifewire / Zach Sweat
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Nintendo Switch Lite
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/ral6yRtba1CN2dg2W4Log4OcjAg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Nintendo-Switch-Lite-1-66fc3642c4d448b18f4a0775c059247d.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -81,13 +81,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Cute and compact**
 
  It's hard not to swoon at the sight of the Switch Lite. The handheld console is cute and compact, featuring unique color options, bright white buttons, and joysticks wrapped around a downsized screen. The whole unit is about the size of a beefy phablet. The screen alone is about the size of an iPhone SE.
@@ -115,10 +108,16 @@ Lifewire / Zach Sweat
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7502vZ1Vh2D4nRux6hEnq4BL3Rk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-5-2fb7aa309cc54dd79c07bd799ef7fe84.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -207,13 +206,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery Life: Slightly better, but not the best**
 
  Battery life on the original Switch was just okay, to put it lightly, but typically you were lucky to get anything over 3 hours of screen time with most titles. It eventually received a bigger battery in a minor hardware revision, which helped. The Switch Lite has a slightly smaller battery than the revised Switch but also has lower power needs due to its small screen.
@@ -229,10 +221,10 @@ Lifewire / Zach Sweat
  Lastly, the battery is internal, so you can't easily pop in a new one when it starts to degrade. While I haven't seen any degradation with mine, it'll happen at some point. When it does, sending it to Nintendo for repair is the only real option.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Inexpensive console gaming in your hands**
@@ -243,13 +235,20 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7XA6hgAK2B4hDSlWdmB8VQddrjw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-7-Comparison-44dcf88ec51247a2b0756445a3c7884d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Nintendo Switch Lite vs. Nintendo Switch**
@@ -271,6 +270,13 @@ Lifewire / Zach Sweat
 **Perfect for gamers who prefer handheld.**
 
  Despite being stripped of some of the Switch’s more unique features and strengths, the Switch Lite is a perfect console for gamers on the go or those who prefer handheld. It features an extensive library of exclusives that are perfect for a highly mobile system like Animal Crossing—and it’s hard to argue with the price.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -314,22 +320,16 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-decoding-the-secrets-behind-iconic-mukbang-videos/"><u>[New] In 2024, Decoding the Secrets Behind Iconic Mukbang Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-dslr-broadcast-101-using-facebook-live-from-home-pcs/"><u>[New] In 2024, DSLR Broadcast 101 Using Facebook LIVE From Home PCs</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-direct-path-to-mp3-converting-fb-video-files/"><u>[Updated] 2024 Approved Direct Path to MP3 Converting FB Video Files</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/comment-optimiser-la-conversion-video-en-mp4-les-techniques-les-plus-efficaces-pour-macs/"><u>Comment Optimiser La Conversion Vidéo en MP4 : Les Techniques Les Plus Efficaces Pour Macs</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/crafting-and-gauging-the-success-of-fb-instream-ads-for-2024/"><u>Crafting and Gauging the Success of FB Instream Ads for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/from-concept-to-capture-the-breakdown-of-apeaks-recorder-software-for-2024/"><u>From Concept to Capture The Breakdown of Apeak's Recorder Software for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-lava-storm-5g-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Lava Storm 5G to Roku | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-infinix-smart-7-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Infinix Smart 7</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-courage-and-confidence-from-the-leading-tiktokers/"><u>In 2024, Courage and Confidence From the Leading TikTokers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-nokia-nokia-72-showcase-impeccable-display-exceptional-photography-and-competitive-pricing/"><u>The Ultimate Guide to the Nokia Nokia 7.2 Showcase: Impeccable Display, Exceptional Photography, and Competitive Pricing</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-review-of-the-syma-s111g-rc-helicopter-your-perfect-low-cost-gadget-for-indoor-fun/"><u>Top Review of the Syma S111G RC Helicopter: Your Perfect Low-Cost Gadget for Indoor Fun</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-lightweight-and-economical-propella-7s-40-paddleboard/"><u>Ultimate Guide to the Lightweight and Economical Propella 7S 4.0 Paddleboard</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-why-apples-201n-pad-pro-with-retina-display-reigns-supreme-in-2018/"><u>Ultimate Guide: Why Apple's 201N Pad Pro With Retina Display Reigns Supreme in 2018</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-testing-of-the-samsung-55-inch-ru7300-smart-tv-a-review-for-curved-screen-enthusiasts/"><u>Unboxing and Testing of the Samsung 55-Inch RU7300 Smart TV: A Review for Curved Screen Enthusiasts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unfolding-narratives-in-a-modern-photo-framed-display/"><u>Unfolding Narratives in a Modern Photo Framed Display</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleash-next-level-gaming-why-the-asus-vg245h-is-a-must-have/"><u>Unleash Next-Level Gaming: Why the Asus VG245H Is a Must-Have</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/value-in-photography-discovering-the-fz80/"><u>Value in Photography - Discovering the FZ80</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-ultimate-guide-to-viewer-engagement-and-loyalty-6-proven-strategies-for-youtube-success/"><u>[New] The Ultimate Guide to Viewer Engagement and Loyalty 6 Proven Strategies for YouTube Success</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-pro-equipment-list-for-adventure-documentaries/"><u>[Updated] In 2024, Pro Equipment List for Adventure Documentaries</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-a-visual-journey-mastering-the-art-of-incorporating-text-into-images-on-pcmacos/"><u>2024 Approved A Visual Journey Mastering the Art of Incorporating Text Into Images on PC/MacOS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apples-iphone-se-2020-an-in-depth-analysis-of-the-practical-premium-device/"><u>Apple's iPhone SE (2020): An In-Depth Analysis of the Practical Premium Device</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/frostbite-finishes-olympic-ice-classics/"><u>Frostbite Finishes Olympic Ice Classics</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-gps-location-on-infinix-smart-8-plus-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Infinix Smart 8 Plus Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-motorola-edgeplus-2023-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Motorola Edge+ (2023) For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mp3-player-unboxing-agpteks-beginner-model/"><u>MP3 Player Unboxing: AGPTEK's Beginner Model</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/netgear-c3700-dual-functionality-showdown-when-a-modem-meets-a-router-in-one-unit/"><u>Netgear C3700 Dual-Functionality Showdown: When a Modem Meets a Router in One Unit</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-robust-romer-portable-rechargeable-beam-light-reviewed/"><u>The Ultimate Guide to the Robust Romer Portable Rechargeable Beam Light Reviewed</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unmatched-3d-viewing-excellence-with-elite-decks-reviewed/"><u>Unmatched 3D Viewing Excellence with Elite Decks Reviewed</u></a></li>
 </ul></div>
 

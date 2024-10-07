@@ -1,7 +1,7 @@
 ---
 title: TP-Link Archer C80 Review
-date: 2024-09-25T16:52:54.230Z
-updated: 2024-10-01T23:14:19.501Z
+date: 2024-10-01T16:19:34.132Z
+updated: 2024-10-06T20:11:03.457Z
 categories:
   - BestProducts
 description: This Article Describes TP-Link Archer C80 Review
@@ -44,16 +44,16 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## TP-Link Archer AX6000 8-Stream Wi-Fi 6 Router
 
 ![TP-Link Archer AX6000](https://www.lifewire.com/thmb/PKIUt9-fqOH0kq7Gyw0UkO-1DRQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAX600_HeroSquare-4b6dc2ee305045fbb10c84c93951a653.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -78,13 +78,6 @@ Lifewire / Erika Rawes
 
 [Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) routers, like the TP-Link Archer AX6000, continue to hit the market, promising faster speeds and better network performance. You may be hearing more about[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) —the next generation of Wi-Fi that can help improve data flow on crowded networks, and even promote improved battery efficiency on your connected devices. Most Wi-Fi 6 routers are still pretty expensive, with prices hovering in the $250 to $500 (plus) range. The TP-Link Archer AX600 is priced in the lower range, but it still has an impressive spec list, including smart home compatibility, multiple ports, powerful hardware, and some of the latest and greatest features. I tested the TP-Link Archer AX6000 to see how the[long range router](https://www.lifewire.com/best-long-range-routers-4122554) performs in the real world.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Multiple antennas**
 
  The TP-Link Archer isn’t exactly a showstopper, but it’s reasonably attractive. It’s all black, square-shaped, and it has a significant amount of venting along the top. The unit resembles an upside down spider when it’s antennas are in the up position. The router is on the larger side, but it doesn’t look too bulky or obtrusive. It’s a 10.3 inch by 10.3 inch square, and the antennas swing out from the sides. The antennas only adjust 90 degrees, from flat to upwards, and you can’t adjust them multi-directionally.
@@ -95,13 +88,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: Quick and easy**
 
  The setup process took about five minutes. You can use the TP Link portal, or you can use the Tether app on your mobile device. There’s a QR code in the quick start guide, so you can find the app, or you can just search for it in the App Store. Once you download the app, you just click the + button to add a device, select Archer AX6000, and follow the prompts.
@@ -109,10 +95,10 @@ Lifewire / Erika Rawes
  I created a separate 2.4 and 5 GHz network, but there’s also a smart connect option where you can have the system assign a network band based on optimal performance.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: 8 streams and Wi-Fi 6**
@@ -145,6 +131,13 @@ Lifewire / Erika Rawes
 
  There's also a smart connect option where you can have the system assign a network band based on optimal performance.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software: TP-Link Tether app**
 
  You can manage your network remotely via the Tether app. You can manage devices—block specific devices, set priority, and set parental controls for individual devices or groups of devices. The app also includes HomeCare, a collection of features that promote a fast, stable, and safe network. You can set parental controls, turn on antivirus protection, and prioritize online activity for streaming, gaming, web surfing, and more. There’s a speed test feature powered by Ookla directly in the app, as well as other tools for managing your network.
@@ -152,6 +145,13 @@ Lifewire / Erika Rawes
  The app is a trimmed down version of what’s on the website, so you can’t access all of the features on the app. The app will direct you to the TP-Link site for certain features like setting up a VPN, IPv6 creation, and NAT forwarding.
 
 ![TP-Link Archer AX6000](https://www.lifewire.com/thmb/nvCBXy0UZFrdTurT8MquKGraCio=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAX600_03-8432bc3fbbbf492ba9889bf29a459435.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -162,10 +162,10 @@ Lifewire / Erika Rawes
 This is the fastest router I’ve ever tested.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **TP-Link Archer AX6000 vs. Netgear Nighthawk AX12 AX6000**
@@ -213,16 +213,24 @@ This is the fastest router I’ve ever tested.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-a-marketers-manual-for-recognizing-fabricated-supporters/"><u>[New] In 2024, A Marketer’s Manual for Recognizing Fabricated Supporters</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-channel-titling-101-the-quest-for-an-original-label/"><u>[Updated] In 2024, Channel Titling 101 The Quest for an Original Label</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-tips-for-recording-and-saving-google-voice-interactions/"><u>[Updated] In 2024, Tips for Recording and Saving Google Voice Interactions</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-unlock-video-communication-using-whatsapp-browser-on-your-notebook-pc/"><u>[Updated] In 2024, Unlock Video Communication Using WhatsApp Browser on Your Notebook PC</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-most-effective-email-solutions-beyond-gmail-top-8-picks/"><u>Discover the Most Effective Email Solutions Beyond Gmail (Top 8 Picks)</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-the-problem-of-unresponsive-speakers-even-though-theyre-connected-to-your-computer/"><u>Fixing the Problem of Unresponsive Speakers Even Though They're Connected to Your Computer</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/snapshotview-10x-eye-catching-wallet-unfriendly-features/"><u>SnapshotView 10X: Eye-Catching, Wallet-Unfriendly Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-future-is-here-exploring-the-remarkable-impact-of-apples-m1-processor-in-their-new-macbook-pro-13-inch-2020/"><u>The Future Is Here: Exploring The Remarkable Impact Of Apple's M1 Processor In Their New MacBook Pro 13-Inch (2020)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-outer-worlds-enjoy-a-fun-space-odyssey-full-of-action-and-adventure/"><u>The Outer Worlds: Enjoy a Fun Space Odyssey Full of Action & Adventure</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-pros-and-cons-of-viairs-portable-88p-air-compressor-a-thorough-review/"><u>The Pros and Cons of Viair's Portable 88P Air Compressor: A Thorough Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-linksys-wrt19ebx-acss-router-a-deep-dive-into-open-source-features/"><u>The Ultimate Guide to the Linksys WRT19ebx ACSS Router - A Deep Dive Into Open Source Features</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-top-10-guidelines-for-breaking-through-cover-art/"><u>[New] Top 10 Guidelines for Breaking Through Cover Art</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-visionary-vistas-the-ultimate-list-of-motivating-ig-images/"><u>[New] Visionary Vistas The Ultimate List of Motivating IG Images</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-global-viewer-count-triumphs-play-button-honors/"><u>[Updated] In 2024, Global Viewer Count Triumphs Play Button Honors</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-secrets-attracting-youtube-affiliates-with-minimal-channel-size/"><u>[Updated] In 2024, Secrets Attracting YouTube Affiliates with Minimal Channel Size</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-momentum-in-motion-our-choice-of-top-10-film-titles/"><u>[Updated] Momentum in Motion Our Choice of Top 10 Film Titles</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhancing-your-blog-revenue-using-buysellads-promotion-services/"><u>Enhancing Your Blog Revenue Using BuySellAds Promotion Services</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exceptional-value-with-the-monoprice-graphics-tablet-for-digital-artists/"><u>Exceptional Value with the Monoprice Graphics Tablet for Digital Artists</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Oppo A79 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-tp-link-archer-ax6000-worth-upgrading-from-a-netgear-nighthawk-ax12/"><u>Is the TP-Link Archer AX6000 Worth Upgrading From a NETGEAR Nighthawk AX12?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/motorola-edgeplus-analysis-not-quite-a-top-tier-contender/"><u>Motorola Edge+ Analysis: Not Quite a Top-Tier Contender</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-through-signal-clarity-a-detailed-examination-of-the-affordable-and-powerful-onebyone-amplified-indoor-tv-antenna/"><u>Navigating Through Signal Clarity: A Detailed Examination of the Affordable and Powerful Onebyone Amplified Indoor TV Antenna</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-the-ultimate-guide-to-video-resumes-best-makers-and-templates/"><u>New In 2024, The Ultimate Guide to Video Resumes Best Makers and Templates</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/oneplus-12r-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>OnePlus 12R Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sennheiser-uc-bridging-the-distance-smoothly/"><u>Sennheiser UC: Bridging the Distance Smoothly</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smart-escort-ix-examination-a-radar-detector-adapting-to-your-driving-habits/"><u>Smart Escort iX Examination: A Radar Detector Adapting to Your Driving Habits</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/step-by-step-instructions-for-accessing-the-iconic-75-years-of-nba-live-stream-matches/"><u>Step-by-Step Instructions for Accessing the Iconic 75 Years of NBA Live Stream Matches</u></a></li>
+<li><a href="https://extra-support.techidaily.com/step-by-step-navigation-in-telegram-web-app-for-2024/"><u>Step-by-Step Navigation in Telegram Web App for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-selection-of-best-in-class-netgear-routers-2024-edition/"><u>The Ultimate Selection of Best-in-Class Netgear Routers, 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potential-of-anker-roav-dashcam-c1-in-depth-analysis-and-insights/"><u>Unveiling the Potential of Anker Roav DashCam C1: In-Depth Analysis and Insights</u></a></li>
 </ul></div>
 

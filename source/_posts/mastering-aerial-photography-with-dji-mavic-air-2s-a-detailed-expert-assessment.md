@@ -1,7 +1,7 @@
 ---
 title: "Mastering Aerial Photography with DJI Mavic Air 2S: A Detailed Expert Assessment"
-date: 2024-09-24T23:22:45.353Z
-updated: 2024-10-01T20:10:16.738Z
+date: 2024-09-30T19:57:04.369Z
+updated: 2024-10-07T08:55:20.824Z
 categories:
   - BestProducts
 description: "This Article Describes Mastering Aerial Photography with DJI Mavic Air 2S: A Detailed Expert Assessment"
@@ -45,6 +45,13 @@ Lifewire / Rebecca Isaacs
 
 ![CumulusPRO Standing Desk Mat](https://www.lifewire.com/thmb/_gh2wSzGo19xAgSx1kfis_BvCRQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cumulus-Pro-Comfort-Mat-1-369ebfd4ce0e4e30853a3649a0c6badb.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
 
 [View On Amazon](https://www.amazon.com/CumulusPRO-Commercial-Couture-Anti-Fatigue-Comfort/dp/B015GEH62Y/?tag=lifewire-onsite-prod-20&ascsubtag=4775314%7Cn11c0dd1943664976bafa095c4e211eb809%7CB015GEH62Y) [View On Walmart $69](https://www.walmart.com/ip/Imprint-CumulusPRO-Commercial-Couture-Strata-Standing-Desk-Anti-Fatigue-Mat-Slate-Grey/688627661)
@@ -66,13 +73,20 @@ Lifewire / Rebecca Isaacs
 
 ![CumulusPRO Standing Desk Mat](https://www.lifewire.com/thmb/SuOtLk1ZBrl0nHIY-pQnGHEI74A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cumulus-Pro-Comfort-Mat-2-c0910221e3d340f49299d56b0509acd3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Simply modern**
@@ -82,19 +96,6 @@ Lifewire / Rebecca Isaacs
 ![CumulusPRO Standing Desk Mat](https://www.lifewire.com/thmb/BLF6wQLJynPpwT_zlr5rT_J-LiQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cumulus-Pro-Comfort-Mat-3-2612dc3d381c449d91d0eb0b9e4b2853.jpg)
 
  Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Comfort: A pleasant surprise**
 
@@ -111,10 +112,10 @@ In terms of versatility, the CumulusPRO mat is king.
  Another nice feature of the CumulusPRO is that we could wear heels and not damage it. While this may seem trivial, compared to other mats we tested, this was amazing for the ladies who like to wear heeled shoes.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Pretty steep for a mat**
@@ -134,13 +135,6 @@ In terms of versatility, the CumulusPRO mat is king.
 **Great for the basics.**
 
  For a basic mat, the CumulusPRO is a solid choice. We especially liked how it hides dirt and can be used for those who prefer to wear high heels. Considering it’s a basic standing mat, its versatility is definitely worth the investment.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -167,20 +161,18 @@ In terms of versatility, the CumulusPRO mat is king.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-photobooth-recording-stalls-whats-goin-on/"><u>[New] 2024 Approved Photobooth Recording Stalls What's Goin' On?</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-game-on-in-reality-discover-the-top-5-samsung-vr-titles/"><u>[Updated] Game On in Reality! Discover the Top 5 Samsung VR Titles</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On OnePlus 12 | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/facebooks-novelty-the-leading-five-new-features-unraveled/"><u>Facebook's Novelty The Leading Five New Features Unraveled</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-mastering-twitter-archives-for-analysis/"><u>In 2024, Mastering Twitter Archives for Analysis</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/in-2024-the-key-to-a-successful-tweet-including-aspect-ratio-details/"><u>In 2024, The Key to a Successful Tweet Including Aspect Ratio Details</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/mac-users-handbook-effortlessly-deleting-programs-and-apps/"><u>Mac Users' Handbook: Effortlessly Deleting Programs and Apps</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/make-word-docs-easy-to-identify-by-saving-with-thumbnail-images/"><u>Make Word Docs Easy to Identify by Saving With Thumbnail Images</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/making-big-impressions-in-small-frames-the-allure-and-advantages-of-the-iphone-12-mini/"><u>Making Big Impressions in Small Frames: The Allure and Advantages of the iPhone 12 Mini.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-personal-health-tracking-with-garmin-venu-in-depth-product-insights/"><u>Mastering Personal Health Tracking with Garmin Venu: In-Depth Product Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/powershot-sx70-hs-a-camera-for-every-adventure/"><u>PowerShot SX70 HS: A Camera for Every Adventure</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/professional-recording-setup-simplified-the-incredible-tascam-cd-200bt-reviewed/"><u>Professional Recording Setup Simplified: The Incredible Tascam CD-200BT Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionary-mobility-the-samsung-galaxy-s20-fe-5g-smartphone-review/"><u>Revolutionary Mobility : The Samsung Galaxy S20 FE 5G Smartphone Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-bookworms-companion-inside-look-at-the-2018-kindle-paperwhite/"><u>The Ultimate Bookworm's Companion - Inside Look at the 2018 Kindle Paperwhite</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/the-ultimate-guide-to-editing-videos-directly-on-youtube-with-sony-vegas-for-2024/"><u>The Ultimate Guide to Editing Videos Directly on YouTube with Sony Vegas for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-navigating-through-gopros-burst-recording-options/"><u>[New] 2024 Approved Navigating Through GoPro's Burst Recording Options</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-innovate-on-screen-imagery-with-youtubes-green-screens-edge/"><u>[Updated] Innovate On-Screen Imagery with YouTube’s Green Screens Edge</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/convert-and-download-with-ease-using-movavi-video-editor/"><u>Convert and Download with Ease Using Movavi Video Editor</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/easy-on-the-wallet-excellent-in-quality-canon-elph-190/"><u>Easy on the Wallet, Excellent in Quality – Canon ELPH 190</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-imagery-manual-control-and-savings-with-the-yn560iv/"><u>Elevate Your Imagery - Manual Control & Savings with the YN560IV</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/hero5-black-meets-yi-4k-the-ultimate-update-for-action-camera-fans-for-2024/"><u>Hero5 Black Meets Yi 4K - The Ultimate Update for Action Camera Fans for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-vivo-s17t-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Vivo S17t to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/m1-revolution-unveiled-in-apples-2020-macbook-pro-13-inch-laptop-review/"><u>M1 Revolution Unveiled in Apple's 2020 MacBook Pro 13-Inch Laptop Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reinvented-classic-experience-in-fallout-wasteland-2-critical-review-by-the-directors-cut/"><u>Reinvented Classic Experience in Fallout: Wasteland 2 - Critical Review by the Director’s Cut</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/taking-a-deep-dive-into-the-features-of-creatives-2013-premium-sound-blaster-zxr/"><u>Taking a Deep Dive Into the Features of Creative's 2013 Premium Sound Blaster ZxR!</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-honor-90-lite-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-using-your-netgear-c3700-exploring-its-strengths-as-a-reliable-cable-modem/"><u>The Ultimate Guide to Using Your Netgear C3700 - Exploring Its Strengths as a Reliable Cable Modem</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-streamline-your-content-how-to-make-reaction-videos-quickly-with-filmora/"><u>Updated In 2024, Streamline Your Content How to Make Reaction Videos Quickly with Filmora</u></a></li>
 </ul></div>
 

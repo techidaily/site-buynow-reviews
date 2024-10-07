@@ -1,7 +1,7 @@
 ---
 title: "Intense Performance at Steep Costs: An In-Depth Look at Alienware Aurora R7"
-date: 2024-09-16T19:01:54.104Z
-updated: 2024-09-20T18:23:40.915Z
+date: 2024-09-30T07:40:58.890Z
+updated: 2024-10-06T21:20:20.295Z
 categories:
   - BestProducts
 description: "This Article Describes Intense Performance at Steep Costs: An In-Depth Look at Alienware Aurora R7"
@@ -70,6 +70,13 @@ Lifewire / Bill Thomas
 
  We got our hands on the Netgear C3700 for testing and put it through the wringer to see whether or not it’s worth your cash, and what kind of performance you can expect.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Small and inconspicuous
 
  With a device that packs[both a cable modem and a wireless router](https://www.lifewire.com/best-cable-modem-router-combos-to-buy-4082541) , you might expect the Netgear C3700 to be a bulky device, but that’s not the case. It’s actually quite small, measuring just 7.6 inches high and weighing a scant 0.77 pounds. This, combined with the low-key black finish and lack of external antennas means that it won’t stick out, no matter where you put it.
@@ -77,6 +84,13 @@ Lifewire / Bill Thomas
  This definitely works in the Netgear C3700’s favor. The[wireless performance](https://www.lifewire.com/ways-to-boost-a-wifi-signal-818296) is already weak (which we’ll go into a bit later), so the fact that you can leave it out and unobscured is a benefit.
 
 ![Netgear C3700](https://www.lifewire.com/thmb/kBtdcSRxoIsQvqmnO6OVYnfZ9z8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-4-ad3408c39a524e14a6cebcce10d3be44.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
@@ -98,13 +112,6 @@ Lifewire / Bill Thomas
 
  We weren’t impressed with the wireless performance, but the wired performance surprised us.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Connectivity: Everything a small home needs
 
  The Netgear C3700 is a modem-router combo, which means, hypothetically, it’s the only networking device many people will need. On top of the two Gigabit[Ethernet](https://www.lifewire.com/what-is-an-ethernet-cable-817548) ports, you’re also getting dual antennas, which makes this a dual-band device (2.4GHz and 5.0GHz). It’s not the fastest wireless connection in the world, though—the Netgear C3700 is rated for N600 speeds, something we haven’t seen in a few years.
@@ -112,6 +119,13 @@ Lifewire / Bill Thomas
  It is an 8x4 DOCSIS 3.0 modem, meaning it’s capable of handling internet speeds up to 340 Mbps. But that N600 wireless speed means that devices on Wi-Fi won’t be that fast. If you have a really fast internet connection like we do, it might be best to use an external wireless router.
 
  There is also a USB 2.0 port around the back where you can plug in a hard drive or a printer for network access.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Network Performance: Great when wired, but wireless speeds lag
 
@@ -122,6 +136,13 @@ Lifewire / Bill Thomas
  Thankfully, this means that an attached router would be able to keep up, which is what we’d recommend. The wireless performance isn’t great and you’re going to have a much better experience with a separate router.
 
 ![Netgear C3700](https://www.lifewire.com/thmb/lPF7EXzNUljkXFySwthTmhwRbiY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-6-1c4a748dd9b644c39d8bd8c47180c74f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
@@ -142,16 +163,10 @@ Lifewire / Bill Thomas
  For an 8x4 DOCSIS 3.0 cable modem with a lightweight router built in, this price is about par for the course. If you can find the Netgear C3700 for under $100, then it might be worth buying for the cable modem performance and pairing it with a solid wireless router.
 
 <!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Netgear C3700 vs. Arris Surfboard SBG6700-AC
@@ -167,13 +182,6 @@ Lifewire / Bill Thomas
 
 * [Motorola MG7700](https://www.lifewire.com/motorola-mg7700-review-4589346)
 * [Netgear Nighthawk C7000](https://www.lifewire.com/netgear-nighthawk-c7000-review-4686068)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -208,5 +216,20 @@ Lifewire / Bill Thomas
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-comprehensive-playbook-for-self-branded-content-creators/"><u>[New] The Comprehensive Playbook for Self-Branded Content Creators</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-leading-list-the-10-cost-effective-mobile-video-conferencing/"><u>[Updated] 2024 Approved Leading List The 10 Cost-Effective Mobile Video Conferencing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-expert-tips-for-enhanced-kinemaster-frame-focus/"><u>2024 Approved Expert Tips for Enhanced Kinemaster Frame Focus</u></a></li>
+<li><a href="https://blog-min.techidaily.com/brennen-eines-iso-abbilds-auf-dvd-unter-windows-10-8-oder-7-schritt-fur-schritt-anleitung/"><u>Brennen Eines ISO-Abbilds Auf DVD Unter Windows 10, 8 Oder 7: Schritt-Für-Schritt-Anleitung</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-smart-soundbass-with-amazing-amazon-basic-soundbar/"><u>Budget Smart Soundbass with Amazing Amazon Basic Soundbar</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-senior-friendly-cell-phone-deals-a-ranking-of-the-best-7-options-for-202e4/"><u>Discovering Senior-Friendly Cell Phone Deals: A Ranking of the Best 7 Options for 202E4</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-infinix-note-30-5g-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Infinix Note 30 5G FRP In 3 Different Ways</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-iphone-12-pro-camera-roll-photos-and-photo-stream-pictures-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted iPhone 12 Pro Camera Roll Photos and Photo Stream Pictures? | Stellar</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-mesh-wireless-routers-and-systems-2024-edition/"><u>Leading Mesh Wireless Routers and Systems - 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/netgear-nighthawk-x10-ad7200-router-exposed-revolutionizing-home-internet-with-high-speed-wireless/"><u>Netgear Nighthawk X10 AD7200 Router Exposed: Revolutionizing Home Internet with High-Speed Wireless</u></a></li>
+<li><a href="https://extra-information.techidaily.com/synchronizing-mac-writers-flows-efficiently-with-mixer/"><u>Synchronizing Mac' Writers' Flows Efficiently With Mixer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-synergy-of-design-and-acoustics-at-teac-pd-301/"><u>The Synergy of Design & Acoustics at Teac PD-301</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/unlock-a-world-of-knowledge-with-free-downloads-access-our-premium-toolkits-and-ebooks-today/"><u>Unlock a World of Knowledge with FREE Downloads: Access Our Premium Toolkits and Ebooks Today!</u></a></li>
+</ul></div>
 

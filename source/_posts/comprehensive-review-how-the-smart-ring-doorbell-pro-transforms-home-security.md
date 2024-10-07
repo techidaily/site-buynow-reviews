@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Review: How the Smart Ring Doorbell Pro Transforms Home Security"
-date: 2024-09-18T18:06:44.811Z
-updated: 2024-09-20T18:30:26.839Z
+date: 2024-10-01T22:35:06.029Z
+updated: 2024-10-07T05:50:30.459Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Review: How the Smart Ring Doorbell Pro Transforms Home Security"
@@ -47,6 +47,13 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C9 AC1900](https://www.lifewire.com/thmb/5L4k_oD-GKPyliYY-jL-tLQH-Uk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAC1900_HeroSquare-68c63e89f59a47a2944b2a73434417e9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 [View On Amazon](https://www.amazon.com/dp/B00PDLRHFW/?tag=lifewire-onsite-prod-20&ascsubtag=5025101%7Cnb196585ced2341b2b2b5f702b47e2cf321%7CB00PDLRHFW) [View On Walmart](https://www.walmart.com/ip/TP-LINK-Archer-C9-AC1900-Wireless-Dual-Band-Gigabit-Router/42121251) [View On B&H Photo Video](https://www.bhphotovideo.com/c/replacement%5Ffor/1117107-REG/tp%5Flink%5Farcher%5Fc9%5Fac1900%5Fdual%5Fband%5Fwireless.html)
@@ -85,6 +92,13 @@ Lifewire / Erika Rawes
 
  Setup is simple, and you can use the Tether app or the TP-Link site. There’s a QR code in the quick setup leaflet, so you can easily find the app. As it goes with most routers, you’ll find a temporary network name, password, and login info on the label. The app walks you through the setup process step-by-step, guiding you through creating your 2.4 and 5 GHz networks.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Connectivity: Decent speeds, long range**
 
  The Archer C9 AC1900 is an 801.11ac router. It can reach up to 1300 Mbps on the 5 GHz band and up to 600 Mbps on the 2.4 GHz band for a total of 1900 Mbps. The C9 has[beamforming](https://www.lifewire.com/what-is-wi-fi-beamforming-4171262) , which promotes a more concentrated signal and a longer range. It has four separate gigabit LAN ports for hardwiring devices.
@@ -94,6 +108,19 @@ Lifewire / Erika Rawes
  As I traveled far away from the router, I was able to maintain a signal, but the speed slowed down quite a bit. In the backyard, another area where I often experience drop-offs, the speed came in at 39 Mbps. I repeated the Ookla speed test numerous times, and the results remained around the same in each room. I was able to get slightly higher speeds on an iPhone 11, but overall the router performed extremely well at close proximity, but not so well at a distance.
 
 ![TP-Link Archer C9 AC1900](https://www.lifewire.com/thmb/gPQRxhQBJ13ETuiP-7-Vy9eGcss=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAC1900_05-4ddd14a5299f45279789011ce3b9e8ea.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -106,13 +133,6 @@ Lifewire / Erika Rawes
  Although this is somewhat of a basic router, it has some modern perks. It supports the most recent Internet Protocol version, IPv6\. You can also create a guest network, so you don’t have to share your main network credentials with visitors. The C9 does feature parental controls, but they aren’t exactly comprehensive.
 
  The router performed extremely well at close proximity, but not so well at a distance.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: TP-Link Tether app**
 
@@ -127,22 +147,15 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A budget router**
 
  The Archer C9 AC1900 is an older model, so it’s not as readily available as it was a couple of years back. You can typically find it for around $120, which is a good price for a long-range router with its feature set.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **TP-Link Archer C9 AC1900 vs. ASUS RT-AC1900**
 
@@ -153,6 +166,13 @@ Lifewire / Erika Rawes
  **A reliable budget router that will help prevent drop-offs.**
 
  The TP-Link Archer C9 AC1900 is a good option for those who want a reasonably fast and stable network connection, but don’t want to pay a lot of cash for extra bells and whistles.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -188,5 +208,23 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-ideal-termination-immersive-reality/"><u>[New] Ideal Termination Immersive Reality</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-unearthing-excellent-seeds-the-valheim-way/"><u>[New] Unearthing Excellent Seeds The Valheim Way</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1-smartphone-assessment/"><u>1 Smartphone Assessment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-entertainment-alert-dive-into-sing-along-bliss-with-karaoke-usa-for-less-than-150/"><u>Affordable Entertainment Alert: Dive Into Sing-Along Bliss with Karaoke USA for Less than $150</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-premium-viewing-in-depth-hisense-50-h8f-4k-hdr-television-evaluation/"><u>Affordable Premium Viewing: In-Depth Hisense 50 H8F 4K HDR Television Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-wall-mounting-showcased-md2380-review/"><u>Affordable Wall Mounting Showcased - MD2380 Review</u></a></li>
+<li><a href="https://win-blog.techidaily.com/bypassing-technical-hurdles-in-apex-legends-engine-issues-solved/"><u>Bypassing Technical Hurdles in Apex Legends - Engine Issues Solved</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/youtube-earning-predictors-for-2024/"><u>Free YouTube Earning Predictors for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/improving-frame-rate-and-eliminating-glitches-ultimate-guide-for-smoother-gameplay-in-valorant/"><u>Improving Frame Rate & Eliminating Glitches: Ultimate Guide for Smoother Gameplay in Valorant</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-xiaomi-redmi-k70-pro-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Xiaomi Redmi K70 Pro to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-navigating-screencastifys-screen-capture-feature/"><u>In 2024, Navigating Screencastify's Screen Capture Feature</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-vivo-v29-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Vivo V29 Pro to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722797253929-omnicharges-revolutionary-omni-20-the-all-encompassing-wireless-and-cable-charger-reviewed/"><u>Omnicharge's Revolutionary Omni 20: The All-Encompassing Wireless and Cable Charger Reviewed!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722640764633-tcl-50s425-50-inch-smart-roku-led-television-ultimate-value-4k-viewing-experience-in-2019/"><u>TCL 50S425 50 Inch Smart Roku LED Television - Ultimate Value 4K Viewing Experience in 2019</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-classroom-revolution-how-teachers-can-thrive-with-ai-8-compelling-reasons-to-get-on-board/"><u>The Classroom Revolution: How Teachers Can Thrive with AI - 8 Compelling Reasons to Get On Board</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722676170350-unveiling-the-essentials-the-ultimate-guide-to-oculus-quest-2s-elite-straps-extra-power-source-and-secure-carrying-case-evaluation/"><u>Unveiling the Essentials - The Ultimate Guide to Oculus Quest 2'S Elite Straps, Extra Power Source & Secure Carrying Case Evaluation.</u></a></li>
+</ul></div>
 

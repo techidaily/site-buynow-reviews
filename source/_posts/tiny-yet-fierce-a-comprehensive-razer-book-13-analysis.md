@@ -1,7 +1,7 @@
 ---
 title: "Tiny Yet Fierce: A Comprehensive Razer Book 13 Analysis"
-date: 2024-09-29T00:53:09.190Z
-updated: 2024-10-01T17:17:36.168Z
+date: 2024-10-06T00:00:09.237Z
+updated: 2024-10-07T02:19:43.915Z
 categories:
   - BestProducts
 description: "This Article Describes Tiny Yet Fierce: A Comprehensive Razer Book 13 Analysis"
@@ -43,22 +43,15 @@ Lifewire / Jonno Hill
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 1byone Amplified Digital HDTV Antenna
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/y6y0rP_H9I7oHwldUMIq-18GrFw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -87,13 +80,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Vanilla**
 
  The 1byone Digital Amplified Indoor Antenna uses a flat rectangular design similar to other powered indoor antennas on the market. The 13.25 x 9.25 inch antenna surface is roughly in line with most of the other products I looked at in this category, the only real difference being that the 1byone has a much more rigid surface.
@@ -106,6 +92,13 @@ Lifewire / Jonno Hill
 
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Good enough for most**
 
  The 1byone Digital Amplified Indoor HD TV Antenna didn’t have the best performance of the antennas we’ve tested, falling somewhere in the middle of the pack. In my channel acquisition test, I averaged 59 channels across all the tests performed. This compares to the worst performing antenna at just 47, and the best at 76.
@@ -117,6 +110,13 @@ Lifewire / Jonno Hill
  1byone makes no specific promises about the range of their antenna, although they do cite users having positive experiences from as far as 48 miles away in their customer testimonials. Given how many factors impact the effective range, I think it is somewhat wise not to make any promises. Nonetheless, this is clearly a device that will be best suited for people living in or near major metropolitan areas.
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/6y-ITpY8n7xf8BteMqdJjYm-paU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_05-178a02351af040cc89c86169b88a6de2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
@@ -137,10 +137,10 @@ Lifewire / Jonno Hill
  The 1byone Digital Amplified Indoor Antenna offers the best value out of all the indoor antennas that we tested. If you can get the performance you need from the 1byone, it’s the antenna to buy. I wouldn’t consider other options unless you’ve already ruled out this one.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -171,18 +171,14 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-revamp-your-resonance-the-7-premier-voice-recorder-change-android-apps/"><u>[New] 2024 Approved Revamp Your Resonance The 7 Premier Voice Recorder Change Android Apps</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-a-visual-voyage-exploring-pexels-for-perfect-shots/"><u>[New] A Visual Voyage Exploring Pexels for Perfect Shots</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-rising-stars-in-streaming-global-youtubes-subs-pantheon/"><u>[Updated] In 2024, Rising Stars in Streaming Global YouTube's Subs Pantheon</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/an-in-depth-analysis-of-fongo-your-guide-to-canadas-reliable-voice-over-ip-service/"><u>An In-Depth Analysis of Fongo – Your Guide to Canada's Reliable Voice Over IP Service</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/asus-rt-ac88u-gaming-router-review-lives-up-to-the-hype/"><u>Asus RT-AC88U Gaming Router Review: Lives Up to the Hype</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/c450-from-apeman-an-affordable-option-for-reliable-road-monitoring-in-depth-analysis/"><u>C450 From Apeman: An Affordable Option for Reliable Road Monitoring - In-Depth Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-googles-battery-doorbell-a-product-review/"><u>Comprehensive Guide to Google's Battery Doorbell - A Product Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-budget-friendly-nokia-n31-mobile/"><u>Comprehensive Review of the Budget-Friendly Nokia N3.1 Mobile</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-vivo-t2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Vivo T2 5G | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-reset-iphone-6s-plus-without-losing-data-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Reset iPhone 6s Plus without Losing Data? | Stellar</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Realme 12 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/simple-guide-installing-wacom-intuos-pro-drivers-on-windows-10/"><u>Simple Guide: Installing Wacom Intuos Pro Drivers on Windows 10</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-which-way-to-go-a-comparison-of-adobe-premiere-and-after-effects-for-video-creators/"><u>Updated 2024 Approved Which Way to Go? A Comparison of Adobe Premiere and After Effects for Video Creators</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-comprehensive-insights-for-optimal-iphone-x-animoji-use/"><u>[New] Comprehensive Insights for Optimal iPhone X Animoji Use</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-essential-tech-skills-record-on-hangouts/"><u>[Updated] Essential Tech Skills Record on Hangouts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/bioengineering-approaches-like-nerve-conduits-aim-to-support-regeneration-while-leveraging-neuroplasticity-for-better-outcomes/"><u>Bioengineering Approaches Like Nerve Conduits Aim to Support Regeneration While Leveraging Neuroplasticity for Better Outcomes.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-amazon-fire-hd-10-assessment-the-ideal-all-in-one-entertainment-device/"><u>Comprehensive Amazon Fire HD 10 Assessment: The Ideal All-in-One Entertainment Device</u></a></li>
+<li><a href="https://extra-support.techidaily.com/leapfrogging-past-the-journey-to-windows-11-for-2024/"><u>Leapfrogging Past The Journey to Windows 11 for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-instavid-promotion-crafting-a-successful-marketing-gameplan-for-2024/"><u>Mastering InstaVid Promotion Crafting a Successful Marketing Gameplan for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-your-savings-exclusive-prime-day-deals-on-high-quality-benq-screens/"><u>Maximize Your Savings: Exclusive Prime Day Deals on High-Quality BenQ Screens</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/next-gen-connectivity-and-savings-an-expert-review-of-the-samsung-galaxy-a71-5g-as-a-viable-contender-against-flagship-phones/"><u>Next-Gen Connectivity and Savings: An Expert Review of the Samsung Galaxy A71 5G as a Viable Contender Against Flagship Phones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-selection-of-optimal-cable-modem-products/"><u>The Definitive Selection of Optimal Cable Modem Products</u></a></li>
 </ul></div>
 

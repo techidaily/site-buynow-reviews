@@ -1,7 +1,7 @@
 ---
 title: Travelling with a Twist of Time – The Canon G9X Mark II, Reviewed by an Expert on Camera Technology and Design
-date: 2024-09-28T22:51:18.540Z
-updated: 2024-10-01T17:37:46.901Z
+date: 2024-09-30T08:57:55.909Z
+updated: 2024-10-07T09:18:36.937Z
 categories:
   - BestProducts
 description: This Article Describes Travelling with a Twist of Time – The Canon G9X Mark II, Reviewed by an Expert on Camera Technology and Design
@@ -42,6 +42,13 @@ Lifewire / Yoona Wagener
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## TCL 32S325 32-Inch 720p Roku Smart LED TV
 
 ![TCL 32S325 32-inch 720p Roku Smart LED TV (2019)](https://www.lifewire.com/thmb/TYfvRKErNnR2aF0zqZnvQgYwr1E=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4118401-1-11eb3228bd75430096b66602ce0af022.jpg)
@@ -73,19 +80,19 @@ Lifewire / Yoona Wagener
 ![TCL 32S325 32-inch 720p Roku Smart LED TV (2019)](https://www.lifewire.com/thmb/zc6qNrFNxxBi1Iv6l09UeQhniHE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4118401-2-0a2778725f5f4f808134778c56e6bd82.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Bite-sized for small spaces**
@@ -100,13 +107,6 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process** :**Uncomplicated but a little sluggish**
 
  You would expect a 32-inch TV to be easy to handle. And this petite and almost weightless device doesn’t disappoint. It’s a cinch to set up and doesn’t require another person to move around. Attaching the two TV stand legs took less than a minute, but there is also the option of mounting this television as long as you purchase a VESA 100 x 100 wall mount with 8-millimeter screws.
@@ -114,19 +114,6 @@ Lifewire / Yoona Wagener
  Once we attached the stands, plugged the TV in, and placed the batteries in the remote, we were good to go through the straightforward Roku setup steps. This simple guided process is the same as we’ve seen across other Roku TVs and streaming devices. Since we have an existing Roku account, all we had to do was log in to register and activate this device.
 
  While there’s nothing complicated about this initial setup, we did notice that the overall installation and update time was noticeably more sluggish than we’ve experienced with other Roku streaming devices and TVs. Still, within a matter of five minutes or less, we had the TV unboxed and ready for viewing. That’s about as plug-and-play as it gets.
-
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Image Quality: Impressive and customizable**
 
@@ -144,20 +131,27 @@ Lifewire / Yoona Wagener
 
 ![TCL 32S325 32-inch 720p Roku Smart LED TV (2019)](https://www.lifewire.com/thmb/A-BPt2kvOPN7lnYsYrwB1yi6mCg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4118401-3-90620926f31e4fb89f7d4fb47c95bf98.jpg)
 
- Lifewire / Yoona Wagener
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Yoona Wagener
 
 ## **Audio Quality: Decent for the size**
 
  Like picture quality, sound is surprisingly powerful despite the size of this device. The built-in 5-watt speakers deliver relatively full sound that can get quite loud. The sound settings aren’t as robust as the picture settings. By default, the volume mode is set to off, which means the sound quality is automatically set based on the content. But you can opt for leveling to even out high and low sounds, or night mode, which allows you to set the maximum volume. We did notice some issues with extreme lows and highs, but turning on the leveling option did seem to help smooth out the dips.
 
  Like picture quality, sound is surprisingly powerful despite the size of this device.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Clean and easy to use**
 
@@ -221,17 +215,18 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-maximizing-impact-10-indispentic-instagram-editors-apps/"><u>[Updated] 2024 Approved Maximizing Impact 10 Indispentic Instagram Editors' Apps</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-master-the-art-of-trailer-creation-for-enhanced-income-for-2024/"><u>[Updated] Master the Art of Trailer Creation for Enhanced Income for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-taste-titans-must-follow-culinary-creators-online/"><u>2024 Approved Taste Titans Must-Follow Culinary Creators Online</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-xiaomi-redmi-a2plus-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Xiaomi Redmi A2+? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-from-iphone-6s-plus-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock From iPhone 6s Plus Online</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/live-streaming-mastery-with-manycam-top-tier-virtual-camera-app/"><u>Live Streaming Mastery with ManyCam: Top-Tier Virtual Camera App</u></a></li>
-<li><a href="https://some-tips.techidaily.com/movavi-gif-jpg/"><u>Movavi의 도구를 사용하여 GIF를 JPG으로 바꾸기 - 인터넷 공간에서 원활한 이동</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-sonys-budget-friendly-65-4k-oled-television-the-xbr65x850f-model-is-it-worth-your-money/"><u>Review: Sony's Budget-Friendly 65 4K OLED Television, the XBR65X850F Model – Is It Worth Your Money?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-drive-the-ultimate-car-code-readers-compilation-best-books-and-articles-on-auto-engineering/"><u>Revolutionize Your Drive: The Ultimate Car Code Readers Compilation – Best Books and Articles on Auto Engineering !</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/runners-choice-the-elite-selection-of-running-watches-for-2eo4/"><u>Runner's Choice: The Elite Selection of Running Watches for 2Eo4</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-watch3-review-a-perfect-blend-of-retro-charm-and-modern-innovations/"><u>Samsung Galaxy Watch3 Review: A Perfect Blend of Retro Charm and Modern Innovations</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sony-xperia-5-evaluation-compact-yet-lofty-pricing/"><u>Sony Xperia 5 Evaluation: Compact Yet Lofty Pricing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-essential-video-promo-tips-for-startups-infographic/"><u>[Updated] In 2024, Essential Video Promo Tips for Startups (Infographic)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-unwind-with-youtube-tricks-for-reducing-playback-velocity-49-chars/"><u>[Updated] Unwind with YouTube Tricks for Reducing Playback Velocity (49 Chars)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/battle-of-titans-samsungs-new-kid-on-the-block-s23-ultra-versus-s21-ultra/"><u>Battle of Titans: Samsung's New Kid on the Block, S23 Ultra Versus S21 Ultra</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-broadband-booster-unveiling-the-features-and-performance-of-tp-link-archer-c9-router/"><u>Budget Friendly Broadband Booster: Unveiling the Features and Performance of TP-Link Archer C9 Router</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/cambia-tus-archivos-bmp-a-imagenes-jpg-gratuitamente-utilizando-el-servicio-en-linea-de-movavi/"><u>Cambia Tus Archivos BMP a Imágenes JPG Gratuitamente Utilizando El Servicio en Línea De Movavi</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/guide-to-discovering-mp3-files-with-kitty-calls-and-meows/"><u>Guide to Discovering MP3 Files with Kitty Calls and Meows</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-fix-icloud-lock-from-your-apple-iphone-7-plus-and-ipad-by-drfone-ios/"><u>How to fix iCloud lock from your Apple iPhone 7 Plus and iPad</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-call-logs-from-infinix-gt-10-pro-by-fonelab-android-recover-call-logs/"><u>How to retrieve erased call logs from Infinix GT 10 Pro?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-iphone-8-unavailable-issue-with-ease-by-drfone-ios/"><u>In 2024, How To Fix iPhone 8 Unavailable Issue With Ease</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Nokia G22? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-oppo-reno-10-pro-5g-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Oppo Reno 10 Pro 5G FRP</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/marvel-heroes-on-screen-navigating-through-the-midway-points-of-excellence-and-mediocrity/"><u>Marvel Heroes on Screen: Navigating Through the Midway Points of Excellence & Mediocrity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potential-of-zte-blade-a3y-high-performance-meets-affordability/"><u>Unveiling the Potential of ZTE Blade A3Y: High-Performance Meets Affordability</u></a></li>
 </ul></div>
 

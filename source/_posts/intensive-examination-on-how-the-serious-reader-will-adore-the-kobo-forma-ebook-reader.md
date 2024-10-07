@@ -1,7 +1,7 @@
 ---
 title: Intensive Examination on How the Serious Reader Will Adore the Kobo Forma eBook Reader.
-date: 2024-09-29T01:27:44.880Z
-updated: 2024-10-01T20:59:38.005Z
+date: 2024-10-06T01:28:58.552Z
+updated: 2024-10-07T09:46:10.127Z
 categories:
   - BestProducts
 description: This Article Describes Intensive Examination on How the Serious Reader Will Adore the Kobo Forma eBook Reader.
@@ -42,9 +42,23 @@ Lifewire / Jason Schneider
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Acer Chromebook 15 CB3-532
 
 ![Acer Chromebook 15](https://www.lifewire.com/thmb/de6GmnZf-POMS25HOUd4hX7ytI8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer_LaptopsUnder200_Chromebook_HeroSquare-362ddb9951d04861a4b66cea1c000233.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jason Schneider
 
@@ -78,20 +92,13 @@ Lifewire / Jason Schneider
 ![Acer Chromebook 15](https://www.lifewire.com/thmb/KPrvN1kvoH081BHRUonphp9CIeY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer_LaptopsUnder200_Chromebook_02-c3813ec58fc848e6a715abe090ebe6b1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jason Schneider
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Design: Slightly bulky with a couple of nice touches**
 
@@ -100,19 +107,6 @@ Lifewire / Jason Schneider
  The color scheme feels very modern, looking very similar to Apple’s space gray. There’s a soft brushed-aluminum-style texture on the top, and a dark, roughened plastic base and inner bezels. There are also two large, round-rectangle speaker grilles flanking the speakers that give it a more assertive look than the usual, simple aesthetic used by other laptops.
 
  The hinge is actually two small contact points that roll into the laptop chassis, which feels dated when the laptop is open but makes it look interesting when it’s closed. The whole laptop is made of plastic, and measures right around one 1-inch thick, weighing in at almost 4.5 pounds. That’s a double-edged sword because while the laptop feels really sturdy and premium despite the plastic material, it isn’t terribly portable.
-
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: As seamless as a mobile device**
 
@@ -127,6 +121,13 @@ Lifewire / Jason Schneider
  What surprised me was just how good this screen looks for a budget panel. Most screens at this level will give you just enough pixels to advertise themselves as HD, but will skimp on viewing angles and color representation. But, the screen offers plenty of brightness, and if you turn the blue temperature down a bit (do this in the “night light” part of the Settings section, but turn it on all the time, not just during bedtime), the screen looks really decent.
 
  The whole laptop is made of plastic, and measures right around 1-inch thick, weighing in at almost 4.5 pounds.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Really solid, to a point**
 
@@ -150,14 +151,14 @@ Lifewire / Jason Schneider
 
 ![Acer Chromebook 15](https://www.lifewire.com/thmb/yw3n6Y9SGTIh4h10bF7XbAc5La0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer_LaptopsUnder200_Chromebook_03-5724a73204e94f548f20aec5fa86074f.jpg)
 
- Lifewire / Jason Schneider
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Jason Schneider
 
 ## **Network and connectivity: Modern, fast, and optimized for Chrome OS**
 
@@ -185,18 +186,18 @@ Lifewire / Jason Schneider
 
  That said, the Chromebook 15 runs so well, though likely only because of the lightweight operating system and limited app capabilities. Chrome OS is kind of like just using a Chrome window with a bunch of tabs on a regular PC. For most people, the OS is more than capable of handling most of your browsing needs. This Chromebook is a great example of how far you can push Chrome OS on a budget device, with a big bright screen for watching movies, too.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Really affordable with plenty to offer**
 
  The list price for this Acer Chromebook sits at just about $400 (MSRP), but most of the time you can find it on Amazon for between $150-$250\. I picked up my unit for about $185, and it tends to hover just around there.
 
  For the money, I can confidently say this laptop is worth the price, as long as you have the right applications in mind for it. If you want a cheap starter laptop, or a machine for an older family member that’s easy to use, but you don’t want to spend half a grand getting there, this is a great choice. I can’t say it’s quite as travel-friendly as some of the other budget laptops out there, due to the size and weight. But if you want an affordable machine that’s great for light productivity tasks, and is an excellent movie machine, then you should consider this.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Acer Chromebook 15 vs. Lenovo Chromebook S330 14**
 
@@ -207,13 +208,6 @@ Lifewire / Jason Schneider
  **A solid Chromebook for productivity, but limited in portability.**
 
  This is a great Chromebook with a lot of impressive things to offer. The bright screen has plenty of room for vibrant video viewing and multiple windows of productivity. The excellent battery life means you won’t be tethered to a desk, and the light, fast Chrome OS means it will take a lot to slow the Acer Chromebook 15 down. However, the limited onboard storage, bulky size and weight, and the lack of full app choices might limit you a bit too much. At the end of the day, at this price point, it’s perfect for light, basic use.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -242,17 +236,17 @@ Lifewire / Jason Schneider
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-mastering-screen-recordings-the-recmeister-way/"><u>[New] Mastering Screen Recordings The Recmeister Way</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-mastering-video-production-with-chroma-key-techniques-for-2024/"><u>[Updated] Mastering Video Production with Chroma Key Techniques for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-orchestrating-a-personalized-tiktok-signoff/"><u>2024 Approved Orchestrating A Personalized TikTok Signoff</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/address-assignment/"><u>Address Assignment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-alternative-in-depth-look-at-the-apple-ipad-air-2020/"><u>Budget-Friendly Alternative: In-Depth Look at the Apple iPad Air (2020)</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Poco F5 5G? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-face-off-nintendo-switch-lite-versus-nintendo-switch-oled-review/"><u>Comprehensive Face-Off: Nintendo Switch Lite Versus Nintendo Switch OLED Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-tp-links-av1300-wi-fi-extender-is-it-really-powerful-enough/"><u>Comprehensive Review of TP-Link's AV1300 Wi-Fi Extender - Is It Really Powerful Enough?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/conquer-cosmic-markets-in-offworld-trading-company-an-essential-game-review-for-savvy-traders/"><u>Conquer Cosmic Markets in 'Offworld Trading Company': An Essential Game Review for Savvy Traders</u></a></li>
-<li><a href="https://fox-access.techidaily.com/elevate-your-flying-game-with-tailored-drone-propellers/"><u>Elevate Your Flying Game with Tailored Drone Propellers</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-the-lock-screen-on-my-f5-pro-5g-by-drfone-android-unlock-android-unlock/"><u>How to Unlock the Lock Screen on my F5 Pro 5G</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-best-extras-to-maximize-your-yi-4k-shooting/"><u>[New] The Best Extras to Maximize Your YI 4K Shooting</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-ultimate-6-devices-for-flawless-film-translation-for-2024/"><u>[New] Ultimate 6 Devices for Flawless Film Translation for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-discovering-the-past-best-history-youtubers/"><u>2024 Approved Discovering the Past Best History YouTubers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/audioguard-titanium-foam-earmuff-testing/"><u>AudioGuard Titanium Foam Earmuff Testing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/chromecast-and-google-tv-review-a-game-changer-for-cord-cutters/"><u>Chromecast and Google TV Review: A Game-Changer for Cord Cutters?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-vivo-v29e-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-discover-the-top-reaction-video-creators-of-the-year/"><u>In 2024, Discover the Top Reaction Video Creators of the Year</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-90-lite-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor 90 Lite to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-hulu-worth-it-5-reasons-to-sign-up/"><u>Is Hulu Worth It? 5 Reasons to Sign Up</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/record-your-webcam-with-vlc-for-2024/"><u>Record Your Webcam with VLC for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/uncovering-the-features-and-performance-of-the-garmin-gpsmap-64st-a-complete-handheld-gps-device-review/"><u>Uncovering the Features and Performance of the Garmin GPSMAP 64St - A Complete Handheld GPS Device Review</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-oneplus-12-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For OnePlus 12? | Dr.fone</u></a></li>
 </ul></div>
 

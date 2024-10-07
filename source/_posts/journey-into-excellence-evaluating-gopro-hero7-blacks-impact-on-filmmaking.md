@@ -1,7 +1,7 @@
 ---
 title: "Journey Into Excellence: Evaluating GoPro HERO7 Black's Impact on Filmmaking!"
-date: 2024-09-29T23:22:01.300Z
-updated: 2024-10-02T00:11:04.056Z
+date: 2024-10-05T19:23:43.277Z
+updated: 2024-10-06T22:55:13.144Z
 categories:
   - BestProducts
 description: "This Article Describes Journey Into Excellence: Evaluating GoPro HERO7 Black's Impact on Filmmaking!"
@@ -74,7 +74,21 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/W0-czfRzA-7ixa5VS8Cb4sBcaqM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_02-b2292f1ee1b54f4e9990c92e582c5a4b.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Design: An accessory that blends in
 
@@ -83,13 +97,6 @@ Lifewire / Yoona Wagener
  Slightly less sophisticated, however, is the charging clip. It’s a boxy bar with a hinge that opens to place the device inside. Because it’s so lightweight—venturing on flimsy—I experienced the clip part slipping and snapping closed before I could place the wearable in the charging cradle. This slightly inelegant charging accessory seems a bit at odds with the more polished tracker design.
 
 ![Amazon Halo](https://www.lifewire.com/thmb/QHImxX0EsYwunnnS2aNtTX9j80s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_03-66da73beea854cd39f6c35c06975ef4e.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -103,6 +110,19 @@ Lifewire / Yoona Wagener
 
  As for water resistance, I didn’t test the 50-meter swimproof rating of the Halo in a pool, but I did shower with the device for three days. Despite the band’s moisture-wicking band material, it remained damp far longer than was comfortable and compared to a fast-drying silicone band. If you’re an avid swimmer or prefer not to remove your wearable while showering, the sport band option will most likely be the more desirable option.
 
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Performance: Constantly monitoring movement, not performance
 
  While this streamlined device doesn’t log detailed workout metrics, the Halo has the upper hand when it comes to continuously monitoring movement—and sedentary stints throughout the day. Whether you’re sitting at a desk or venture out for an errand, the Halo will capture that and pretty accurately categorize it. It consistently registered walking and running activities, though the readout wasn’t very accurate for the latter. Truthfully, I don’t get the impression that that’s the point of the Halo.
@@ -110,13 +130,6 @@ Lifewire / Yoona Wagener
  Instead, the Halo presents all activity data through a convenient point-tracking system. The weekly goal is 150, which converts to 150 minutes of cardiovascular activity, as recommended by the American Heart Association. Periods of movement and exercise count toward this point goal, while periods of non-movement subtract from points earned. It’s a digestible system that offers a new twist on the steps or movement alert functions you’ll find in fitness trackers and[smartwatches](https://www.lifewire.com/an-introduction-to-smart-watches-3441381) from Samsung, Garmin, Fitbit, and others. This system was an encouraging reset from those reminders that sometimes feel more annoying than motivating.
 
 ![Amazon Halo](https://www.lifewire.com/thmb/FjdFyV6Y4mTXNsqccZ4aEBJNpV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_05-e671ee9f77cc4cee8e2580a2dba449d5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener.
 
@@ -139,10 +152,10 @@ Lifewire / Yoona Wagener
  The app makes everything from the initial setup to body scanning and voice tracking straightforward.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Battery: Enough juice to last nearly a week
@@ -153,14 +166,20 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/fBsShcBruhAWkg-kTKPWkYUaImo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_04-ee532fbe8d2f4e8195e63ed9dd45611a.jpg)
 
-Lifewire / Yoona Wagener
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Lifewire / Yoona Wagener
 
 ## Price: A reasonable price for the feature set
 
@@ -183,13 +202,6 @@ Lifewire / Yoona Wagener
 * [Apple Watch Series 5](https://www.lifewire.com/apple-watch-series-6-review-5087552)
 * [Fitbit Sense](https://www.lifewire.com/fitbit-sense-review-5085832)
 * [Ticwatch Pro](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -222,22 +234,21 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-a-visual-guide-to-subtitling-techniques-for-effective-dialogue-placement/"><u>[New] 2024 Approved A Visual Guide to Subtitling Techniques for Effective Dialogue Placement</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-groundbre-folio-of-gaming-loggers-alternatives-to-fbx/"><u>2024 Approved Groundbre Folio of Gaming Loggers Alternatives to FBX</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/2024-approved-non-retweeting-video-tweets-from-your-phone/"><u>2024 Approved Non-Retweeting Video Tweets From Your Phone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2024s-top-tier-mobile-storm-chaser-tools-stay-safe-and-informed/"><u>2024'S Top-Tier Mobile Storm Chaser Tools – Stay Safe and Informed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-the-versatile-lenovo-9-inch-digital-notebook/"><u>A Closer Look at the Versatile Lenovo 9-Inch Digital Notebook</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-review-of-the-stylish-and-sporty-garmin-vivomove-hr-watch/"><u>A Comprehensive Review of the Stylish and Sporty Garmin Vivomove HR Watch</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-fresh-look-at-the-beloved-franchise-ratchet-and-clanks-enduring-legacy/"><u>A Fresh Look at the Beloved Franchise: Ratchet & Clank's Enduring Legacy</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/alexa-versus-google-assistant-determining-the-top-tech-sidekick-for-personal-use/"><u>Alexa versus Google Assistant: Determining the Top Tech Sidekick for Personal Use</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/alienware-aurora-r9-powerhouse-in-depth-review-of-dells-cutting-edge-gaming-desktop/"><u>Alienware Aurora R9 Powerhouse - In-Depth Review of Dell's Cutting-Edge Gaming Desktop</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ambient-weather-ws-1002-wifi-thermometer-is-top-notch-accuracy-worth-the-price-tag/"><u>Ambient Weather WS-1002 WiFi Thermometer: Is Top-Notch Accuracy Worth the Price Tag?</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/delight-in-delivery-7-upgraded-opening-ways/"><u>Delight in Delivery 7 Upgraded Opening Ways</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-lava-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Lava .</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fixes-for-wallpaper-engine-software-failure-in-windows-11-and-10/"><u>Fixes for 'Wallpaper Engine' Software Failure in Windows 11 & 10</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-instagram-power-play-top-10-apps-to-increase-followers-and-posts/"><u>In 2024, Instagram Power Play Top 10 Apps to Increase Followers & Posts</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/investigating-user-experiences-with-free2x-webcam-tools/"><u>Investigating User Experiences with Free2X Webcam Tools</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722457377307-next-gen-power-in-a-small-package-comprehensive-review-of-xbox-series-s-hardware/"><u>Next-Gen Power in a Small Package: Comprehensive Review of Xbox Series S Hardware</u></a></li>
-<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-vivo-v27-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Vivo V27 Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-steady-path-adding-your-bio-to-tiktok-unhackable-way/"><u>[New] In 2024, Steady Path Adding Your Bio to TikTok Unhackable Way</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-integrating-easy-to-use-timestamps-into-your-youtube-videos/"><u>[New] Integrating Easy-to-Use Timestamps Into Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-crafting-perfect-ad-videos-on-youtube-without-expense/"><u>[Updated] Crafting Perfect Ad Videos on YouTube Without Expense</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhance-your-sports-viewing-experience-with-youtube-tvs-multiview-feature/"><u>Enhance Your Sports Viewing Experience with YouTube TV's MultiView Feature</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhancing-user-engagement-with-ai-how-youtube-automatically-cuts-out-uninteresting-portions-in-videos/"><u>Enhancing User Engagement with AI: How YouTube Automatically Cuts Out Uninteresting Portions in Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enter-nasas-202n-space-innovation-contest-join-the-quest/"><u>Enter NASA's 202N Space Innovation Contest: Join the Quest!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-the-future-of-smart-viewing-with-google-tvs-latest-home-screen-transformation/"><u>Experience the Future of Smart Viewing with Google TV's Latest Home Screen Transformation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-elgato-game-capture-neo-simplifying-your-gaming-footage-recording/"><u>Expert Analysis of the Elgato Game Capture Neo: Simplifying Your Gaming Footage Recording</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/facing-a-flood-of-promotions-prime-video-set-to-introduce-additional-ads-from-amazon/"><u>Facing a Flood of Promotions: Prime Video Set to Introduce Additional Ads From Amazon</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/farewell-to-arcades-embracing-modern-gaming-techniques-with-a-nostalgic-tribute-to-classic-controllers/"><u>Farewell to Arcades: Embracing Modern Gaming Techniques, with a Nostalgic Tribute to Classic Controllers</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Infinix Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-oneplus-11r-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your OnePlus 11R is off? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-tecno-spark-10-4g-by-drfone-android/"><u>In 2024, How to Bypass FRP from Tecno Spark 10 4G?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-serenity-in-gaming-10-stress-busters/"><u>In 2024, Serenity in Gaming 10 Stress Busters</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Vivo X Flip | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rtisans-approach-to-crafting-channel-identities-for-2024/"><u>The Artisan's Approach to Crafting Channel Identities for 2024</u></a></li>
 </ul></div>
 

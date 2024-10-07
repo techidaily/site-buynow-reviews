@@ -1,7 +1,7 @@
 ---
 title: In-Depth Testing of the Asus RT-AC88U - A True Gamer’s Router Worth Its Hype?
-date: 2024-10-01T02:27:07.582Z
-updated: 2024-10-02T00:25:29.222Z
+date: 2024-10-01T01:00:46.299Z
+updated: 2024-10-07T01:55:24.880Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Testing of the Asus RT-AC88U - A True Gamer’s Router Worth Its Hype?
@@ -48,13 +48,6 @@ Andrew Hayward / Lifewire
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/KO4q8p9NOXatDIXmzsBBpQgN5eA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_horiz_Oculus-Quest-2-VR-Headset-1-bf9c326da16b47f6b2bdcc6ba1e7068e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Andrew Hayward / Lifewire
 
 [View On Amazon $239](https://www.amazon.com/dp/B099VMT8VZ?tag=lifewire-onsite-prod-20&ascsubtag=5092839%7Cnbdecb7d1285e4e25b1f1161a0c48733019%7CB099VMT8VZ) [View On Best Buy $200](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6473553.p) [View On Oculus](https://www.oculus.com/quest-2/?locale=en%5FUS)
@@ -79,6 +72,13 @@ Andrew Hayward / Lifewire
  Released in early 2019, the original[Oculus Quest](https://www.lifewire.com/oculus-quest-review-4692669) was a monumental step forward for virtual reality. No, it wasn’t the most powerful headset out there, using a two-year-old smartphone processor to power its games and experiences, but it was a capable, completely self-contained, wireless VR headset that didn’t require a PC or game console to deliver stellar immersion.
 
  It was one of last year’s greatest new gadgets, and now Oculus has returned with a sequel. The Oculus Quest 2 is smaller and lighter, yet more powerful and with a much better screen—yet it costs $100 less than the original. How did that happen? Well, it’s not all great news, thanks to a couple of cost-cutting measures that you’ll feel and potentially see, but the end result is ultimately a better and more affordable device that serves as an ideal gateway into VR.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Design and Comfort: Compromises were made
 
@@ -119,10 +119,10 @@ Andrew Hayward / Lifewire
  Andrew Hayward / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Setup Process: You’ll need a phone… and Facebook
@@ -132,6 +132,13 @@ Andrew Hayward / Lifewire
  Part of the setup process, and the process each time you use the headset, is to designate your play space by “drawing” a barrier within the augmented view of your surroundings seen through the headset’s cameras. From there, the headset determines whether you have enough space for active, room-scale experiences, or you can choose a stationary setup for seated play modes. During active play, a virtual barrier called the Oculus Guardian appears when you get close to the edges of your designated play space to help you avoid crashing into your surroundings. It’s all rather clever and effective.
 
  There’s one other potential hitch with the Oculus Quest 2 that wasn’t present with the original: the new headset_requires_ a[Facebook account](https://www.lifewire.com/tutorial-how-facebook-works-2654610) and there’s no way around it. Facebook owns Oculus, and while the first Quest could be used simply with an Oculus account, the new one requires the social media account. For some, that may be a deal-breaker, given frustrations over privacy and the increasing role that Facebook plays in our society, so just know that going in.
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Performance: It’s a big upgrade
 
@@ -165,6 +172,13 @@ Andrew Hayward / Lifewire
 
  Andrew Hayward / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Software: Use the headset or connect to PC
 
  The headset’s own interface hasn’t changed much from the first Quest, taking place in a 3D home-like environment with floating menus that you can access via the motion controllers. It’s a pretty easy way to choose between your currently installed games and apps, install anything else in your library, purchase and download new content, and access video content including apps like Netflix, YouTube, and SlingTV.
@@ -181,19 +195,6 @@ Andrew Hayward / Lifewire
 
  The $299 edition of the headset comes with 64GB of internal storage and the $399 version nets you 256GB, with some of each tally taken up by system software and resources. Luckily, the games and apps themselves aren’t huge, typically weighing in between 1-4GB apiece, sometimes less, and they’re pretty quick to download again if you want to revisit something. The 64GB edition should provide enough space for most players, as you could probably comfortably have a dozen or more games installed, along with streaming media apps, but anyone who wants to have a robust VR library on hand at all times without waiting might consider spending the extra cash.
 
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Games: A good, growing selection
 
  Although those aforementioned games and some others are still only found on PC (or maybe PlayStation VR on the PlayStation 4 or 5), the Oculus Quest platform has amassed a very nice selection of native games that you can download and play right on the headset.There is no difference in compatibility between the headsets: all Quest games play on Quest 2 and vice versa, just with performance differences.
@@ -209,10 +210,10 @@ Andrew Hayward / Lifewire
  Andrew Hayward / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Price: It’s an amazing value
@@ -222,20 +223,13 @@ Andrew Hayward / Lifewire
 ![Oculus Quest 2](https://www.lifewire.com/thmb/TDsFPvRGkhZaFzIaNnKRk1_xO4s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-8-Comparison-1b0c51b029da41389167e103a4c4843a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Andrew Hayward / Lifewire
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Oculus Quest 2 vs. PlayStation VR
 
@@ -252,16 +246,10 @@ Andrew Hayward / Lifewire
  The significant performance upgrade and surprising price drop outweigh some of the annoying design shifts with the Oculus Quest 2, making it the must-have VR headset for just about everyone. Not only does it play a great library of on-headset games, but it can also connect to a powerful PC to play even more games on top of that. Add to that the ease of use, quality gameplay, and immersive visuals, and the Oculus Quest 2 is another brilliant VR game console.
 
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -301,17 +289,16 @@ Andrew Hayward / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-navigating-discords-broadcast-settings-for-easy-streaming/"><u>[Updated] 2024 Approved Navigating Discord's Broadcast Settings for Easy Streaming</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-the-lore-of-roguelites-amidst-classic-rpgs/"><u>[Updated] In 2024, The Lore of Roguelites Amidst Classic RPGs</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/1715860757258-2024-approved-unlocked-mac-capture-tool-no-cost/"><u>2024 Approved Unlocked Mac Capture Tool - No Cost!</u></a></li>
-<li><a href="https://network-issues.techidaily.com/addressing-screen-asymmetry-on-win11-release/"><u>Addressing Screen Asymmetry on Win11 Release</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/asias-linguistic-elite-the-top-3-titans/"><u>Asia's Linguistic Elite: The Top 3 Titans</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-smart-escort-ix-innovative-gps-jammer-alerts-and-adaptable-detection-tech-reviewed/"><u>Discover the Smart Escort iX: Innovative GPS Jammer Alerts and Adaptable Detection Tech Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-top-performers-leading-wireless-mouse-models-of-2024/"><u>Discover the Top Performers: Leading Wireless Mouse Models of 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/echo-4th-gen-review-a-major-upgrade/"><u>Echo (4Th Gen) Review: A Major Upgrade</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/elite-list-of-superior-personal-weather-tracking-systems-for-the-modern-household/"><u>Elite List of Superior Personal Weather Tracking Systems for the Modern Household</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/epic-puzzle-gaming-on-apple-devices-find-fun-titles-akin-to-the-room-and-myst/"><u>Epic Puzzle Gaming on Apple Devices: Find Fun Titles Akin to 'The Room' & 'Myst'</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-mohu-blades-technical-specs-stylish-approach-with-reliable-home-television-reception/"><u>Evaluating the Mohu Blade's Technical Specs - Stylish Approach with Reliable Home Television Reception</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fixing-the-roblox-not-opening-error-with-expert-tips-from-2022/"><u>Fixing the Roblox Not Opening Error with Expert Tips From 2022</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-capture-the-action-5-ways-to-record-windows-10-games-for-2024/"><u>[Updated] Capture the Action 5 Ways to Record Windows 10 Games for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-future-of-fitness-in-virtual-reality-walkers/"><u>[Updated] In 2024, The Future of Fitness in Virtual Reality Walkers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/beyond-google-other-ar-sticker-solutions-for-2024/"><u>Beyond Google Other AR Sticker Solutions for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-a-great-convertible-and-inexpensive-asus-chromebook-with-our-detailed-review/"><u>Experience a Great, Convertible & Inexpensive Asus Chromebook with Our Detailed Review!</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/facebooks-2023-video-strategy-emphasizing-conciseness-and-engagement/"><u>Facebook's 2023 Video Strategy Emphasizing Conciseness and Engagement</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/iphone-13-user-experience-and-detailed-breakdown/"><u>IPhone 13 User Experience and Detailed Breakdown</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/prime-picks-the-finest-cardboard-compatible-virtual-reality-titles/"><u>Prime Picks The Finest Cardboard-Compatible Virtual Reality Titles</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/quick-and-easy-snapshot-sharing-a-step-by-point-guide/"><u>Quick and Easy Snapshot Sharing – A Step-By Point Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-limitations-a-detailed-look-at-pioneer-bdr-xd05b-blu-ray-writer/"><u>Unpacking the Limitations: A Detailed Look at Pioneer BDR-XD05B Blu-Ray Writer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-acer-chromebook-15-outstanding-capabilities-meet-an-expansive-screen/"><u>Unveiling the Acer Chromebook 15: Outstanding Capabilities Meet an Expansive Screen</u></a></li>
 </ul></div>
 

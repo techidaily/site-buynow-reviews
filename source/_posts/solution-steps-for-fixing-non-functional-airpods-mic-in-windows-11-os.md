@@ -1,7 +1,7 @@
 ---
 title: Solution Steps for Fixing Non-Functional AirPods Mic in Windows 11 OS
-date: 2024-09-17T17:47:31.612Z
-updated: 2024-09-20T18:08:35.337Z
+date: 2024-10-04T03:27:28.550Z
+updated: 2024-10-06T20:19:27.070Z
 tags:
   - win11
   - win10
@@ -32,6 +32,13 @@ Many people reported that**after Windows 10 update no soun** d available in comp
 2. [Check audio settings](https://tools.techidaily.com/drivereasy/download/)
 3. [Roll back your audio driver](https://tools.techidaily.com/drivereasy/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 1: Update your audio driver
 
  It’s likely your audio driver becomes incompatible after upgrading Windows system, so it’s recommended to update your audio driver to fix the no sound issue.
@@ -52,6 +59,13 @@ Many people reported that**after Windows 10 update no soun** d available in comp
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc72220f11f9.jpg)
 4. Restart your computer to take effect.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Check if there’s any sound in your computer.
 
  If the problem still persists, don’t worry. We have other solutions.
@@ -65,6 +79,14 @@ To do so:
 1. Right click on the**Volume icon** at the bottom right corner, and click**Sounds** (or**Playback devices** ).  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/02/img_5a962b29937b9.png)
 2. In the**Sound** pane, click the**Playback** tab.  
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc7201dbcc98.jpg)
 3. Select your speaker audio device, and click**Set Default** to set it as your default device.  
  If your device has been the default device, you’ll see a green check mark next to your device.  
@@ -85,23 +107,16 @@ Still no luck? Okay, there’s one more thing to try.
 4. Double click on your**audio device** to open the properties pane.  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc7218e14fa5.jpg)
 5. Click the**Driver** tab, and click**Roll Back Driver** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bc721ba8a50e.jpg)
 6. Follow the on-screen instructions to finish the process.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 7. Restart your computer.
 
@@ -127,5 +142,17 @@ Feel free to leave a comment below if you have any questions.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-how-to-lock-in-your-favorite-tiktok-moments-smartly/"><u>[New] In 2024, How to Lock in Your Favorite TikTok Moments - Smartly</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-newcomers-guide-profiting-from-live-streaming-on-periscope/"><u>[Updated] Newcomer’s Guide Profiting From Live Streaming on Periscope</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-premier-transcription-programs-find-your-best-match-today/"><u>2024'S Premier Transcription Programs: Find Your Best Match Today!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-durability-cheetah-dual-arm-showdown/"><u>Affordable Durability: Cheetah Dual Arm Showdown</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazonbasics-tripod-review-for-aspiring-photographers/"><u>AmazonBasics Tripod Review for Aspiring Photographers</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-edge-in-gaming-a-step-by-step-tutorial-on-upgrading-to-asus-970-pro-graphics/"><u>Get the Edge in Gaming: A Step-by-Step Tutorial on Upgrading to ASUS 970 Pro Graphics</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-infinix-note-30-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Infinix Note 30 5G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/revamp-your-resonance-the-7-premier-voice-recorder-change-android-apps/"><u>Revamp Your Resonance The 7 Premier Voice Recorder Change Android Apps</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-vivo-y100i-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Vivo Y100i Location | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722726194094-update-your-research-plan/"><u>Update Your Research Plan:</u></a></li>
+</ul></div>
 

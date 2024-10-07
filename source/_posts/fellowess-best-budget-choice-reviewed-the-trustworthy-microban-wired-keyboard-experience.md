@@ -1,7 +1,7 @@
 ---
 title: "Fellowes's Best Budget Choice Reviewed: The Trustworthy Microban Wired Keyboard Experience"
-date: 2024-09-26T23:19:52.372Z
-updated: 2024-10-01T21:27:43.671Z
+date: 2024-09-29T18:14:44.682Z
+updated: 2024-10-07T09:56:30.674Z
 categories:
   - BestProducts
 description: "This Article Describes Fellowes's Best Budget Choice Reviewed: The Trustworthy Microban Wired Keyboard Experience"
@@ -72,10 +72,10 @@ Lifewire / Emily Isaacs
  The Fellowes Microban Split Design Wired Keyboard is one of several Fellowes’ products geared towards businesses, thanks to its comfortable, ergonomic design and budget-friendly pricing. The inclusion of Microban antimicrobial protection technology, designed to prolong the life of your computer hardware by preventing damaging microbes from building up over time and causing deterioration, is an added bonus for the price. We tested this keyboard for over a week so read on to see what we discovered.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Cleaner than the rest**
@@ -103,15 +103,22 @@ Lifewire / Emily Isaacs
  Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Features: Multimedia hotkeys for ease of use**
 
  The Fellowes features seven hotkeys for multimedia playback. These keys are located along the top of the keyboard and offer such functionality as mute, volume up, volume down, sleep, email, search, and one-touch internet access. We were disappointed that it didn’t include hotkeys for pausing, skipping forward, or skipping backward in multimedia.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: A wired connection for reliability**
 
@@ -119,16 +126,16 @@ Lifewire / Emily Isaacs
 
  It’s equipped with a 16-character buffer, which means that it can hold onto that many typed characters before they’re processed.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: A budget-friendly ergonomic keyboard**
 
  Ergonomic keyboards tend to retail anywhere from $50-$200\. The Fellowes Microban Split Wired Keyboard tends to retail for around $50, which puts this well at the budget end. Its low price point makes it a great introductory ergonomic keyboard, particularly if you’re unsure of what you want and are experimenting with different design choices.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Fellowes Microban Split Design Wired Keyboard vs. Microsoft Sculpt Ergonomic Keyboard**
 
@@ -153,13 +160,6 @@ Lifewire / Emily Isaacs
  **A great keyboard with microbial protection for office workers.**
 
  The Fellowes Microban Split Design Wired Keyboard is a good, albeit bulky, ergonomic keyboard designed to last. Its antimicrobial protection not only keeps germs, fungi, and bacteria at bay, but ensures the keyboard won’t deteriorate over time. While it may not be our first pick for home use, it’s a great choice if you’re on a budget or are an office working facing down cold and flu season.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -188,18 +188,20 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-excellence-in-management-top-8-fb-planners-for-productivity-boost/"><u>[New] Excellence in Management Top 8 FB Planners for Productivity Boost</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-combine-photos-for-captivating-instagram-stories/"><u>[Updated] How to Combine Photos for Captivating Instagram Stories</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-mastering-iphone-x-secure-access-restoring-biometric-lock/"><u>[Updated] In 2024, Mastering iPhone X Secure Access Restoring Biometric Lock</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unlocking-telegram-web-potentials-a-practical-guide/"><u>[Updated] Unlocking Telegram Web Potentials A Practical Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-discreetly-discovering-content-how-to-read-instagram-stories-privately-on-pcandroidios/"><u>2024 Approved Discreetly Discovering Content How to Read Instagram Stories Privately on PC/Android/iOS</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-top-cloud-storages-essential-choices-for-you/"><u>2024 Approved Top Cloud Storages Essential Choices for You</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-does-pope-francis-stay-connected-the-role-of-email-in-his-communications/"><u>How Does Pope Francis Stay Connected? The Role of Email in His Communications</u></a></li>
-<li><a href="https://extra-information.techidaily.com/mastering-typography-and-layout-the-top-10-for-ae/"><u>Mastering Typography & Layout The Top 10 For AE</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigate-the-journey-to-macos-ventura/"><u>Navigate the Journey to macOS Ventura</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/optimal-phone-replacement-frequency/"><u>Optimal Phone Replacement Frequency</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/panasonic-lumix-fz80-a-photo-companion-for-all/"><u>Panasonic Lumix FZ80: A Photo Companion for All</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/pixel-4a-5g-review-why-it-stands-out-as-a-value-packed-android-device-with-next-gen-connectivity/"><u>Pixel 4a 5G Review: Why It Stands Out as a Value-Packed Android Device with Next-Gen Connectivity</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/windows-10-amd-detection-error-now-fixed/"><u>Windows 10 AMD: Detection Error, Now Fixed</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-hdr-mastery-transforming-your-portrait-journey/"><u>[New] In 2024, HDR Mastery Transforming Your Portrait Journey</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-from-concept-to-completion-utilizing-luts-effectively-in-premiere-pro/"><u>[Updated] 2024 Approved From Concept to Completion Utilizing LUTs Effectively in Premiere Pro</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-ultimate-guide-to-adding-gifs-on-instagram-easy-steps/"><u>[Updated] The Ultimate Guide to Adding GIFs on Instagram [Easy Steps]</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-complete-encyclopedia-of-tweetresponses/"><u>2024 Approved The Complete Encyclopedia of TweetResponses</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-bw-16d1x-u-blu-ray-writer-reviewed-combining-contemporary-style-with-noteworthy-quirks/"><u>Asus BW-16D1X-U Blu-Ray Writer Reviewed: Combining Contemporary Style with Noteworthy Quirks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-of-the-season-high-quality-affordable-benq-monitors-and-projectors-at-prime-day-specials/"><u>Best of the Season: High-Quality, Affordable BenQ Monitors & Projectors at Prime Day Specials</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-playstation-5-and-xbox-series-x-games-consoles-ranked-for-2024/"><u>Best PlayStation 5 & Xbox Series X Games Consoles Ranked for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-budget-friendly-1byone-amplified-indoor-hd-antenna/"><u>Comprehensive Review of the Budget-Friendly 1ByOne Amplified Indoor HD Antenna</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-d-link-powerline-2000-network-solution-user-friendly-setup-and-accelerated-internet-performance/"><u>Evaluating the D-Link Powerline 2000 Network Solution: User-Friendly Setup & Accelerated Internet Performance.</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/head-to-head-showdown-final-cut-pro-or-lumafusion-for-video-editing/"><u>Head-to-Head Showdown Final Cut Pro or LumaFusion for Video Editing?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-mastering-fast-loading-instagram-media-content/"><u>In 2024, Mastering Fast-Loading Instagram Media Content</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Itel P55 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/prioritize-factors-what-to-focus-on-for-a-dash-cam/"><u>Prioritize Factors: What To Focus On For A Dash Cam</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-guide-to-lensdirects-anti-blue-light-glasses-with-prescription-options-user-feedback-included/"><u>The Definitive Guide to LensDirect's Anti-Blue Light Glasses with Prescription Options - User Feedback Included</u></a></li>
+<li><a href="https://network-issues.techidaily.com/troubleshooting-stuck-video-feature-on-asus-device/"><u>Troubleshooting Stuck Video Feature on Asus Device</u></a></li>
 </ul></div>
 

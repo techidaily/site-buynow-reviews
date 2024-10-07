@@ -1,7 +1,7 @@
 ---
 title: Sony W800 Excellence & Value Assessment
-date: 2024-09-26T23:53:33.580Z
-updated: 2024-10-01T18:59:03.043Z
+date: 2024-10-01T06:12:14.633Z
+updated: 2024-10-06T21:21:02.420Z
 categories:
   - BestProducts
 description: This Article Describes Sony W800 Excellence & Value Assessment
@@ -43,10 +43,10 @@ Lifewire / Jonno Hill
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Mohu Leaf 30
@@ -54,10 +54,10 @@ Lifewire / Jonno Hill
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
@@ -89,16 +89,16 @@ Lifewire / Jonno Hill
 
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: Dead simple**
 
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Acceptable but not incredible**
 
@@ -106,16 +106,16 @@ Lifewire / Jonno Hill
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Range: Fairly limited**
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Excellent for the performance**
 
@@ -159,22 +159,24 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-female-gamers-faction-yts-10-stars/"><u>[New] 2024 Approved Female Gamers Faction YT's #10 Stars</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-how-to-craft-standout-names-for-your-youtube-channel/"><u>[New] How to Craft Standout Names for Your YouTube Channel</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-unlock-gaming-potential-your-complete-xbox-screenshot-guide/"><u>[Updated] In 2024, Unlock Gaming Potential Your Complete Xbox Screenshot Guide</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-leverage-fb-for-extensive-reach-and-impact/"><u>[Updated] Leverage FB for Extensive Reach and Impact</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-steps-to-sign-in-with-google-meet-laptop-and-mobile/"><u>2024 Approved Steps to Sign-In with Google Meet (Laptop & Mobile)</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-show-wi-fi-password-on-poco-c65-by-drfone-android/"><u>How to Show Wi-Fi Password on Poco C65</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-comprehensive-overview-of-whatsapp-voice-calls/"><u>In 2024, Comprehensive Overview of WhatsApp Voice Calls</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-lava-yuva-2-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Lava Yuva 2 to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-best-mini-pcs-for-gaming/"><u>The Best Mini PCs for Gaming</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-lenovo-thinkpad-x12-reviewed-a-masterful-combination-of-2-in-1-functionality-and-keyboard-excellence/"><u>The Lenovo ThinkPad X12 Reviewed: A Masterful Combination of 2-in-1 Functionality and Keyboard Excellence</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-most-efficient-cable-modems-on-the-market-2024-edition/"><u>The Most Efficient Cable Modems on the Market - 2024 Edition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-6-retailers-for-high-quality-laptops-on-the-market/"><u>Top 6 Retailers for High-Quality Laptops on the Market</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unihertz-atom-xl-evaluation-discover-the-impressive-capabilities-of-this-compact-and-durable-device/"><u>Unihertz Atom XL Evaluation: Discover the Impressive Capabilities of This Compact and Durable Device</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-video-invitation-apps-that-will-make-your-event-unforgettable/"><u>Updated Video Invitation Apps That Will Make Your Event Unforgettable</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/wifi-ambient-weather-ws-1002-overview-premium-features-matched-with-elevated-cost/"><u>WIFI Ambient Weather WS-1002 Overview: Premium Features Matched with Elevated Cost</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/your-guide-to-masterful-photo-editing-with-gimp-a-detailed-breakdown-of-the-best-gratis-option-for-all-operating-systems/"><u>Your Guide to Masterful Photo Editing with GIMP – A Detailed Breakdown of the Best Gratis Option for All Operating Systems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/z-edge-z3-plus-unveiled-a-cost-effective-and-smart-dashcam-for-everyday-use/"><u>Z-Edge Z3 Plus Unveiled: A Cost-Effective and Smart Dashcam for Everyday Use</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-full-disclosure-inside-djis-next-gen-drone-inspire-2-for-2024/"><u>[New] Full Disclosure Inside DJI's Next Gen Drone - Inspire 2 for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-fixes-for-stuck-instagram-videos/"><u>[Updated] Mastering Fixes for Stuck Instagram Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-soundscape-adjustments-fading-volume-with-precision-in-logic-pro/"><u>[Updated] Soundscape Adjustments Fading Volume with Precision in Logic Pro</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-best-practices-for-sharing-visuals-in-ms-teams-with-snap-camera/"><u>2024 Approved Best Practices for Sharing Visuals in MS Teams with Snap Camera</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-complete-methodology-for-sharing-srt-content-on-instagram-and-youtube/"><u>2024 Approved Complete Methodology for Sharing SRT Content on Instagram and YouTube</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-maximize-story-exposure-with-linked-fb-profile/"><u>2024 Approved Maximize Story Exposure with Linked FB Profile</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-10-gopro-cases-insight-for-adventurers/"><u>2024 Approved Top 10 GoPro Cases Insight for Adventurers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-imo-messenger-app-evaluation/"><u>Comprehensive Imo Messenger App Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/deciphering-wi-fi-mesh-network-advantages/"><u>Deciphering Wi-Fi Mesh Network Advantages</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elite-lineup-of-long-range-wifi-router-options-for-maximum-coverage/"><u>Elite Lineup of Long-Range WiFi Router Options for Maximum Coverage</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-sea-tech-usb-exterior-blu-ray-writing-device-inconsistent-functionality-insights/"><u>Evaluating the Sea Tech USB Exterior Blu-Ray Writing Device: Inconsistent Functionality Insights</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-the-issue-a-step-by-step-guide-to-resolve-code-vein-freezing/"><u>Fixing the Issue: A Step-by-Step Guide to Resolve Code Vein Freezing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/google-tv-revolutionizes-streaming-on-chromecast-is-it-the-new-firetv/"><u>Google TV Revolutionizes Streaming on Chromecast - Is It the New FireTV?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/intensity-meets-durability-in-studiofxs-kit/"><u>Intensity Meets Durability in StudioFX's Kit</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/droid-comparison-youtube-app-explored/"><u>IOS/Android Comparison YouTube App Explored</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-performance-of-the-linksys-ea8300-advanced-multi-device-networking-insights/"><u>Top Performance of the Linksys EA8300: Advanced Multi-Device Networking Insights</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Vivo V30 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-entertainment-on-a-budget-the-insignia-ns-43df710na19-fire-tv-edition-alexa-and-ultra-hd-features-reviewed/"><u>Unleashing Entertainment on a Budget: The Insignia NS-43DF710NA19 Fire TV Edition - Alexa & Ultra HD Features Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potency-of-zmi-powerpack-20k-the-definitive-guide-to-portable-charging-strength/"><u>Unveiling the Potency of ZMI PowerPack 20K: The Definitive Guide to Portable Charging Strength</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Budget-Friendly AmazonBasics TV Antenna: Accessing Free Over-the-Air Broadcasts"
-date: 2024-09-14T16:23:09.256Z
-updated: 2024-09-20T16:06:31.154Z
+date: 2024-10-05T16:49:49.494Z
+updated: 2024-10-07T01:53:34.143Z
 categories:
   - BestProducts
 description: "This Article Describes Budget-Friendly AmazonBasics TV Antenna: Accessing Free Over-the-Air Broadcasts"
@@ -42,9 +42,29 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -75,13 +95,6 @@ Lifewire / Erika Rawes
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: Relatively easy**
 
  Setting up the antenna is pretty straightforward. You start by plugging one end of the coaxial cable into the antenna, and then the other end to the coaxial/antenna-in connector to your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) .
@@ -92,13 +105,6 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **Performance: Almost two dozen channels (in a rural area)**
@@ -108,6 +114,13 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: 35 miles**
 
@@ -123,6 +136,13 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
@@ -134,13 +154,6 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -171,5 +184,21 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/-guide-to-finding-hidden-youtube-treasures-for-2024/"><u>[New] A Guide to Finding Hidden YouTube Treasures for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-seamless-social-streams-link-instagram-and-facebook/"><u>[New] In 2024, Seamless Social Streams Link Instagram & Facebook</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-self-verification-on-instagram-does-it-serve-us-in-2024/"><u>[New] Self-Verification on Instagram Does It Serve Us, In 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-unleash-the-full-potential-of-your-android-device-with-obs-studio-for-2024/"><u>[New] Unleash the Full Potential of Your Android Device with OBS Studio for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-mystery-of-unlisted-content-on-youtube-explored/"><u>[Updated] In 2024, The Mystery of Unlisted Content on YouTube Explored</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-video-platform-profiles-vimeo-vs-youtube-comparison/"><u>2024 Approved Video Platform Profiles Vimeo vs YouTube Comparison</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-itel-p55-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Itel P55 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/chart-your-course-to-dominance-comprehensive-insights-into-space-empire-strategy-with-stellaris/"><u>Chart Your Course to Dominance: Comprehensive Insights Into Space Empire Strategy with Stellaris</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-leading-extended-desktop-mouseskins/"><u>Comprehensive Review: Leading Extended Desktop Mouseskins</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/fastest-method-to-move-iphone-phonebook-data-onto-your-pc/"><u>Fastest Method to Move iPhone Phonebook Data Onto Your PC</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/install-up-to-date-hp-laserjet-1320-drivers-on-your-windows-device-free-download/"><u>Install Up-to-Date HP LaserJet 1320 Drivers on Your Windows Device - FREE Download!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lg-stylo-6-phone-assessment-impressive-design-and-precision-stylus/"><u>LG Stylo 6 Phone Assessment: Impressive Design & Precision Stylus</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/select-the-finest-karaoke-instruments-of-2024-a-buyers-guide-to-acoustic-bliss/"><u>Select the Finest Karaoke Instruments of 2024: A Buyer's Guide to Acoustic Bliss</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-nintendo-game-and-watch-unraveling-the-magic-of-super-mario-bros-an-in-depth-review/"><u>The Ultimate Guide to the Nintendo Game & Watch - Unraveling the Magic of Super Mario Bros: An In-Depth Review</u></a></li>
+</ul></div>
 

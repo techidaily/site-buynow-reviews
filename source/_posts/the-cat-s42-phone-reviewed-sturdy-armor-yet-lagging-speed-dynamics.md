@@ -1,7 +1,7 @@
 ---
 title: "The Cat S4^2 Phone Reviewed: Sturdy Armor, Yet Lagging Speed Dynamics"
-date: 2024-09-17T16:21:24.682Z
-updated: 2024-09-20T18:39:19.361Z
+date: 2024-10-01T20:19:55.567Z
+updated: 2024-10-06T20:11:29.409Z
 categories:
   - BestProducts
 description: "This Article Describes The Cat S4^2 Phone Reviewed: Sturdy Armor, Yet Lagging Speed Dynamics"
@@ -45,6 +45,13 @@ Lifewire / Zach Sweat
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/JA4MI_SE7Alxl0MLR7rMoIVzKgI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -99,7 +106,21 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/TRrezKVbAUPs2Rud3g4_iOHyxB8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-2-4b3f9d8acd1440089989378253d902f4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Comfort: Hefty, but darn comfy**
 
@@ -137,20 +158,13 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance/Durability: Enhanced performance and durability**
@@ -174,13 +188,6 @@ Lifewire / Zach Sweat
  The bumpers on every XB1 controller up until the One S were another point of failure due to the thin plastic piece that attached them to the controller. If you dropped your controller in just the right spot, even from a short height, they often broke and flopped around, requiring you to either send it in for repair or fix it yourself at home. The original Elite also suffered from this, and I experienced this with my first device. Now that the Series 2 is built off the S controller, this is supposedly no longer an issue.
 
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Like buying a brand new console**
 
@@ -207,6 +214,13 @@ Lifewire / Zach Sweat
  **A truly awesome controller with a steep price point.**
 
  Everything we disliked about the original Elite controller has been improved with the second iteration, making it the best first-party controller you can get for XB1 or PC. However, the steep price point might be a hard pill to swallow for users who don’t like to splurge.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -238,5 +252,26 @@ Lifewire / Zach Sweat
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-rapid-capture-technique-timelapse-toptech/"><u>[New] 2024 Approved Rapid Capture Technique Timelapse #TopTech</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-the-ultimate-guide-to-live-video-comparing-obs-and-twitch-studio-for-2024/"><u>[New] The Ultimate Guide to Live Video Comparing OBS & Twitch Studio for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/resolved-elden-ring-no-start-error-windows-dx12-issue/"><u>[RESOLVED] Elden Ring No Start Error - Windows DX12 Issue</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-macbook-webcam-recording-guide/"><u>[Updated] In 2024, MacBook Webcam Recording Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/audiophile-silencers-high-fidelity-reviews/"><u>Audiophile Silencers High-Fidelity Reviews</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-the-premier-wearable-tech-top-smartwatches/"><u>Explore the Premier Wearable Tech: Top Smartwatches</u></a></li>
+<li><a href="https://games-able.techidaily.com/game-on-without-flash-innovative-play-strategies-exposed/"><u>Game On without Flash: Innovative Play Strategies Exposed</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/hands-on-exploration-navigating-the-performance-and-capabilities-of-the-msi-pro-mp161-e2-laptop-screen/"><u>Hands-On Exploration: Navigating the Performance and Capabilities of the MSI PRO MP161 E2 Laptop Screen</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-ultimate-list-of-free-video-openers/"><u>In 2024, The Ultimate List of Free Video Openers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-swagtron-swagboard-t1-a-balance-between-maneuverability-and-price/"><u>In-Depth Analysis of the Swagtron Swagboard T1 - A Balance Between Maneuverability and Price</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/kobo-nia-e-reader-assessment-surpassing-kindle-as-a-prime-contender/"><u>Kobo Nia E-Reader Assessment: Surpassing Kindle as a Prime Contender</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/master-your-visuals-with-optimal-dimensions/"><u>Master Your Visuals with Optimal Dimensions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/masterclass-review-how-the-havit-5-airflow-laptop-stand-keeps-overheating-at-bay/"><u>Masterclass Review: How The HAVIT 5 Airflow Laptop Stand Keeps Overheating at Bay🎮❄️</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-content-experience-why-you-should-join-netflix/"><u>Maximize Content Experience: Why You Should Join Netflix</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-art-of-selling-through-influence-5-key-strategies-on-instagram/"><u>The Art of Selling Through Influence 5 Key Strategies on Instagram</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-new-era-of-smart-assistants-unpacking-the-gen-4-amazon-echo-upgrade/"><u>The New Era of Smart Assistants: Unpacking the Gen 4 Amazon Echo Upgrade</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-ultimate-method-for-recorded-instagram-stories/"><u>The Ultimate Method for Recorded Instagram Stories</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-ranking-top-performing-asus-routers-taking-over/"><u>The Ultimate Ranking: Top-Performing ASUS Routers Taking Over</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-exploring-the-innovations-of-the-brand-new-apple-iphone-15-pro/"><u>Unboxing and Exploring the Innovations of the Brand New Apple iPhone 15 Pro</u></a></li>
+</ul></div>
 

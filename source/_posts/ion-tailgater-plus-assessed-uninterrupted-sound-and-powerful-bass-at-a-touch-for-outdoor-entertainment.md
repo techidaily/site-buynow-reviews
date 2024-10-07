@@ -1,7 +1,7 @@
 ---
 title: "ION Tailgater Plus Assessed: Uninterrupted Sound & Powerful Bass at a Touch for Outdoor Entertainment."
-date: 2024-09-15T17:26:09.768Z
-updated: 2024-09-20T16:24:24.648Z
+date: 2024-10-05T09:58:31.526Z
+updated: 2024-10-07T01:55:50.999Z
 categories:
   - BestProducts
 description: "This Article Describes ION Tailgater Plus Assessed: Uninterrupted Sound & Powerful Bass at a Touch for Outdoor Entertainment."
@@ -42,6 +42,13 @@ Lifewire / Andrew Hayward
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## TopMate C302 Laptop Cooling Pad
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
@@ -68,6 +75,13 @@ Lifewire / Andrew Hayward
 
  The TopMate C302 is a strong example of the latter. It’s affordable and solidly effective, but the plastic design feels a bit flimsy. I wouldn’t bet on it lasting for the long haul without gentle handling, but given the price, you might not worry about it too much.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Light and a little flimsy
 
  The C302 measures just over 14 inches wide and is designed for laptops with screens up to 15.6 inches diagonal. It’s primarily made of lightweight plastic, with a thin metal grate on the top above the two 4.9-inch fans to help dissipate heat.
@@ -86,18 +100,24 @@ Lifewire / Andrew Hayward
 
  The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
 
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Setup Process: Plug and play
 
  The C302 is a purely plug-and-play accessory with no flashy perks or settings to deal with, nor any need for software on your computer. Simply place it under your laptop, adjust the feet and holding nubs as desired, and plug the USB port into your computer to power on the pad. The fans will then activate and run at the only available speed, and you can unplug it when you’re done or don’t need it anymore.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -121,18 +141,18 @@ Lifewire / Andrew Hayward
 
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: It’s very affordable
 
  At $30, this is one of the most affordable laptop cooling pads on the market right now. While results varied across multiple tests and games/apps, the C302 was pretty well in line with some of the pricier options I tested. It feels a little flimsy and doesn’t have any premium features, but the C302 is a very good entry-level option.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -146,18 +166,18 @@ Lifewire / Andrew Hayward
 
  Durability questions aside, the TopMate C302 Laptop Cooling Pad ultimately worked about as well as the other, pricier pads I tested, helping to offset some of the heat generated by a very hot gaming laptop. If you’re concerned about long-term damage or performance degradation from an overheating laptop, the C302 is a cost-efficient way to help keep your notebook from reaching extreme heat peaks.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 * [North Face Pivoter Backpack](https://www.lifewire.com/north-face-pivoter-backpack-review-4690198)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -185,5 +205,26 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-wintv-guide-effective-techniques-in-windows-based-live-recording-for-2024/"><u>[New] WinTV Guide Effective Techniques in Windows-Based Live Recording for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-first-steps-on-the-path-equipment-for-beginners/"><u>[Updated] In 2024, First Steps on the Path Equipment for Beginners</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-seamless-techniques-for-effective-iphone-screen-captures-for-2024/"><u>[Updated] Seamless Techniques for Effective Iphone Screen Captures for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-diving-deep-into-the-detail-of-minecraft-design/"><u>2024 Approved Diving Deep Into the Detail of Minecraft Design</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pros-and-cons-ranking-the-best-7-aqua-cameras/"><u>2024 Approved Pros & Cons Ranking the Best 7 Aqua Cameras</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-routers-the-ultimate-lineup-thatll-boost-your-network/"><u>ASUS Routers: The Ultimate Lineup That'll Boost Your Network</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dive-into-a-world-of-strategy-and-play-with-djis-robomaster-s1-the-ultimate-educational-toy/"><u>Dive Into a World of Strategy and Play with DJI's RoboMaster S1 - The Ultimate Educational Toy</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/finding-balance-in-photography-the-fz80-review/"><u>Finding Balance in Photography: The FZ80 Review</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-vivo-x100-pro-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Vivo X100 Pro FRP Locks</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-repair-and-enable-the-webcam-on-your-lenovo-notebook-easily/"><u>How to Repair and Enable the Webcam on Your Lenovo Notebook Easily</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-enhancing-video-visibility-with-strategic-youtube-links/"><u>In 2024, Enhancing Video Visibility with Strategic YouTube Links</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-flexispots-modern-class-act-theodore-standing-desk-for-chic-offices/"><u>In-Depth Review: Flexispot's Modern Class Act - Theodore Standing Desk for Chic Offices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/point-and-shoot-splurge-try-kodaks-fz53/"><u>Point & Shoot Splurge? Try Kodak's FZ53</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sing-and-shine-effortlessly-with-the-best-karaoke-machine-unbox-and-enjoy-instant-fun-a-deep-dive-into-singing-machine-sml385btbk/"><u>Sing & Shine Effortlessly with the Best Karaoke Machine - Unbox and Enjoy Instant Fun: A Deep Dive Into Singing Machine SML385BTBK!</u></a></li>
+<li><a href="https://video-capture.techidaily.com/switching-formats-made-simple-transform-mp4-into-m4a-using-these-quick-methods/"><u>Switching Formats Made Simple: Transform MP4 Into M4A Using These Quick Methods</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-battle-of-sonys-powerhouses-a-comprehensive-guide-to-ps5-and-ps5-slim/"><u>The Battle of Sony's Powerhouses: A Comprehensive Guide to PS5 and PS5 Slim</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-the-moto-g-power-elegant-design-meets-extraordinary-battery-life/"><u>The Ultimate Review of the Moto G Power: Elegant Design Meets Extraordinary Battery Life</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/top-10-screencasters-libres-et-en-ligne-leur-comparatif-complet/"><u>Top 10 Screencasters Libres Et en Ligne : Leur Comparatif Complet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-apple-macbook-air-with-m1-chip-2020-a-revolutionary-leap-in-laptop-technology/"><u>Unveiling Apple MacBook Air with M1 Chip (2020): A Revolutionary Leap in Laptop Technology</u></a></li>
+</ul></div>
 

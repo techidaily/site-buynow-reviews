@@ -1,7 +1,7 @@
 ---
 title: "Experience the Blade BLH4100 120 RTF: Ultimate Guide to an Indoor/Outdoor Flying Machine"
-date: 2024-09-17T18:38:11.559Z
-updated: 2024-09-20T16:09:54.423Z
+date: 2024-10-04T07:55:14.071Z
+updated: 2024-10-07T00:56:50.054Z
 categories:
   - BestProducts
 description: "This Article Describes Experience the Blade BLH4100 120 RTF: Ultimate Guide to an Indoor/Outdoor Flying Machine"
@@ -46,6 +46,19 @@ Lifewire / Jonno Hill
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/y6y0rP_H9I7oHwldUMIq-18GrFw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jonno Hill
 
 [View On Amazon](https://www.amazon.com/dp/B00RFLXE0A/?tag=lifewire-onsite-prod-20&ascsubtag=4843342%7Cnd6b0a376738146aca4eb3eb22dadbe7c12%7CB00RFLXE0A)
@@ -73,6 +86,13 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Vanilla**
 
  The 1byone Digital Amplified Indoor Antenna uses a flat rectangular design similar to other powered indoor antennas on the market. The 13.25 x 9.25 inch antenna surface is roughly in line with most of the other products I looked at in this category, the only real difference being that the 1byone has a much more rigid surface.
@@ -85,18 +105,18 @@ Lifewire / Jonno Hill
 
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Good enough for most**
 
  The 1byone Digital Amplified Indoor HD TV Antenna didn’t have the best performance of the antennas we’ve tested, falling somewhere in the middle of the pack. In my channel acquisition test, I averaged 59 channels across all the tests performed. This compares to the worst performing antenna at just 47, and the best at 76.
 
  This should be more than suitable for most people living within a city in relatively close proximity to the source of the TV signal. As for those living further, your mileage may vary.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Range: Middle of the road**
 
@@ -107,22 +127,15 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A great deal**
 
  The 1byone Digital Amplified Indoor Antenna costs just $25, making it the least expensive option out of the antennas I tested. It picked up all the major channels that I would actually watch, and didn’t have any issues with the signal. So from my perspective, why would I pay more? I think buyers would probably be best served by seeing if an antenna like this works for them. If you discover you need something more substantial, feel free to move on to a pricier option.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **1byone Digital Amplified Indoor HD TV Antenna vs Mohu Leaf 30 TV Antenna**
 
@@ -162,5 +175,23 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-mastering-youtubes-seo-landscape-a-keyword-expedition/"><u>[Updated] In 2024, Mastering YouTube's SEO Landscape A Keyword Expedition</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-explore-the-most-reliable-photo-background-alternation-apps/"><u>2024 Approved Explore the Most Reliable Photo-Background Alternation Apps</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enkindling-creativity-with-campfire-tales-a-detailed-review-of-new-character-outfits-in-minecraft/"><u>Enkindling Creativity with Campfire Tales: A Detailed Review of New Character Outfits in Minecraft</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-new-apple-tv-4k-high-definition-streaming-and-intuitive-voice-controls-evaluated/"><u>Exploring the New Apple TV 4K : High-Definition Streaming and Intuitive Voice Controls Evaluated</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/horizon-hours-exploring-automotive-innovations-through-reading-book-four-of-fourth-series-in-new-york-city-rev/"><u>Horizon Hours - Exploring Automotive Innovations Through Reading, Book Four of Fourth Series in New York City (Rev.)</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-reappear-headphone-options-on-your-device-list-after-upgrading-to-windows-11/"><u>How to Reappear Headphone Options on Your Device List After Upgrading to Windows 11</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-vivo-x-flip-get-deleted-photos-back-with-ease-and-safety-by-fonelab-android-recover-photos/"><u>How to Vivo X Flip Get Deleted photos Back with Ease and Safety?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-best-youtube-mp3-downloader-compilation-top-10/"><u>In 2024, Best YouTube Mp3 Downloader Compilation (Top 10)</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-dive-into-group-chats-joining-zoom-meetings-on-phone/"><u>In 2024, Dive Into Group Chats Joining Zoom Meetings on Phone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/e-editing-hacks-select-top-10-short-form-apps-for-2024/"><u>Mobile Editing Hacks Select Top 10 Short Form Apps for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/solved-how-to-resolve-discord-black-screen-during-screen-presentation/"><u>Solved! How To Resolve Discord Black Screen During Screen Presentation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/studiofxs-large-kit-powerful-and-long-lasting-brightness/"><u>StudioFX's Large Kit: Powerful & Long-Lasting Brightness</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-future-of-convenient-pet-feeding-discover-arfs-revolutionary-automatic-pet-dispenser/"><u>The Future of Convenient Pet Feeding - Discover Arf's Revolutionary Automatic Pet Dispenser</u></a></li>
+<li><a href="https://discover-best.techidaily.com/troubleshooting-guide-why-cant-i-watch-mkv-hevc-4k-movies-on-windows-and-solutions/"><u>Troubleshooting Guide: Why Can't I Watch MKV (HEVC, 4K) Movies on Windows and Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/vuebell-video-doorbell-top-recommendations-for-quality-meets-budget-in-home-security/"><u>VueBell Video Doorbell - Top Recommendations for Quality Meets Budget in Home Security</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/your-blueprint-to-lost-youtube-video-accessibility-online-for-2024/"><u>Your Blueprint to Lost YouTube Video Accessibility Online for 2024</u></a></li>
+</ul></div>
 

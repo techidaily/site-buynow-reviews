@@ -1,7 +1,7 @@
 ---
 title: "The Canon G9X Mark II: Timeless Travel Companion with a Modern Twist"
-date: 2024-09-14T17:28:18.675Z
-updated: 2024-09-20T16:37:55.957Z
+date: 2024-10-04T19:34:30.998Z
+updated: 2024-10-07T08:26:08.262Z
 categories:
   - BestProducts
 description: "This Article Describes The Canon G9X Mark II: Timeless Travel Companion with a Modern Twist"
@@ -75,7 +75,21 @@ thumbnail: https://thmb.techidaily.com/e937e68a5b9ec03875dd350ca4501bcb740dbcf76
 
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/Z5kydB0kP2A67yJxqmRGCP6KuT8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fortnite_BattleRoyale_StandardMode_04-f788a639837845a9aead0db474cbc72d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Plot: None, but it’s better that way**
 
@@ -105,13 +119,26 @@ thumbnail: https://thmb.techidaily.com/e937e68a5b9ec03875dd350ca4501bcb740dbcf76
 
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/1EGFvaMlK-nV8KKnng7WcI-X7iI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fortnite_BattleRoyale_StandardMode_03-aff88589c9a04d05a9663f5a75975706.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Building Mechanics: Build, build and build some more**
@@ -134,6 +161,19 @@ thumbnail: https://thmb.techidaily.com/e937e68a5b9ec03875dd350ca4501bcb740dbcf76
 
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/Ock_qOb167XfWuEIuPpuFC0DpUQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fortnite_Battle-Royale_Standard-Mode_05-95fe04b07a934bdbbcf8ae58496c736c.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
 ## **Modes: Limited-time and alternative game modes for variety**
@@ -144,23 +184,9 @@ thumbnail: https://thmb.techidaily.com/e937e68a5b9ec03875dd350ca4501bcb740dbcf76
 
  If you love earning a variety of rewards, are intrigued by building mechanics, or just appreciate a casual game you can pick up and play, Fortnite’s Battle Royale is the clear winner.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Free to play**
 
  The only decision players need to make is whether or not they want to pick up the Battle Pass, which retails for 950 V-Bucks ($9.50). Otherwise,[Fortnite Battle Royale](https://www.lifewire.com/game-play-and-streaming-4781449) is free and available on almost every major platform: PC/Mac, Xbox One, PS4, iOS, Android, and Nintendo Switch. What’s better—cross-platform gameplay is also supported, so you can pick up and play with friends anywhere, anytime.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Apex Legends vs. Fortnite Battle Royale**
 
@@ -179,13 +205,6 @@ thumbnail: https://thmb.techidaily.com/e937e68a5b9ec03875dd350ca4501bcb740dbcf76
  **A fun, fast-paced battle royale that’s rightfully taken the world by storm.**
 
  Fortnite has taken the world by storm, and with over 250 million players worldwide, it’s easy to see why it’s so beloved. If you’re a fan of campy fun, vibrant graphics, third-person shooters, or battle royale games, Fortnite’s Battle Royale is well worth a look—and best of all, it is free to play. Combined with Epic Games’ continuous ability to reinvent Fortnite season after season, Fortnite Battle Royale a sure-fire winner in our books.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -212,5 +231,20 @@ thumbnail: https://thmb.techidaily.com/e937e68a5b9ec03875dd350ca4501bcb740dbcf76
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-choreographing-gripping-podcast-openings-for-2024/"><u>[Updated] Choreographing Gripping Podcast Openings for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/diagnosing-and-resolving-missing-shell-executables-dll-on-your-pc-a-detailed-tutorial/"><u>Diagnosing and Resolving Missing Shell Executables (DLL) on Your PC - A Detailed Tutorial</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixes-for-when-dirt-5-continuously-fails-to-launch-on-your-computer/"><u>Fixes For When Dirt 5 Continuously Fails To Launch On Your Computer</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Vivo X Fold 2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-city-planning-for-climate-action-a-comprehensive-guide/"><u>In 2024, City Planning for Climate Action A Comprehensive Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-infuse-ingenuity-and-fun-make-memes-with-kapwing/"><u>In 2024, Infuse Ingenuity & Fun – Make Memes with Kapwing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unheard-voices-on-youtube-livestream-success-beyond-1000-supporters/"><u>In 2024, Unheard Voices on YouTube Livestream Success Beyond 1000 Supporters</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-unpacking-the-features-and-performance-of-anker-powercore-plus-26800-bundle/"><u>In-Depth Look: Unpacking the Features & Performance of Anker PowerCore + 26800 Bundle</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ipad-pro-against-macbook-pro-what-sets-them-apart/"><u>IPad Pro Against MacBook Pro: What Sets Them Apart?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-honor-100-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Honor 100? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-things-to-evaluate-before-a-new-screen/"><u>Top Things to Evaluate Before a New Screen</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-premier-cable-modem-plus-router-sets/"><u>Ultimate Guide to the Premier Cable Modem + Router Sets</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/vubec-jak-je-tato-kniha-prekvapiva/"><u>Vůbec Jak Je Tato Kniha Překvapivá</u></a></li>
+</ul></div>
 

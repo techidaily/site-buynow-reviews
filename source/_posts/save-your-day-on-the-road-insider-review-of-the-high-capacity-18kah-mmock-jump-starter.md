@@ -1,7 +1,7 @@
 ---
 title: "Save Your Day on The Road: Insider Review of the High Capacity 18kAh MMOCK Jump Starter"
-date: 2024-09-14T18:36:47.893Z
-updated: 2024-09-20T17:53:18.599Z
+date: 2024-10-06T03:28:49.010Z
+updated: 2024-10-07T02:38:46.378Z
 categories:
   - BestProducts
 description: "This Article Describes Save Your Day on The Road: Insider Review of the High Capacity 18kAh MMOCK Jump Starter"
@@ -49,6 +49,13 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/Coi6EdMOwuyjB7rdhov_hsKrHmo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Acer-Predator-Triton-300-SE-Gaming-Laptop-1-d6f9eeb5a43845a9a328125976c835b0.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
 
 [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6455816.p) [View On Acer.com](https://www.acer.com/ac/en/US/content/predator-model/NH.QD0AA.002)
@@ -95,10 +102,10 @@ Lifewire / Matthew S. Smith
  All the laptop’s ports are placed near the front of the chassis. You’ll have to deal with tangled cables more often than with a laptop that places most ports on the rear. I found this annoying when using an external mouse, as cables jutting from the laptop’s flanks often bumped my hand while playing games.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What’s New: This one is special
@@ -140,10 +147,16 @@ Lifewire / Matthew S. Smith
  For me, the Triton 300 SE is easily fast enough: it can handle most games at an average of 60 frames per second (fps), and often much higher, at 1080p resolution. I wouldn’t recommend the Triton 300 SE if you plan to use an external 1440p or 4K monitor, however. Pushing a higher pixel count will lead to sub-60fps performance in most demanding games.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Productivity: All business
@@ -157,15 +170,22 @@ Lifewire / Matthew S. Smith
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/IiMzYmVU-_I6PnObn0bkjyCzqUk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-3-7cae0e5d13154048bbc93c40976706ca.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
  The touchpad is about four inches wide and two and a half inches deep. That’s not bad for a gaming laptop, but average for a productivity machine, and it can feel cramped. It’s responsive and rejects any quick, unintended brush by a palm or thumb. It’s smooth when using multi-touch gestures like two-finger scroll or pinch-to-zoom.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Audio: Packing a punch
 
@@ -182,6 +202,19 @@ Lifewire / Matthew S. Smith
  It delivered network speeds of over 800 megabits per second (Mbps) near my router, which is typical. Every[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345#:~:text=Wi%2DFi%206%20is%20the,Fi%20faster%20and%20more%20reliable.) laptop I review manages that. I was impressed by its performance in my detached office, where the Triton 300 SE hit up to 195Mbps. By comparison, the[Lenovo ThinkPad X1 Titanium](https://www.lifewire.com/lenovo-thinkpad-x1-titanium-yoga-review-5179212) hit only 40Mbps in the same space.
 
  This translated to excellent real-world results. I created a real-world stress test by downloading Cyberpunk 2077 on Steam while simultaneously downloading Metro Exodus on Epic. Surprisingly, both downloads averaged in excess of 25Mbps. I’m used to seeing numbers in the teens.
+
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Camera: BYOW (Bring Your Own Webcam)
 
@@ -201,13 +234,6 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/RSfl2dEVmErlvh3BUUFcxqsbt9w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-2-c5eed4bfe7e44014952b5503566097d9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Matthew S. Smith
 
 ## Software: Planet what now?
@@ -217,13 +243,6 @@ Lifewire / Matthew S. Smith
  Despite this, most laptop functions are controlled through the PredatorSense software interface. It can control fan modes, adjust keyboard lighting, and monitor temperatures, among other functions. PredatorSense is not much to look at, but I find it less confusing than the alternatives from Asus and Razer.
 
  The laptop comes with Norton antivirus installed. It’s eager to remind you of its presence whenever you download a file or visit an unfamiliar website. The antivirus is easy to uninstall, but its presence takes away from what otherwise feels like a special laptop in Acer’s Predator line.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Price: An outstanding value
 
@@ -252,6 +271,13 @@ Lifewire / Matthew S. Smith
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
 * [Dell XPS 13 2-in-1 Laptop](https://www.lifewire.com/dell-xps-13-2-in-1-laptop-review-4795686)
 * [Microsoft Surface Laptop 2](https://www.lifewire.com/microsoft-surface-laptop-2-review-4779760)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -285,5 +311,22 @@ Lifewire / Matthew S. Smith
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-premier-programs-to-transform-webcam-footage-for-2024/"><u>[New] Premier Programs to Transform Webcam Footage for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-how-to-transform-your-shopping-adventures-into-haul-masterpieces/"><u>2024 Approved How to Transform Your Shopping Adventures Into Haul Masterpieces</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-optimizing-your-experience-viewing-facebook-live-effectively/"><u>2024 Approved Optimizing Your Experience Viewing Facebook Live Effectively</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-oppo-reno-10-5g-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Oppo Reno 10 5G Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/durable-sunbritetv-the-ultimate-55-outdoor-4k-uhd-television-with-stunning-high-dynamic-range-hdr/"><u>Durable SunBriteTV - The Ultimate 55 Outdoor 4K UHD Television with Stunning High Dynamic Range (HDR)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-the-high-security-micro-cut-shredding-performance-of-the-amazonbasics-12-sheet-model/"><u>Expert Insights on the High-Security Micro-Cut Shredding Performance of the AmazonBasics 12-Sheet Model</u></a></li>
+<li><a href="https://extra-information.techidaily.com/google-photos-and-your-creativity-quick-collages-made-simple/"><u>Google Photos & Your Creativity Quick Collages Made Simple</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-thriving-in-the-streaming-scene-overcoming-subscriber-limitations/"><u>In 2024, Thriving in the Streaming Scene Overcoming Subscriber Limitations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/outdated-or-underestimated-unveiling-the-true-potential-of-netgear-c3000-for-modern-internet-needs/"><u>Outdated or Underestimated? Unveiling the True Potential of Netgear C3000 for Modern Internet Needs</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/step-by-step-fbx-capture-for-gamers/"><u>Step-by-Step FBX Capture For Gamers</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-samsung-galaxy-a71-5g-reviewed-why-its-a-wise-alternative-to-expensive-flagship-models/"><u>The Samsung Galaxy A71 5G Reviewed - Why It's a Wise Alternative to Expensive Flagship Models</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-ultimate-selection-12-free-video-players-for-pcmobile-enthusiasts/"><u>The Ultimate Selection 12 Free Video Players for PC/Mobile Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-visual-experience-lg-c9s-65-oled-screen-and-its-impact-on-home-entertainment/"><u>Ultimate Visual Experience: LG C9's 65 OLED Screen and Its Impact on Home Entertainment.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-the-power-of-asus-vg2nth-a-console-gamers-dream-screen/"><u>Unleashing the Power of Asus VG2nT_H – A Console Gamer's Dream Screen</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/urban-planning-thrills-await-in-city-skylines-your-ultimate-game-guide/"><u>Urban Planning Thrills Await in 'City Skylines' - Your Ultimate Game Guide</u></a></li>
+</ul></div>
 

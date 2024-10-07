@@ -1,7 +1,7 @@
 ---
 title: "The Lightweight Champion: A Thorough Review of the High-Performance LG Gram 17 Laptop"
-date: 2024-09-27T17:54:20.754Z
-updated: 2024-10-02T02:34:23.085Z
+date: 2024-10-02T23:15:06.014Z
+updated: 2024-10-06T16:37:38.407Z
 categories:
   - BestProducts
 description: "This Article Describes The Lightweight Champion: A Thorough Review of the High-Performance LG Gram 17 Laptop"
@@ -78,13 +78,6 @@ Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/kBtdcSRxoIsQvqmnO6OVYnfZ9z8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-4-ad3408c39a524e14a6cebcce10d3be44.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/sNdotwRQaaANrcOOFjoNRrlmeak=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-3-24f328c303ef44929cc9f49334ac5fb8.jpg)
@@ -105,13 +98,6 @@ Lifewire / Bill Thomas
 
  We weren’t impressed with the wireless performance, but the wired performance surprised us.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Connectivity: Everything a small home needs
 
  The Netgear C3700 is a modem-router combo, which means, hypothetically, it’s the only networking device many people will need. On top of the two Gigabit[Ethernet](https://www.lifewire.com/what-is-an-ethernet-cable-817548) ports, you’re also getting dual antennas, which makes this a dual-band device (2.4GHz and 5.0GHz). It’s not the fastest wireless connection in the world, though—the Netgear C3700 is rated for N600 speeds, something we haven’t seen in a few years.
@@ -121,10 +107,10 @@ Lifewire / Bill Thomas
  There is also a USB 2.0 port around the back where you can plug in a hard drive or a printer for network access.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Network Performance: Great when wired, but wireless speeds lag
@@ -140,10 +126,10 @@ Lifewire / Bill Thomas
  Lifewire / Bill Thomas
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Software: No frills
@@ -162,6 +148,19 @@ Lifewire / Bill Thomas
 
  For an 8x4 DOCSIS 3.0 cable modem with a lightweight router built in, this price is about par for the course. If you can find the Netgear C3700 for under $100, then it might be worth buying for the cable modem performance and pairing it with a solid wireless router.
 
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Netgear C3700 vs. Arris Surfboard SBG6700-AC
 
  The Arris Surfboard SBG6700-AC has the same 8x4 DOCSIS 3.0 cable rating but ups the wireless support to AC1600 speeds. This still isn’t top-of-the-line wireless speed—and it is a bit more expensive at $119 MSRP—but that extra cash is worth the improved network performance. However, the Arris model does not have a USB 2.0 port for network-attached storage or printers.
@@ -172,16 +171,23 @@ Lifewire / Bill Thomas
  The cable modem’s performance is great, but the wireless performance is just not there. If all you want is the cheapest possible modem with built-in dual-band Wi-Fi, then the Netgear C3700 checks those boxes. But we think you’re better off spending more for better performance or just buying two standalone devices.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
 * [Motorola MG7700](https://www.lifewire.com/motorola-mg7700-review-4589346)
 * [Netgear Nighthawk C7000](https://www.lifewire.com/netgear-nighthawk-c7000-review-4686068)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -218,24 +224,16 @@ Lifewire / Bill Thomas
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-comprehensive-insights-for-optimal-iphone-x-animoji-use/"><u>[New] Comprehensive Insights for Optimal iPhone X Animoji Use</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-intro-ideas-free-download-options-for-2024/"><u>[New] Intro Ideas Free Download Options for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-clearing-the-path-to-account-deactivation-on-linkedin/"><u>[Updated] Clearing the Path to Account Deactivation on LinkedIn</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-mastering-content-discovery-with-powerful-title-and-tag-use-for-2024/"><u>[Updated] Mastering Content Discovery with Powerful Title & Tag Use for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-leading-budget-friendly-cell-service-deals/"><u>Discover the Leading Budget-Friendly Cell Service Deals</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-quality-on-a-budget-with-paww-series-3-review/"><u>Discovering Quality on a Budget with Paww Series 3 Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-unmatched-clarity-with-the-tcl-50-series-a-comprehensive-review-of-the-roku-powered-50-4k-led/"><u>Experience Unmatched Clarity with the TCL 50 Series: A Comprehensive Review of the Roku-Powered 50 4K LED</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-insights-into-motorola-mg7700-balancing-speed-with-dependable-quality/"><u>Expert Insights Into Motorola MG7700: Balancing Speed with Dependable Quality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-reviews-on-which-iphone-dominates-for-games/"><u>Expert Reviews on Which iPhone Dominates for Games</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-wide-angles-to-long-distances-powershot-sx70-hs/"><u>Exploring Wide Angles to Long Distances: PowerShot SX70 HS!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/hitman-3-assessment-the-ultimate-finale/"><u>Hitman 3 Assessment: The Ultimate Finale</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-foobar2000-wave-router/"><u>In 2024, Foobar2000 Wave Router</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-intro-to-radial-photo-distortion-ps-tutorial/"><u>In 2024, Intro to Radial Photo Distortion PS Tutorial</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-cumuluspro-ergonomic-mat-for-an-ideal-standing-experience/"><u>In-Depth Analysis of the CumulusPro Ergonomic Mat for an Ideal Standing Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-gaomon-pd1560-touchscreen-drawing-pad-evaluation-the-ideal-graphic-artists-companion/"><u>In-Depth Gaomon PD1560 Touchscreen Drawing Pad Evaluation: The Ideal Graphic Artist's Companion</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1723010059694-say-goodbye-to-star-wars-battlefront-ii-stutters-update-now/"><u>Say Goodbye to Star Wars Battlefront II Stutters - Update Now</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/unleash-your-adventure-with-panasonics-cutting-edge-hx-a1-cam-for-2024/"><u>Unleash Your Adventure with Panasonic's Cutting-Edge HX-A1 Cam for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/unveiling-perplexity-your-ultimate-investment-in-an-exclusive-ai-chatbot/"><u>Unveiling Perplexity: Your Ultimate Investment in an Exclusive AI Chatbot</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/update-your-canon-pixma-ts3222-driver-free-download-and-installation-guide/"><u>Update Your Canon PIXMA TS3222 Driver: Free Download & Installation Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-transform-your-short-form-content-top-10-mobile-video-cutting-tools/"><u>[New] In 2024, Transform Your Short-Form Content Top 10 Mobile Video Cutting Tools</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-how-to-nail-your-tweets-with-correct-videos/"><u>[Updated] 2024 Approved How to Nail Your Tweets with Correct Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-king-a-deep-dive-into-the-1byone-digital-hdtv-amplified-indoor-antenna/"><u>Budget King - A Deep Dive Into the 1byOne Digital HDTV Amplified Indoor Antenna</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-garmin-forerunner-ebx02873ccereviews-in-depth-look-at-the-advanced-gps-smartwatch/"><u>Comprehensive Garmin Forerunner Ebx02873cce_reviews: In-Depth Look at the Advanced GPS Smartwatch</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/cracking-the-code-to-youtube-income-through-views/"><u>Cracking the Code to YouTube Income Through Views</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/game-changing-tech-expert-analysis-on-apples-latest-macbook-pro-13-inch-m1-2020/"><u>Game-Changing Tech: Expert Analysis on Apple's Latest MacBook Pro 13-Inch (M1, 2020)</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-reveling-in-creativity-the-best-of-filmoras-edits/"><u>In 2024, Reveling in Creativity The Best of Filmora's Edits</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-adobe-premiere-pro-secrets-6-little-known-tips-for-stunning-videos/"><u>New 2024 Approved Adobe Premiere Pro Secrets 6 Little-Known Tips for Stunning Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-portable-bluetooth-stereo-yamaha-mcr-b020bl/"><u>The Portable Bluetooth Stereo: Yamaha MCR-B020BL</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-linksys-ac1900-the-perfect-router-solution/"><u>Ultimate Guide to Linksys AC1900: The Perfect Router Solution</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unleashing-online-music-potential-with-imovie-and-youtube-for-2024/"><u>Unleashing Online Music Potential with iMovie & YouTube for 2024</u></a></li>
 </ul></div>
 

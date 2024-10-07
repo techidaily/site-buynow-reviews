@@ -1,7 +1,7 @@
 ---
 title: Unlock New Gaming Adventures for Your NES Classic Console
-date: 2024-09-15T17:26:46.372Z
-updated: 2024-09-20T17:47:58.350Z
+date: 2024-09-30T06:28:50.338Z
+updated: 2024-10-07T09:18:11.655Z
 categories:
   - BestProducts
 description: This Article Describes Unlock New Gaming Adventures for Your NES Classic Console
@@ -41,10 +41,32 @@ thumbnail: https://thmb.techidaily.com/005e6344e4c73e50ccb232f7e6d3806cb38585b8b
 5. Select**Add more games** to upload the ROMs you want to add to your NES Classic. Only files with the extension .NES will work, although you can also upload ZIP folders containing them.  
 !['Add more games' selection to upload ROMs to NES Classic](https://www.lifewire.com/thmb/7vHf5faB-1mVibSy9cF1KVJ8qfY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/003-add-more-games-to-the-nes-classic-089a7d2332bb4059b63d6de31fea424a.jpg)
 6. Under the Custom Games list, select the title you want to add cover art to. Select**Google** to retrieve images directly from Google.  
+
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Add cover art by clicking the titles under Custom Games](https://www.lifewire.com/thmb/neOlwOfUiIZx5S1tEn80GL82VMc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/004-add-more-games-to-the-nes-classic-c2bdeef7eff64d139156d138e2c6e7a7.jpg)
 7. On the Hakchi2 toolbar, select**Kernel** \>**Install/Repair,** then select**Yes** when asked if you want to flash the custom kernel.  
 ![Select Kernel > Install/Repair, then click Yes](https://www.lifewire.com/thmb/N_5Vp8fvKlu15K8g8IneRPpgamA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/005-add-more-games-to-the-nes-classic-cf58f3c816484e8e899c26bd4f7adf5e.jpg)
 8. Follow the instructions that appear. You might be required to install some drivers if they didn't automatically install when you connected the console.  
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Flash the custom kernel](https://www.lifewire.com/thmb/obxjQ5w6R-YGlPa1SqmQbuWoxcU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Screenshot153-5c5a42ee46e0fb000152fca2.png)
 9. When the process is complete, select**Synchronize selected games with NES/SNES Mini** and confirm you flashed the custom kernel.  
 ![Select Synchronize selected games with NES/SNES Mini](https://www.lifewire.com/thmb/OQNrcOP_nKxq5Z51RZCf26tzUJ4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/006-add-more-games-to-the-nes-classic-601953ec9f1947eca4af89041d99caba.jpg)
@@ -53,9 +75,23 @@ thumbnail: https://thmb.techidaily.com/005e6344e4c73e50ccb232f7e6d3806cb38585b8b
 12. When you want to add more games, connect the NES Classic to your PC, open**Hakchi** and select**Synchronize selected games with NES/SNES Mini** . There's no need to flash the custom kernel each time.  
 ![Adding new games.](https://www.lifewire.com/thmb/6dh3kGy-feD3hiGnzsqbsMpEwjk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/007-add-more-games-to-the-nes-classic-46e50620a2ee4df28fe95c05d5712c49.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Making modifications to your NES Classic will void its warranty, and you could potentially damage the console. Add new games at your own risk.
 
 ![Nintendo Entertainment System Classic Controller](https://www.lifewire.com/thmb/FtuZUihm95iCMHAm4i5_PRSocb0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Entertainment-System-NES-Controller-FR-5c5a494bc9e77c0001d00e2b.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  <https://commons.wikimedia.org/wiki/File:Nintendo-Entertainment-System-NES-Controller-FR.jpg>
 
@@ -96,12 +132,19 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-the-ultimate-guide-to-sound-changes-in-ps-console-games/"><u>[New] The Ultimate Guide to Sound Changes in PS Console Games</u></a></li>
+<li><a href="https://fake-location.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Samsung Galaxy S24 | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/comprehensive-tutorial-how-to-disable-and-uninstall-nvidia-on-windows-10/"><u>Comprehensive Tutorial: How to Disable and Uninstall Nvidia on Windows 10</u></a></li>
+<li><a href="https://video-capture.techidaily.com/design-marvels-japanese-homescape-in-mc-landscape-for-2024/"><u>Design Marvels Japanese Homescape in MC Landscape for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/1723964468371-discover-the-new-dawn-of-computing-with-intels-bean-canyon-nucs-superior-speed-and-throttled-tdp/"><u>Discover the New Dawn of Computing with Intel's Bean Canyon NUCs - Superior Speed & Throttled TDP</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/embrace-a-holistic-approach-to-health-with-fitbit-sense-vs-apple-watch/"><u>Embrace a Holistic Approach to Health with Fitbit Sense Vs. Apple Watch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/game-on-with-the-philips-evnia-ultimate-49-curved-oled-screen-experience/"><u>Game On with the Philips Evnia: Ultimate 49 Curved OLED Screen Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/keeping-your-furry-friends-fit-a-comprehensive-review-of-the-petsafe-healthy-pet-feeder-for-weight-control/"><u>Keeping Your Furry Friends Fit: A Comprehensive Review of the PetSafe Healthy Pet Feeder for Weight Control</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/key-steps-to-take-before-buying-wireless-devices/"><u>Key Steps to Take Before Buying Wireless Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-latest-update-a-user-friendly-language-book/"><u>Mondly’s Latest Update: A User-Friendly Language Book</u></a></li>
+<li><a href="https://os-tips.techidaily.com/reclaim-your-memories-effective-strategies-for-finding-and-restoring-missing-videos-on-ios-devices/"><u>Reclaim Your Memories: Effective Strategies for Finding and Restoring Missing Videos on iOS Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sturdy-studiofx-light-kit-bright-and-bulky/"><u>Sturdy StudioFX Light Kit - Bright & Bulky</u></a></li>
+</ul></div>
 

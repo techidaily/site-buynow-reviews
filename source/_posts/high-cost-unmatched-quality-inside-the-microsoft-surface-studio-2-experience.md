@@ -1,7 +1,7 @@
 ---
 title: "High Cost, Unmatched Quality: Inside the Microsoft Surface Studio 2 Experience"
-date: 2024-09-14T18:47:17.583Z
-updated: 2024-09-20T16:48:38.916Z
+date: 2024-10-01T02:39:39.229Z
+updated: 2024-10-07T06:39:51.597Z
 categories:
   - BestProducts
 description: "This Article Describes High Cost, Unmatched Quality: Inside the Microsoft Surface Studio 2 Experience"
@@ -47,6 +47,13 @@ Lifewire / Emily Isaacs
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Kinesis Freestyle2 Blue
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/wuNd6MsZiivoQ99Xm0JHB9iB4Rs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_HeroSquare-99f80025b0254cbebe67ed22575a90c5.jpg)
@@ -90,24 +97,18 @@ Lifewire / Emily Isaacs
 
  Clocking in at 2 pounds, it’s also lightweight which makes it easy to pack. Whether you’re commuting between the home and the office or you’re heading out of town for a vacation, it’s easy to break down and bring anywhere so long as there’s a flat surface to place it during use.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: For Apple products only**
 
  The Kinesis Freestyle2 Blue arrives with the two keyboard halves, the instructional pamphlet, and a six-foot USB charging cable. Designed for use with iPads,[iPhones](https://www.lifewire.com/iphone-and-ios-4781515) , and[Macs](https://www.lifewire.com/macs-4781332) , the setup process is quick and easy to complete. First, we flipped the switch on the right-hand side of the keyboard from the off position to the on position. Then, we flipped the keyboard over and pressed the connect button on the backside. We knew it was ready to begin pairing when the lights on the frontside began flashing blue.
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/XHY6Xe9cdaO1U6Uj0wDY6rROlcA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_04-7fad98b589454e0388ecf48afe425e8c.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -121,6 +122,19 @@ Lifewire / Emily Isaacs
 
  Its split design is comfortable, following the natural arc of your fingers and hands as they rest upon its keys.
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Battery: Plenty of juice so you’re never in a bind**
 
  The battery life on the Freestyle2 is excellent. It arrives with a partial charge, so it’s important to remember to fully charge it after receiving it. Once charged, the battery life can last up to 300 plus hours of regular use. The Freestyle2 does an excellent job of letting you know when its battery is getting low—battery lights will flash red to indicate when there are about four hours of battery life remaining. This ensures you’re never left hanging.
@@ -132,10 +146,10 @@ Lifewire / Emily Isaacs
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/vncgu0FEgBJ69UL6H8BjQ2QoGRI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_03-9055476d1d974c8bbe9b1c39d479b300.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
@@ -157,13 +171,6 @@ Lifewire / Emily Isaacs
  **An ideal keyboard for Apple users with its compact design, portability, and long-lasting battery.**
 
  The Kinesis Freestyle2 Blue for Mac is a compact, user-friendly ergonomic keyboard that takes comfort and customization to the next level for Apple users thanks to its split, modular design. Its extended battery life of up to 300 plus hours combined with its ability to connect to multiple iOS devices at a time is a game-changer, making it well worth the splurge.
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -194,5 +201,23 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-mastering-instagram-video-length-constraints-explained/"><u>[New] In 2024, Mastering Instagram Video Length Constraints Explained</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-transform-your-ppts-into-stunning-video-content/"><u>[New] In 2024, Transform Your PPTs Into Stunning Video Content</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-the-best-start-streamlined-tools-for-novice-game-editors/"><u>[Updated] In 2024, The Best Start Streamlined Tools for Novice Game Editors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assassins-creed-valhalla-a-riveting-saga-of-vikings-through-the-middle-agebustling-action-and-immersive-story-reviewed/"><u>Assassin's Creed: Valhalla – A Riveting Saga of Vikings Through the Middle Agebustling Action and Immersive Story Reviewed!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-the-latest-cycwagen-electric-bike-the-ultimate-combination-of-utility-and-style/"><u>Discovering the Latest CycWagen Electric Bike - The Ultimate Combination of Utility & Style</u></a></li>
+<li><a href="https://driver-download.techidaily.com/enhance-your-fps-gameplay-download-roccat-mouse-driver-today/"><u>Enhance Your FPS Gameplay: Download Roccat Mouse Driver Today</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-tamriel-an-in-depth-analysis-of-skyrims-rpg-adventure-on-nintendo-switch/"><u>Exploring Tamriel: An In-Depth Analysis of Skyrim's RPG Adventure on Nintendo Switch</u></a></li>
+<li><a href="https://fox-place.techidaily.com/identify-active-microsoft-office-suite-programs-quick-guide/"><u>Identify Active Microsoft Office Suite Programs - Quick Guide</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-complete-tutorial-sending-photos-from-apple-iphone-12-mini-to-ipad-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Complete Tutorial Sending Photos From Apple iPhone 12 mini to iPad | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-barnes-and-noble-nook-glowlight-3-your-ultimate-guide/"><u>In-Depth Analysis of the Barnes & Noble Nook GlowLight 3 - Your Ultimate Guide!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-fongos-calling-plans-in-canada-the-preferred-sim-for-voip-services/"><u>In-Depth Look at Fongo's Calling Plans in Canada - The Preferred SIM for VoIP Services</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1726029050936-instagram/"><u>Instagramビデオサイズガイド:スムーズな寸法調整手順を学ぶ</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/stuck-with-immovable-mac-files-learn-how-to-remove-them-effortlessly/"><u>Stuck with Immovable Mac Files? Learn How to Remove Them Effortlessly</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/successfully-complete-your-hd-video-transcoding-with-platinum-version-of-fix-winx-dvd-ripper/"><u>Successfully Complete Your HD Video Transcoding with Platinum Version of Fix WinX DVD Ripper</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-apple-watch-series-n-evaluation-small-tweaks-but-still-a-pinnacle-in-wearable-tech/"><u>The Apple Watch Series N Evaluation – Small Tweaks, But Still a Pinnacle in Wearable Tech</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-review-unpacking-the-features-and-benefits-of-acers-tiny-titans-the-predator-triton-ebx-300-se/"><u>Ultimate Review: Unpacking the Features and Benefits of Acer's Tiny Titans - The Predator Triton Ebx 300 SE</u></a></li>
+</ul></div>
 

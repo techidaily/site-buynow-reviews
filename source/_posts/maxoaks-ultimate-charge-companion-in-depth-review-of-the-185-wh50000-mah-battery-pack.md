@@ -1,7 +1,7 @@
 ---
 title: MaxOak's Ultimate Charge Companion - In-Depth Review of the 185 Wh/50,000 mAh Battery Pack
-date: 2024-09-14T17:04:30.147Z
-updated: 2024-09-20T17:10:37.496Z
+date: 2024-10-03T02:56:52.594Z
+updated: 2024-10-06T21:43:40.327Z
 categories:
   - BestProducts
 description: This Article Describes MaxOak's Ultimate Charge Companion - In-Depth Review of the 185 Wh/50,000 mAh Battery Pack
@@ -48,6 +48,19 @@ thumbnail: https://www.lifewire.com/thmb/zO2N3--AfLbAM--5s4pPcEPVQEw=/400x300/fi
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/9HsjvcJhUjJuGMXLaAGh2B_0bAw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Tony Mitera
 
 [View On Amazon](https://www.amazon.com/dp/B01J5G8PF6?tag=lifewire-onsite-prod-20&ascsubtag=4784187%7Cn5b3e21016e6a46bd90a6c5a5191206c707%7C)
@@ -83,13 +96,6 @@ thumbnail: https://www.lifewire.com/thmb/zO2N3--AfLbAM--5s4pPcEPVQEw=/400x300/fi
 
  The accessory kit that comes with the unit is full-bodied. The main piece is the jump starter module which has the two jumper clamps coming off a plastic module that plugs into the unit. To charge the unit you can choose to use either a wall charger for home use or a power port charger for use within a running vehicle. Finally, a set of laptop port adapters and a short DC cable to use with them can be used to[charge your laptop](https://www.lifewire.com/overcharging-laptop-battery-causes-life-span-to-decrease-2378126) or similar device.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: It takes time to find a spot just right to set up for a jump**
 
  Positioning the MOOCK to jump start a car is a little more difficult than it needs to be. Plugging the jumper cable module into the unit and turning it on is the easy part. Due to the short length of the cables, however, it's difficult to get them connected while also keeping the unit secure in the engine bay. Thankfully once you find that Goldilocks spot, the terminal clamps are on the small side and easy to attach, even if the area around the clamping location is cramped.
@@ -97,6 +103,19 @@ thumbnail: https://www.lifewire.com/thmb/zO2N3--AfLbAM--5s4pPcEPVQEw=/400x300/fi
  Lifewire / Tony Mitera
 
  To charge other devices there’s a lot less fuss involved. You simply need to plug the device into the USB or DC power port and turn the unit on. A Micro USB cable is provided, so if you have a device that uses a more modern charging port, you'll want to put an extra cable for it in the MOOCK case as well.
+
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: A nice jolt of power to start even the most drained of vehicles**
 
@@ -108,22 +127,29 @@ An inexpensive option considering what it can do.
 
 Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Key Features: A bright flashlight, but in a decidedly narrow band**
 
  The built-in flashlight in the M MOOCK Jump Starter puts out a lot of light but only in a relatively narrow band. Luckily, the full unit's basically handheld and therefore it's easy to point the flashlight at what you need. Once you start connecting cables it becomes much harder to aim the light properly. The flashlight can also be set to rapidly blink to draw attention to your situation, or to blink in the standard pattern for “SOS” to really drive home the fact that you need assistance.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Some of the best value to be found in jump starters**
 
  You can pick up this model for about $70, which makes the M MOOCK Jump Starter an inexpensive option considering what it can do. The case doesn’t feel like it can take too much of a beating, but protects the starter well, and the included accessory kit is generously provisioned.
 
  Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: A good showing against close competition**
 
@@ -171,5 +197,18 @@ A good choice with just a few nagging flaws.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-shape-your-story-5-proven-techniques-for-cutting-and-condensing-vimeo-videos-online/"><u>[New] 2024 Approved Shape Your Story 5 Proven Techniques for Cutting & Condensing Vimeo Videos Online</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unmatched-setups-worlds-leading-4k-dslr-stands/"><u>[New] Unmatched Setups World's Leading 4K DSLR Stands</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-customizing-facebook-memories-with-look-back-edits/"><u>[Updated] 2024 Approved Customizing Facebook Memories with Look Back Edits</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-joy-in-the-skies-the-ultimate-review-of-symas-affordable-src-chopper/"><u>Discovering Joy in the Skies: The Ultimate Review of Syma's Affordable S#RC Chopper</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-user-experience-with-cookiebots-advanced-tracking-technology/"><u>Enhance User Experience with Cookiebot's Advanced Tracking Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-performance-and-heft-in-depth-look-at-the-radpower-radcity-5-plus/"><u>Evaluating Performance & Heft: In-Depth Look at the RadPower RadCity 5 Plus</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-honor-v-purse-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/must-know-elements-in-buying-sound-gear/"><u>Must-Know Elements in Buying Sound Gear</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-tab-a-2020-review/"><u>Samsung Galaxy Tab A (2020) Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-dji-phantom-4-pro-v20-nearly-perfect-aerial-photography-review/"><u>Unboxing the DJI Phantom 4 Pro v2.0 - Nearly Perfect Aerial Photography Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-features-in-depth-analysis-of-the-powerful-space-saving-jaco-smartpro-portable-tire-filler/"><u>Unpacking the Features: In-Depth Analysis of the Powerful, Space-Saving Jaco SmartPro Portable Tire Filler</u></a></li>
+</ul></div>
 

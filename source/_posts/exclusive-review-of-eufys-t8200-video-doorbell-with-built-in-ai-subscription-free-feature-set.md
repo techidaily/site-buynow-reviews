@@ -1,7 +1,7 @@
 ---
 title: Exclusive Review of Eufy's T8200 Video Doorbell with Built-In AI, Subscription-Free Feature Set!
-date: 2024-09-25T19:43:30.283Z
-updated: 2024-10-02T01:11:45.211Z
+date: 2024-10-04T08:53:30.668Z
+updated: 2024-10-06T21:33:45.660Z
 categories:
   - BestProducts
 description: This Article Describes Exclusive Review of Eufy's T8200 Video Doorbell with Built-In AI, Subscription-Free Feature Set!
@@ -48,13 +48,6 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/A6HRRNfYS6KrVqW-2K3fI0NN7EI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_HeroSquare-01d50171ef9c411f82467742bfad1126.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
 [View On Amazon $120](https://www.amazon.com/dp/B01N5G5PG2?tag=lifewire-onsite-prod-20&ascsubtag=4779841%7Cn60af91831ac9464bb2875557b5307fe410%7CB01N5G5PG2) [View On Walmart $115](https://www.walmart.com/ip/200902257)
@@ -84,7 +77,21 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/3Q2pRvweVt3Gf6RfBaAwQ15QBag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_bottom_04-1508a99e93e94312a9477c6ec5c15022.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design and Features: It’s flippin’ nice**
 
@@ -103,13 +110,6 @@ Lifewire / Andrew Hayward
  Like current MacBooks, the Chromebook Flip is all about USB-C ports; it puts one on each side and skips full-sized USB-A ports entirely. You can charge the laptop from either of those ports, and that versatility is appreciated. However, there’s also a microSD card port on the right, which is handy as the 64GB internal storage on this model is pretty slim (there are 32GB and 128GB versions available, as well), along with a 3.5mm headphone port on the left side.
 
  The Chromebook Flip’s keyboard feels great in action. The one-piece chiclet keyboard has a scissor-style key design with 1.4mm of travel, which gives it a more satisfying feel than the latest MacBooks’ keys (which have very little travel), and the keys are responsive and not especially loud in usage. It’s also brightly backlit, which isn’t always the case with Chromebooks. The touchpad below is nicely sized and wider than some we’ve seen, although not nearly as large as Apple’s luxurious trackpads of late.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: No sweat whatsoever**
 
@@ -139,14 +139,14 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/7B1-43v0GHPcS2HESabWT97_XPQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_Keyboard_03-8bc37c7c2d0243bb8ed1fa10e338374f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Audio: Sounds fine**
 
@@ -157,10 +157,10 @@ Lifewire / Andrew Hayward
  The Chromebook Flip has dual-band Wi-Fi that can connect to both 2.4Ghz and 5Ghz networks, and we had no issues with either during our testing. We went online at a home network and a Starbucks Google network alike, and things were routinely speedy. On the home network, we saw speeds of about 33Mbps and upload speeds in excess of 10Mbps—essentially the same as we’ve seen with[other laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) and[smartphones](https://www.lifewire.com/best-smartphones-4043781) .
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Battery: Nearly a day’s worth**
@@ -172,13 +172,6 @@ Lifewire / Andrew Hayward
  Our laptop video rundown test, which streams a Netflix movie over Wi-Fi while at 100 percent brightness, delivered a similar result: it lasted 6 hours, 57 minutes before the Chromebook Flip shut down. In both use cases, we were pleasantly surprised by the battery performance of the device—it even beat the 2018 MacBook Air.
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/VR5Y-1tDILHowNSeA408pnLVtgg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_closed_04-bde5ec8f988c4bb49e4019f95cc47c31.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -194,13 +187,6 @@ Lifewire / Andrew Hayward
 
  Luckily, the Chromebook’s reputation as an online-only device isn’t true. For example, Google Docs can be used offline, you can view and edit photos, watch locally-stored media, and play games that don’t require an online connection. It’s really not that different in approach to other PCs, but the overall feel and flow of the experience varies in some key ways.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: It feels like a steal**
 
  Here’s where the Asus Chromebook Flip really makes its biggest impact. As mentioned, it’s a capable computer for most everyday tasks, it has a very good screen, and the battery life is stellar. Best of all, it’s priced at $499, although you can find it for a little bit less (we’re seeing it around $400-450 lately). There are cheaper Chromebooks out there that skimp on features and functionality, such as skipping the convertible hinge or touch functionality, or using a lower-end processor. You can spend a lot less and still get a solid laptop.
@@ -210,6 +196,13 @@ Lifewire / Andrew Hayward
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/NHrMPSrgOWsOuCEYg0M-STQUfsU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Air-v-Surface-Comparison-a255967a27e14762b5c2ad9c442df77f.jpg)
 
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Asus Chromebook Flip C302CA vs. Apple MacBook Air**
 
@@ -224,6 +217,19 @@ Lifewire / Andrew Hayward
  **It’s an excellent, affordable laptop.**
 
  Just as the recent crop of cheap, strong mid-range phones has made many flagship smartphones seem excessive and unnecessary, the Asus Chromebook Flip C302CA does much the same for laptops. This is a seriously impressive and versatile notebook without any major deficiencies, and it’s priced at just $499—less than half the price of the cheapest Apple laptop right now.
+
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -257,20 +263,24 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-strategies-for-engaging-elite-videography-talent/"><u>[New] 2024 Approved Strategies for Engaging Elite Videography Talent</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-underwater-photographys-leading-seven-cams/"><u>[New] 2024 Approved Underwater Photography's Leading Seven Cams</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2024s-ultimate-guide-to-choosing-a-reliable-key-finder-top-products-ranked/"><u>2024'S Ultimate Guide to Choosing a Reliable Key Finder: Top Products Ranked</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/5-reasons-that-make-youtube-tv-an-attractive-option-for-viewers/"><u>5 Reasons That Make YouTube TV an Attractive Option for Viewers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-champion-among-drones-review-of-djis-top-tier-mavic-2-pro-model-favored-by-experts/"><u>A Champion Among Drones: Review of DJI's Top-Tier Mavic 2 Pro Model Favored by Experts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-excellence-in-depth-oculus-quest-2-virtual-reality-experience/"><u>Affordable Excellence: In-Depth Oculus Quest 2 Virtual Reality Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/all-you-need-to-know-about-the-cutting-edge-s-pen-and-dex-mode-in-your-next-samsung-galaxy-tab-s6-tablet/"><u>All You Need to Know About the Cutting-Edge S Pen and Dex Mode in Your Next Samsung Galaxy Tab S6 Tablet</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazfit-helio-ring-unveiled-key-features-cost-details-and-launch-timeline/"><u>Amazfit Helio Ring Unveiled: Key Features, Cost Details & Launch Timeline</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazon-fire-tv-cube-unveiled-next-level-media-streaming-experience/"><u>Amazon Fire TV Cube Unveiled: Next-Level Media Streaming Experience</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-tecno-spark-20-pro-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Tecno Spark 20 Pro to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On Lava Blaze Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/masterful-guide-overcoming-outriders-lag-for-a-smoother-gaming-experience/"><u>Masterful Guide: Overcoming Outriders Lag for a Smoother Gaming Experience</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/snapdragon-x-chipsets-excel-capturing-65-of-last-months-geekbench-6-results/"><u>Snapdragon X Chipsets Excel: Capturing 6.5% of Last Month's Geekbench 6 Results</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/social-synergy-connecting-the-two-giants-for-2024/"><u>Social Synergy Connecting the Two Giants for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/streamline-writing-with-hix-and-gpt-4/"><u>Streamline Writing with HIX and GPT-4</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-evolving-photographic-moments-into-sequential-action/"><u>[New] 2024 Approved Evolving Photographic Moments Into Sequential Action</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-leading-filmmaking-applications-for-gopro-for-2024/"><u>[New] Leading Filmmaking Applications for GoPro for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-crafting-a-perfect-paradise-the-top-stardew-valley-mods-7-14-for-2024/"><u>[Updated] Crafting a Perfect Paradise The Top Stardew Valley Mods (#7-14) for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-direct-guide-to-modifying-macs-default-snapshots/"><u>2024 Approved Direct Guide to Modifying Mac's Default Snapshots</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/fy-content-reach-essential-strategies-to-skyrocket-views-for-2024/"><u>Amplify Content Reach Essential Strategies to Skyrocket Views for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/asus-bt500-wireless-bluetooth-adapter-driver-download-compatible-with-win11win10win8/"><u>Asus BT500 Wireless Bluetooth Adapter Driver Download - Compatible with Win11/Win10/Win8</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/boost-your-internet-reach-using-the-netgear-nighthawk-x6s-wireless-extender/"><u>Boost Your Internet Reach Using the Netgear Nighthawk X6S Wireless Extender</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-limitations-and-drawbacks-of-the-pioneer-bdr-xd05b-blu-ray-burning-solution/"><u>Exploring Limitations and Drawbacks of the Pioneer BDR-XD05B Blu-Ray Burning Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-features-of-barnes-and-nobles-nook-glowlight-plus-the-biggest-display-yet/"><u>Exploring the Features of Barnes & Noble's Nook GlowLight Plus - The Biggest Display Yet!</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/fixing-hp-print-misstep-code-oxc4eb827f/"><u>Fixing HP Print Misstep: Code OXC4EB827F</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/humorhub-easy-login-easy-signup/"><u>HumorHub Easy Login, Easy Signup</u></a></li>
+<li><a href="https://android-frp.techidaily.com/motorola-moto-g73-5g-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Motorola Moto G73 5G ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/rising-to-new-heights-in-aerial-tech-an-expert-analysis-on/"><u>Rising to New Heights in Aerial Tech: An Expert Analysis On</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tango-communication-app-reviewed-enjoy-voicevideo-plus-text-messaging-for-free/"><u>Tango Communication App Reviewed: Enjoy Voice/Video + Text Messaging for Free!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-pinnacle-of-smartphone-innovation-comprehensive-review-of-the-superior-samsung-galaxy-s10/"><u>The Pinnacle of Smartphone Innovation: Comprehensive Review of the Superior Samsung Galaxy S10</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-5-replacements-for-microsoft-office/"><u>Top 5 Replacements for Microsoft Office</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transforming-in-car-entertainment-a-comprehensive-review-of-the-lihan-lhfm1039-bluetooth-fm-transmitter/"><u>Transforming In-Car Entertainment: A Comprehensive Review of the LIHAN LHFM1039 Bluetooth FM Transmitter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-in-depth-review-how-the-fitbit-versa-2-elevates-your-workout-experience-with-advanced-features/"><u>Unboxing & In-Depth Review: How the Fitbit Versa 2 Elevates Your Workout Experience with Advanced Features</u></a></li>
+<li><a href="https://win11.techidaily.com/understanding-how-runtime-broker-boosts-computing-efficiency/"><u>Understanding How Runtime Broker Boosts Computing Efficiency</u></a></li>
 </ul></div>
 

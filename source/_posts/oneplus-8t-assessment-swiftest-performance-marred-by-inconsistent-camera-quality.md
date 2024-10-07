@@ -1,7 +1,7 @@
 ---
 title: "OnePlus 8T Assessment: Swiftest Performance Marred by Inconsistent Camera Quality"
-date: 2024-09-13T16:30:59.872Z
-updated: 2024-09-20T16:21:29.010Z
+date: 2024-09-30T09:36:16.408Z
+updated: 2024-10-07T01:51:08.566Z
 categories:
   - BestProducts
 description: "This Article Describes OnePlus 8T Assessment: Swiftest Performance Marred by Inconsistent Camera Quality"
@@ -41,6 +41,13 @@ Lifewire / Rebecca Isaacs
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## CumulusPRO Commercial Couture Anti-Fatigue Standing Desk Mat
 
 ![CumulusPRO Standing Desk Mat](https://www.lifewire.com/thmb/_gh2wSzGo19xAgSx1kfis_BvCRQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cumulus-Pro-Comfort-Mat-1-369ebfd4ce0e4e30853a3649a0c6badb.jpg)
@@ -68,26 +75,27 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Simply modern**
 
  At 24 inches by 36 inches (LW), the CumulusPRO is a very wide mat, providing ample space for us to move and shift around in. It’s also very modern looking, as the top of the mat has a simple grey, wavy design that would accommodate most modern office spaces. This particular mat was very thin, at 0.75 inches. It wasn’t as slick on the bottom as some other mats we tested, which we felt was a huge perk. And on top of that, the edges are designed to taper downward, so that you needn’t worry about tripping as you step onto it.
 
 ![CumulusPRO Standing Desk Mat](https://www.lifewire.com/thmb/BLF6wQLJynPpwT_zlr5rT_J-LiQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cumulus-Pro-Comfort-Mat-3-2612dc3d381c449d91d0eb0b9e4b2853.jpg)
 
- Lifewire / Rebecca Isaacs
-
 <!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Rebecca Isaacs
 
 ## **Comfort: A pleasant surprise**
 
@@ -103,16 +111,16 @@ In terms of versatility, the CumulusPRO mat is king.
 
  Another nice feature of the CumulusPRO is that we could wear heels and not damage it. While this may seem trivial, compared to other mats we tested, this was amazing for the ladies who like to wear heeled shoes.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Pretty steep for a mat**
 
  At around $80 on Amazon, the CumulusPRO is expensive for a mat that doesn’t come with extra surface features. However, taking into context its versatility around the office and the home, the price is actually a solid investment. If you decide you don’t want it in your office, but say, in the kitchen, it can easily be transplanted into other areas of the house or workplace.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Ergodriven Topo vs. CumulusPRO Standing Desk Mat**
 
@@ -151,5 +159,17 @@ In terms of versatility, the CumulusPRO mat is king.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-produce-high-impact-low-cost-youtube-ads/"><u>[New] 2024 Approved How to Produce High-Impact, Low-Cost YouTube Ads?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-efficiency-in-echoes-aural-recorded-images/"><u>[New] Efficiency in Echoes Aural Recorded Images</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-pinnacle-of-engagement-custom-youtube-shorts-thumbnails-guide/"><u>[New] The Pinnacle of Engagement Custom YouTube Shorts Thumbnails Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-digital-reading-devices-face-off-comparing-ipads-kindles-and-nooks/"><u>Best Digital Reading Devices Face-Off: Comparing iPads, Kindles & Nooks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-a-comprehensive-look-at-editing-and-uploading-virtual-reality-videos-to-youtube/"><u>In 2024, A Comprehensive Look at Editing and Uploading Virtual Reality Videos to YouTube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-the-oneplus-nought-six-t-peak-efficiency-pair-with-economical-investment/"><u>Mastering the OnePlus Nought Six T: Peak Efficiency Pair with Economical Investment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/starlinks-satellite-boost-4-key-perks-to-consider-now/"><u>Starlink's Satellite Boost: 4 Key Perks to Consider Now</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/testing-boundaries-with-seatechs-external-blu-ray-burner-is-it-up-to-par/"><u>Testing Boundaries with SeaTech's External Blu-Ray Burner - Is It Up to Par?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-ranking-linkedin-learning-classes/"><u>Top-Ranking LinkedIn Learning Classes</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ultimate-4k-camera-guide-top-6-dslrs-reviewed/"><u>Ultimate 4K Camera Guide Top 6 DSLRs Reviewed</u></a></li>
+</ul></div>
 

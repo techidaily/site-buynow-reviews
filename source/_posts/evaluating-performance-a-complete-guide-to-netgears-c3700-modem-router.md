@@ -1,7 +1,7 @@
 ---
 title: "Evaluating Performance: A Complete Guide to Netgear's C3700 Modem Router"
-date: 2024-09-14T16:15:37.083Z
-updated: 2024-09-20T16:07:59.696Z
+date: 2024-10-06T03:15:43.347Z
+updated: 2024-10-07T09:10:38.319Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating Performance: A Complete Guide to Netgear's C3700 Modem Router"
@@ -72,6 +72,19 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Flimsy and difficult to use**
 
  The first thing we noticed about the Docooler USB 2.0 12 Megapixel is how cheap it feels. The camera itself has a plastic, silver housing with a shiny silver focus ring on the end. It feels like it could break at any moment. The base is made of a transparent plastic, which is also available in blue and black. The plastic is so rigid that we expect it to break under regular use. Every time we adjusted the camera, the plastic creaked like a rusty door in a haunted house. Even in our short testing period, the joints started getting loose. We had to check several times just to make sure it wasn’t broken.
@@ -82,24 +95,18 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup process: Awkward to position**
 
  It takes almost no time to get the Docooler USB 2.0 12 Megapixel up and running. We just plugged the USB cord into the computer and it worked.
 
  It was easy to set up when we clipped it to a laptop, but terrible when we tried to put it on our HD TV. Every time we moved the computer or the USB cable, the camera slid, twisted, or fell off the TV. The ball joint, which connects the camera to the base, didn’t move smoothly, so we struggled to point the Docooler USB 2.0 12 Megapixel in the right direction, and we were too worried about breaking the plastic to try and force it.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Camera Quality: Not even close to advertised**
 
@@ -111,13 +118,20 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/BxI5asxQavdUO5cT3iIpSIqM9Mk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_10_Final_Horiz-8acc6be9290c439496f17a63684115ae.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / James Huenink
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Underwhelming performance in video and audio**
@@ -131,13 +145,6 @@ Lifewire / James Huenink
  We had trouble getting the focus right, too. The focus ring was hard to turn, so we had to put our hand over the lense to get a good grip. We turned the ring a little, and then we’d pull away to check the focus. Then we’d repeat until it was ready, a frustrating experience.
 
  The audio performance of the Docooler USB 2.0 12 Megapixel was also lackluster. The built-in microphone produced poor quality sound, and when we tested it on Skype, voices were both muffled and echoey. People on the other end could understand what we were saying, but it was an unpleasant experience.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Cheap price, even cheaper webcam**
 
@@ -187,5 +194,24 @@ Lifewire / James Huenink
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-fives-finest-time-lapse-capture-apps-reviewed/"><u>[New] 2024 Approved Five's Finest Time-Lapse Capture Apps Reviewed</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-how-to-uncover-hidden-facebook-vids-updated-guide/"><u>[New] 2024 Approved How to Uncover Hidden Facebook Vids (Updated Guide)</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-astral-expressions-top-30-bios-to-boost-your-signs-charm/"><u>[New] Astral Expressions Top 30 Bios to Boost Your Sign's Charm</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-the-ultimate-guide-to-androids-best-multiparty-calls/"><u>[New] In 2024, The Ultimate Guide to Android's Best Multiparty Calls</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-seamless-screen-saving-on-iphone/"><u>[Updated] 2024 Approved Seamless Screen Saving on iPhone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-future-virtual-frontiers-in-depth-comparison-of-meta-and-omniverse-worlds/"><u>[Updated] Future Virtual Frontiers In-Depth Comparison of Meta & Omniverse Worlds</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-exploring-screen-recording-with-zdsoft/"><u>[Updated] In 2024, Exploring Screen Recording with ZDSoft</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assessing-boses-qc30-sound-signature-strengths/"><u>Assessing Bose's QC30 Sound Signature Strengths</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-unparalleled-excellence-of-apples-new-release-an-in-depth-review-of-the-iphone-12/"><u>Discover the Unparalleled Excellence of Apple's New Release: An In-Depth Review of the iPhone 12</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/embrace-high-performance-upgrading-to-pro-on-win11/"><u>Embrace High-Performance: Upgrading to Pro on Win11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fire-up-or-apple-down-deciding-between-the-amazon-fire-and-ipad/"><u>Fire Up or Apple Down? Deciding Between the Amazon Fire and iPad</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/get-insider-tips-on-the-top-rated-and-most-cost-effective-5g-device-samsung-galaxy-a5e1-revealed/"><u>Get Insider Tips on the Top Rated and Most Cost-Effective 5G Device: Samsung Galaxy A5e1 Revealed!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ipad-pro-versus-surface-pro-a-comprehensive-comparison-guide/"><u>IPad Pro Versus Surface Pro: A Comprehensive Comparison Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-image-manipulation-with-gimp-a-thorough-evaluation-for-free-graphic-software-across-systems/"><u>Mastering Image Manipulation with GIMP: A Thorough Evaluation for Free Graphic Software Across Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-motorola-one-hyper-an-impressive-entry-into-the-mid-range-smartphone-arena/"><u>Review of the Motorola One Hyper: An Impressive Entry Into the Mid-Range Smartphone Arena</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-review-unbeatable-performance-at-low-cost-exploring-the-visuals-of-xiaomis-gaming-monitor-with-34-inch-display-and-180-hz-technology/"><u>Top Review: Unbeatable Performance at Low Cost – Exploring the Visuals of Xiaomi's Gaming Monitor with 34-Inch Display & 180 Hz Technology</u></a></li>
+</ul></div>
 

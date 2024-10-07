@@ -1,7 +1,7 @@
 ---
 title: In-Depth Evaluation of the Mohu Leaf's TV Signal Receiver for $49
-date: 2024-09-26T00:49:34.988Z
-updated: 2024-10-01T23:27:23.577Z
+date: 2024-10-01T21:59:44.159Z
+updated: 2024-10-07T08:47:52.479Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Evaluation of the Mohu Leaf's TV Signal Receiver for $49
@@ -42,6 +42,13 @@ Lifewire / Danny Chadwick
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Rexing V1 DashCam
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/5zZ5bclZ7zJVo8nRB2Y33JNM3w4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_HeroSqaure-ac1bb2840cb04106b14f3838b80a3bf2.jpg)
@@ -71,14 +78,14 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/JfL4E5NnuBPl6-93Hv3PI4IJsV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_05-bcfff5f440b545378c9ee4e6b431ffac.jpg)
 
- Lifewire / Danny Chadwick
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Danny Chadwick
 
 ## **Design: Fits perfectly on your windshield**
 
@@ -96,7 +103,21 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/ztn3EsFqtKkWImvQhtgcr1vlHwI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_02-9ee3aa46e7394a1ab263a6b12b287314.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Danny Chadwick
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Be sure that’s where you want to put it**
 
@@ -112,13 +133,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Camera Quality: Basic**
 
  You can set this dash-mounted camera to capture footage in either 720p or 1080p resolution, which is pretty limited. Similar dashcams can capture footage up to 2560 x 1440 resolution, with others going all the way up to 4K. However, if all you’re looking for is a simple security device, 1080p will do just fine.
@@ -127,21 +141,7 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/9_1pHoEq74JWPJ8reothv8PeI8E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_04-c5d42af8ddfa4296a6c6b1e8551edef6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Danny Chadwick
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Set it and forget it**
 
@@ -158,10 +158,10 @@ Lifewire / Danny Chadwick
  Like the rest of the dashboard cameras we tested, the Rexing V1 has the ability to record audio, but it does a middling job of it. Voices in the car and sounds coming from the interior speakers were clear enough to understand, but sounds from outside the vehicle were muddy at best.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A good value**
@@ -213,24 +213,20 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/updated-legal-lens-for-tiktoks-pre-upload-rights-and-compliance/"><u>[Updated] Legal Lens for TikToks Pre-Upload Rights & Compliance</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Xiaomi Redmi 13C | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/ensure-smooth-printing-download-the-2024-version-of-hp-officejet-4500-driver-today/"><u>Ensure Smooth Printing: Download the 2024 Version of HP Officejet 4500 Driver Today!</u></a></li>
-<li><a href="https://win11.techidaily.com/fixing-non-boot-virtual-machine-troubles-with-vmware-on-win11/"><u>Fixing Non-Boot Virtual Machine Troubles with VMware on Win11</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/funimate-login-and-sign-up-guide-for-2024/"><u>Funimate Login and Sign Up Guide for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/hp-stream-11-ultimate-portable-computer-for-essential-tasks/"><u>HP Stream 11: Ultimate Portable Computer for Essential Tasks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/inside-look-at-the-spectacular-image-quality-of-the-65-lg-oled-c9-smart-tv-the-enthusiasts-choice/"><u>Inside Look at the Spectacular Image Quality of the 65 LG OLED C9 Smart TV – The Enthusiast's Choice</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/inverted-intrigue-mastering-the-art-of-turning-photos-for-instagram-glory/"><u>Inverted Intrigue Mastering the Art of Turning Photos for Instagram Glory</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ipad-pro-vs-macbook-pro-a-comprehensive-showdown-of-features/"><u>IPad Pro vs MacBook Pro: A Comprehensive Showdown of Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/kindle-vs-fire-tablet-whats-the-difference/"><u>Kindle Vs. Fire Tablet: What's the Difference?</u></a></li>
-<li><a href="https://win-answers.techidaily.com/mastering-the-art-of-managing-marvelous-beings-in-your-system/"><u>Mastering the Art of Managing Marvelous Beings in Your System</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/os-x-mavericks-video-editing-tutorial-mastering-the-basics/"><u>OS X Mavericks Video Editing Tutorial Mastering the Basics</u></a></li>
-<li><a href="https://win11.techidaily.com/overcoming-errors-with-googles-nearby-sharing-on-pc/"><u>Overcoming Errors with Google's Nearby Sharing on PC</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/retro-replay-alert-detailed-insights-into-super-mario-bros-unique-game-and-watch-version/"><u>Retro Replay Alert: Detailed Insights Into Super Mario Bros.' Unique Game & Watch Version</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revamped-graphics-in-the-ultimate-demons-souls-experience-a-true-classic-reimagined/"><u>Revamped Graphics in the Ultimate Demon's Souls Experience - A True Classic Reimagined</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-mornings-with-the-ihome-zenergy-a-comprehensive-sleep-therapy-device-review/"><u>Revolutionize Your Mornings with the iHome Zenergy: A Comprehensive Sleep Therapy Device Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/taming-the-unpredictable-an-in-depth-review-of-monsters-in-monster-hunter-world/"><u>Taming the Unpredictable: An In-Depth Review of Monsters in 'Monster Hunter: World'</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-game-changing-performance-of-apples-newest-marvel-a-comprehensive-mac-mini-m1-2020-review/"><u>The Game-Changing Performance of Apple's Newest Marvel: A Comprehensive Mac Mini (M1, 2020) Review</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/king-the-vault-the-wealth-of-mr-beast-for-2024/"><u>Unlocking the Vault The Wealth of Mr. Beast for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/mbedding-youtube-playlists-step-by-step-guide/"><u>[New] Embedding YouTube Playlists Step-by-Step Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-change-twitter-video-box-art/"><u>[Updated] Change Twitter Video Box Art</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-conquer-the-world-of-video-downloads-software-or-freely-whats-best-for-you-for-2024/"><u>[Updated] Conquer the World of Video Downloads Software or Freely, What's Best for You for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/1715761226255-updated-how-to-use-markers-in-video-recording-and-editing/"><u>[Updated] How to Use Markers in Video Recording and Editing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-budget-friendly-video-doorbells-a-comprehensive-vuebell-review/"><u>Best Budget-Friendly Video Doorbells: A Comprehensive VueBell Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/collaborative-gaming-bliss-seamless-techniques-for-xbox-one-gamesharing-with-buddies/"><u>Collaborative Gaming Bliss: Seamless Techniques for Xbox One Gamesharing With Buddies</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fix-lcd-wobbling-issues-computers/"><u>Fix LCD Wobbling Issues (Computers)</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-xiaomi-redmi-note-12-pro-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Xiaomi Redmi Note 12 Pro 5G to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/premiere-quality-unleashed-an-expert-overview-of-the-samsung-galaxy-s10s-top-features/"><u>Premiere Quality Unleashed: An Expert Overview of the Samsung Galaxy S10's Top Features</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-vivo-y02t-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Vivo Y02T to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sea-tech-external-usb-blu-ray-writer-review-spotty-performance/"><u>Sea Tech External USB Blu-Ray Writer Review: Spotty Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/secure-your-iphone-with-these-top-6-malware-defense-applications/"><u>Secure Your iPhone with These Top 6 Malware Defense Applications</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/six-sensational-videos-that-keep-on-watchers/"><u>Six Sensational Videos That Keep On Watchers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tp-link-av2000-speed-test-high-performance-meets-lackluster-aesthetics/"><u>TP-Link AV2000 Speed Test: High Performance Meets Lackluster Aesthetics</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitter-archive-mastery-tips-and-tricks/"><u>Twitter Archive Mastery Tips & Tricks</u></a></li>
 </ul></div>
 

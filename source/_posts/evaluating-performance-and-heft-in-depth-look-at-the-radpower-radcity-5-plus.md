@@ -1,7 +1,7 @@
 ---
 title: "Evaluating Performance & Heft: In-Depth Look at the RadPower RadCity 5 Plus"
-date: 2024-09-25T00:50:56.018Z
-updated: 2024-10-01T16:49:26.068Z
+date: 2024-10-03T05:16:31.245Z
+updated: 2024-10-07T05:57:04.455Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating Performance & Heft: In-Depth Look at the RadPower RadCity 5 Plus"
@@ -46,13 +46,6 @@ thumbnail: https://thmb.techidaily.com/a68fefb1cd3e565ec5f454a0d5028d3000ec7ede8
 
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/FttxoftMtHF3B2ZGmP2QubmOp3I=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-HeroSquare-492efa01c9e54737bfa9d16223ff9d82.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
  in this article
@@ -92,23 +85,30 @@ thumbnail: https://thmb.techidaily.com/a68fefb1cd3e565ec5f454a0d5028d3000ec7ede8
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/vaINPELrwcWnOZDsX1ztKkCouww=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-03-1530f666df824f6281040c2ae3285eb2-2e7956941b91403aa888795a7e5e2e33.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Easy does it**
 
  There’s not much to the setup process here. Using the included USB-C to USB-C cable, simply plug one end into the power bank and the other into an AC adapter that you have handy—like one for a laptop, tablet, or[smartphone](https://www.lifewire.com/best-smartphones-4043781) . Once the four lights on the side are fully illuminated, then the battery pack is fully charged. Simply plug in devices using their respective cables to charge them using the power within the ZMI PowerPack 20000.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Charging Speed and Battery: It keeps going**
@@ -121,6 +121,13 @@ Lifewire / Andrew Hayward
 
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/asGVK-moJ54HvqyY9N6Kb-KM8hw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-04-828899fb01024cd4a0e35980251c04b4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 ## **Price: It’s a bargain**
@@ -128,13 +135,6 @@ Lifewire / Andrew Hayward
  With larger laptop-friendly battery packs sometimes selling for well north of $100, the $70 price point of the ZMI PowerPack 20000 is an incredibly attractive deal. Granted, the maximum USB-C PD output of 45W won’t charge some super-powered laptops—but for compatible laptops, as well as smartphones, tablets, and other portable electronics, it’s very well priced.
 
  With larger laptop-friendly battery packs sometimes selling for well north of $100, the $70 price point of the ZMI PowerPack 20000 is an incredibly attractive deal.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **ZMI PowerPack 20000 vs Mophie Powerstation AC**
 
@@ -172,14 +172,24 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-immediate-access-to-your-videos-thumbnails-online/"><u>[Updated] Immediate Access to Your Videos' Thumbnails Online</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>How to Fix Life360 Shows Wrong Location On Apple iPhone 11? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-15-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone 15? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Honor 90 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/kooteks-innovative-cooling-solution-for-computers-analyzed-a-versatile-and-sturdy-option-reviewed/"><u>Kootek's Innovative Cooling Solution for Computers Analyzed: A Versatile and Sturdy Option Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/life-q30-anc-hearing-solutions-budget-friendly-review/"><u>Life Q30 ANC Hearing Solutions - Budget-Friendly Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-showdown-in-depth-analysis-of-s24-ultra-vs-s23-ultra-features/"><u>Samsung Galaxy Showdown: In-Depth Analysis of S24 Ultra Vs. S23 Ultra Features</u></a></li>
-<li><a href="https://network-issues.techidaily.com/solved-oversized-screen-problems-in-window-os/"><u>Solved Oversized Screen Problems in Window OS</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sx420-reviewed-introducing-an-ultra-portable-with-42x-optical-zoom/"><u>SX420 Reviewed – Introducing an Ultra-Portable with 42X Optical Zoom</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevating-your-content-6-steps-to-higher-youtube-visibility/"><u>[New] 2024 Approved Elevating Your Content 6 Steps to Higher YouTube Visibility</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-stream-like-a-pro-setting-up-your-dslr-on-personal-computers/"><u>[New] Stream Like a Pro Setting Up Your DSLR on Personal Computers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-capture-and-record-every-sound-on-your-pc-with-x-recorder/"><u>[Updated] 2024 Approved Capture & Record Every Sound on Your PC with X-Recorder</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-altering-visuals-in-teams-calls-timely-setup-adjustments-for-2024/"><u>[Updated] Altering Visuals in Teams Calls Timely Setup Adjustments for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-convert-srt-fastly-a-compreenas-the-minute-blueprint-2023/"><u>2024 Approved Convert SRT Fastly A Compreenas-the-Minute Blueprint 2023</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-locked-or-disabled-on-apple-iphone-11-pro-max-7-mehtods-you-cant-miss-by-drfone-ios/"><u>Apple ID Locked or Disabled On Apple iPhone 11 Pro Max? 7 Mehtods You Cant-Miss</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bluetooth-beanie-hats-reviewed-how-blueear-delivers-a-fashionable-accessory-with-impressive-audio-clarity/"><u>Bluetooth Beanie Hats Reviewed: How Blueear Delivers a Fashionable Accessory with Impressive Audio Clarity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bluetooth-compact-fm-transmitter-criacr-the-pros-and-cons-of-the-cp24-variant-analyzed/"><u>Bluetooth Compact FM Transmitter CRIACR - The Pros and Cons of the CP24 Variant Analyzed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cutting-edge-performance-analysis-of-the-samsung-galaxy-note20-ultras-5g-network-experience/"><u>Cutting-Edge Performance Analysis of the Samsung Galaxy Note20 Ultra's 5G Network Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/economical-sound-solutions-on-wheels-a-truckers-bluetooth-earpiece-guide/"><u>Economical Sound Solutions on Wheels: A Trucker's Bluetooth Earpiece Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fitbit-versa-lite-reviewed-premium-health-monitoring-for-sensible-pricing/"><u>Fitbit Versa Lite Reviewed: Premium Health Monitoring for Sensible Pricing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/glion-dolly-electric-scooter-examination-swanky-design-with-speedy-functionality/"><u>Glion Dolly Electric Scooter Examination – Swanky Design with Speedy Functionality</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-future-proof-your-data-with-top-30-free-unlimited-1tbplus-options/"><u>In 2024, Future-Proof Your Data with Top 30 Free, Unlimited (1TB+) Options</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-how-to-convert-youtube-to-mp3-without-compromising-security-3-tips/"><u>In 2024, How to Convert YouTube to MP3 Without Compromising Security - 3 Tips</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-in-this-case-you-would-prefer-to-rotate-3gp-videos-90-degrees-for-a-better-viewing-here-is-a-list-of-top-5-free-3gp-video-rotators/"><u>New 2024 Approved In This Case, You Would Prefer to Rotate 3GP Videos 90 Degrees for a Better Viewing. Here Is a List of Top 5 Free 3GP Video Rotators</u></a></li>
+<li><a href="https://games-able.techidaily.com/samsung-unveils-new-gaming-controller-range-meet-their-debut-model-exclusive-coverage-by-zdnet/"><u>Samsung Unveils New Gaming Controller Range: Meet Their Debut Model - Exclusive Coverage by ZDNet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-game-changer-a-review-of-playstation-4-pro-and-its-impact-on-4k-graphics-performance/"><u>The Game Changer: A Review of PlayStation 4 Pro and Its Impact on 4K Graphics Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-modern-explorers-companion-powershot-g9x2-camera-reviewed/"><u>The Modern Explorer’s Companion: PowerShot G9X2 Camera Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-pick-apple-ipad-pro-11/"><u>Top Pick: Apple iPad Pro 11</u></a></li>
 </ul></div>
 

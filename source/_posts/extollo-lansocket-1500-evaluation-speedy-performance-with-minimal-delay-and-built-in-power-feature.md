@@ -1,7 +1,7 @@
 ---
 title: "Extollo LANSocket 1500 Evaluation: Speedy Performance with Minimal Delay & Built-In Power Feature"
-date: 2024-09-24T23:15:13.658Z
-updated: 2024-10-01T17:00:20.724Z
+date: 2024-10-03T09:50:34.276Z
+updated: 2024-10-07T01:05:58.545Z
 categories:
   - BestProducts
 description: "This Article Describes Extollo LANSocket 1500 Evaluation: Speedy Performance with Minimal Delay & Built-In Power Feature"
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/877cc6ce606cb4f4b4e6d66d093a7f03e00e14887
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
@@ -71,13 +78,6 @@ thumbnail: https://thmb.techidaily.com/877cc6ce606cb4f4b4e6d66d093a7f03e00e14887
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: A lot of power packed into a small frame**
 
  The Beatit Jump Starter D11’s main unit's effectively a small black brick with red accents. Roughly the size of a small paperback book, the unit's constructed out of durable plastic and features a flashlight at one end. Along one of the long sides there's a small display that shows battery status, the on/off switch, two USB power outputs, and the device’s charging port. On the opposing side a rubber flap covers the jumper cable port; a unique port that the jumper cable accessory plugs in to.
@@ -89,10 +89,10 @@ thumbnail: https://thmb.techidaily.com/877cc6ce606cb4f4b4e6d66d093a7f03e00e14887
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: It can’t realistically be much simpler**
@@ -111,13 +111,6 @@ thumbnail: https://thmb.techidaily.com/877cc6ce606cb4f4b4e6d66d093a7f03e00e14887
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
  There aren’t a ton of other features present with the Beatit Jump Starter D11 but there are some of note, including the unit’s built-in flashlight. It’s a nice addition to have if you must jump start a car in the middle of the night, but it doesn’t put out of a ton of light and the beam is pretty narrow. You can pick the unit up and use it as a large flashlight, though doing so while also trying to get the clamps attached is cumbersome.
@@ -127,10 +120,10 @@ thumbnail: https://thmb.techidaily.com/877cc6ce606cb4f4b4e6d66d093a7f03e00e14887
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A ton of value for a tiny cost**
@@ -138,6 +131,13 @@ thumbnail: https://thmb.techidaily.com/877cc6ce606cb4f4b4e6d66d093a7f03e00e14887
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
@@ -186,24 +186,19 @@ thumbnail: https://thmb.techidaily.com/877cc6ce606cb4f4b4e6d66d093a7f03e00e14887
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-find-your-niche-and-style-a-starters-guide-high-cpm/"><u>[New] 2024 Approved How to Find Your Niche and Style - a Starter's Guide [High CPM]</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-basic-steps-flip-video-using-vlc-software/"><u>[New] Basic Steps Flip Video Using VLC Software</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ringing-your-video-games-to-life-customizable-channel-headers/"><u>[New] Bringing Your Video Games to Life Customizable Channel Headers</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-pro-tips-record-your-macs-display/"><u>[Updated] Pro Tips Record Your Mac's Display</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-lava-yuva-2-pro-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Lava Yuva 2 Pro Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-jaco-smartpro-digital-tire-inflator-evaluation-your-ultimate-guide/"><u>Comprehensive Jaco SmartPro Digital Tire Inflator Evaluation - Your Ultimate Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dissecting-the-solidity-and-strength-in-bose-headphone-tech/"><u>Dissecting the Solidity and Strength in Bose Headphone Tech</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/examining-the-lenovo-tab-4-a-wallet-friendly-option-with-trade-offs/"><u>Examining the Lenovo Tab 4: A Wallet-Friendly Option With Trade-Offs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-picks-the-most-advanced-netgear-router-selection-of-202n/"><u>Expert Picks: The Most Advanced Netgear Router Selection of 202N</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-pioneer-bdr-xs06-blu-ray-disc-burner-a-comprehensive-look-at-its-mobility-and-efficiency/"><u>Exploring the Pioneer BDR-XS06 Blu-Ray Disc Burner: A Comprehensive Look at Its Mobility & Efficiency</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/gaming-on-the-go-the-top-choice-of-handheld-game-systems-in-2n24/"><u>Gaming on the Go: The Top Choice of Handheld Game Systems in 2N24</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/garmin-vivoactive-3-music-work-out-tune-in/"><u>Garmin Vivoactive 3 Music: Work Out, Tune In</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/in-2024-comedy-cache-hot-names-and-trends-in-the-laughter-world/"><u>In 2024, Comedy Cache Hot Names & Trends in the Laughter World</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-the-insiders-guide-to-time-lagged-masterpieces-with-your-android-phone/"><u>In 2024, The Insider's Guide to Time-Lagged Masterpieces with Your Android Phone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Realme GT 5 (240W) | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-2018-apple-ipad-pro-why-it-dominates-the-marketplace/"><u>In Depth Analysis of the 2018 Apple iPad Pro - Why It Dominates the Marketplace</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-why-the-lenovo-thinkpad-x12-is-a-top-choice-for-2-in-1s-and-typewriter-enthusiasts-alike/"><u>In-Depth Analysis: Why the Lenovo ThinkPad X12 Is a Top Choice for 2-In-1s and Typewriter Enthusiasts Alike</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-guide-to-best-free-split-screen-recording-tools-for-videos-onlineoffline/"><u>The Ultimate Guide to Best FREE Split Screen Recording Tools for Videos (Online/Offline)</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-final-cut-pros-greatest-hits-10-memorable-movies/"><u>Updated 2024 Approved Final Cut Pros Greatest Hits 10 Memorable Movies</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-flipping-frames-innovative-techniques-for-backward-viewing-on-yt/"><u>[Updated] In 2024, Flipping Frames Innovative Techniques for Backward Viewing on YT</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-rise-in-the-rankings-essential-seo-for-video-creators-for-2024/"><u>[Updated] Rise in the Rankings Essential SEO for Video Creators for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ultimate-asmr-content-guides/"><u>[Updated] Ultimate ASMR Content Guides</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-list-the-most-reliable-and-efficient-ups-units-of-2024/"><u>Comprehensive List: The Most Reliable and Efficient UPS Units of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-oneplus/"><u>Comprehensive Review of OnePlus</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-silver-screen-on-your-patio-expert-review-of-the-4k-sealoc-coastal-tv-55/"><u>Discover the Silver Screen on Your Patio: Expert Review of the 4K Sealoc Coastal TV (55)</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fix-windows-11-bluetooth-missing-issue-quickly-and-easily/"><u>Fix Windows 11 Bluetooth Missing Issue. Quickly & Easily!</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/imagery-inspiration-skillful-grading-techniques/"><u>Imagery Inspiration Skillful Grading Techniques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-why-the-xbox-one-elite-series-2-stands-out-amongst-gaming-controllers/"><u>In-Depth Analysis: Why the Xbox One Elite Series 2 Stands Out Amongst Gaming Controllers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inexpensive-feline-film-camera-study/"><u>Inexpensive Feline Film Camera Study</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-security-boosted-facebooks-messenger-and-instagram-now-offering-encrypted-chats/"><u>Social Security Boosted: Facebook's Messenger & Instagram Now Offering Encrypted Chats.</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-plain-truth-about-virtual-conversations-dispelling-ai-bot-fables/"><u>The Plain Truth About Virtual Conversations - Dispelling AI Bot Fables</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-samsung-galaxy-a15-5g-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Samsung Galaxy A15 5G IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-savings-and-convenience-with-a-kindle/"><u>Unlock Savings & Convenience With a Kindle</u></a></li>
 </ul></div>
 

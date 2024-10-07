@@ -1,7 +1,7 @@
 ---
 title: "LG Stylo 6 Phone Assessment: Impressive Design & Precision Stylus"
-date: 2024-09-26T02:19:01.160Z
-updated: 2024-10-02T01:24:34.000Z
+date: 2024-10-01T01:50:25.474Z
+updated: 2024-10-07T00:14:23.038Z
 categories:
   - BestProducts
 description: "This Article Describes LG Stylo 6 Phone Assessment: Impressive Design & Precision Stylus"
@@ -41,15 +41,22 @@ Lifewire / Kelsey Simon
 
 2.7
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
@@ -76,13 +83,6 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
  This whole introduction is slow moving and boring, and getting through it is rough. But even past this, things don’t necessarily pick up and get more interesting. The game has such a heavy hand with its narration, telling you the game’s visuals even though you can see them right there on your screen. The whole game reads like someone wrote a novel, couldn’t publish it, and then decided making a[video game](https://www.lifewire.com/best-gaming-consoles-4154610) was a better idea, and instead of trimming the fat, they left every unnecessary description and detail in the game’s prompt.
@@ -96,6 +96,13 @@ Lifewire / Kelsey Simon
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -121,13 +128,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Only worth it if you’re keen on the story**
 
  Torment: Tides of Numenera is still an expensive game, costing $50 on[Steam](https://www.lifewire.com/best-free-steam-games-4176308) when it’s not on sale. It’s a game created with a very specific type of player in mind―and I suspect most people are not going to like it.
@@ -135,13 +135,6 @@ Lifewire / Kelsey Simon
  That said, if role-playing games with a text-heavy focus are of interest to you, then the game does have a lot to offer for the cost. The world of Numenera is vast, and considering all the prompts that alter the story, the game also has a lot of replayability. While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else, and for those players, the $50 cost will be worth it.
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Other story focused RPGs**
 
@@ -154,6 +147,13 @@ Lifewire / Kelsey Simon
  **A text-heavy RPG that doesn’t live up to its predecessor.**
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -178,19 +178,18 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-filmmaking-for-the-future-adapting-videos-vertically-for-instagram/"><u>[New] Filmmaking for the Future Adapting Videos Vertically for Instagram</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2024s-leading-ergonomic-keyboards-enhanced-typing-efficiency-and-reduced-strain/"><u>2024'S Leading Ergonomic Keyboards: Enhanced Typing Efficiency and Reduced Strain</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-the-enhanced-performance-of-apples-cost-effective-ipad-now-with-an-updated-10cu-inch-display/"><u>A Closer Look at the Enhanced Performance of Apple's Cost-Effective iPad, Now with an Updated 10.cu Inch Display</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazon-fire-hd-8-8th-gen-review-an-entry-level-tablet-that-lives-up-to-its-price-tag/"><u>Amazon Fire HD 8 (8Th Gen) Review: An Entry-Level Tablet That Lives up to Its Price Tag</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazon-kindle-oasis-review/"><u>Amazon Kindle Oasis Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/an-in-depth-look-at-sony-xperia-5-quality-meets-high-expense-in-a-compact-package/"><u>An In-Depth Look at Sony Xperia 5 - Quality Meets High Expense in a Compact Package</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/die-10-besten-gratis-ki-tools-fur-die-wiederherstellung-von-alten-fotografien/"><u>Die 10 Besten Gratis-KI-Tools Für Die Wiederherstellung Von Alten Fotografien</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/explore-the-most-economical-video-conference-software-best-10-recommendations-for-business-and-education-for-2024/"><u>Explore the Most Economical Video Conference Software Best 10 Recommendations for Business & Education for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-10-best-tools-to-bypass-icloud-activation-lock-on-iphone-8-plus-you-should-try-out-by-drfone-ios/"><u>In 2024, The 10 Best Tools to Bypass iCloud Activation Lock On iPhone 8 Plus You Should Try Out</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-unveiling-obs-screen-recorder-functionality-deeply/"><u>In 2024, Unveiling OBS Screen Recorder Functionality Deeply</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/navigating-gpt-spotlight-countering-fake-ai-entities/"><u>Navigating GPT Spotlight: Countering Fake AI Entities</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlock-honor-magic-5-lite-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Honor Magic 5 Lite Phone Password Without Factory Reset Full Guide Here</u></a></li>
-<li><a href="https://media-tips.techidaily.com/unlock-steady-savings-on-plex-entertainment-secure-your-lifetime-access-for-just-75-of-the-price/"><u>Unlock Steady Savings on Plex Entertainment – Secure Your Lifetime Access for Just 75% of the Price!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-instant-image-clarity-picart-background-cleansing-hacks/"><u>[New] Instant Image Clarity PicArt Background Cleansing Hacks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-fb-mp3-extractor-tool-for-2024/"><u>[Updated] FB Mp3 Extractor Tool for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-create-vibes-with-gifs-turning-vimeo-videos-into-animated-graphics/"><u>2024 Approved Create Vibes with GIFs Turning Vimeo Videos Into Animated Graphics</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-contacts-from-infinix-hot-40-pro-by-fonelab-android-recover-contacts/"><u>Best Android Data Recovery - Retrieve Lost Contacts from Infinix Hot 40 Pro.</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/corrected-com-interface-error-windows-update/"><u>Corrected COM Interface Error, Windows Update</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-mastering-youtube-shorts-key-facts/"><u>In 2024, Mastering YouTube Shorts Key Facts</u></a></li>
+<li><a href="https://win-able.techidaily.com/step-by-step-stop-fifa-22-from-shutting-down-unexpectedly-on-your-pc-gaming-rig/"><u>Step-by-Step: Stop FIFA 22 From Shutting Down Unexpectedly on Your PC Gaming Rig</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/strategic-marketing-websites-for-youtube-videos/"><u>Strategic Marketing Websites for YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/streamlining-media-consumption-accessing-facebook-content-via-appletv-for-2024/"><u>Streamlining Media Consumption Accessing Facebook Content via AppleTV for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-battle-of-slate-tablets-contrasting-the-ipad-with-the-ipad-air/"><u>The Battle of Slate Tablets: Contrasting the iPad with the iPad Air</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-selection-of-premium-htpc-models-for-the-new-year/"><u>The Definitive Selection of Premium HTPC Models for the New Year</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-future-of-mobile-charging-unveiled-a-review-of-the-omnicharge-omni-20-with-qi-wireless-and-conventional-inputs/"><u>The Future of Mobile Charging Unveiled - A Review of the Omnicharge Omni 20 with Qi Wireless & Conventional Inputs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-home-networking-with-synologys-rt2600ac-wifi-extended-reach-and-protective-features-explored/"><u>Ultimate Home Networking with Synology's RT2600ac - WiFi Extended Reach & Protective Features Explored</u></a></li>
 </ul></div>
 

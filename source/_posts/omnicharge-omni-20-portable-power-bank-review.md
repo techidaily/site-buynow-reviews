@@ -1,7 +1,7 @@
 ---
 title: Omnicharge Omni 20 Portable Power Bank Review
-date: 2024-09-19T18:54:10.808Z
-updated: 2024-09-20T17:26:40.442Z
+date: 2024-10-06T08:39:16.148Z
+updated: 2024-10-07T05:43:43.247Z
 categories:
   - BestProducts
 description: This Article Describes Omnicharge Omni 20 Portable Power Bank Review
@@ -44,6 +44,13 @@ Lifewire / Jeremy Laukkonen
 [View On Amazon $299](https://www.amazon.com/dp/B01NBJX99D?tag=lifewire-onsite-prod-20&ascsubtag=4843549%7Cn5152ded2d52b4aacaed13fadd747a0da04%7CB01NBJX99D) [View On B&H Photo Video $236](https://www.bhphotovideo.com/c/product/1478529-REG/omnicharge%5Fop2ha004%5Fomni%5F20%5Fpowerbank%5Fportable.html/)
 
 4.8
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Omni 20+ Wireless Power Bank
 
@@ -90,13 +97,6 @@ Lifewire / Jeremy Laukkonen
 
  For a premium device with a premium price like the Omni 20+, I’d like to see a different material used for the case.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Initial Setup: Frustrating due to a lack of documentation**
 
  While it’s clear that a lot of thought and care went into designing the Omni 20+, it’s just as clear that almost no thought was given over to the packaging and documentation. When you open the box, you’re greeted with the battery itself, a USB-A to C cable, a[USB-C](https://www.lifewire.com/usb-c-4149490) to C cable, and a couple of brochures. One of those brochures is marked as a quick start guide, but it really isn’t.
@@ -113,14 +113,14 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/QOfV3Sc5THi3Z0gKZq0e-ciPUEE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-5-000854ae3c4347b7adc13130dcb9d1b9.jpg)
 
- Lifewire / Jeremy Laukkonen
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Jeremy Laukkonen
 
 ## **Display: Crisp and easy to read, but confusing**
 
@@ -145,10 +145,10 @@ Lifewire / Jeremy Laukkonen
  On the front of the power bank, next to the display, you’ll find two USB-A ports. These ports are capable of charging all your standard USB devices. One is a Qualcomm 3.0 compatible quick charge port, and the other is a standard USB port that’s capable of putting out up to 3A.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Battery: Decent battery capacity for the size**
@@ -185,6 +185,13 @@ Lifewire / Jeremy Laukkonen
 
  With an MSRP of $200, Omni 20+ is a high-end battery bank with a high-end price. You get a whole lot of functionality for that price, but the device does lag behind in terms of both battery capacity and included accessories. The glaring issue is that you can find more powerful battery banks for less money, even if you won’t find one with the exact same functionality.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Omni 20+ vs. Pilot Pro 2**
 
  With an MSRP of $90, you could buy two[Pilot Pro 2](https://www.lifewire.com/poweradd-pilot-pro2-review-4843548) battery packs for the price of a single Omni 20+. With that disparity in price, it would seem like these devices aren’t even in the same category, but they actually have some important similarities. In fact, the 23,000 mAh battery in the Pilot Pro 2 is even a bit more powerful than the Omni 20+.
@@ -202,10 +209,10 @@ Lifewire / Jeremy Laukkonen
  The Omnicharge Omni 20+ is one of the best power banks out there, and it had better be for the price they’re asking. This is the power bank you need if you count a high wattage USB-C port, barrel connector input and output, wireless charging, and a standard power outlet among your needs. You can find cheaper power banks that provide more juice, but you won’t find one with this same feature set.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -232,5 +239,22 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-analyzing-youtube-shorts-economic-impact/"><u>[Updated] 2024 Approved Analyzing YouTube Shorts Economic Impact</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-bring-your-camera-life-into-your-instagram-world/"><u>[Updated] Bring Your Camera Life Into Your Instagram World</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-conquering-commercials-dodge-fb-vids/"><u>[Updated] Conquering Commercials Dodge FB Vids</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-the-cost-vs-benefits-of-amazon-prime/"><u>Comparing the Cost Vs. Benefits of Amazon Prime</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-jrpg-collection-with-yakuza-like-a-dragon-its-an-absolute-game-changer/"><u>Elevate Your JRPG Collection with Yakuza: Like a Dragon – It's an Absolute Game Changer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/foremost-internet-based-programming-lessons-and-workshops/"><u>Foremost Internet-Based Programming Lessons & Workshops</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gamers-top-picks-1-ranked-4k-laptops-for-2024/"><u>Gamers' Top Picks #1 Ranked 4K Laptops for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-troubleshoot-and-repair-unplayable-redbox-dvd-issues-effectively/"><u>How to Troubleshoot and Repair Unplayable Redbox DVD Issues Effectively</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-learn-how-to-lock-stolen-your-iphone-x-properly-drfone-by-drfone-ios/"><u>In 2024, Learn How To Lock Stolen Your iPhone X Properly | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Vivo V29 Pro | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/maximizing-your-steam-experience-with-a-switch-pro-controller/"><u>Maximizing Your Steam Experience with a Switch Pro Controller</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-stylish-portability-with-the-acer-chromebook-r-11-our-expert-review-insights/"><u>Navigating Stylish Portability with the Acer Chromebook R 11 – Our Expert Review Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-dji-mavic-3-a-leap-forward-in-drone-photography/"><u>Review of DJI Mavic 3: A Leap Forward in Drone Photography</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transformative-upgrades-for-the-core-of-portable-computers/"><u>Transformative Upgrades for the Core of Portable Computers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/user-review-and-performance-check-on-google-wireless-nest-doorbell-using-battery-power/"><u>User Review and Performance Check on Google Wireless Nest Doorbell Using Battery Power</u></a></li>
+</ul></div>
 

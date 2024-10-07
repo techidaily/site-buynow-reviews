@@ -1,7 +1,7 @@
 ---
 title: Questionable Decisions Illuminated in Sony's NW-WS623
-date: 2024-09-29T21:23:26.693Z
-updated: 2024-10-01T19:00:02.775Z
+date: 2024-10-04T10:08:34.871Z
+updated: 2024-10-06T16:39:13.300Z
 categories:
   - BestProducts
 description: This Article Describes Questionable Decisions Illuminated in Sony's NW-WS623
@@ -46,9 +46,23 @@ Rebecca Isaacs / Lifewire
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Godfall
 
 ![Godfall](https://www.lifewire.com/thmb/0NLDB5xBHlyMz4ZXPM-uk0dzS7Y=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Godfall-PC-Game-1-d3b0021c9f1f4c90a844bf0e8f8fcb25.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Rebecca Isaacs / Lifewire
 
@@ -75,6 +89,13 @@ Rebecca Isaacs / Lifewire
 
 Rebecca Isaacs / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Plot: What’s that?
 
  “It was all a lie,” the narrator says, signaling the beginning of the game. What follows is an elaborate cut scene depicting everything I’d want in an adventure game: betrayal, battle, and of course, a desire for bloodthirsty vengeance.
@@ -93,21 +114,7 @@ Rebecca Isaacs / Lifewire
 
 ![Godfall ](https://www.lifewire.com/thmb/IWN-3bTZ5qlsx29Xu_o7m5dQyu8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-3-9be349303fa148cfbcacfa7551c5c743.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Rebecca Isaacs / Lifewire
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Gameplay: Repetitive and tedious
 
@@ -133,13 +140,6 @@ Rebecca Isaacs / Lifewire
 
 ![Godfall](https://www.lifewire.com/thmb/xztzESfeykd-1UUo9xAOFt8EPNE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-7-4a134c4dc6304645aaeb4ff4a0badefa.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Rebecca Isaacs / Lifewire
 
 ## Platform: PS5 or PC
@@ -148,6 +148,13 @@ Rebecca Isaacs / Lifewire
 
 ![Godfall ](https://www.lifewire.com/thmb/AVwuGUypRGjuigcAvp7eBT4rj00=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-6-d175a22d9d0c48e8ad3aad12177fe50b.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Rebecca Isaacs / Lifewire
 
 ## Price: Overpriced for the amount of content available
@@ -155,13 +162,6 @@ Rebecca Isaacs / Lifewire
  If Godfall was priced around $30, I would have been more sympathetic to its cause. However, the base game itself will cost around $60 before any kind of sale. If you want to upgrade to a higher edition, such as Deluxe or its top edition, Ascended, that will run you up to $90\. That much money for a game that seems half-finished and still requires 50GB of SSD memory is, quite frankly, way too much for anyone to pay. This is also not including the option of pre-order and Ascended content, each of which will cost another $10.
 
  I’ll be brutally honest here: if it’s between Godfall and Warframe, Warframe is easily a better game.
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Godfall vs. Warframe
 
@@ -179,18 +179,18 @@ Rebecca Isaacs / Lifewire
 
  If you’re looking for a mindless hack and slash game to play, this might be a go-to game for you, especially if you like Warframe. But as much as I loved the graphics, I can’t recommend Godfall based on the landscapes alone. If you feel obligated to try out a melee looter slasher, wait for a sale, but for most people you can find better games to play.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Assassin's Creed: Valhalla](https://www.lifewire.com/assassin-s-creed-valhalla-review-an-epic-viking-adventure-across-the-medieval-world-5086782)
 * [Watch Dogs: Legion](https://www.lifewire.com/watch-dogs-legion-review-a-new-setting-for-the-series-5085469)
 * [Marvel’s Avengers](https://www.lifewire.com/marvel-s-avengers-review-5088311)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -224,20 +224,19 @@ Rebecca Isaacs / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-proart-pa-329q-examining-a-premium-4k-monitor-for-professionals/"><u>[New] In 2024, ProArt PA 329Q Examining a Premium 4K Monitor for Professionals</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-the-comprehensive-blueprint-to-youtube-banner-effectiveness/"><u>[New] The Comprehensive Blueprint to YouTube Banner Effectiveness</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-exclusive-nintendo-switch-fighter-lineups-max-156/"><u>2024 Approved Exclusive Nintendo Switch Fighter Lineups (Max 156)</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/1719817661009-asus-cam-not-working-heres-how-to-fix-it/"><u>Asus Cam Not Working? Here's How To Fix It!</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/how-microsoft-integrated-quick-response-qr-technology-into-the-lock-screen-experience-for-windows-users/"><u>How Microsoft Integrated Quick Response (QR) Technology Into the Lock Screen Experience for Windows Users</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-the-essential-imovie-steps-for-squaring-up-instagram-posts/"><u>In 2024, The Essential iMovie Steps for Squaring Up Instagram Posts</u></a></li>
-<li><a href="https://extra-support.techidaily.com/m1-innovation-elevating-smoothness-in-every-editors-toolkit-for-2024/"><u>M1 Innovation Elevating Smoothness in Every Editor's Toolkit for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/simple-steps-to-acquire-digital-reads-via-the-books-app-for-your-iphoneipad/"><u>Simple Steps to Acquire Digital Reads via the Books App for Your iPhone/iPad</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-truth-about-the-tp-link-re505x-an-authoritative-review-on-wifi-range-enhancement/"><u>The Truth About the TP-Link RE505X: An Authoritative Review on WiFi Range Enhancement</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-audio-headphones-no-cords/"><u>Top Audio Headphones, No Cords !</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-minecraft-game-analysis-a-family-friendly-building-adventure/"><u>Top Minecraft Game Analysis: A Family-Friendly Building Adventure</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-overcoming-the-scariest-monsters-in-monster-hunter-world/"><u>Ultimate Guide to Overcoming the Scariest Monsters in Monster Hunter: World</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-2024s-premier-video-game-platforms-unveiled/"><u>Ultimate Selection: 2024'S Premier Video Game Platforms Unveiled!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-nikons-waterproof-affordable-photography-companion/"><u>Unveiling Nikon's Waterproof, Affordable Photography Companion</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/what-to-consider-before-you-buy-an-unlocked-smartphone/"><u>What to Consider Before You Buy an Unlocked Smartphone</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-itel-p55-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Itel P55 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assessment-the-value-proposition-of-buying-an-ipad/"><u>Assessment: The Value Proposition of Buying an iPad</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-apples-latest-titans-iphone-15-pro-vs-pro-max/"><u>Comparing Apple's Latest Titans: IPhone 15 Pro Vs. Pro Max</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/evaluating-brightness-in-hdr-quality-assessment-complete/"><u>Evaluating Brightness in HDR Quality Assessment Complete?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/expedited-guide-to-distinguishing-genuine-followers-on-instagram-for-2024/"><u>Expedited Guide to Distinguishing Genuine Followers on Instagram for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-assessment-of-microsofts-expensive-one-stop-studio-solution/"><u>Expert Assessment of Microsoft's Expensive One-Stop Studio Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fashion-forward-fitness-tracker-a-comprehensive-review-of-the-amazfit-gts/"><u>Fashion-Forward Fitness Tracker: A Comprehensive Review of the Amazfit GTS</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/free-mindfulness-melodies-for-2024/"><u>Free Mindfulness Melodies for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/futures-finest-the-leading-photo-frame-tools-24-for-2024/"><u>Future's Finest The Leading Photo Frame Tools '24 for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-quick-guide-youtube-soundtracks-to-mp3-for-macos-2shift/"><u>In 2024, Quick Guide YouTube Soundtracks to MP3 for MacOS 2Shift</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-usb-flash-drive-picks/"><u>Leading USB Flash Drive Picks</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/micronics-introduces-affordable-desktop-sized-sls-3d-printer-at-299/"><u>Micronics Introduces Affordable Desktop-Sized SLS 3D Printer at $2,99</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-dynamic-shift-from-traditional-to-modern-reviewing-spider-man-miles-morales/"><u>The Dynamic Shift From Traditional to Modern: Reviewing Spider-Man: Miles Morales</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-using-and-enjoying-the-nook-glowlight-plus-from-barnes-and-noble/"><u>The Ultimate Guide to Using and Enjoying the Nook GlowLight Plus From Barnes & Noble</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of J5 Tactical's V1-Pro Flashlight – Durability Meets Convenience for Nighttime Visibility
-date: 2024-09-30T16:27:48.056Z
-updated: 2024-10-01T22:01:47.263Z
+date: 2024-10-05T02:55:51.665Z
+updated: 2024-10-06T21:21:20.829Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of J5 Tactical's V1-Pro Flashlight – Durability Meets Convenience for Nighttime Visibility
@@ -43,6 +43,19 @@ Lifewire / Emily Isaacs
 [View On Amazon $160](https://www.amazon.com/Microsoft-3RA-00022-Surface-Ergonomic-Keyboard/dp/B01MFCTRZM/?tag=lifewire-onsite-prod-20&ascsubtag=4780282%7Cn5d92c3a566b34e0ab250914e6a064c0806%7CB01MFCTRZM) [View On Walmart $108](https://www.walmart.com/ip/Microsoft-Surface-Ergonomic-Keyboard/516908599) [View On Best Buy $130](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fmicrosoft-surface-ergonomic-keyboard-silver%2F5689821.p%3FskuId%3D5689821)
 
 4.9
+
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Microsoft Surface Ergonomic Keyboard
 
@@ -86,10 +99,10 @@ Lifewire / Emily Isaacs
  Unlike some ergonomic keyboards that can hog space, forcing users to overreach for mice which can lead to shoulder injuries in place of wrist injuries, the Surface is wide enough that your hands sit comfortably but small enough that it’s easy to reach for your mouse when you want it. It’s the Goldilocks of keyboards with a fit that feels just right.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easy for PCs**
@@ -100,7 +113,21 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Surface Ergonomic Keyboard](https://www.lifewire.com/thmb/ZSG5mlPcHiYuas0N_9ZNOnjgXyI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_4LW4147386_03-67125265491a47d797763ee0b408f463.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Features: Well-conceived function keys**
 
@@ -116,13 +143,6 @@ Lifewire / Emily Isaacs
 
  Retailing for $129 (MSRP) or around $99 on Amazon, the Surface is a pricey little keyboard. Between the quality of the build materials, the comfort of the keyboard’s design, its wireless capabilities, and its great battery life, the Surface is a worthwhile investment for people who spend a significant amount of time in front of a PC. If you don’t spend much time on your PC, however, a cheaper, non-ergonomic model may be a better fit.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Microsoft Surface Ergonomic Keyboard vs. Microsoft Sculpt Ergonomic Keyboard**
 
  The Microsoft Sculpt Ergonomic Keyboard is a direct competitor to the Surface. Interestingly, the Sculpt seems to have inspired a significant portion of the Surface’s design, with the Surface feeling like a fancier version of the Sculpt thanks to its quality materials and matte finish. This difference shows in their price points as well, with the Sculpt generally retailing for around $80 whereas the Surface retails for around $129 (MSRP) or $100 on Amazon.
@@ -130,13 +150,6 @@ Lifewire / Emily Isaacs
 [Microsoft Sculpt Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-sculpt-ergonomic-keyboard-review-4780274)
 
 ![Microsoft Surface Ergonomic Keyboard](https://www.lifewire.com/thmb/V-eFQKJrpei_UnaKMYDEWLLNsYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_4LW4147386_02-4fa6aa53c9d249a6900cb4058b084301.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -153,13 +166,6 @@ Lifewire / Emily Isaacs
  **An almost flawless keyboard that’s worth the price.**
 
  The Microsoft Surface Ergonomic Keyboard is a quality, wireless ergonomic keyboard that’s well worth the investment if you spend a significant portion of your time typing on your computer. It’s a splurge to be sure, but it’s worth the price for the quality you receive.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -192,24 +198,16 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-a-time-capsule-transformation-step-by-step-guide-to-digitalize-old-printed-photographs-for-2024/"><u>[New] A Time-Capsule Transformation Step-By-Step Guide to Digitalize Old Printed Photographs for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-depth-analysis-top-10-video-cards-built-for-youtube-watching/"><u>[New] In-Depth Analysis Top 10 Video Cards Built for YouTube Watching</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-best-8-youtube-marketing-apps-and-solutions-for-2024/"><u>[Updated] Best 8 YouTube Marketing Apps & Solutions for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-quick-guide-to-adding-snapchat-on-your-macbook/"><u>[Updated] In 2024, Quick Guide to Adding Snapchat on Your MacBook</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-streamline-your-workflow-with-the-top-5-pc-screen-grabbers/"><u>[Updated] In 2024, Streamline Your Workflow with the Top 5 Pc Screen Grabbers</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-streamline-your-storage-with-these-30-great-android-video-compressors/"><u>2024 Approved Streamline Your Storage with These 30 Great Android Video Compressors</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2024s-most-exceptional-computer-sound-solutions-discover-the-leading-brands-and-models/"><u>2024'S Most Exceptional Computer Sound Solutions – Discover the Leading Brands and Models</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-excellence-asus-chromebook-flip-c3ca-in-depth-review-stylish-versatile-and-highly-functional/"><u>Affordable Excellence: Asus Chromebook Flip C3#CA In-Depth Review – Stylish, Versatile & Highly Functional</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-luxury-comparing-apples-ipad-air-vs-ipad-pro/"><u>Affordable Luxury: Comparing Apple's iPad Air Vs. IPad Pro</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazonbasics-tripod-review-easy-photography-setup/"><u>AmazonBasics Tripod Review - Easy Photography Setup</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ambient-weather-station-model-ws-1n02-the-ultimate-review-of-its-elite-functionality-and-substantial-cost-implications/"><u>Ambient Weather Station Model WS-1n02 - The Ultimate Review of Its Elite Functionality and Substantial Cost Implications</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722584130841-canons-sx530-your-first-step-into-the-world-of-photography/"><u>Canon’s SX530: Your First Step Into the World of Photography</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722768260372-discover-the-top-10-travel-gadgets-today/"><u>Discover the Top 10 Travel Gadgets Today</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722708409091-experience-superior-communication-with-the-user-friendly-clearstream-eclipse-antenna-top-reviewed/"><u>Experience Superior Communication with the User-Friendly ClearStream Eclipse Antenna - Top Reviewed</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-asus-rog-phone-7-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Asus ROG Phone 7 | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-samsung-galaxy-s23-ultra-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Samsung Galaxy S23 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/mastering-your-device-with-toms-comprehensive-hardware-advice/"><u>Mastering Your Device with Tom's Comprehensive Hardware Advice</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722730015677-the-apeman-c450-reviewed-budget-dashcam-revealed-for-safety-enthusiasts/"><u>The Apeman C450 Reviewed - Budget Dashcam Revealed for Safety Enthusiasts</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Lava Blaze 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-beginners-pathway-to-grasping-hd-content-standards/"><u>[New] Beginner’s Pathway to Grasping HD Content Standards</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-the-ultimate-filter-guide-to-superior-zoom-quality-for-2024/"><u>[New] The Ultimate Filter Guide to Superior Zoom Quality for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-the-ultimate-bandicam-reference-unpacking-2023-features/"><u>[Updated] 2024 Approved The Ultimate Bandicam Reference – Unpacking 2023 Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-most-effective-non-adobe-tools-to-supercharge-your-upcoming-artistic-endeavors/"><u>Discover the Most Effective Non-Adobe Tools to Supercharge Your Upcoming Artistic Endeavors</u></a></li>
+<li><a href="https://win-dash.techidaily.com/effortlessly-enhance-your-pc-with-updated-msi-gpu-drivers-in-windows-11-and-7/"><u>Effortlessly Enhance Your PC with Updated MSI GPU Drivers in Windows 11 & 7</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oneplus-nord-n30-se-phone-without-password-by-drfone-android/"><u>How To Unlock OnePlus Nord N30 SE Phone Without Password?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-realme-c53-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Realme C53 Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/no-need-for-worry-get-your-beloved-tv-show-episodes-on-dvd/"><u>No Need for Worry: Get Your Beloved TV Show Episodes on DVD!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-7-compelling-reasons-why-holding-off-on-game-pre-orders-is-wise-a-guide/"><u>Top 7 Compelling Reasons Why Holding Off on Game Pre-Orders Is Wise - A Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transform-your-gaming-experience-explore-the-impact-of-sonys-dualsense-edge/"><u>Transform Your Gaming Experience: Explore the Impact of Sony's DualSense Edge</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-i-chose-the-steam-deck-over-the-powerful-rog-ally-x/"><u>Why I Chose the Steam Deck Over the Powerful Rog Ally X</u></a></li>
 </ul></div>
 

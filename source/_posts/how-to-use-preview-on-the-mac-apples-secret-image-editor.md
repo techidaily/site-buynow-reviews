@@ -1,7 +1,7 @@
 ---
 title: "How to Use Preview on the Mac: Apple’s Secret Image Editor"
-date: 2024-09-29T20:26:14.444Z
-updated: 2024-10-01T20:52:59.727Z
+date: 2024-10-06T09:53:40.617Z
+updated: 2024-10-07T01:12:13.306Z
 categories:
   - BestProducts
 description: "This Article Describes How to Use Preview on the Mac: Apple’s Secret Image Editor"
@@ -47,6 +47,13 @@ Lifewire / Emily Isaacs
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Kinesis Freestyle2 Blue
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/wuNd6MsZiivoQ99Xm0JHB9iB4Rs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_HeroSquare-99f80025b0254cbebe67ed22575a90c5.jpg)
@@ -73,19 +80,6 @@ Lifewire / Emily Isaacs
  The Kinesis Freestyle2 Blue (Mac) joins the Kinesis keyboard family with its easy-to-use modular design. Better yet, this ergonomic keyboard supports up to three connected devices at a time, allowing you to easily swap between a Mac, iPhone, or iPad with the press of a few hotkeys. With its compact build, the Kinesis Freestyle2 is a welcome addition to any Apple user’s collection, whether they’re at home or on the go, thanks to the excellent battery life of up to 300 plus hours of extended use.
 
 [The Best Ergonomic Keyboards of 2024](https://www.lifewire.com/best-ergonomic-keyboards-4147386)
-
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Design and Features: Freestyle2 breaks the mold**
 
@@ -114,10 +108,10 @@ Lifewire / Emily Isaacs
  From here, we followed the instructions in the provided instructional pamphlet and enabled Bluetooth on our iPad. After about a minute of scanning, the Kinesis KB800MB-BT keyboard appeared as an available device. We simply tapped to connect. From here, it prompted us to input a numeric code and press return. Once we’d done this, setup was complete.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Features: Efficient hotkeys once you get used to them**
@@ -129,10 +123,10 @@ Lifewire / Emily Isaacs
  Its split design is comfortable, following the natural arc of your fingers and hands as they rest upon its keys.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Battery: Plenty of juice so you’re never in a bind**
@@ -140,10 +134,10 @@ Lifewire / Emily Isaacs
  The battery life on the Freestyle2 is excellent. It arrives with a partial charge, so it’s important to remember to fully charge it after receiving it. Once charged, the battery life can last up to 300 plus hours of regular use. The Freestyle2 does an excellent job of letting you know when its battery is getting low—battery lights will flash red to indicate when there are about four hours of battery life remaining. This ensures you’re never left hanging.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Excellent for the features**
@@ -203,18 +197,24 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-unleashing-visual-potential-incorporating-new-fonts-in-ae/"><u>[New] 2024 Approved Unleashing Visual Potential Incorporating New Fonts in AE</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-an-in-depth-look-at-movavis-video-edition-plus-for-2e24-for-2024/"><u>[Updated] An In-Depth Look at Movavi's Video Edition Plus for 2E24 for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-the-ultimate-macos-manual-for-ootd-videographers/"><u>[Updated] The Ultimate MacOS Manual for OOTD Videographers</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-understanding-the-basics-of-ffxp-mode-for-2024/"><u>[Updated] Understanding the Basics of FFXP Mode for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-premium-web-outlets-for-gift-boxes-that-speak-to-you/"><u>2024 Approved Premium Web Outlets for Gift Boxes That Speak to You</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/grobalization-and-optimization-considering-factors-like-resource-allocation-logistics-and-environmental-impacts-in-a-comprehensive-manner/"><u>Grobalization and Optimization, Considering Factors Like Resource Allocation, Logistics, and Environmental Impacts in a Comprehensive Manner</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-the-modestly-priced-fitbit-versa-stacks-up-against-other-smartwatches/"><u>How the Modestly Priced Fitbit Versa Stacks Up Against Other Smartwatches</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-ultimate-guide-to-free-and-premium-short-video-clips/"><u>In 2024, Ultimate Guide to Free & Premium Short Video Clips</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-razer-blade-stealth-13s-game-changing-impact-on-ultrabook-tech/"><u>In-Depth Analysis of the Razer Blade Stealth 13'S Game-Changing Impact on Ultrabook Tech</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-anker-powercore-26800-mini-battery-pack-with-dual-usb-c-ports-performance-assessment/"><u>In-Depth Look at the Anker PowerCore 26800 Mini Battery Pack with Dual USB C Ports: Performance Assessment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maisto-remote-control-rock-crawler-evaluation-the-perfect-rc-vehicle-for-families/"><u>Maisto Remote Control Rock Crawler Evaluation: The Perfect RC Vehicle for Families</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/seamlessly-blending-apple-maps-into-your-windows-setup/"><u>Seamlessly Blending Apple Maps Into Your Windows Setup</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721471739014-stumped-by-missing-alerts-on-iphone-discover-7-troubleshooting-steps/"><u>Stumped by Missing Alerts on iPhone? Discover 7 Troubleshooting Steps</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-brand-consistency-in-action-inserting-logoswatermarks-into-videos/"><u>[New] 2024 Approved Brand Consistency in Action Inserting Logos/Watermarks Into Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-10-best-iphone-and-android-apps-to-make-into-videos/"><u>[Updated] 2024 Approved The 10 Best iPhone & Android Apps to Make Into Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-square-video-production-masterclass-in-imovie-for-social-media/"><u>[Updated] Square Video Production Masterclass in iMovie for Social Media</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-essential-thumbnail-strategy-for-top-video-visibility/"><u>2024 Approved The Essential Thumbnail Strategy for Top Video Visibility</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-defying-linguistic-ambitions-achieved/"><u>Age-Defying Linguistic Ambitions Achieved!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/error-resolution-tutorial-why-your-media-wont-load-and-what-to-do-about-it-on-windows/"><u>Error Resolution Tutorial: Why Your Media Won't Load and What To Do About It On Windows</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-unveiling-the-secrets-of-a-comfortable-workspace-with-cumuluspro-mats/"><u>Expert Review: Unveiling the Secrets of a Comfortable Workspace with CumulusPRO Mats</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-the-world-of-streaming-with-roku-express-top-reviews-on-quality-and-savings/"><u>Explore the World of Streaming with Roku Express - Top Reviews on Quality & Savings</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-streaming-showdown-obs-vs-twitch-studio/"><u>In 2024, Streaming Showdown OBS vs Twitch Studio</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/invest-in-peace-of-mind-with-smaller-devices-how-miniscule-trackers-can-deliver-maximum-security-for-belongings/"><u>Invest in Peace of Mind with Smaller Devices - How Miniscule Trackers Can Deliver Maximum Security for Belongings</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/rapidity-reshaping-for-professional-mp4s/"><u>Rapidity Reshaping for Professional MP4s</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/seamless-creativity-on-the-go-androidios-montages-top-8/"><u>Seamless Creativity on the Go Android/iOS Montages Top 8</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/swagtrons-speedster-unveiling-the-pros-and-cons-of-the-expensive-swagboard-t1-scooter/"><u>Swagtron's Speedster: Unveiling the Pros and Cons of the Expensive Swagboard T1 Scooter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-revolutionary-samsung-galaxy-chromebook-2-unveiling-portability-and-performance-in-a-review/"><u>The Revolutionary Samsung Galaxy Chromebook 2: Unveiling Portability and Performance in a Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-verdict-on-the-samsung-galaxy-tab-s5e-a-detailed-android-tablet-assessment/"><u>The Ultimate Verdict on the Samsung Galaxy Tab S5e: A Detailed Android Tablet Assessment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-verdict-on-lenovo-tab-4-a-cost-effective-android-tablet-with-trade-offs-explored/"><u>The Verdict on Lenovo Tab 4: A Cost-Effective Android Tablet with Trade-Offs Explored</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rating-and-economical-comprehensive-guide-to-the-tp-link-re200-ac750-range-extender/"><u>Top Rating and Economical: Comprehensive Guide to the TP-Link RE200 AC750 Range Extender</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-reviews-for-razers-portable-wi-fi-solution-the-portal/"><u>Top Reviews for Razer's Portable Wi-Fi Solution - The Portal</u></a></li>
 </ul></div>
 

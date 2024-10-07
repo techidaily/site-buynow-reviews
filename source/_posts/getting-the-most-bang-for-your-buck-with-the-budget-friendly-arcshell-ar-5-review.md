@@ -1,7 +1,7 @@
 ---
 title: Getting the Most Bang for Your Buck with the Budget-Friendly Arcshell AR-5 Review
-date: 2024-09-17T18:02:41.042Z
-updated: 2024-09-20T17:00:48.671Z
+date: 2024-10-04T21:27:38.585Z
+updated: 2024-10-06T18:55:38.375Z
 categories:
   - BestProducts
 description: This Article Describes Getting the Most Bang for Your Buck with the Budget-Friendly Arcshell AR-5 Review
@@ -49,6 +49,13 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/o0LkMzwRLq9UDT8tBDJerDIsp8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 [View On Walmart $68](https://www.walmart.com/ip/124219534) [View On Target $100](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.target.com%2Fp%2Ftp-link-ac1900-mu-mimo-mesh-compatible-dual-band-router%2F-%2FA-79847605%3Fslfpid%3D3) [View On Staples $91](https://www.staples.com/tp-link-archer-c80-ac1900-dual-band-wireless-and-ethernet-router-black/product%5F24467939?cid=AFF%3A24467939&slfpid=3)
@@ -67,6 +74,13 @@ Lifewire / Erika Rawes
 * [Specs](https://www.lifewire.com/#toc-full-spec)
 
  The TP-Link Archer C80 is an affordable[long range router](https://www.lifewire.com/best-long-range-routers-4122554) that should be ideal for medium-sized homes. With 3x3[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , parental controls, and remote control using TP-Link’s Tether app, the Archer C80 has a few admirable features for a router under $100, but it also lacks some of the things we’ve come to expect in a router in this price range (like smart assistant compatibility and no USB port). I tested the TP-Link Archer C80 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment when compared to other budget routers on the market.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Basic, but effective**
 
@@ -90,6 +104,13 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/tXeiVJNqjtwMg97as87xxtsMwhc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_04-375b5f92ce9d44f4af109c8f6bfada16.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Network Performance: Fast speeds, No USB port**
@@ -100,7 +121,21 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: Even better than advertised**
 
@@ -118,38 +153,11 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Around 100 bucks**
 
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **TP-Link Archer C80 vs. TP-Link Archer A9**
 
@@ -194,5 +202,24 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-streamline-your-obs-outputs/"><u>[New] Streamline Your OBS Outputs</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-social-simulacrum-sculpting-crafting-exaggerated-profiles-for-2024/"><u>[Updated] Social Simulacrum Sculpting Crafting Exaggerated Profiles for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-budget-friendly-beantech-bitwatch-s1-plus-wearable-tech-review/"><u>Comprehensive Analysis of the Budget-Friendly Beantech Bitwatch S1 Plus Wearable Tech Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-testing-of-the-compact-and-robust-jaco-smartpro-digital-tire-pump-a-detailed-review-for-car-enthusiasts/"><u>Comprehensive Testing of the Compact and Robust Jaco SmartPro Digital Tire Pump - A Detailed Review for Car Enthusiasts</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>How and Where to Find a Shiny Stone Pokémon For Apple iPhone 11? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-restore-functionality-of-your-broken-logitech-mouse-scroll-wheel-step-by-step-solution/"><u>How To Restore Functionality of Your Broken Logitech Mouse Scroll Wheel | Step by Step Solution</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-low-fee-android-communication-options-10-best/"><u>In 2024, Low-Fee Android Communication Options, 10 Best</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-motorola-moto-g23-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Motorola Moto G23 Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/j5-tactical-v1-pro-flashlight-assessment-unyielding-durability-and-portable-brightness/"><u>J5 Tactical V1-Pro Flashlight Assessment: Unyielding Durability & Portable Brightness</u></a></li>
+<li><a href="https://techtrends.techidaily.com/les-convertisseurs-video-avivob-de-predilection-tops-3-gratuits-and-performants/"><u>Les Convertisseurs Vidéo AVI/VOB De Prédilection : Tops 3 Gratuits & Performants</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/razer-portal-for-gamers-a-comprehensive-seo-review-on-wi-fi-connectivity/"><u>Razer Portal for Gamers - A Comprehensive SEO Review on Wi-Fi Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/rising-star-premium-powerful-photographic-mount/"><u>Rising Star: Premium, Powerful Photographic Mount</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Vivo Y27 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-new-lg-stylo-6-aesthetics-and-stylus-capability/"><u>The Ultimate Guide to the New LG Stylo 6: Aesthetics and Stylus Capability</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-showdown-alexa-against-google-assistant-for-personalized-user-experience/"><u>The Ultimate Showdown: Alexa Against Google Assistant for Personalized User Experience</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlocking-performance-top-13-freeware-hdd-test-applications-july-2024/"><u>Unlocking Performance: Top 13 Freeware HDD Test Applications (July 2024)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-powerhouse-features-on-the-nvidia-shield-tv-pro-expert-review-for-gamers-and-streamers/"><u>Unlocking Powerhouse Features on the Nvidia Shield TV Pro – Expert Review for Gamers & Streamers</u></a></li>
+</ul></div>
 

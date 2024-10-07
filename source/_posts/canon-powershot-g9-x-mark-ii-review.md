@@ -1,7 +1,7 @@
 ---
 title: Canon PowerShot G9 X Mark II Review
-date: 2024-09-13T17:32:46.742Z
-updated: 2024-09-20T16:08:17.158Z
+date: 2024-10-05T02:49:51.244Z
+updated: 2024-10-06T19:25:59.212Z
 categories:
   - BestProducts
 description: This Article Describes Canon PowerShot G9 X Mark II Review
@@ -92,9 +92,23 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery life: No worries**
 
@@ -111,10 +125,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Autofocus: Blazing fast**
@@ -124,6 +138,13 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -155,13 +176,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Video Quality: A mixed bag**
 
  The SX70 HS fumbles a bit when it comes to video. It’s no slouch by any means, but the footage is nothing to brag about. You can record up to 4K resolution, but unfortunately, the camera has to crop in to record at this resolution. Also, we found that footage is never especially sharp compared to other cameras.
@@ -175,6 +189,13 @@ Lifewire / Andy Zahn
  Time-lapse mode is where the SX70 HS really shines in terms of video. You can easily access this mode via the menu system, and there is a wide range of customizable options available. For those not experienced with time-lapse video, you can simply select from one of three subject-based settings. Time-lapses can be recorded at up to 4K resolution and truly excellent quality.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Lots of options**
 
@@ -192,19 +213,6 @@ Lifewire / Andy Zahn
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
 
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Competition: Dominating from the middle ground**
 
  Canon hasn’t tried to push any boundaries with the SX70 HS. Instead, it plays it safe and just does everything very well. Two of its main competitors in the superzoom arena, Panasonic and Nikon, offer intriguing alternatives by either cutting costs or offering groundbreaking technological advances.
@@ -220,13 +228,6 @@ Lifewire / Andy Zahn
  **A tremendously fun camera that is exceedingly well-rounded if a bit pricey.**
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -266,5 +267,24 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-boosting-channel-success-scaling-for-a-million-viewers/"><u>[New] In 2024, Boosting Channel Success Scaling for a Million Viewers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-video-content-with-proven-strategies-for-youtube-shorts-growth-for-2024/"><u>[Updated] Elevate Video Content with Proven Strategies for YouTube Shorts Growth for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-propel-your-artistic-journey-the-ultimate-10-android-drawing-tools/"><u>[Updated] Propel Your Artistic Journey The Ultimate 10 Android Drawing Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-list-mac-video-editors-for-macos-big-sur-11-users-for-2024/"><u>[Updated] Ultimate List Mac Video Editors for macOS Big Sur 11 Users for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ancs-marshall-overhaul-tasteful-appearance-meets-great-sounds/"><u>ANC's Marshall Overhaul: Tasteful Appearance Meets Great Sounds</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-vivo-y100-5g-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Vivo Y100 5G Phone? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-6-passcode-screen-drfone-by-drfone-ios/"><u>How to Unlock iPhone 6 Passcode Screen? | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-crafting-compelling-combinations-a-guide-to-creating-your-own-youtube-playlists/"><u>In 2024, Crafting Compelling Combinations A Guide to Creating Your Own YouTube Playlists</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-vivo-y28-5g-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Vivo Y28 5G</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-lamicall-s-tablet-holder-designed-for-convenience-and-utility/"><u>In-Depth Analysis of Lamicall S Tablet Holder: Designed For Convenience and Utility</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-netgears-powerline-1200-a-bulky-build-at-the-expense-of-performance/"><u>In-Depth Analysis of Netgear's Powerline 1200: A Bulky Build at the Expense of Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-opting-for-applecareplus-a-wise-decision-or-not/"><u>Is Opting for AppleCare+ a Wise Decision or Not?</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/no-access-to-your-phone-due-to-forgotten-password-here-how-to-reset-it/"><u>No Access to Your Phone Due to Forgotten Password? Here How to Reset It</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-small-camera-on-the-market-canon-sx530-reviewed/"><u>The Best Small Camera on the Market - Canon SX530 Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-phone-stores-where-to-find-the-perfect-mobile-device/"><u>Top Phone Stores: Where to Find the Perfect Mobile Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranking-voip-services-has-vonage-lost-its-crown/"><u>Top Ranking VoIP Services: Has Vonage Lost Its Crown?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-differences-macbook-air-versus-macbook-pro-a-comprehnive-guide-for-buyers/"><u>Unveiling Differences: MacBook Air Versus MacBook Pro – A Comprehnive Guide for Buyers</u></a></li>
+</ul></div>
 

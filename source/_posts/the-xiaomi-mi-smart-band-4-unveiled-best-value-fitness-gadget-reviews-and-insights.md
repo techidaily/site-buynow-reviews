@@ -1,7 +1,7 @@
 ---
 title: "The Xiaomi Mi Smart Band 4 Unveiled: Best Value Fitness Gadget Reviews and Insights"
-date: 2024-09-29T01:08:10.657Z
-updated: 2024-10-01T23:19:49.919Z
+date: 2024-10-01T09:27:08.562Z
+updated: 2024-10-06T18:58:24.732Z
 categories:
   - BestProducts
 description: "This Article Describes The Xiaomi Mi Smart Band 4 Unveiled: Best Value Fitness Gadget Reviews and Insights"
@@ -45,10 +45,10 @@ Lifewire / Erika Rawes
 4.3
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Xiaomi Mi Smart Band 4
@@ -78,10 +78,16 @@ Lifewire / Erika Rawes
  Budget fitness trackers like the Xiaomi Mi Smart Band 4 tend to be hit or miss, with some budget models providing accurate data and useful features, and others serving as basic monitors and pedometers with a few additional features that may or may not work well. I tested the Xiaomi Mi Smart Band 4 for two weeks to see how it performs compared to other budget and mid-range[fitness trackers](https://www.lifewire.com/an-introduction-to-activity-trackers-3441364) on the market.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: A full color display**
@@ -95,20 +101,19 @@ Lifewire / Erika Rawes
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/oCYh365Kx4bFT1nCDvemWNcGEYI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-6-64089d35ecca457d9f49477537785d34.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Comfort: A water resistant removable band**
 
@@ -121,6 +126,13 @@ Lifewire / Erika Rawes
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/MsPw0300j9lhgQEmelHfapWXla4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-4-52ee61c2595e4aafb5c1ad04be13f12e.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Not bad for the price**
 
@@ -145,6 +157,13 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Battery: Up to 20 days**
 
  The Mi Band 4’s battery is phenomenal, as the 135 mAh battery lasts for up to 20 days. Options within the app for things like better sleep monitoring and heart monitoring can greatly reduce battery life, however, the app will warn you about that when selecting such options.
@@ -158,13 +177,6 @@ The 135 mAh battery lasts for up to 20 days.
  The only negative about the battery is when it comes time to charge the device. You have to remove the tracker from the band and place it onto a mini charging station. It’s somewhat difficult to remove from the band, and you have to kind of wiggle it out of the band. The unit also fits snugly into the charging station, so you have to gently force the Mi 4 Tracker into the charging station to ensure it’s properly charging. Once you achieve that, it takes about one hour and 45 minutes to reach a full charge.
 
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/kXajF8I7UCVG0wnufwSz3psTRmU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-3-8a9c12e307254854bcd99728db94330c.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -222,14 +234,22 @@ The 135 mAh battery lasts for up to 20 days.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-reviews.techidaily.com/s55-best-bargain-in-high-definition-traffic-monitors-according-to-our-experts/"><u>'S55': Best Bargain in High Definition Traffic Monitors, According to Our Experts</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-premiere-moments-in-motion/"><u>[New] Premiere Moments in Motion</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-the-ultimate-mobile-cinema-showcase-apples-best-freepluspaid-film-watchers-guide/"><u>[Updated] 2024 Approved The Ultimate Mobile Cinema Showcase Apple's Best FREE+Paid Film Watchers Guide</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/device-unlock-realme-by-drfone-android-unlock-android-unlock/"><u>Device unlock Realme</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-fitness-with-mapmyride-a-detailed-review/"><u>Navigating Fitness with MapMyRide - A Detailed Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-lenovo-nook-a-complete-guide-to-its-9-inch-tablet/"><u>Navigating the Lenovo Nook - A Complete Guide to Its 9 Inch Tablet</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Motorola Edge 40? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-of-the-sumind-bt7ebt-fm-frequency-modulator-with-bluetooth-an-ideal-solution-for-vehicle-connectivity/"><u>Review of the Sumind BT7ebt FM Frequency Modulator with Bluetooth - An Ideal Solution for Vehicle Connectivity</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/vullen-van-veejervaring-professioneel-zet-uw-tta-bestand-inte-net-maar-gratis-opzoeken-movavi/"><u>Vullen Van Veejervaring: Professioneel Zet Uw TTA-Bestand Inte Net Maar Gratis Opzoeken - Movavi</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-top-places-for-free-text-visual-enhancements/"><u>[New] 2024 Approved Top Places for Free Text Visual Enhancements</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-addressing-missing-thumbnails-in-youtube-shorts-for-2024/"><u>[New] Addressing Missing Thumbnails in YouTube Shorts for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-elite-road-warriors-game-list/"><u>[New] Elite Road Warriors' Game List</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-rooting-in-cities-cultivating-urban-biodiversity/"><u>[New] In 2024, Rooting in Cities Cultivating Urban Biodiversity</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-how-to-add-titlestext-to-video-on-microsoft-photos-in-windows-10/"><u>2024 Approved How to Add Titles/Text to Video on Microsoft Photos in Windows 10</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/8-safe-and-effective-methods-to-unlock-your-iphone-11-pro-max-without-a-passcode-by-drfone-ios/"><u>8 Safe and Effective Methods to Unlock Your iPhone 11 Pro Max Without a Passcode</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bloodborne-game-analysis-exploring-a-hauntingly-beautiful-realm/"><u>Bloodborne Game Analysis: Exploring a Hauntingly Beautiful Realm</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/boost-your-activity-level-using-the-cubefit-terramat-desk-exerciser-in-depth-analysis/"><u>Boost Your Activity Level Using the CubeFit TerraMat Desk Exerciser – In-Depth Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-the-ultimate-streamer-chromecast-versus-roku-showdown/"><u>Choosing the Ultimate Streamer: Chromecast Versus Roku Showdown</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-jabra-talk-45-superior-audio-fidelity-plus-sustainable-charges/"><u>Evaluating Jabra Talk 45: Superior Audio Fidelity + Sustainable Charges</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-steps-into-podcasting-arena-challenges-clubhouse/"><u>Facebook Steps Into Podcasting Arena, Challenges Clubhouse</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fresh-nickelodeon-entertainment-hits-shores-exciting-cast-introduced-at-kids-choice-awards-extravaganza/"><u>Fresh Nickelodeon Entertainment Hits Shores: Exciting Cast Introduced at Kid's Choice Awards Extravaganza</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-nokia-c210-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Nokia C210.</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-nokia-150-2023-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Nokia 150 (2023) To Phone | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-twelve-south-compass-pro-a-masterpiece-in-stable-design/"><u>In-Depth Analysis of the Twelve South Compass Pro: A Masterpiece in Stable Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/netgears-powerhouse-the-x6s-wireless-range-extender-for-optimal-coverage/"><u>Netgear's Powerhouse: The X6S Wireless Range Extender for Optimal Coverage</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-new-era-of-smart-casting-chromecast-with-google-tv-edition/"><u>Reviewing the New Era of Smart Casting: Chromecast with Google TV Edition</u></a></li>
 </ul></div>
 

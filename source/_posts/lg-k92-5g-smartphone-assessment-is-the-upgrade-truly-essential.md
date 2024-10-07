@@ -1,7 +1,7 @@
 ---
 title: "LG K92 5G Smartphone Assessment: Is the Upgrade Truly Essential?"
-date: 2024-09-24T23:22:04.679Z
-updated: 2024-10-01T22:24:21.724Z
+date: 2024-10-06T01:34:06.734Z
+updated: 2024-10-07T02:04:50.414Z
 categories:
   - BestProducts
 description: "This Article Describes LG K92 5G Smartphone Assessment: Is the Upgrade Truly Essential?"
@@ -43,22 +43,15 @@ Lifewire / Zach Sweat
 4.8
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/JA4MI_SE7Alxl0MLR7rMoIVzKgI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -86,6 +79,13 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/t8wI_yN2s_uIQ1leo87MmOnXxb4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-5-0c39ec4e89eb45b094471681efec0e7d.jpg)
 
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Dark, sturdy, and feature-packed**
 
@@ -132,10 +132,10 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process and Software: Bluetooth, at long last**
@@ -157,13 +157,6 @@ Lifewire / Zach Sweat
  If you plan to buy this controller to use with other electronics that support Bluetooth devices, make sure you do some research before committing to it, as it doesn’t always work with everything. That said, we did manage to pair the controller with a couple other devices that weren’t officially supported.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -189,6 +182,13 @@ Lifewire / Zach Sweat
 
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Like buying a brand new console**
 
  Right now, the Elite Series 2 controller retails at an MSRP of $249.99, about $100 more than its predecessor. This price tag makes it not only the most expensive first-party controller around, but also nearly the cost of a brand new Xbox One S console (or three brand new titles). That can be a tough sell for your average gamer.
@@ -200,13 +200,6 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/6VfCJGOyjLkAkE_mjiHr7rz8Gyw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-6-0c1d7a2ae4e8443ea5b69f559e52bd12.jpg)
 
  Lifewire / Zach Sweat
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
 
@@ -221,6 +214,19 @@ Lifewire / Zach Sweat
  **A truly awesome controller with a steep price point.**
 
  Everything we disliked about the original Elite controller has been improved with the second iteration, making it the best first-party controller you can get for XB1 or PC. However, the steep price point might be a hard pill to swallow for users who don’t like to splurge.
+
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -254,21 +260,18 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-fire-up-your-dreams-with-these-10-movie-gems/"><u>[Updated] 2024 Approved Fire Up Your Dreams with These 10 Movie Gems</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-igniting-interest-how-to-elevate-your-instagram-contents-impact/"><u>[Updated] 2024 Approved Igniting Interest How to Elevate Your Instagram Content's Impact</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-13-mini-to-android-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 13 mini to Android? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-realme-gt-5-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Realme GT 5 Data? | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-libertycam-studios-advanced-video-capture-capabilities/"><u>In 2024, LibertyCam Studio's Advanced Video Capture Capabilities</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-arlo-video-doorbell-reviewed-a-dual-function-alarm-system-in-your-home/"><u>The Arlo Video Doorbell Reviewed - A Dual Function Alarm System in Your Home</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-best-innovative-sleep-technology-guaranteed-to-help-you-relax/"><u>The Best Innovative Sleep Technology Guaranteed to Help You Relax</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-blueprint-for-successful-windows-11-post-windows-10-transition/"><u>The Blueprint for Successful Windows 11 Post-Windows 10 Transition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-definitive-ranking-how-apples-201n-pad-pro-with-retina-outperforms-competitors-in-2018/"><u>The Definitive Ranking: How Apple's 201N Pad Pro With Retina Outperforms Competitors in 2018</u></a></li>
-<li><a href="https://some-tips.techidaily.com/the-freevista-vistas-treasuring-the-visual-wealth-of-costless-tiktok-screens-for-2024/"><u>The FREEvista Vistas Treasuring the Visual Wealth of Costless TikTok Screens for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-gene-expression-during-sporulation-occurs-in-a-highly-ordered-sequence-with-distinct-phases-such-as-asymmetrical-cell-division-and-coat-synthesis/"><u>The Gene Expression During Sporulation Occurs in a Highly Ordered Sequence, with Distinct Phases Such as 'Asymmetrical Cell Division' And 'Coat Synthesis.'</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-truth-about-tp-links-av1n300-powerline-wi-fi-booster-performance-insights/"><u>The Truth About TP-Link's AV1n300 Powerline Wi-Fi Booster: Performance Insights</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-resolving-binkw32dll-file-not-found-issues/"><u>Ultimate Guide: Resolving binkw32.dll File Not Found Issues</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-gaomon-pd1560-graphic-pad-a-top-notch-pen-display-reviewed/"><u>Unveiling the Gaomon PD1560 Graphic Pad - A Top-Notch Pen Display Reviewed</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-using-vn-editor-to-add-luts-for-video-editing/"><u>Updated In 2024, Using VN Editor To Add Luts for Video Editing</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-vivo-x90s-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Vivo X90S? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-exclusive-music-tools-for-pcs/"><u>[New] Exclusive Music Tools for PCs</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-essential-knowledge-for-effective-screensaver-use-in-mobile-applications/"><u>[Updated] Essential Knowledge for Effective Screensaver Use in Mobile Applications</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-art-of-high-dynamic-range-pro-photoshop-techniques/"><u>[Updated] The Art of High Dynamic Range Pro Photoshop Techniques</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-samsung-galaxy-a15-5g-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Samsung Galaxy A15 5G? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-2024-reviews-for-stronger-cell-phone-connectivity-solutions/"><u>Best 2024 Reviews for Stronger Cell Phone Connectivity Solutions</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/convert-mxf-files-free-top-7-methods-for-pc-and-mac-users/"><u>Convert MXF Files Free: Top 7 Methods for PC & Mac Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-recommendations-6-prime-locations-for-selecting-a-new-laptop/"><u>Expert Recommendations: 6 Prime Locations for Selecting a New Laptop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/high-performance-revolt-discover-the-balance-between-subtle-design-and-robust-engine-capability-on-two-wheels/"><u>High-Performance ReVolt: Discover the Balance Between Subtle Design and Robust Engine Capability on Two Wheels</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hps-cost-effective-amd-notebook-15-a-thorough-assessment-for-productivity/"><u>HP's Cost-Effective AMD Notebook 15 - A Thorough Assessment for Productivity</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-premium-hd-video-replay-devices/"><u>In 2024, Premium HD Video Replay Devices</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-xiaomi-redmi-note-13-pro-5g-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Xiaomi Redmi Note 13 Pro 5G Screen | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-and-pitfalls-of-the-feature-dense-midland-lxt500vp3-radios/"><u>Unveiling the Power and Pitfalls of the Feature-Dense Midland LXT500VP3 Radios</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Enhance Photography, Embrace Cloud with Nixplay Iris
-date: 2024-09-18T17:40:38.350Z
-updated: 2024-09-20T18:42:21.893Z
+date: 2024-10-01T05:47:15.940Z
+updated: 2024-10-06T16:56:05.922Z
 categories:
   - BestProducts
 description: This Article Describes Enhance Photography, Embrace Cloud with Nixplay Iris
@@ -44,6 +44,13 @@ Lifewire / Benjamin Zeman
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Canon PowerShot SX530 HS Bundle
 
 ![Canon PowerShot SX530](https://www.lifewire.com/thmb/Z5L2j1djFMRpR7xHpEMl6i9s49g=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493499_HeroSquare-94fd3b5124c34d5b823cd1d24d364dfc.JPG)
@@ -72,6 +79,13 @@ Lifewire / Benjamin Zeman
 
 Lifewire / Benjamin Zeman
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Looks like a mini DSLR**
 
  At 15.59 oz, the Canon PowerShot SX530 weighs in at just under a pound and measures 4.7 x 3.2 x 3.6 inches. This makes it remarkably light for a DSLR-like camera in this class. The SX530 isn’t a true DSLR but borrows design elements from[Canon’s other DSLR cameras](https://www.lifewire.com/best-new-canon-cameras-493499) . Its shape and user interface layout are very similar to Canon’s EOS Rebel series.
@@ -87,13 +101,6 @@ Lifewire / Benjamin Zeman
  The DSLR-like body is nice because it has an extremely comfortable grip. Being so compact also means that controls on the right side are really easy to reach with one hand. Though the lightweight plastic body doesn’t feel very sturdy, the camera feels really good in our hands and would be great on a longer trip when you don’t want a lot of weight in your travel bag or around your shoulders.
 
  Overall, we loved the way this camera feels and found the design well suited to easy and intuitive use. The grip was even more comfortable than the Canon EOS Rebel T7 and the extremely powerful zoom lens let us take photos we couldn’t with the other lenses we have kicking around. Canon did a good job designing a compact, lightweight camera that looks more expensive than it actually is.
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Couldn’t be easier**
 
@@ -124,16 +131,10 @@ Lifewire / Benjamin Zeman
  The SX530 also offers both Wi-Fi and NFC sharing features. With Wi-Fi you can get your images off the camera and onto your Android or iOS device using Canon’s mobile app called Camera Connect. You can also use your mobile device as a remote control for the camera. You can change settings and trigger both photos and video recording. The NFC radio capabilities allow Android users to connect to the camera quickly and easily by tapping the two devices together. The camera has a dedicated button used to connect to your compatible devices with just one touch, which we found to be a really nice feature.
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Auto modes done right**
@@ -166,18 +167,18 @@ Lifewire / Benjamin Zeman
 
  The Canon PowerShot SX530 was a great little camera in its heyday, but in the contemporary market it’s not the best option for the price. The Panasonic Lumix FZ80 is a much better option and we know there’s plenty of other competition out there. If you can score the SX530 used for a great price go ahead and pull the trigger. At its current street price though, do yourself a favor and get something newer and more powerful.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Nikon COOLPIX P1000](https://www.lifewire.com/nikon-coolpix-p1000-review-4691097)
 * [Canon PowerShot SX70 HS](https://www.lifewire.com/canon-powershot-sx70-hs-review-4691077)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -217,5 +218,24 @@ Lifewire / Benjamin Zeman
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-enhancing-storytelling-with-jump-cuts-technique/"><u>[New] In 2024, Enhancing Storytelling with Jump Cuts Technique</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-total-command-mastery-powerdirector-review-and-guide-for-2024/"><u>[New] Total Command Mastery PowerDirector Review & Guide for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-tablet-showdown-analyzing-pros-and-cons-of-amazon-fire-vs-samsung/"><u>Best Tablet Showdown: Analyzing Pros and Cons of Amazon Fire Vs. Samsung</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-apple-iphone-12-why-its-a-game-changer/"><u>Comprehensive Analysis of the Apple iPhone 12: Why It's a Game-Changer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dont-miss-out-on-amazing-discounts-oneplus-dream-offers-today-only/"><u>Don't Miss Out on Amazing Discounts - OnePlus' Dream Offers Today Only!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/heimvision-a80s-sunrise-alarm-clock-revealed-enjoy-mornings-with-advanced-light-tech/"><u>HeimVision A80S Sunrise Alarm Clock Revealed: Enjoy Mornings with Advanced Light Tech</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-buyselladscom-can-elevate-your-blogging-business-to-new-heights/"><u>How BuySellAds.com Can Elevate Your Blogging Business to New Heights</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovo-tab-4-analysis-is-this-low-cost-tablet-worth-it-features-and-downfalls-uncovered/"><u>Lenovo Tab 4 Analysis: Is This Low-Cost Tablet Worth It? - Features & Downfalls Uncovered</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-cooldown-chart-on-vivo-y100t-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Vivo Y100t | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/puerto-rico/"><u>Puerto Rico:</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/showdown-which-is-better-apple-watch-s9-or-fitbit-charge-6/"><u>Showdown: Which Is Better? Apple Watch S9 or Fitbit Charge 6</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smart-shopping-for-roku-expert-review-and-pricing-guide/"><u>Smart Shopping for Roku: Expert Review & Pricing Guide</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/steps-to-resolve-unregistered-package-error-in-win11-images/"><u>Steps to Resolve Unregistered Package Error in Win11 Images</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-huawei-nova-y91-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Huawei Nova Y91 FRP Bypass</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unihertz-atom-xl-review-this-tiny-rugged-phone-is-a-pint-sized-powerhouse/"><u>Unihertz Atom XL Review: This Tiny Rugged Phone Is a Pint-Sized Powerhouse</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-lava-blaze-2-5g-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Lava Blaze 2 5G Device</u></a></li>
+</ul></div>
 

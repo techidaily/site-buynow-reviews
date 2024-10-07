@@ -1,7 +1,7 @@
 ---
 title: "Nintendo Game & Watch: Super Mario Bros. Review: A Retro Handheld"
-date: 2024-09-26T02:12:33.317Z
-updated: 2024-10-02T00:28:34.880Z
+date: 2024-10-01T07:32:04.968Z
+updated: 2024-10-06T16:54:55.643Z
 categories:
   - BestProducts
 description: "This Article Describes Nintendo Game & Watch: Super Mario Bros. Review: A Retro Handheld"
@@ -44,10 +44,10 @@ Lifewire / Emily Isaacs
 4.5
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Nintendo Game & Watch: Super Mario Bros
@@ -89,19 +89,6 @@ Lifewire / Emily Isaacs
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/RGM_gLdIp2jvsVG5LhRKLVw0nho=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_04-f94be735a5644020b52656e67a6c0465.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Emily Isaacs
 
  Nintendo Game & Watch: Super Mario Bros. arrives in a small package that is lovingly designed in the Game & Watch family feel. In addition to the instructional care packet, it also includes a charging cable. Some long-time Nintendo fans may be inclined to keep the box, due to the Game & Watch’s collectible nature.
@@ -113,25 +100,31 @@ Lifewire / Emily Isaacs
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/IzTLcGKhslJLE9YpMMkMKBV1BME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_03-5ca824e25f85464a83c9187541b0f059.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Gameplay: Challenging, but fun
@@ -156,6 +149,13 @@ Lifewire / Emily Isaacs
 
 Lifewire / Emily Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: Great value for the price
 
  Thanks to the Game & Watch’s lovely, classic retro design, sturdy frame, crisp and clear LCD screen, and great game content, retailing for only $50, the Nintendo Game & Watch: Super Mario Bros. is a great value for the price. We just wish there were more games included, especially as other similar classic releases such as the SNES mini have seen as many as 30 titles included with its launch.
@@ -165,6 +165,13 @@ Lifewire / Emily Isaacs
 Lifewire / Emily Isaacs
 
  For anyone looking to bring the Game & Watch home, they should be aware that while it brings the three included classic titles to life in a fun, exciting way, the Game & Watch doesn't add anything new to the Nintendo family. It caters to long-time Nintendo lovers and collectors, more than anything else.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Nintendo Game & Watch: Super Mario Bros. vs. Nintendo Switch
 
@@ -179,13 +186,6 @@ Lifewire / Emily Isaacs
  **A nostalgic throwback that collectors and gamers will love.**
 
  The Nintendo Game & Watch: Super Mario Bros. is a throwback to an older, simpler era of gaming that packs a wallop of a punch, bringing the challenge of the original Super Mario games and the original Game & Watch Ball title while making them accessible to a whole new generation of players. While we do wish Nintendo had included additional titles—who doesn’t want_more_ classic options when these are so fun—it’s no showstopper for enjoying this product.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -224,18 +224,22 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-incorporating-yt-playlists-into-web-design/"><u>[New] In 2024, Incorporating YT Playlists Into Web Design</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-unraveling-the-top-8-premium-free-srt-translation-websites/"><u>[Updated] 2024 Approved Unraveling the Top 8 Premium Free SRT Translation Websites</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On OnePlus Ace 3 | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/boosting-efficiency-upgrades-to-windows-11s-clipboard-history/"><u>Boosting Efficiency: Upgrades to Windows 11'S Clipboard History</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-smart-ring-video-doorbell-pro/"><u>Comprehensive Review of the Smart Ring Video Doorbell Pro</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dell-inspiron-3671-desktop-review/"><u>Dell Inspiron 3671 Desktop Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enhancing-laptop-speed-cpu-overhaul-possibilities/"><u>Enhancing Laptop Speed: CPU Overhaul Possibilities</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-next-level-gaming-with-the-alienware-aurora-r9-a-comprehvew-on-dells-futuristic-machine/"><u>Experience Next-Level Gaming with the Alienware Aurora R9: A Comprehvew on Dell’s Futuristic Machine</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-top-notch-internet-speed-and-value-with-the-tp-link-archer-a6-rigorous-review-of-an-ac12/"><u>Experience Top-Notch Internet Speed and Value with the TP-Link Archer A6 - Rigorous Review of an AC12지 루터</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-j5-tactical-v1-pro-flashlight-unmatched-sturdiness-meets-portability-in-nighttime-clarity/"><u>Expert Analysis of J5 Tactical V1-Pro Flashlight – Unmatched Sturdiness Meets Portability in Nighttime Clarity</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-vivo-y28-5g-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Vivo Y28 5G</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-top-cheap-4k-recording-systems/"><u>In 2024, Top Cheap 4K Recording Systems</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maximizing-value-the-lenovo-tab-m10-fhd-plus-review-highlights-its-large-and-vivid-screen-in-2020/"><u>Maximizing Value: The Lenovo Tab M10 FHD Plus Review Highlights Its Large and Vivid Screen in 2020</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-conversational-flow-in-cinematic-storytelling/"><u>[New] Conversational Flow in Cinematic Storytelling</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-innovative-approaches-to-producing-impressive-audio-teasers/"><u>[New] In 2024, Innovative Approaches to Producing Impressive Audio Teasers</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-crafting-perfect-tiktok-captions-the-ultimate-20-guide/"><u>[Updated] In 2024, Crafting Perfect TikTok Captions The Ultimate 20 Guide</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/counter-strike-2-sound-troubles-how-to-restore-your-mics-functionality/"><u>Counter-Strike 2 Sound Troubles: How to Restore Your Mic's Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-dreame-bot-l10-pro-advanced-sweeping-and-cleaning-autonomous-robot-powered-by-lidar/"><u>Expert Analysis of Dreame Bot L10 Pro: Advanced Sweeping & Cleaning Autonomous Robot Powered by LiDAR</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-differences-between-the-ipad-and-ipad-air-models/"><u>Exploring the Differences Between the iPad and iPad Air Models</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-powerhouse-features-of-xbox-series-x-your-comprehensive-guide-to-a-premium-4k-gaming-journey/"><u>Exploring the Powerhouse Features of Xbox Series X - Your Comprehensive Guide to a Premium 4K Gaming Journey</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/grade-a-performance-grade-a-style-the-comprehensive-review-of-samsung-galaxy-s1/"><u>Grade-A Performance, Grade-A Style: The Comprehensive Review of Samsung Galaxy S1지트</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-effective-ways-to-fix-checkra1n-error-31-on-iphone-13-pro-by-drfone-ios/"><u>In 2024, Effective Ways To Fix Checkra1n Error 31 On iPhone 13 Pro</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-leveraging-iphone-features-for-gif-storage-and-entertainment/"><u>In 2024, Leveraging iPhone Features for GIF Storage & Entertainment</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-secret-to-social-success-innovative-square-videography-tactics/"><u>In 2024, The Secret to Social Success Innovative Square Videography Tactics</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-to-turn-off-or-not-navigating-through-your-off-facebook-activities/"><u>In 2024, To Turn Off or Not Navigating Through Your Off-Facebook Activities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-gimp-your-go-to-no-cost-versatile-image-editing-solution-for-all-systems/"><u>In-Depth Analysis of GIMP: Your Go-To No-Cost, Versatile Image Editing Solution for All Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-qn55q60rafxza-smart-tv-an-experts-look-at-its-spectacular-4k-hdr10plus-features/"><u>Samsung QN55Q60RAFXZA Smart TV: An Expert's Look at Its Spectacular 4K, HDR10+ Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stanleys-large-jaw-crusher-j5c09-an-in-depth-review-for-heavy-duty-rock-breaking/"><u>Stanley's Large Jaw Crusher J5C09: An In-Depth Review for Heavy Duty Rock Breaking</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-5-essential-power-saving-strategies-for-windows-10-devices/"><u>Top 5 Essential Power-Saving Strategies for Windows 10 Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-more-on-the-new-samsung-galaxy-watch-active-2-improved-controls-insights/"><u>Unveiling More on the New Samsung Galaxy Watch Active 2: Improved Controls, Insights</u></a></li>
 </ul></div>
 

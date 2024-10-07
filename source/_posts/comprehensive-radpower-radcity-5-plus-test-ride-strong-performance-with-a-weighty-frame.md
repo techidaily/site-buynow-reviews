@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive RadPower RadCity 5 Plus Test Ride: Strong Performance with a Weighty Frame"
-date: 2024-09-25T18:56:01.383Z
-updated: 2024-10-02T01:03:43.181Z
+date: 2024-09-29T20:27:04.400Z
+updated: 2024-10-06T17:28:47.842Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive RadPower RadCity 5 Plus Test Ride: Strong Performance with a Weighty Frame"
@@ -44,13 +44,6 @@ Lifewire/Emily Ramirez
 
 4.6
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Amazon Fire TV Cube
 
 ![Fire TV Cube (2nd Generation)](https://www.lifewire.com/thmb/WzC13ETTqm-8PU2bc8-jh9O3G7c=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FireCubeTV_HeroSquare-484d7d80c4354681968a1ff7d19b9676.jpg)
@@ -80,6 +73,13 @@ Lifewire/Emily Ramirez
 
  Lifewire/Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Futuristic design powered by Alexa**
 
  The Fire TV Cube is a cute, futuristic-looking block that will stand out on your home console despite its 4-inch sides. On the outside, it’s virtually unchanged from the first-generation model. Across the top, there’s a blue LED bar that lights up whenever the Cube takes action. The sides of the cube have a glossy black finish that’s a fingerprint magnet. There’s volume and menu buttons on the top, as well, but we don’t foresee a lot of use for them considering that the Cube comes with a remote. In the back, there’s an[HDMI connector](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) , a power adapter port, and a micro USB port.
@@ -101,10 +101,10 @@ Lifewire/Emily Ramirez
  Once you have your cables connected and power flowing to the Cube, you now need to go through the software side of setup. It’ll ask you to connect to Internet, pick out some apps/channels, and log into your Amazon account.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Streaming Performance: Fast streaming and almost no buffering**
@@ -118,6 +118,13 @@ Lifewire/Emily Ramirez
 ![Fire TV Cube (2nd Generation)](https://www.lifewire.com/thmb/O-RbJQ9z0Q90LRS1tw4p-LYm-Xc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FIreCubeTV_03-525c653ed76f4b72bcd57495c1bc3142-55e4717a457d48aa8324c37542b70f01.jpg)
 
 Lifewire/Emily Ramirez
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Heavily biased toward Amazon services**
 
@@ -135,18 +142,18 @@ Lifewire/Emily Ramirez
 
 ![Fire TV Cube (2nd Generation)](https://www.lifewire.com/thmb/21Mjfh9xUyCrX05R6TQdh9JX64c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FireCubeTV_02-603b91304a21457c94312ceb97dfcf74.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire/Emily Ramirez
 
 ## **Price: On the expensive side**
 
  The Fire TV Cube costs $120, which is frankly a little expensive compared to the Fire TV Stick 4K or an Amazon Echo. However, if you want an Echo that’s also a media player, the Cube is your best option. It comes with excellent performance, control for IoT devices, built-in speaker and mic, and svelte looks. While it’s not the best value streaming device, it’s certainly a versatile and well-featured one.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Amazon Fire TV Cube vs. Roku Ultra**
 
@@ -159,13 +166,6 @@ Lifewire/Emily Ramirez
  **A powerful streaming device with lots of added functionality.**
 
  The Amazon Fire TV Cube is a fantastic streamer for those committed to the Alexa ecosystem. However, it’s a little expensive if you only want reliable 4K streaming, in which case you may be better served by the Fire TV Stick 4K or the Roku Streaming Stick+ for $50.
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -194,17 +194,14 @@ Lifewire/Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-layer-audio-onto-video-clips-in-premiere-pro/"><u>2024 Approved Layer Audio Onto Video Clips in Premiere Pro</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ace-your-shoots-with-the-top-ranking-dji-mavic-2-pro-examined-by-experts/"><u>Ace Your Shoots with the Top-Ranking DJI Mavic 2 Pro Examined by Experts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/apple-enthusiasts-rejoice-the-ultimate-freestyle2-blue-mac-app-review/"><u>Apple Enthusiasts Rejoice: The Ultimate Freestyle2 Blue Mac App Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/b550-xt-explored-masterful-voice-interaction-sound-shields/"><u>B550-XT Explored: Masterful Voice Interaction, Sound Shields</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-of-the-best-elite-uninterruptible-power-supplies-to-shield-your-tech/"><u>Best of the Best: Elite Uninterruptible Power Supplies to Shield Your Tech</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-substitutes-for-ms-office-the-2024-edition/"><u>Best Substitutes for MS Office: The 2024 Edition</u></a></li>
-<li><a href="https://discover-best.techidaily.com/cookiebot-elevating-web-performance-and-personalization/"><u>Cookiebot: Elevating Web Performance and Personalization</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-signs-that-youve-been-muted-by-someone/"><u>In 2024, Signs That You've Been Muted by Someone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/master-the-science-and-art-of-attention-grabbing-titles-for-2024/"><u>Master the Science and Art of Attention-Grabbing Titles for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/1723004596477-starfield-unable-to-boot-up-troubleshoot-your-steam-and-xbox-installations-here/"><u>Starfield Unable to Boot Up? Troubleshoot Your Steam and Xbox Installations Here!</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unique-video-monikers-brainstorming-insights-for-2024/"><u>Unique Video Monikers Brainstorming Insights for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-pro-tips-for-capturing-stunning-close-up-footage/"><u>[New] In 2024, Pro Tips for Capturing Stunning Close-Up Footage</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-a-guide-to-essential-asmr-video-facts/"><u>[Updated] A Guide to Essential ASMR Video Facts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-ready-to-fly-choices-in-rc-helicopters-spotlight-on-the-blade-e-flite-mcx2/"><u>Best Ready-To-Fly Choices in RC Helicopters - Spotlight on the Blade E-Flite mCX2</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-kobo-nia-appraisal-an-impressive-contender-against-kindle-devices/"><u>Comprehensive Kobo Nia Appraisal: An Impressive Contender Against Kindle Devices</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/eliminating-recurring-edge-shortcuts-on-desktop/"><u>Eliminating Recurring Edge Shortcuts on Desktop</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/essential-steps-to-get-your-podcast-on-app-store/"><u>Essential Steps to Get Your Podcast on App Store</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-google-pixel-5-balancing-midrange-performance-with-premium-features/"><u>In-Depth Analysis of the Google Pixel 5: Balancing Midrange Performance with Premium Features</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/maximizing-bargains-on-fbx-the-ultimate-walkthrough-for-setting-up-custom-marketplace-alerts/"><u>Maximizing Bargains on FBX: The Ultimate Walkthrough for Setting Up Custom Marketplace Alerts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-highlights-the-resilient-and-high-performance-capabilities-of-the-owc-mercure-pro/"><u>Review Highlights: The Resilient and High-Performance Capabilities of the OWC Mercure Pro</u></a></li>
 </ul></div>
 

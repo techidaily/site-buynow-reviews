@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Portable 360-Degree Camera – Theta SC2
-date: 2024-09-28T19:56:45.354Z
-updated: 2024-10-02T02:33:23.908Z
+date: 2024-10-05T02:55:59.336Z
+updated: 2024-10-07T07:10:02.560Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Portable 360-Degree Camera – Theta SC2
@@ -44,16 +44,16 @@ Lifewire / Erika Rawes
 
 4
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## SEGA Yakuza: Like a Dragon
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/2HQ40tAW6PvhutMT0JyWvwFpbdI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_HeroSquare-ea84381e359846e6951c77b6f7e7c5a0.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -112,10 +112,16 @@ Lifewire / Erika Rawes
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/ZvcwNcecc79umImvw53CUJlLvIc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_02-6396bcd8866c4a479331a02e160eb890.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -142,13 +148,6 @@ Lifewire / Erika Rawes
 
 Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Price: The typical $60
 
  The base version of Yakuza: Like a Dragon comes in at $60 like most new titles. The price is reasonable for the amount of gameplay. However, you have two other purchase options as well. The Hero Edition, which costs $70, includes the Job Set and the Management Mode set and features two extra jobs and three sets of Management mode employees.
@@ -156,10 +155,10 @@ Lifewire / Erika Rawes
  The Legendary Hero edition costs $90, and it includes both previously listed sets, as well as the Crafting Mat, Stat Boost, Karaoke, and Ultimate Costume sets. These are all nice bonuses and can certainly add to the experience, but you will also find more than enough gameplay in the base game.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Yakuza: Like a Dragon vs. Dragon Quest Series
@@ -173,10 +172,10 @@ Lifewire / Erika Rawes
  A well-crafted masterpiece. Yakuza: Like a Dragon falls into the must-play category for anyone who loves a good story, JRPGs, or a wild game that will make you laugh. It’s definitely a departure from the rest of the series, but that contributes to a lot of the fun and uniqueness of the game.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -184,6 +183,13 @@ Lifewire / Erika Rawes
 * [Cyberpunk 2077](https://www.lifewire.com/cyberpunk-2077-review-5113844)
 * [Godfall](https://www.lifewire.com/godfall-review-5095668)
 * [Torment: Tides of Numenera](https://www.lifewire.com/torment-tides-of-numenera-review-5077302)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -213,20 +219,15 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-unleash-creativity-in-youtube-short-video-production/"><u>[New] Unleash Creativity in YouTube Short Video Production</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-audiovisual-alchemy-transform-your-footage-with-these-5-vimeo-editing-methods/"><u>[Updated] 2024 Approved Audiovisual Alchemy Transform Your Footage with These 5 Vimeo Editing Methods</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-deep-dive-into-the-apple-macbook-air-13s-m1-202e-enhanced-capabilities-and-stunning-efficiency/"><u>A Deep Dive Into The Apple MacBook Air 13'S (M1, 202E) Enhanced Capabilities and Stunning Efficiency</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/acer-xfa240-user-guide-prioritizing-performance-and-usability/"><u>Acer XFA240 User Guide: Prioritizing Performance and Usability</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-wifi-excellence-unveiled-tp-link-archer-c9-in-depth-analysis/"><u>Affordable WiFi Excellence Unveiled - TP-Link Archer C9 In-Depth Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazon-luna-gaming-platform-analysis-exceptional-streaming-experience-unveiled/"><u>Amazon Luna Gaming Platform Analysis: Exceptional Streaming Experience Unveiled</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/analyzing-apples-iphone-12-pro-max-discover-how-more-is-merely-more-efficient/"><u>Analyzing Apple's iPhone 12 Pro Max - Discover How More Is Merely More Efficient.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722610966037-approach-to-solve/"><u>Approach to Solve</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/coalescing-iphone-media-with-ease-for-2024/"><u>Coalescing iPhone Media with Ease for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/dvdmacoswindows-11handbrake-libdvdcss/"><u>DVD转换手册：在macOS和Windows 11上使用HandBrake Libdvdcss进行播放</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fix-windows-10-synaptic-touchpad-not-responding-when-scrolling/"><u>Fix: Windows 10 Synaptic Touchpad Not Responding When Scrolling</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Tecno Pova 5 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722799968815-leading-htpc-reviews-find-your-perfect-media-center-setup-today/"><u>Leading HTPC Reviews - Find Your Perfect Media Center Setup Today</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-techniques-for-lowering-desktop-window-manager-resource-demand-on-windows-11-systems/"><u>Troubleshooting Techniques for Lowering Desktop Window Manager Resource Demand on Windows 11 Systems</u></a></li>
-<li><a href="https://discover-best.techidaily.com/understanding-the-limitations-of-the-ipad-promini-ns-video-playback-capabilities-supported-codecs-explored/"><u>Understanding the Limitations of the iPad Pro/Mini N's Video Playback Capabilities - Supported Codecs Explored</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-insights-into-instagrams-selfie-verification/"><u>[New] 2024 Approved Insights Into Instagram's Selfie Verification</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/est-practices-in-digital-image-creation-for-youtube-for-2024/"><u>[New] Best Practices in Digital Image Creation for YouTube for 2024</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/5-compelling-factors-against-downloading-a-chatgpt-mobile-app/"><u>5 Compelling Factors Against Downloading a ChatGPT Mobile App</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/enhance-your-workspace-slash-prices-enjoy-an-80-discount-on-the-superior-elegoo-neptune-3plus/"><u>Enhance Your Workspace, Slash Prices: Enjoy an $80 Discount on the Superior Elegoo Neptune 3+</u></a></li>
+<li><a href="https://some-tips.techidaily.com/kunt-u-wma-files-vrije-en-gratis-in-mov-omzetten-onlinemovavi/"><u>Kunt U WMA-Files Vrije en Gratis in MOV Omzetten - Onlinemovavi</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/mac-vlc-trimmer-the-best-way-to-shorten-videos-without-sacrificing-quality-for-2024/"><u>Mac VLC Trimmer The Best Way to Shorten Videos Without Sacrificing Quality for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-mobile-network-deals-a-comprehensive-guide/"><u>Top Rated Mobile Network Deals : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-printer-models-dominating-the-market/"><u>Top Rated Printer Models Dominating the Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-iphone-14-pro-protection-covers-2023s-ultimate-selection/"><u>Top-Rated iPhone 14 Pro Protection Covers - 2023'S Ultimate Selection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-iphone-15-leather-protectors-the-ultimate-selection/"><u>Top-Rated iPhone 15 Leather Protectors: The Ultimate Selection</u></a></li>
 </ul></div>
 
