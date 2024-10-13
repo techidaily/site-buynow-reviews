@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Review of the Razer Portal: A Gamer's Guide to Wi-Fi Connectivity"
-date: 2024-10-01T07:20:00.390Z
-updated: 2024-10-06T20:53:48.691Z
+date: 2024-10-05T20:23:22.273Z
+updated: 2024-10-13T01:56:50.350Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Review of the Razer Portal: A Gamer's Guide to Wi-Fi Connectivity"
@@ -45,13 +45,6 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/0gXsFyigpZzsnNAEj3tIrKImB8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jonno Hill
 
 [View On Amazon $35](https://www.amazon.com/dp/B01HQ4BRIG/?tag=lifewire-onsite-prod-20&ascsubtag=4843098%7Cnd0143d72158b4d609e6ef9a213c7445e18%7CB01HQ4BRIG) [View On Walmart $33](https://www.walmart.com/ip/Antennas-Direct-ECL-Clear-Stream-Eclipse-Sure-Grip-Indoor-HDTV-Antenna/146091443?slfpid=3)
@@ -75,18 +68,18 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/AbdriPZwiRfd8iHxT9N5E6Ae2hk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_03-d434cf7b4c5f4f73b08c8c220fd0d43e.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 ## **Design: Inoffensive but unexceptional**
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup: Simple and easy**
 
@@ -96,15 +89,22 @@ Lifewire / Jonno Hill
 
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Above average**
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: Fair to middling**
@@ -115,16 +115,16 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
@@ -163,18 +163,24 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-reviews.techidaily.com/1722559853852-dying-light-review-join-forces-leap-into-action-and-conquer-survival-challenges-together-a-co-op-first-person-parkour-adventure/"><u>'Dying Light' Review: Join Forces, Leap Into Action, and Conquer Survival Challenges Together – A Co-Op First-Person Parkour Adventure.</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-complete-vivacut-overview-editors-deep-dive/"><u>[New] The Complete VivaCut Overview Editor's Deep Dive</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-counteracting-bot-influence-for-higher-traffic/"><u>[Updated] 2024 Approved Counteracting Bot Influence for Higher Traffic</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-motorola-edgeplus-2023-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Motorola Edge+ (2023) Without Volume Buttons | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/acer-xfa240-analysis-where-utility-outshines-aesthetics/"><u>Acer XFA240 Analysis: Where Utility Outshines Aesthetics</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/all-about-the-next-gen-playstation-portal-availability-dates-cost-estimates-and-hardware-details/"><u>All About the Next-Gen PlayStation Portal: Availability Dates, Cost Estimates & Hardware Details</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/comprehensive-tutorial-remote-access-methods-for-samsung-smart-tv-owners/"><u>Comprehensive Tutorial: Remote Access Methods for Samsung Smart TV Owners</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/exploring-innovative-technology-with-tom-a-complete-guide/"><u>Exploring Innovative Technology with Tom - A Complete Guide</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-unveiling-the-best-5-tools-for-youtube-video-url-shortening/"><u>In 2024, Unveiling the Best 5 Tools for YouTube Video URL Shortening</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-essential-no-cost-android-microphone-recorders-reviewed/"><u>New Essential No-Cost Android Microphone Recorders Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-lenovo-thinkpad-x12-detachable-impressive-dual-mode-and-outstanding-keyboard-quality-reviewed/"><u>Unveiling the Lenovo ThinkPad X1^2 Detachable: Impressive Dual-Mode and Outstanding Keyboard Quality Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-most-expensive-iphone-an-elite-review-of-apples-iphone-xs-max/"><u>Unveiling the Most Expensive iPhone: An Elite Review of Apple's iPhone XS Max</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-pros-and-cons-of-communication-with-pidgin-instant-messaging/"><u>Unveiling the Pros and Cons of Communication with Pidgin Instant Messaging</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-enhance-stories-interaction-with-custom-queries-design/"><u>[New] Enhance Stories Interaction with Custom Queries Design</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-beyond-the-dance-understanding-copyright-pre-upload-for-2024/"><u>[Updated] Beyond the Dance Understanding Copyright Pre-Upload for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/applecare-plus-verdict-unveiling-its-inherent-value/"><u>AppleCare Plus Verdict: Unveiling Its Inherent Value</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/bestvalue-convertible-laptop-unpacking-the-asus-chromebook-flip-c302cas-excellent-features/"><u>BestValue #Convertible Laptop: Unpacking the Asus Chromebook Flip C302CA's Excellent Features</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722978309205-corsair-k70-full-driver-setup-and-download-instructions-online-now/"><u>Corsair K70 Full Driver Setup and Download Instructions Online Now!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-garmin-forerunner-e945-the-ultimate-gps-companion-for-fitness-enthusiasts/"><u>Expert Review: Garmin Forerunner E945 – The Ultimate GPS Companion for Fitness Enthusiasts</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/explore-the-top-5-snipping-utilities-for-chrome-os-users/"><u>Explore The Top 5 Snipping Utilities For Chrome OS Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-efficiency-in-wireless-connectivity-detailed-insights-into-the-powerful-linksys-velop-range-extender/"><u>Exploring Efficiency in Wireless Connectivity: Detailed Insights Into the Powerful Linksys Velop Range Extender</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-how-to-run-a-giveaway-facebook-post/"><u>In 2024, How to Run a Giveaway Facebook Post</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-budget-with-the-75-inch-caixun-4k-smart-tv-a-full-review/"><u>Maximizing Budget with the 75-Inch Caixun 4K Smart TV - A Full Review</u></a></li>
+<li><a href="https://windows11.techidaily.com/navigate-to-index-settings-on-windows/"><u>Navigate to Index Settings on Windows</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/outlook-vs-gmail-showdown-identifying-top-email-solutions-for-your-needs/"><u>Outlook Vs. Gmail Showdown: Identifying Top Email Solutions for Your Needs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pros-and-cons-the-ultimate-guide-to-the-garmin-forerunner-marathon-gps-watch/"><u>Pros and Cons: The Ultimate Guide to the Garmin Forerunner Marathon GPS Watch</u></a></li>
+<li><a href="https://windows11.techidaily.com/the-ultimate-guide-to-embellishing-system-tray-with-a-favorite-weather-symbol-in-windows-11/"><u>The Ultimate Guide to Embellishing System Tray With a Favorite Weather Symbol in Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-eligibility-when-to-prepare-for-your-next-phone-release/"><u>Unveiling Eligibility: When to Prepare for Your Next Phone Release</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-portable-powerhouse-the-pioneer-bdr-xs06s-blu-ray-burning-excellence-reviewed/"><u>Unveiling the Portable Powerhouse: The Pioneer BDR-XS06's Blu-Ray Burning Excellence Reviewed.</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-nokia-130-music-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Nokia 130 Music Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/whatsapps-bold-gamble-proves-successful/"><u>WhatsApp's Bold Gamble Proves Successful</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/which-reigns-supreme-comparing-outlook-and-gmail-for-your-business-needs/"><u>Which Reigns Supreme? Comparing Outlook and Gmail for Your Business Needs</u></a></li>
 </ul></div>
 

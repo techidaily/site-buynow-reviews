@@ -1,7 +1,7 @@
 ---
 title: "How the Dreame Bot L10 Pro Transforms Your Home: An In-Depth Evaluation of Its Mopping, Vacuuming, and LiDAR Capabilities"
-date: 2024-09-19T16:41:35.829Z
-updated: 2024-09-20T17:07:18.197Z
+date: 2024-10-08T23:08:38.512Z
+updated: 2024-10-13T02:48:20.758Z
 categories:
   - BestProducts
 description: "This Article Describes How the Dreame Bot L10 Pro Transforms Your Home: An In-Depth Evaluation of Its Mopping, Vacuuming, and LiDAR Capabilities"
@@ -45,6 +45,13 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Kelsey Simon
 
 [View On Amazon](https://www.amazon.com/Techland-Torment-Tides-Numenera-PlayStation-4/dp/B01N2VISUC/?tag=lifewire-onsite-prod-20&ascsubtag=5077302%7Cnac6eb02defc3413da4da5d4ed0dc77ea21%7CB01N2VISUC) [View On Steampowered.com](https://store.steampowered.com/app/272270/Torment%5FTides%5Fof%5FNumenera/) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/torment-tides-of-numenera/141986.html)
@@ -63,11 +70,25 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -83,13 +104,6 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
  Beyond this, the other major gameplay mechanic is a system of effort and inspiration. Every action you take will prompt you to use effort. This effort allows for your character to work harder at the chosen action, and thus gives your character a better chance of accomplishing their goal.
@@ -103,13 +117,6 @@ Lifewire / Kelsey Simon
  Overall, this game was a weak attempt at offering players the experience of a novel in[video game](https://www.lifewire.com/game-play-and-streaming-4781449) format. The storytelling is very heavy-handed. The writing is weak and full of repeated telling of things you can easily see on-screen around you. There’s little to no direction about where to go or what exactly you should be doing, and combined with the long paragraphs of text, things becomes boring fast. The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way. It’s just a shame that it gets buried under such heavy, inactive storytelling.
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Graphics: Outdated and simplistic**
 
@@ -129,6 +136,13 @@ Lifewire / Kelsey Simon
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Competition: Other story focused RPGs**
 
  There are quite a few other games available that are story-focused RPGs besides Tides of Numenera. Wasteland 2 (view on[Amazon](https://www.amazon.com/Wasteland-2-Directors-Cut-PlayStation-4/dp/B013CQHQFU/?tag=lifewire-onsite-prod-20&ascsubtag=5077302%7Cnac6eb02defc3413da4da5d4ed0dc77ea21%7C) ) is a very similar game, as it is made by the same developers, but where Numenera falls flat with its heavy-handed storytelling, Wasteland 2 stands apart with a fun, tactical combat system.
@@ -140,13 +154,6 @@ Lifewire / Kelsey Simon
  **A text-heavy RPG that doesn’t live up to its predecessor.**
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -169,5 +176,23 @@ Lifewire / Kelsey Simon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-streamlining-your-way-to-high-quality-android-recordings/"><u>[New] 2024 Approved Streamlining Your Way to High-Quality Android Recordings</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-no-cost-enjoyable-9-festive-feasts-in-one-wholesome-film-series/"><u>[New] In 2024, No Cost, Enjoyable 9 Festive Feasts in One Wholesome Film Series</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-complete-guide-to-crafting-youtube-masterpieces/"><u>[New] The Complete Guide to Crafting YouTube Masterpieces</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-pioneering-rpgs-rogelikes-and-their-descendants-for-2024/"><u>[Updated] Pioneering RPGs Rogelikes & Their Descendants for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unrivaled-tale-composers-hub/"><u>[Updated] Unrivaled Tale Composers Hub</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/advanced-movie-editing-saving-and-enhancing-mov-files-in-windows-11/"><u>Advanced Movie Editing Saving and Enhancing MOV Files in Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-top-wireless-range-enhancers-to-maximize-signal-strength/"><u>Comprehensive Review: Top Wireless Range Enhancers to Maximize Signal Strength</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/essential-solutions-for-6-typical-chatgpt-errors-you-should-know-about/"><u>Essential Solutions for 6 Typical ChatGPT Errors You Should Know About</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/harness-extreme-connectivity-with-our-anker-usb-30-superspeed-hub-assessment/"><u>Harness Extreme Connectivity with Our Anker USB 3.0 SuperSpeed Hub Assessment.</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Vivo S17t | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sleek-small-stunning-an-in-depth-analysis-of-the-samsung-galaxy-s10es-capabilities-and-price-point/"><u>Sleek, Small, Stunning - An In-Depth Analysis of the Samsung Galaxy S10e's Capabilities and Price Point</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-motorola-one-hyper-reviewed-exceptional-specs-and-value-for-a-budget-friendly-device/"><u>The Motorola One Hyper Reviewed - Exceptional Specs and Value for a Budget-Friendly Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-review-of-rings-enhanced-video-doorbell-pros-cons-and-price-analysis/"><u>Top Review of Ring's Enhanced Video Doorbell: Pros, Cons & Price Analysis</u></a></li>
+<li><a href="https://apple-account.techidaily.com/troubleshooting-error-connecting-to-the-apple-id-server-from-apple-iphone-12-pro-by-drfone-ios/"><u>Troubleshooting Error Connecting to the Apple ID Server From Apple iPhone 12 Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-youtube-tv-benefits-key-points-to-consider/"><u>Unlocking YouTube TV Benefits: Key Points to Consider</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-apples-new-wireless-desktop-the-impressive-features-of-imac-m1-reviewed/"><u>Unveiling Apple's New Wireless Desktop: The Impressive Features of iMac M1 Reviewed</u></a></li>
+</ul></div>
 

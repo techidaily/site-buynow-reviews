@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Sony Xperia 5: A Small Device with a Hefty Bill"
-date: 2024-09-18T17:16:12.518Z
-updated: 2024-09-20T18:51:12.449Z
+date: 2024-10-06T17:43:54.204Z
+updated: 2024-10-12T21:49:00.572Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring the Sony Xperia 5: A Small Device with a Hefty Bill"
@@ -43,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/450ec1b84e72a24dc748a4aee1ff3d014e9229d42
 [View On Amazon](https://www.amazon.com/dp/B078WG6DBH/?tag=lifewire-onsite-prod-20&ascsubtag=4796693%7Cn899f0376278d4881a5af76b596b54aa000%7CB078WG6DBH) [View On EBay](https://www.ebay.com/itm/Sony-XBR65X850F-65-Inch-4K-Ultra-HD-Smart-LED-TV-2018-Model/312237520273)
 
 3.6
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
@@ -91,10 +98,10 @@ thumbnail: https://thmb.techidaily.com/450ec1b84e72a24dc748a4aee1ff3d014e9229d42
  On the front of the screen, the bezels are a little thicker than some of the 4K TVs we’ve reviewed, but they’re pretty thin and shouldn’t distract. There’s your standard anti-glare coating found on the screen here too.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Stick to the on-screen instructions**
@@ -102,6 +109,13 @@ thumbnail: https://thmb.techidaily.com/450ec1b84e72a24dc748a4aee1ff3d014e9229d42
  Setting up pretty much any modern-day smart TV is an easy process, so just stick to the on-screen instructions and you’ll be golden. Go ahead and unpack it all, tear off that plastic film, plug in the power cable, and turn on the device.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vvIZMf3BNAr8JmiDAVdv4o3ceHg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-2-7eabd63fb6c0415ab75fd927d664a841.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -117,13 +131,6 @@ thumbnail: https://thmb.techidaily.com/450ec1b84e72a24dc748a4aee1ff3d014e9229d42
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/r5reh9LkA7QvieX1JzBg5J8qNjY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-5-00a73edbf91c48c6aa2718ab211f2e5d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
  However, IPS panels are notoriously bad for black uniformity and backlight bleed, which can cause clouding around the edges. We found this to be the case on our XBR65X850F, and while not unusable, it’s probably not the best option for viewing in dark environments because of this. The TV does have solid gray uniformity however, with no dirty screen effect. This is a huge boon if you’re a big sports fan.
@@ -138,6 +145,13 @@ thumbnail: https://thmb.techidaily.com/450ec1b84e72a24dc748a4aee1ff3d014e9229d42
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 ## **Audio Quality: Loud, but distorted**
@@ -147,10 +161,10 @@ thumbnail: https://thmb.techidaily.com/450ec1b84e72a24dc748a4aee1ff3d014e9229d42
  Right off the bat, this TV can get quite loud and you shouldn’t run into any volume issues. That being said, the overall experience is mediocre at best. The louder you turn it up, the more distortion is added. These speakers should suffice in quiet environments if you’re primarily looking for nice clear dialogue with treble and mid, but the bass is not so good.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: A bit sluggish but good enough**
@@ -174,13 +188,6 @@ thumbnail: https://thmb.techidaily.com/450ec1b84e72a24dc748a4aee1ff3d014e9229d42
  On Sony’s website, the 65-inch model we tested here is listed at $1,300, the 75 at $2,300, and the 85 at a whopping $4,000\. Now these prices aren’t exactly accurate, especially since these are an older series. Typically you can find the 65-inch for about $1,100 or so. The other models are also heavily discounted depending on where you look, so definitely shop around. It’s likely that you can snag them for even less during sales.
 
  But how do these prices stack up against comparable TVs from competitors like LG or Samsung? Taking a quick look around online, you can easily save a few hundred dollars by going with a comparable LG TV, while Samsung was pretty closely matched with Sony. In the end, the price for the X850F series isn’t the best bang for your buck, but it ain’t bad either.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Sony XBR65X850F vs. Samsung UN65RU8000**
 
@@ -227,5 +234,20 @@ thumbnail: https://thmb.techidaily.com/450ec1b84e72a24dc748a4aee1ff3d014e9229d42
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-keep-your-videos-secure-youtube-to-mp4-downloading-safely/"><u>[New] 2024 Approved Keep Your Videos Secure - YouTube-to-MP4 Downloading Safely</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-mastering-format-conversion-for-mac-screenshots-for-2024/"><u>[New] Mastering Format Conversion for Mac Screenshots for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-vibrant-visions-practical-color-application-skills/"><u>[Updated] In 2024, Vibrant Visions Practical Color Application Skills</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-ultimate-gecata-analyzer-report-for-2024/"><u>[Updated] Ultimate GECATA Analyzer Report for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/boost-performance-optimizing-nvidias-3d-settings-via-control-panel/"><u>Boost Performance: Optimizing NVIDIA's 3D Settings via Control Panel</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/demystifying-googles-advancements-palm-2-linguistic-powerhouse/"><u>Demystifying Google's Advancements: PaLM 2 Linguistic Powerhouse</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-fitbit-inspire-hr-your-perpetual-companion-in-personalized-wellness-and-activity-tracking/"><u>Evaluating the Fitbit Inspire HR: Your Perpetual Companion in Personalized Wellness and Activity Tracking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-pick-the-most-game-ready-iphone-expert-picks-and-reviews/"><u>How to Pick the Most Game-Ready iPhone: Expert Picks and Reviews</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-s21-a-step-down-from-predecessors/"><u>In-Depth Analysis of the Samsung Galaxy S21: A Step Down From Predecessors?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-a-wi-fi-mesh-system-justifiable/"><u>Is a Wi-Fi Mesh System Justifiable?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/prepise-mp4-do-gif-sestupne-a-kliknutelny-movavi-konverzer-na-internetu/"><u>Přepíše MP4 Do GIF Sestupně a Kliknutelný: Movavi Konverzér Na Internetu</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/score-amazing-discounts-exclusive-prime-day-prices-on-premium-tribit-audio-gear-and-value-packed-earbuds/"><u>Score Amazing Discounts: Exclusive Prime Day Prices on Premium Tribit Audio Gear and Value-Packed Earbuds!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-5-reasons-why-acer-aspire-e-15-deserves-its-spot-as-a-top-tier-affordable-laptop/"><u>Top 5 Reasons Why Acer Aspire E 15 Deserves Its Spot as a Top-Tier Affordable Laptop</u></a></li>
+</ul></div>
 

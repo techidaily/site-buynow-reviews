@@ -1,7 +1,7 @@
 ---
 title: "Saving External Media: A Comprehensive Guide on Exporting Images From MS Word"
-date: 2024-10-03T04:44:26.815Z
-updated: 2024-10-07T00:15:27.805Z
+date: 2024-10-08T23:01:45.196Z
+updated: 2024-10-12T18:26:29.481Z
 categories:
   - BestProducts
 description: "This Article Describes Saving External Media: A Comprehensive Guide on Exporting Images From MS Word"
@@ -41,16 +41,16 @@ Lifewire / Kelsey Simon
 
 2.7
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -69,13 +69,6 @@ Lifewire / Kelsey Simon
 * [Specs](https://www.lifewire.com/#toc-full-spec)
 
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
-
-<!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
@@ -97,13 +90,6 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
  Beyond this, the other major gameplay mechanic is a system of effort and inspiration. Every action you take will prompt you to use effort. This effort allows for your character to work harder at the chosen action, and thus gives your character a better chance of accomplishing their goal.
@@ -118,6 +104,13 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -126,13 +119,20 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Only worth it if you’re keen on the story**
@@ -178,14 +178,22 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/levating-your-vlogs-with-high-quality-editing-premiere-pro-style-for-2024/"><u>[New] Elevating Your Vlogs with High-Quality Editing - Premiere Pro Style for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-from-novice-to-pro-mastering-lenovos-capture-capabilities/"><u>[New] From Novice to Pro Mastering Lenovo's Capture Capabilities</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-craft-magical-time-lapse-video-using-a-gopro/"><u>[Updated] 2024 Approved Craft Magical Time Lapse Video Using a GoPro</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-short-form-success-strategic-hashtags-for-social-media-stardom/"><u>[Updated] 2024 Approved Short-Form Success Strategic Hashtags for Social Media Stardom</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/expert-tips-how-to-take-photos-and-record-gameplay-on-sony-playstation/"><u>Expert Tips: How to Take Photos and Record Gameplay on Sony PlayStation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-budget-routers-detailed-insights-into-the-tp-link-archer-a9-powerhouse-performance-for-less-than-100/"><u>Navigating Budget Routers: Detailed Insights Into the TP-Link Archer A9 - Powerhouse Performance for Less Than $100</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-world-of-tablets-choosing-based-on-screen-size-and-transportability-insights/"><u>Navigating the World of Tablets: Choosing Based on Screen Size & Transportability Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-through-lenovo-tab-4s-advantages-and-limitations-an-android-perspective/"><u>Navigating Through Lenovo Tab 4’S Advantages & Limitations: An Android Perspective</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-productivity-a-deep-dive-into-the-new-ipad-air-ipados-102-inch-tablet/"><u>Revolutionizing Productivity: A Deep Dive Into the New iPad Air (iPadOS) 10.2-Inch Tablet</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-get-laughter-in-minutes-install-and-revel-in-ifunnys-meme-world/"><u>[New] Get Laughter in Minutes Install and Revel in iFunny's Meme World</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-creative-edge-pushing-boundaries-in-photography/"><u>[New] The Creative Edge Pushing Boundaries in Photography</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/durable-urban-armor-backpack-for-your-macbook-pro-a-comprehensive-product-analysis/"><u>Durable Urban Armor Backpack for Your MacBook Pro - A Comprehensive Product Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/economical-luxe-illumination-with-studiokitxz/"><u>Economical Luxe Illumination with StudioKitXZ</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevating-your-network-expert-insights-on-the-features-and-flair-of-netgears-nighthawk-rax80-wireless-router/"><u>Elevating Your Network: Expert Insights on the Features and Flair of Netgear's Nighthawk RAX80 Wireless Router</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/glion-dolly-electrified-two-wheeler-reviewed-premium-design-impressive-velocity/"><u>Glion Dolly Electrified Two-Wheeler Reviewed: Premium Design, Impressive Velocity</u></a></li>
+<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-8-plus-to-the-previous-ios-system-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 8 Plus to the Previous iOS System Version? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-or-downgrade-apple-iphone-x-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade Apple iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-realme-narzo-60-5g-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Realme Narzo 60 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-samsung-galaxy-a25-5g-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Samsung Galaxy A25 5G Device</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-the-frozen-start-page-of-windows-10-efficient-troubleshooting-steps/"><u>Overcoming the Frozen Start Page of Windows 10 - Efficient Troubleshooting Steps</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-un65nu8000fxza-review-a-mediocre-smart-tv-at-a-high-price/"><u>Samsung UN65NU8000FXZA Review: A Mediocre Smart TV at a High Price</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-transition-of-user-identities-facebook-naming-change-guide/"><u>Seamless Transition of User Identities: Facebook Naming Change Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-performance-checked-an-in-depth-look-at-the-philips-somneo-alarm-clock/"><u>Top Performance Checked – An In-Depth Look at the Philips Somneo Alarm Clock</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/triumphant-zenith-multi-pod-analysis/"><u>Triumphant Zenith Multi-Pod Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-lenovos-budget-tab-with-stunning-hd-display/"><u>Ultimate Guide to Lenovo's Budget Tab with Stunning HD Display</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-the-samsung-galaxy-note-9-reigns-supreme-in-phablet-territory/"><u>Why the Samsung Galaxy Note 9 Reigns Supreme in Phablet Territory</u></a></li>
 </ul></div>
 

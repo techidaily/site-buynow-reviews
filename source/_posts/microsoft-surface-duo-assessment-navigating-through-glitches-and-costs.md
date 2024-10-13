@@ -1,7 +1,7 @@
 ---
 title: "Microsoft Surface Duo Assessment: Navigating Through Glitches & Costs"
-date: 2024-09-16T16:30:28.781Z
-updated: 2024-09-20T17:35:28.087Z
+date: 2024-10-11T17:03:57.165Z
+updated: 2024-10-12T17:46:54.129Z
 categories:
   - BestProducts
 description: "This Article Describes Microsoft Surface Duo Assessment: Navigating Through Glitches & Costs"
@@ -43,9 +43,23 @@ Lifewire / Gannon Burgett
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Microsoft Surface Studio 2
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/NDm3E4PyU6ziij20SUPJFRRc6pY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4045927-1-64302c6de74c465d96dcc32ed60ef388.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -73,6 +87,13 @@ Lifewire / Gannon Burgett
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/qqvEiRPOz2etUltaB7qksjgtD6M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-5-62b14c26664249e3aaad156acf787b34.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
 ## **Design: A modern marvel of engineering**
@@ -97,20 +118,14 @@ Lifewire / Gannon Burgett
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/2YGEvu4_h4VAgUiecjNAvd56F9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-7-0e52038c30364530a5a9bd0ac7011cb7.jpg)
 
-<!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Gannon Burgett
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Display: A treat for your eyes**
 
@@ -123,13 +138,6 @@ Lifewire / Gannon Burgett
  The Zero Gravity hinge allows it for easy adjustment, letting us use it at almost, ranging from nearly flat to fully upright. If you have the Surface Dial you can also unlock a lot of functionality when it comes to photo and video editing. Its omission despite the high price of the Studio feels like a big downside.
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/WBpMM3f4iH20J7-9H_NzD1zeBl4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-8-22d53ea12b7c48988b4840af9fb744c4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -157,21 +165,7 @@ Lifewire / Gannon Burgett
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/rkvuGygIghO9k9Je4rikzH5HvaE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-4-1b719f36dcb3448c9da40160faa18954-a32c44e2f9ca4ed3b4d670458dc6d5f0.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Gannon Burgett
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Camera: Decent and usable**
 
@@ -194,15 +188,28 @@ Lifewire / Gannon Burgett
  Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: One word—ridiculous**
 
  At $3,499 MSRP, the Surface Studio 2 is incredibly expensive for the specs it offers. It’s twice as costly as the 21.5-inch 4K iMac ($1,299) and the base model of the 27-inch iMac ($1,799). The Surface Studio 2 is clearly trying to compete with the $4,999 iMac Pro, but with its older hardware and sometimes clunky software, it’s simply not as good of an experience for professionals and creatives, most of whom can get by with the more affordable iMac models anyway.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: More affordable rivals, but lacking effective touchscreens**
 
@@ -255,5 +262,24 @@ Lifewire / Gannon Burgett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-mac-gif-perfection-best-recorder-showcase/"><u>[New] Mac GIF Perfection Best Recorder Showcase</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-snappy-gaming-moments-with-these-top-5-recording-strategies-on-windows-11/"><u>[New] Snappy Gaming Moments with These Top 5 Recording Strategies on Windows 11</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-channel-conclusion-mastery-customized-screens-in-focus/"><u>[Updated] 2024 Approved Channel Conclusion Mastery Customized Screens in Focus</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essential-video-concepts-fueling-creativity-in-youtube-channels/"><u>[Updated] In 2024, Essential Video Concepts Fueling Creativity in YouTube Channels</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-jaco-smartpro-digital-tire-inflator-evaluation-the-ultimate-portable-and-effective-solution/"><u>Comprehensive Jaco SmartPro Digital Tire Inflator Evaluation: The Ultimate Portable & Effective Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-powerful-fusion-of-style-and-functionality-in-the-thinkpad-x1-titanium-2-in-1-laptop-review/"><u>Discover the Powerful Fusion of Style and Functionality in the ThinkPad X1 Titanium 2-in-1 Laptop Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-premier-collection-of-17-inch-laptops-for-2aturne/"><u>Discover the Premier Collection of 17-Inch Laptops for 2Aturne</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/examining-the-lenovo-p11-pro-a-top-notch-tablet-with-certain-imperfections/"><u>Examining the Lenovo P11 Pro: A Top-Notch Tablet with Certain Imperfections</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-the-future-of-computing-m1-powered-ipad-pro-2n-review-a-new-era-for-high-performance-tablets/"><u>Experience the Future of Computing: M1-Powered iPad Pro (2N) Review – A New Era for High-Performance Tablets!</u></a></li>
+<li><a href="https://driver-install.techidaily.com/fast-windows-drivers-refresher/"><u>Fast Windows Drivers Refresher</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/from-standard-to-stunning-applying-filters-in-zoom-step-by-step/"><u>From Standard to Stunning Applying Filters in Zoom Step-by-Step</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-motorola-razr-40-ultra-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Motorola Razr 40 Ultra Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-free-youtube-endings-that-stand-out-ranked/"><u>In 2024, Free YouTube Endings That Stand Out - Ranked!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-acer-chromebook-15-assessment-high-performance-with-large-display/"><u>In-Depth Acer Chromebook 15 Assessment - High Performance with Large Display</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-michael-kors-access-gen-5e-mkgo-sophistication-meets-technological-smarts/"><u>In-Depth Analysis of the Michael Kors Access Gen 5E MKGO: Sophistication Meets Technological Smarts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-lenovo-thinkpad-x1-titanium-yoga-the-perfect-choice-for-loyal-thinkpad-users/"><u>Ultimate Guide: Lenovo ThinkPad X1 Titanium Yoga - The Perfect Choice for Loyal ThinkPad Users</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-how-to-make-an-audio-book-with-ease-a-complete-guide/"><u>Updated How to Make an Audio Book with Ease A Complete Guide</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Stanley J5C09 Examined: Powerful Performance in a Big Package"
-date: 2024-10-04T07:02:13.053Z
-updated: 2024-10-07T09:54:12.451Z
+date: 2024-10-09T02:20:04.423Z
+updated: 2024-10-12T16:16:48.854Z
 categories:
   - BestProducts
 description: "This Article Describes Stanley J5C09 Examined: Powerful Performance in a Big Package"
@@ -48,13 +48,6 @@ thumbnail: https://thmb.techidaily.com/50f06f10102684400d0f9b1cdbff97cb986996be6
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Tony Mitera
 
 [View On EBay](https://www.ebay.com/p/563813511)
@@ -78,6 +71,13 @@ thumbnail: https://thmb.techidaily.com/50f06f10102684400d0f9b1cdbff97cb986996be6
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: A lot of power packed into a small frame**
 
  The Beatit Jump Starter D11’s main unit's effectively a small black brick with red accents. Roughly the size of a small paperback book, the unit's constructed out of durable plastic and features a flashlight at one end. Along one of the long sides there's a small display that shows battery status, the on/off switch, two USB power outputs, and the device’s charging port. On the opposing side a rubber flap covers the jumper cable port; a unique port that the jumper cable accessory plugs in to.
@@ -88,6 +88,13 @@ thumbnail: https://thmb.techidaily.com/50f06f10102684400d0f9b1cdbff97cb986996be6
 
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: It can’t realistically be much simpler**
 
  Should you find yourself in a situation where you need to use the jump start functionality of the Beatit Jump Starter D11, you'll find it quite easy to use. On our Elantra test vehicle we simply had to pop the hood, bring the unit over, and plug the jumper cable accessory into its port. Once in place getting a proper connection is a simple matter of attaching the red clamp to the positive battery terminal and then the black clamp to the negative terminal. With a firm connection in place we simply had to set the unit down someplace where the vibration of the engine wouldn’t make it slide and then start the car. With the unit in place the car immediately started with zero hesitation, at which point we could disconnect the unit and get back on the road.
@@ -96,13 +103,6 @@ thumbnail: https://thmb.techidaily.com/50f06f10102684400d0f9b1cdbff97cb986996be6
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Plenty of power for all your needs**
 
  Time and again, the Beatit Jump Starter D11 was able to get a car with a very[depleted battery](https://www.lifewire.com/car-batteries-are-made-to-die-534765) started. Even after repeated testing the unit’s own battery only dropped down to 85% capacity.
@@ -110,6 +110,13 @@ thumbnail: https://thmb.techidaily.com/50f06f10102684400d0f9b1cdbff97cb986996be6
  Charging a phone with a jump starter seems like overkill, and the unit’s ability to charge at 1,200mAh confirms that impression. At such an elevated level of charging your phone or other device will likely get its battery topped off in very little time. With 18,000mAh of capacity you can fully charge a modern phone at least twice, and still leave the unit with the juice it needs in order to start a car.
 
  Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
@@ -120,10 +127,10 @@ thumbnail: https://thmb.techidaily.com/50f06f10102684400d0f9b1cdbff97cb986996be6
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A ton of value for a tiny cost**
@@ -131,13 +138,6 @@ thumbnail: https://thmb.techidaily.com/50f06f10102684400d0f9b1cdbff97cb986996be6
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
@@ -186,17 +186,21 @@ thumbnail: https://thmb.techidaily.com/50f06f10102684400d0f9b1cdbff97cb986996be6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ow-to-broadcast-your-online-meeting-via-youtube-google-meet-steps/"><u>[New] How To Broadcast Your Online Meeting via YouTube - Google Meet Steps</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-soundscape-adjustments-fading-volume-with-precision-in-logic-pro/"><u>[Updated] Soundscape Adjustments Fading Volume with Precision in Logic Pro</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-world-of-google-ar-accessories-and-beyond/"><u>[Updated] The World of Google AR Accessories, and Beyond</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/10-exciting-neural-network-options-for-your-phone-beyond-gpt/"><u>10 Exciting Neural Network Options for Your Phone Beyond GPT</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-hdr-tutorial-for-exceptional-portraits/"><u>2024 Approved The Ultimate HDR Tutorial for Exceptional Portraits</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/accelerated-image-editing-your-path-to-masterful-windows-photo-work-for-2024/"><u>Accelerated Image Editing Your Path to Masterful Windows Photo Work for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-tecno-spark-20-proplus-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Tecno Spark 20 Pro+ to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/solutions-to-spy-on-apple-iphone-6-plus-with-and-without-jailbreak-drfone-by-drfone-virtual-ios/"><u>Solutions to Spy on Apple iPhone 6 Plus with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-list-of-microsoft-office-replacements/"><u>The Ultimate List of Microsoft Office Replacements</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-leading-asus-wifi-routers/"><u>Ultimate Selection: Leading Asus WiFi Routers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlock-fabulous-discounts-the-ultimate-oneplus-sale-event-of-the-year/"><u>Unlock Fabulous Discounts: The Ultimate OnePlus Sale Event of the Year!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/whisker-watch-party-family-laughter-with-pets/"><u>Whisker Watch Party: Family Laughter with Pets</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-effortlessly-edit-images-using-snapseed-tips/"><u>[Updated] 2024 Approved Effortlessly Edit Images Using Snapseed Tips</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-clear-vision-how-to-cut-out-image-clutter-on-photopea/"><u>2024 Approved Clear Vision How to Cut Out Image Clutter on Photopea</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ace-cooking-techniques-in-minutes-7-surprising-ways-chatgpt-can-help-you/"><u>Ace Cooking Techniques in Minutes: 7 Surprising Ways ChatGPT Can Help You</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/effortless-system-protection-the-ultimate-guide-to-automating-backups-in-windows-1187-with-top-rated-freeware-tools/"><u>Effortless System Protection: The Ultimate Guide to Automating Backups in Windows 11/8/7 with Top-Rated Freeware Tools</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elite-collection-of-mobile-gaming-masterpieces-ranked-1-8/"><u>Elite Collection of Mobile Gaming Masterpieces Ranked #1-#8</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-time-2nd-year-at-mondly-languages-and-bold-dreams/"><u>Embracing Time: 2Nd Year at Mondly Languages and Bold Dreams</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhance-your-training-routine-with-garmin-vivoactive-3s-music-feature-for-athletes/"><u>Enhance Your Training Routine with Garmin Vivoactive 3'S Music Feature for Athletes</u></a></li>
+<li><a href="https://techidaily.com/how-to-hard-reset-google-pixel-fold-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Google Pixel Fold Without Password | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Samsung Galaxy F04? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-lenovo-chromebook-duet-an-economical-convertible-device/"><u>In-Depth Look at the Lenovo Chromebook Duet: An Economical Convertible Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-price-quality-debate-an-in-depth-review-of-the-samsung-un65nu8000fxza-smart-tv/"><u>The Price-Quality Debate: An In-Depth Review of the Samsung UN65NU8000FXZA Smart TV</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-ring-video-doorbell-2-a-top-pick-review/"><u>Ultimate Guide to the Ring Video Doorbell 2: A Top Pick Review</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlock-special-privileges-in-the-city-how-owning-an-ev-gets-you-premium-parking-and-fast-track-lanes/"><u>Unlock Special Privileges in the City: How Owning an EV Gets You Premium Parking and Fast Track Lanes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-photoscape-a-detailed-overview-of-the-premier-no-cost-graphic-editor/"><u>Unveiling PhotoScape: A Detailed Overview of the Premier, No-Cost Graphic Editor</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unwired-vinyl-magic-audio-technicas-lp60xbt/"><u>Unwired Vinyl Magic: Audio-Technica's LP60XBT</u></a></li>
+<li><a href="https://common-error.techidaily.com/windows-11-volume-control-not-working-solved/"><u>Windows 11 Volume Control Not Working [SOLVED]</u></a></li>
 </ul></div>
 

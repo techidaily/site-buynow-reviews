@@ -1,7 +1,7 @@
 ---
 title: In-Depth Look at the Superior Microsoft Surface Laptop 4 Experience
-date: 2024-09-16T18:44:07.928Z
-updated: 2024-09-20T17:28:21.495Z
+date: 2024-10-09T16:22:10.249Z
+updated: 2024-10-12T22:34:27.228Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Look at the Superior Microsoft Surface Laptop 4 Experience
@@ -47,6 +47,13 @@ Lifewire / Andy Zahn
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Microsoft Surface Laptop Go
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/fvtiWpBnRJ1dR-89xJ_kOkkEUSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_Hero5x4-c5d70a06640a47aca3f64903cf5af851.jpg)
@@ -82,6 +89,13 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/DZ-_Yk02QL0fYrm0o3TDO7zXv3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_05-e2623904845848a3841272c93ab139f1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
  The keyboard and trackpad really steal the show here, as they are exceptionally high quality for a laptop in this price range. The keyboard is quiet and tactile with soft, almost luxurious keycaps. I was able to write this review on it quite comfortably. The trackpad is one of the best I’ve seen on a laptop of this size. It’s large, easy to use, and compares very well to the top-notch trackpads on the[Dell XPS 13](https://www.lifewire.com/dell-xps-13-9370-review-4779836) . For navigation, the Surface Laptop Go also has a touchscreen, which I found to be responsive and accurate.
@@ -89,13 +103,6 @@ Lifewire / Andy Zahn
  The audio quality of the built-in speakers in the Surface Laptop Go is remarkably good for such a thin and light device.
 
  Port selection is rather limited, with a[USB-C](https://www.lifewire.com/usb-c-4149490) port, a USB-A port, a 3.5mm audio jack, and a Surface Connect port which is used for power but can also be used to connect to a Surface Dock. This is really the bare minimum for I/O, and was one of the most frustrating issues for me when using the device.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Display: Ideal for productivity**
 
@@ -117,13 +124,6 @@ Lifewire / Andy Zahn
 
  The Surface Laptop Go is certainly not the most powerful laptop around, but with 8GB of RAM, an Intel Core i5-1035G1 CPU, and a fast solid-state drive for storage it feels zippy and responsive.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Decent power for the price**
 
  The Surface Laptop Go is certainly not the most powerful laptop around, but with 8GB of RAM, an Intel Core i5-1035G1 CPU, and a fast solid-state drive for storage it feels zippy and responsive. It’s competent for most productivity tasks, including light photo editing, word processing, and web browsing, essentially filling the same niche as a Chromebook.
@@ -135,13 +135,6 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
  Another limiting factor is the storage capacity of the Surface Laptop Go. The configuration I tested only had 128GB of space on its solid-state drive, and the maximum configuration only comes with 256GB. You’re not going to be storing a lot of data locally on this machine forcing you to resort to cloud storage most of the time.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Connectivity: Modern hardware**
 
@@ -155,13 +148,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software: A decision to make**
 
  The Surface Laptop Go ships with[Windows 10](https://www.lifewire.com/windows-10-2626217) in[S mode](https://www.lifewire.com/what-is-windows-10-s-4173113#:~:text=Windows%2010%20in%20S%20mode%20can%20only%20run%20Windows%20apps,and%20potentially%20longer%20battery%20life.) . This means that the device gains an extra degree of security, but also that it’s limited to apps available in the Windows Store. However, you can take the computer out of S mode to use a fully-functional version of Windows 10\. However, think carefully before doing so because there’s no going back.
@@ -170,13 +156,34 @@ Lifewire / Andy Zahn
 
  In terms of bloatware, the laptop came with a few pre-installed apps: a Microsoft Office trial, Adobe Photoshop Express, and a few other odds and ends. However, it’s all easily removed if you so choose, and doesn’t really get in the way.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Reasonable Value**
 
  With an MSRP of $549, the Surface Laptop Go offers high-end build quality at a mid-range price point. It’s hard to find a laptop in this price range that looks this good and is so eminently usable. Of course, that price might be higher depending upon the configuration you go with.
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/_QEntMJEPlaXArgv2l576Qnr7MU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_04-21f4f7c4d0f54436bb1449bf36a42460.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Microsoft Surface Laptop Go vs. HP Pavilion 14 HD**
 
@@ -192,16 +199,23 @@ Lifewire / Andy Zahn
 
  The Microsoft Surface Laptop Go looks and feels like a much more expensive device. It’s thin and light, with a great keyboard and trackpad paired with fast and responsive components. This is an ideal option for anyone who needs an affordable ultra-portable laptop for work, school, or travel.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
 * [Google Pixelbook Go](https://www.lifewire.com/google-pixelbook-go-review-4797012)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -232,5 +246,22 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-screen-partition-prowess-top-recorders-rating-for-2024/"><u>[New] Screen Partition Prowess Top Recorder's Rating for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-augmenting-visual-appeal-implementing-black-bar-and-box-on-fb/"><u>[Updated] Augmenting Visual Appeal Implementing Black Bar & Box on FB</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-delight-with-ddpai-mini3-a-refreshing-take-on-car-safety-cameras/"><u>Discovering Delight with Ddpai Mini3: A Refreshing Take on Car Safety Cameras</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/enhance-graphics-for-stunning-visuals/"><u>Enhance Graphics for Stunning Visuals</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-on-the-tp-link-archer-c9-best-choice-for-savvy-shoppers/"><u>Expert Analysis on the TP-Link Archer C9 - Best Choice for Savvy Shoppers</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-from-iphone-13-pro-max-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code From iPhone 13 Pro Max in the Best Ways</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-look-at-netgears-nighthawk-rax80-a-stunning-wi-fi-instruction/"><u>Inside Look at Netgear's Nighthawk RAX80 - A Stunning Wi-Fi # Instruction</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-lightweight-jump-starters-2024/"><u>Leading Lightweight Jump Starters 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/quick-solutions-to-get-your-windows-spotlight-feature-up-and-running-again/"><u>Quick Solutions to Get Your Windows Spotlight Feature Up and Running Again</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/simple-steps-to-display-your-fps-in-counter-strike-global-offensive/"><u>Simple Steps to Display Your FPS in Counter-Strike: Global Offensive</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-elite-eight-a-guide-to-the-best-mobile-games-on-the-market-now/"><u>The Elite Eight: A Guide to the Best Mobile Games on the Market Now</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-move-to-windows-11-pro-from-homes/"><u>The Ultimate Move to Windows 11 Pro From Homes</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unlock-fb-potential-with-2023s-top-free-tools-for-posts-for-2024/"><u>Unlock FB Potential with 2023’S Top-Free Tools for Posts for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-aukey-usb-hub-30-a-stylish-straightforward-top-pick-for-rapid-connectivity/"><u>Unveiling the Aukey USB Hub 3.0: A Stylish, Straightforward Top Pick for Rapid Connectivity</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/z7-review-nearly-perfect-practically-exceptional-photography/"><u>Z7 Review: Nearly Perfect, Practically Exceptional Photography</u></a></li>
+</ul></div>
 

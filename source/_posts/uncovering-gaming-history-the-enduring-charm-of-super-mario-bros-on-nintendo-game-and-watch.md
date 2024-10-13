@@ -1,7 +1,7 @@
 ---
 title: "Uncovering Gaming History: The Enduring Charm of Super Mario Bros on Nintendo Game & Watch"
-date: 2024-09-13T08:02:13.776Z
-updated: 2024-09-15T02:32:05.472Z
+date: 2024-10-06T21:13:45.806Z
+updated: 2024-10-12T20:25:18.192Z
 categories:
   - BestProducts
 description: "This Article Describes Uncovering Gaming History: The Enduring Charm of Super Mario Bros on Nintendo Game & Watch"
@@ -38,6 +38,13 @@ Lifewire / Emily Isaacs
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Nintendo Game & Watch: Super Mario Bros
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/Gqz0Wb1wB-1ecipbSoEbqeuT3EU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_HeroSquare-c0176be04bfb4d83b2f7724b1332c18b.jpg)
@@ -65,6 +72,13 @@ Lifewire / Emily Isaacs
 
  What better way to celebrate both of their birthdays than by bringing both titles together for a self-contained wombo-combo celebrating their 40th and 35th anniversaries respectively? I put the handheld to the test for three weeks.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Retro, bold look & feel
 
  From the moment you pick up and pop open the box, the design oozes old-school cool and nostalgia. It’s a special edition release—and it feels like it. Intentionally stylized black and gold packaging, which resembles the retro feel of the 1980s Game & Watch classic titles, is a familiar and warm return to an era.
@@ -86,13 +100,6 @@ Lifewire / Emily Isaacs
  The Nintendo Game & Watch: Super Mario Bros. is a pick-up and play device. Simply open the box and remove the console from its shipment packaging, press the power button on the right-hand side, click the Time button to set your clock for the included Watch mode, and then you’re all set to enjoy the preloaded Super Mario Bros_._ and Ball games. It arrives with a partial charge.
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/IzTLcGKhslJLE9YpMMkMKBV1BME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_03-5ca824e25f85464a83c9187541b0f059.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -116,14 +123,14 @@ Lifewire / Emily Isaacs
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/PvTcnsQLDp7SFCPIeHreGfS-dgM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_05-01b731a5406d4cbfa37be90277c6e89b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Price: Great value for the price
 
@@ -131,16 +138,16 @@ Lifewire / Emily Isaacs
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/Te3HyEg18zLT9zKT-eZuFtev8So=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_02-6af770f871344e16ad3f45320d46d52a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Emily Isaacs
 
  For anyone looking to bring the Game & Watch home, they should be aware that while it brings the three included classic titles to life in a fun, exciting way, the Game & Watch doesn't add anything new to the Nintendo family. It caters to long-time Nintendo lovers and collectors, more than anything else.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Nintendo Game & Watch: Super Mario Bros. vs. Nintendo Switch
 
@@ -156,18 +163,24 @@ Lifewire / Emily Isaacs
 
  The Nintendo Game & Watch: Super Mario Bros. is a throwback to an older, simpler era of gaming that packs a wallop of a punch, bringing the challenge of the original Super Mario games and the original Game & Watch Ball title while making them accessible to a whole new generation of players. While we do wish Nintendo had included additional titles—who doesn’t want_more_ classic options when these are so fun—it’s no showstopper for enjoying this product.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Nintendo Switch Lite](https://www.lifewire.com/nintendo-switch-lite-review-4788015)
 * [Xbox One X](https://www.lifewire.com/xbox-one-x-review-4707143)
 * [PlayStation 4 Pro](https://www.lifewire.com/playstation-4-pro-review-4707193)
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -198,5 +211,23 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-precise-screen-record-azs-full-app-dissection/"><u>[New] Precise Screen Record - AZ's Full App Dissection</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-ranking-of-phones-excellent-at-mobile-video-production/"><u>[Updated] Ranking of Phones Excellent at Mobile Video Production</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-infinix-note-30-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Infinix Note 30 FRP</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-video-doorbells-under-50-iseebell-reviews-and-comparison/"><u>Affordable Video Doorbells Under $50: ISeeBell Reviews & Comparison</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/boost-engagement-posting-twitter-videos-on-snapchat/"><u>Boost Engagement Posting Twitter Videos on Snapchat</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/easy-connection-tricks-for-perfectly-pairing-your-logitech-mouse/"><u>Easy Connection Tricks for Perfectly Pairing Your Logitech Mouse</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-how-to-make-your-memoji-talk-get-creative-with-your-messaging/"><u>In 2024, How To Make Your Memoji Talk? Get Creative With Your Messaging</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-12-prominent-samsung-galaxy-z-flip-5-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Samsung Galaxy Z Flip 5 Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transforming-living-spaces-the-ultimate-review-of-amazons-latest-echo-show-10-gen-3-with-motion-features/"><u>Transforming Living Spaces: The Ultimate Review of Amazon's Latest Echo Show 10 Gen 3 with Motion Features</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-and-repairing-the-notorious-black-screen-issue/"><u>Troubleshooting and Repairing the Notorious Black Screen Issue</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-choosing-the-perfect-cable-modem-and-router-setup/"><u>Ultimate Guide to Choosing the Perfect Cable Modem & Router Setup</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-evaluating-the-apple-books-store-and-reading-app/"><u>Ultimate Guide: Evaluating the Apple Books Store and Reading App</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-ultra-hd-gaming-in-depth-look-at-the-playstation-4-pro-and-its-4k-capabilities/"><u>Unleashing Ultra HD Gaming: In-Depth Look at the PlayStation 4 Pro and Its 4K Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/upgrading-gpus-for-peak-performance-on-laptops/"><u>Upgrading GPUs for Peak Performance on Laptops</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/user-satisfaction-report-in-depth-review-of-anthropics-smart-photo-editing-tool/"><u>User Satisfaction Report: In-Depth Review of Anthropics Smart Photo Editing Tool</u></a></li>
+</ul></div>
 

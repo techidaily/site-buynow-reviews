@@ -1,7 +1,7 @@
 ---
 title: Discover Exceptional Savings for Electronics at the 2024 Amazon Prime Day Sale
-date: 2024-09-30T01:48:12.346Z
-updated: 2024-10-07T06:12:19.166Z
+date: 2024-10-12T02:45:17.675Z
+updated: 2024-10-13T01:58:47.439Z
 categories:
   - BestProducts
 description: This Article Describes Discover Exceptional Savings for Electronics at the 2024 Amazon Prime Day Sale
@@ -67,6 +67,13 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -85,21 +92,7 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels (in a rural area)**
 
@@ -108,16 +101,10 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -130,19 +117,6 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
@@ -150,6 +124,13 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
@@ -160,6 +141,13 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -192,24 +180,18 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-streamlined-design-integrating-gamers-banner-templates/"><u>[Updated] 2024 Approved Streamlined Design Integrating Gamers' Banner Templates</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-youtube-clip-maker-for-2024/"><u>[Updated] Youtube Clip Maker for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-youtube-unearthing-the-obscured-videotapes/"><u>[Updated] YouTube Unearthing the Obscured Videotapes</u></a></li>
-<li><a href="https://video-capture.techidaily.com/vimeo-2024top6/"><u>「Vimeo作品が好き? 2024年用無料ダウンロードプラットフォームTOP6選譲!動画コレクションを増やせる場所」</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/assessing-linkedin-elite-status-8-reasons-to-subscribe/"><u>Assessing LinkedIn Elite Status: 8 Reasons to Subscribe</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/complete-your-tech-arsenal-dell-monitor-elite-noise-cancelling-headphones-and-superior-quality-camera/"><u>Complete Your Tech Arsenal: Dell Monitor, Elite Noise Cancelling Headphones, & Superior Quality Camera</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-aukey-usb-30-hub-analysis-simple-design-powerful-performance/"><u>Comprehensive Aukey USB 3.0 Hub Analysis: Simple Design, Powerful Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-the-garmin-forerunner-745-the-ultimate-multisport-gps-watch/"><u>Comprehensive Evaluation of the Garmin Forerunner 745: The Ultimate Multisport GPS Watch</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-unboxing-and-testing-the-apple-watch-series-9/"><u>Comprehensive Guide: Unboxing and Testing the Apple Watch Series 9</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-jaco-smartpro-digital-tire-inflator-assessment-the-ultimate-portable-and-efficient-option/"><u>Comprehensive Jaco SmartPro Digital Tire Inflator Assessment - The Ultimate Portable and Efficient Option</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-lenovo-thinkpad-x1-nano-evaluation-your-go-to-slim-and-powerful-notebook/"><u>Comprehensive Lenovo ThinkPad X1 Nano Evaluation - Your Go-To Slim and Powerful Notebook</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/decoding-marvels-avengers-film-insightful-evaluation-and-reviews/"><u>Decoding Marvel's Avengers Film: Insightful Evaluation and Reviews</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-how-apples-airtag-leads-the-pack-in-smart-tracking-devices-for-ios-enthusiasts/"><u>Discover How Apple's AirTag Leads the Pack in Smart Tracking Devices for iOS Enthusiasts</u></a></li>
-<li><a href="https://win11.techidaily.com/how-to-overcome-msstore-crash-with-error-code-0x0-on-windows-1011/"><u>How to Overcome MsStore Crash with Error Code 0X0 on Windows 10/11</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1722997231521-minecraft-dungeon-pc-performance-issues-heres-how-to-stop-the-unwanted-interruptions/"><u>Minecraft Dungeon PC Performance Issues? Here's How to Stop the Unwanted Interruptions</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-cutting-edge-free-flv-video-editing-software/"><u>New 2024 Approved Cutting-Edge Free FLV Video Editing Software</u></a></li>
-<li><a href="https://media-tips.techidaily.com/step-by-step-guide-to-adding-vibrant-animated-gif-content-to-your-instagram-presence/"><u>Step-by-Step Guide to Adding Vibrant Animated GIF Content to Your Instagram Presence</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/vervang-ape-met-mp3-vrije-en-kort-online-expertise-movavi/"><u>Vervang APE Met MP3 Vrije en Kort Online - Expertise Movavi</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/videoharvester-fb-groups-for-2024/"><u>VideoHarvester FB Groups for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-cure-for-disconnected-channels-in-obs/"><u>[New] In 2024, Cure for Disconnected Channels in OBS</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/implicity-in-code-constructing-a-streamlined-youtube-sign-up/"><u>[New] Simplicity in Code Constructing a Streamlined YouTube Sign-Up</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-spectacular-20-anime-openers-hits/"><u>[New] Spectacular 20 Anime Openers' Hits</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-pandemonium-playlist-10-wildest-tiktok-gaming-adventures-for-2024/"><u>[Updated] Pandemonium Playlist 10 Wildest TikTok Gaming Adventures for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/couper-un-dvd-avec-des-sous-titres-ou-ajouter-des-sous-titres-imposes-guide-complet/"><u>Couper Un DVD Avec Des Sous-Titres Ou Ajouter Des Sous-Titres Imposés : Guide Complet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-unbeatable-deals-on-fossil-a-comprehensive-review-guide/"><u>Discover Unbeatable Deals on Fossil: A Comprehensive Review Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/go-next-gen-move-your-computer-from-windows-8-to-windows-11/"><u>Go Next Gen: Move Your Computer From Windows 8 to Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-does-the-nintendo-switch-lite-compare-a-cost-effective-handheld-option-reviewed/"><u>How Does the Nintendo Switch Lite Compare? A Cost-Effective Handheld Option Reviewed</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-infinix-note-30-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from Infinix Note 30</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-messages-on-motorola-edge-40-pro-by-fonelab-android-recover-messages/"><u>How to restore wiped messages on Motorola Edge 40 Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tablet-showdown-selecting-based-on-core-strengths/"><u>Tablet Showdown: Selecting Based on Core Strengths</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-power-of-compact-gaming-a-comprehensive-look-at-the-xbox-series-s-hardware-and-packaging/"><u>The Power of Compact Gaming - A Comprehensive Look at the Xbox Series S Hardware & Packaging.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/x-plane-11-a-closer-look-at-next-gen-graphics-and-flight-dynamics-in-the-pinnacle-global-flight-simulator-experience/"><u>X-Plane 11: A Closer Look at Next-Gen Graphics & Flight Dynamics in the Pinnacle Global Flight Simulator Experience</u></a></li>
 </ul></div>
 

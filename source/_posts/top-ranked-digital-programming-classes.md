@@ -1,7 +1,7 @@
 ---
 title: Top-Ranked Digital Programming Classes
-date: 2024-10-03T20:41:50.293Z
-updated: 2024-10-07T01:05:20.578Z
+date: 2024-10-11T20:15:15.385Z
+updated: 2024-10-12T20:09:39.324Z
 categories:
   - BestProducts
 description: This Article Describes Top-Ranked Digital Programming Classes
@@ -46,13 +46,6 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
 [View On Amazon $17](https://www.amazon.com/dp/B01L8M215A?tag=lifewire-onsite-prod-20&ascsubtag=5193471%7Cn3d06d6a443e14152b7728753066731b712%7CB01L8M215A)
@@ -93,6 +86,13 @@ Lifewire / Andrew Hayward
 
  The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Setup Process: Plug and play
 
  The C302 is a purely plug-and-play accessory with no flashy perks or settings to deal with, nor any need for software on your computer. Simply place it under your laptop, adjust the feet and holding nubs as desired, and plug the USB port into your computer to power on the pad. The fans will then activate and run at the only available speed, and you can unplug it when you’re done or don’t need it anymore.
@@ -100,10 +100,10 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
@@ -122,13 +122,6 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Xs71AyeThjZwy-vZJ9LfxIhuXJc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_04-eadbaf270b874af9bb8843b95efe8ca7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
  Lastly, UNIGINE’s Heaven Benchmark hit 162 degrees internally and 109 degrees externally on the Razer Blade 15 alone, and dropped to 154 degrees internally and 105 degrees externally when using the C302\. All told, this lightweight and affordable pad delivered solid cooling power that helped cut down on both the internal and external temperature of the laptop while under significant stress.
@@ -136,10 +129,16 @@ Lifewire / Andrew Hayward
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Price: It’s very affordable
@@ -147,13 +146,6 @@ Lifewire / Andrew Hayward
  At $30, this is one of the most affordable laptop cooling pads on the market right now. While results varied across multiple tests and games/apps, the C302 was pretty well in line with some of the pricier options I tested. It feels a little flimsy and doesn’t have any premium features, but the C302 is a very good entry-level option.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -167,11 +159,25 @@ Lifewire / Andrew Hayward
 
  Durability questions aside, the TopMate C302 Laptop Cooling Pad ultimately worked about as well as the other, pricier pads I tested, helping to offset some of the heat generated by a very hot gaming laptop. If you’re concerned about long-term damage or performance degradation from an overheating laptop, the C302 is a cost-efficient way to help keep your notebook from reaching extreme heat peaks.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 * [North Face Pivoter Backpack](https://www.lifewire.com/north-face-pivoter-backpack-review-4690198)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -201,21 +207,21 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ed-incorporating-youtubes-creative-commons-in-video-making-for-2024/"><u>[Updated] Incorporating YouTube's Creative Commons in Video Making for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/free-download-ultimate-setup-of-msi-x470-gaming-plus-motherboard-drivers/"><u>Free Download: Ultimate Setup of MSI X470 Gaming Plus Motherboard Drivers</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/how-to-fix-the-persistent-problems-with-ubisoft-connect-solutions-revealed/"><u>How to Fix the Persistent Problems with Ubisoft Connect - Solutions Revealed!</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-honor-90-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Honor 90 | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-exclusive-roundup-the-top-5-iphone-compatible-podcasts/"><u>In 2024, Exclusive Roundup The Top 5 iPhone-Compatible Podcasts</u></a></li>
-<li><a href="https://extra-support.techidaily.com/laughlens-pictorial-humor-studio-for-2024/"><u>LaughLens Pictorial Humor Studio for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/light-as-a-feather-strong-as-ever-in-depth-look-at-the-revolutionary-lg-gram-laptop/"><u>Light as a Feather, Strong as Ever: In-Depth Look at the Revolutionary LG Gram Laptop</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/luminaries-crafting-spectaculous-vr-journeys/"><u>Luminaries Crafting Spectaculous VR Journeys</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximizing-home-connectivity-in-depth-review-of-the-netgear-nighthawk-ax8-wi-fi-6-mesh-system/"><u>Maximizing Home Connectivity: In-Depth Review of the Netgear Nighthawk AX8 Wi-Fi 6 Mesh System</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-amazons-ecosystem-the-key-differences-between-kindle-and-fire-tablets/"><u>Navigating Amazon's Ecosystem: The Key Differences Between Kindle and Fire Tablets</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/netgears-nighthawk-x4-a-game-changer-for-wi-fi-coverage-discover-in-our-full-product-review/"><u>Netgear's Nighthawk X4: A Game-Changer for Wi-Fi Coverage? Discover in Our Full Product Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/nickelodeons-newest-sensation-the-american-debut-of-nickwatch-at-the-kids-choice-extravaganza/"><u>Nickelodeon's Newest Sensation: The American Debut of NickWatch at the Kids' Choice Extravaganza</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/oneplus-nord-n10-5g-review/"><u>OnePlus Nord N10 5G Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/personalized-exercise-monitoring-made-simple-with-the-user-friendly-samsung-galaxy-fit2/"><u>Personalized Exercise Monitoring Made Simple with the User-Friendly Samsung Galaxy Fit2</u></a></li>
-<li><a href="https://fox-that.techidaily.com/reviving-icloud-images-the-ultimate-7-tips-for-syncing-photos-back-onto-your-iphone-seamlessly/"><u>Reviving iCloud Images: The Ultimate 7 Tips for Syncing Photos Back Onto Your iPhone Seamlessly</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/unlock-your-disabled-apple-iphone-14-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>Unlock Your Disabled Apple iPhone 14 Without iTunes in 5 Ways | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-launching-into-the-spotlight-instagram-lives-for-2024/"><u>[New] Launching Into the Spotlight Instagram Lives for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-optimize-twitter-tweets-for-hd-viewing/"><u>2024 Approved Optimize Twitter Tweets for HD Viewing</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-sound-painting-on-snapchat-shift-your-vocal-landscape-swiftly/"><u>2024 Approved Sound Painting on Snapchat Shift Your Vocal Landscape Swiftly</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/acer-chromebook-r-11-unveiled-a-fusion-of-sleek-design-and-ultraportability/"><u>Acer Chromebook R 11 Unveiled: A Fusion of Sleek Design and Ultraportability</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/advantages-and-disadvantages-exploring-the-pros-and-cons-of-webex-virtual-conferencing/"><u>Advantages & Disadvantages: Exploring the Pros and Cons of WebEx Virtual Conferencing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/alcatel-joy-tab-5-different-titles-that-capture-a-readers-attention-for-an-article-about-maximizing-productivity-in-remote-work-environments/"><u>Alcatel Joy Tab 5 Different Titles that Capture a Reader's Attention for an Article About 'Maximizing Productivity in Remote Work Environments':</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/all-about-mobvois-ticwatch-pro-with-4g-connectivity-is-it-the-right-watch-for-you/"><u>All About Mobvoi's Ticwatch Pro with 4G Connectivity - Is It the Right Watch for You?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/all-purpose-camera-champion-fz80s-tale/"><u>All-Purpose Camera Champion - FZ80's Tale</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/guide-to-premium-google-pixel-tones-for-2024/"><u>Guide to Premium Google Pixel Tones for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Tecno Spark 20C? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-revolutionizing-reality-best-vr-gadgets-today/"><u>In 2024, Revolutionizing Reality Best VR Gadgets Today</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-step-by-step-guide-to-creating-compelling-multi-picture-insta-stories/"><u>In 2024, Step by Step Guide to Creating Compelling, Multi-Picture Insta Stories</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/is-it-possible-to-scale-down-the-capacity-of-a-rescuezilla-imaging-disc/"><u>Is It Possible to Scale Down the Capacity of a RescueZilla Imaging Disc?</u></a></li>
+<li><a href="https://win-able.techidaily.com/quick-guide-getting-your-multiversus-game-up-and-running-on-windows/"><u>Quick Guide: Getting Your MultiVersus Game Up and Running on Windows</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722617195961-review-of-sealocs-55-4k-outdoor-television-perfect-for-coastal-living/"><u>Review of Sealoc's 55 4K Outdoor Television - Perfect for Coastal Living</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722598455564-unboxing-the-newest-minecraft-campfire-tales-outfit-collection-your-ultimate-guide/"><u>Unboxing the Newest Minecraft Campfire Tales Outfit Collection - Your Ultimate Guide</u></a></li>
 </ul></div>
 

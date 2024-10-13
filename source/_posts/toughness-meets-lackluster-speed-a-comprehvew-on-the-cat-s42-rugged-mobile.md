@@ -1,7 +1,7 @@
 ---
 title: Toughness Meets Lackluster Speed - A Comprehvew on the Cat S42 Rugged Mobile
-date: 2024-10-03T01:34:57.710Z
-updated: 2024-10-07T04:50:01.496Z
+date: 2024-10-06T21:08:55.274Z
+updated: 2024-10-12T20:30:00.584Z
 categories:
   - BestProducts
 description: This Article Describes Toughness Meets Lackluster Speed - A Comprehvew on the Cat S42 Rugged Mobile
@@ -77,14 +77,14 @@ Lifewire / Jason Schneider
 
 ![Acer Chromebook 15](https://www.lifewire.com/thmb/KPrvN1kvoH081BHRUonphp9CIeY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer_LaptopsUnder200_Chromebook_02-c3813ec58fc848e6a715abe090ebe6b1.jpg)
 
- Lifewire / Jason Schneider
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Jason Schneider
 
 ## **Design: Slightly bulky with a couple of nice touches**
 
@@ -94,11 +94,25 @@ Lifewire / Jason Schneider
 
  The hinge is actually two small contact points that roll into the laptop chassis, which feels dated when the laptop is open but makes it look interesting when it’s closed. The whole laptop is made of plastic, and measures right around one 1-inch thick, weighing in at almost 4.5 pounds. That’s a double-edged sword because while the laptop feels really sturdy and premium despite the plastic material, it isn’t terribly portable.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: As seamless as a mobile device**
 
  One added benefit to opting for a Chromebook instead of a[full PC](https://www.lifewire.com/best-desktop-pcs-4045927) is that the software is really light. This has implications for both productivity and performance, but it provides a big benefit for the setup process. Because the entire experience, from bootup to browsing, has been designed by Google, you can expect a very similar look and feel to what you’ve probably experienced when signing up and signing in to a[Gmail](https://www.lifewire.com/how-to-use-gmail-1172005) or YouTube account.
 
  The device first asks you to set your regions, then connect to a Wi-Fi network, then finally to sign into a Google account and set up permissions. From here it drops you basically immediately to the Chromebook home screen where you can either dive right in, or follow the popup tour given by Google. One thing I liked a lot about this was that Google gives you a short three-popup tour to start, then asks if you’d like to go deeper or just jump right into the machine yourself. This staged version of a device tour is a great way to let you, the user, tailor it to your preferences. This also makes it great for an older-aged tech user who might need a bit of hand-holding as they get to know their laptop.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Display: Big, bright, and better than you might think**
 
@@ -108,6 +122,13 @@ Lifewire / Jason Schneider
 
  The whole laptop is made of plastic, and measures right around 1-inch thick, weighing in at almost 4.5 pounds.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Really solid, to a point**
 
  Chrome OS provides an interesting advantage in the performance category. Right out of the box, this laptop will look and feel very fast, but as soon as you try to open more than about 6 tabs on Chrome, or you fire up multiple apps and videos, it slows down exponentially. On paper, it sports a dual-core Intel Celeron N3060 processor capable for standard-run speeds of 1.6GHz.
@@ -115,13 +136,6 @@ Lifewire / Jason Schneider
  The configuration I chose also includes 4GB of LPDDR3[RAM](https://www.lifewire.com/what-is-random-access-memory-ram-2618159) , and 16GB of eMMC memory. These last two points help to make up for the somewhat limited processor by giving decent short-term storage needs and a reasonably fast flash-style memory. But, because the[DDR3 RAM is a bit dated](https://www.lifewire.com/ddr3-vs-ddr4-which-ram-is-best-4779993) and caps out at 4GB, you’ll find that it gets a little sluggish when you push it. It’s also unfortunate to see merely 16GB of storage, severely limiting the amount of movies, photos, and files you can fit on the device.
 
  To be fair, Chromebook users likely keep more files in cloud storage drives, and Google includes 100GB of drive storage for free with the purchase for 2 years. So, you might not notice the limited capacity, but I would have preferred at least 32GB.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Productivity and Component Quality: Plenty of screen real estate, and passable features**
 
@@ -131,20 +145,27 @@ Lifewire / Jason Schneider
 
  I am a little annoyed with the “search” key that Chromebooks placed where a caps lock key should be--resulting in a lot of accidental search callups. The trackpad also leaves a bit to be desired, requiring a firm, chunky press, and doesn’t support as many gestures as Windows or OSX.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Audio: An unexpected letdown**
 
  Laptops are never amazing specimen when it comes to on-board speakers, so I wasn’t expecting much out of this either. Because it’s a 15-inch machine, there’s plenty of room in the Chromebook 15 for more components, and Acer has opted to put in two giant speaker grilles along either side of the keyboard. Taking that into account, I was hoping that the speakers would be louder and fuller than a normal laptop. However, the response is very tinny and it wasn’t as loud as I was hoping. In fact, these are among the worst speakers I’ve tested on a budget laptop, leaving me to believe that the grilles are just for show.
 
 ![Acer Chromebook 15](https://www.lifewire.com/thmb/yw3n6Y9SGTIh4h10bF7XbAc5La0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer_LaptopsUnder200_Chromebook_03-5724a73204e94f548f20aec5fa86074f.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jason Schneider
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network and connectivity: Modern, fast, and optimized for Chrome OS**
 
@@ -172,25 +193,11 @@ Lifewire / Jason Schneider
 
  That said, the Chromebook 15 runs so well, though likely only because of the lightweight operating system and limited app capabilities. Chrome OS is kind of like just using a Chrome window with a bunch of tabs on a regular PC. For most people, the OS is more than capable of handling most of your browsing needs. This Chromebook is a great example of how far you can push Chrome OS on a budget device, with a big bright screen for watching movies, too.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Really affordable with plenty to offer**
 
  The list price for this Acer Chromebook sits at just about $400 (MSRP), but most of the time you can find it on Amazon for between $150-$250\. I picked up my unit for about $185, and it tends to hover just around there.
 
  For the money, I can confidently say this laptop is worth the price, as long as you have the right applications in mind for it. If you want a cheap starter laptop, or a machine for an older family member that’s easy to use, but you don’t want to spend half a grand getting there, this is a great choice. I can’t say it’s quite as travel-friendly as some of the other budget laptops out there, due to the size and weight. But if you want an affordable machine that’s great for light productivity tasks, and is an excellent movie machine, then you should consider this.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Acer Chromebook 15 vs. Lenovo Chromebook S330 14**
 
@@ -201,13 +208,6 @@ Lifewire / Jason Schneider
  **A solid Chromebook for productivity, but limited in portability.**
 
  This is a great Chromebook with a lot of impressive things to offer. The bright screen has plenty of room for vibrant video viewing and multiple windows of productivity. The excellent battery life means you won’t be tethered to a desk, and the light, fast Chrome OS means it will take a lot to slow the Acer Chromebook 15 down. However, the limited onboard storage, bulky size and weight, and the lack of full app choices might limit you a bit too much. At the end of the day, at this price point, it’s perfect for light, basic use.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -236,21 +236,22 @@ Lifewire / Jason Schneider
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-fullscape-synergy-the-smart-mcn-picking-game/"><u>[New] In 2024, FullScape Synergy The Smart MCN Picking Game</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-youtubes-image-files-made-simple-online-desktop-and-terminal-steps/"><u>[New] In 2024, Youtube’s Image Files Made Simple Online, Desktop & Terminal Steps</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-elevate-your-instagram-game-with-pro-edit-techniques/"><u>[Updated] Elevate Your Instagram Game with Pro Edit Techniques</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-meet-the-monitor-that-elevates-your-graphic-work/"><u>[Updated] Meet the Monitor That Elevates Your Graphic Work</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/echoes-in-280-characters-viral-video-stories/"><u>Echoes in 280 Characters Viral Video Stories</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-expert-tips-for-blending-multiple-hdr-photographs-in-lightroom/"><u>In 2024, Expert Tips for Blending Multiple HDR Photographs in Lightroom</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/master-the-art-of-optimal-performance-cut-down-latency-and-elevate-fps-in-genshin-impact-2024s-expert-advice/"><u>Master the Art of Optimal Performance: Cut Down Latency & Elevate FPS in Genshin Impact - 2024'S Expert Advice</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/sim-unlock-vivo-y36-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Vivo Y36 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-recent-calls-back-from-motorola-edge-40-pro-by-fonelab-android-recover-call-logs/"><u>Simple ways to get recent calls back from Motorola Edge 40 Pro</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/step-by-step-installation-tips-boosting-the-performance-of-your-intel-imac/"><u>Step-by-Step Installation Tips: Boosting the Performance of Your Intel iMac</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stream-smart-a-detailed-comparison-of-chromecast-vs-roku/"><u>Stream Smart: A Detailed Comparison of Chromecast Vs. Roku</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/superior-performance-in-a-compact-form-discover-the-ourlink-u631-wi-fi-adapter-usb/"><u>Superior Performance in a Compact Form: Discover the Ourlink U631 Wi-Fi Adapter (USB)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-bargain-bluetooth-beats-unraveling-the-oneplus-buds-story/"><u>The Bargain Bluetooth Beats - Unraveling the OnePlus Buds Story</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-gotrache-gxl-v2-commuter-unveiled-high-speed-urban-mobility-at-your-fingertips/"><u>The Gotrache GXL V2 Commuter Unveiled: High-Speed Urban Mobility at Your Fingertips</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-perfect-blend-reliability-and-excellence-in-speedlite-430ex-iii-rt/"><u>The Perfect Blend: Reliability & Excellence in Speedlite 430EX III-RT</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-practical-choice-in-wearables-a-detailed-look-at-the-affordable-fitbit-versa-watch/"><u>The Practical Choice in Wearables: A Detailed Look at the Affordable Fitbit Versa Watch</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-achieving-precision-with-obs-implementing-timer-functionality/"><u>[New] Achieving Precision with OBS Implementing Timer Functionality</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-top-gaming-choice-the-inescapable-magic-of-our-12-tycoons/"><u>[Updated] In 2024, Top Gaming Choice The Inescapable Magic of Our #12 Tycoons</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-masterclass-conquering-one-device-livestream-challenges-for-2024/"><u>[Updated] Masterclass Conquering One-Device Livestream Challenges for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-cooling-solution-for-your-pc-an-in-depth-review-of-the-topmate-c302-pad/"><u>Budget-Friendly Cooling Solution for Your PC: An In-Depth Review of the TopMate C302 Pad</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-improved-apple-watch-series/"><u>Comprehensive Guide to the Improved Apple Watch Series</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/face-fluidity-adding-dynamic-blur-to-photos-via-picsart-for-2024/"><u>Face Fluidity Adding Dynamic Blur to Photos via Picsart for 2024</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/how-to-efficiently-remove-apps-from-your-icloud-storage/"><u>How to Efficiently Remove Apps From Your iCloud Storage</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-what-does-jailbreaking-apple-iphone-14-i-do-get-answers-here-by-drfone-ios/"><u>In 2024, What Does Jailbreaking Apple iPhone 14 i Do? Get Answers here</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-samsung-smart-tv-un65ru8000fxza-with-elegant-screen-design/"><u>In-Depth Analysis of the Samsung Smart TV - UN65RU8000FXZA with Elegant Screen Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-the-compact-and-convenient-aphaca-bt6n-for-wireless-fm-broadcasting/"><u>In-Depth Evaluation of the Compact and Convenient Aphaca BT6n for Wireless FM Broadcasting</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/introducing-the-kobo-forma-an-innovative-device-for-avid-bibliophiles/"><u>Introducing the Kobo Forma: An Innovative Device for Avid Bibliophiles</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/iphone-is-disabled-here-is-the-way-to-unlock-disabled-iphone-6s-plus-by-drfone-ios/"><u>iPhone Is Disabled? Here Is The Way To Unlock Disabled iPhone 6s Plus</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solving-the-issue-why-wont-my-iphone-ring-with-these-expert-tips/"><u>Solving the Issue: Why Won't My iPhone Ring with These Expert Tips</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-lenovo-thinkpad-x1-titanium-yoga-exposed-why-this-top-of-the-line-2-in-1-is-a-must-have-for-die-hard-thinkpad-fans/"><u>The Lenovo ThinkPad X1 Titanium Yoga Exposed: Why This Top-of-the-Line 2-in-1 Is a Must-Have for Die-Hard ThinkPad Fans!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-best-budget-vr-experience-the-ultimate-oculcus-quest-2-review/"><u>Unveiling the Best Budget VR Experience: The Ultimate Oculcus Quest 2 Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/value-comparison-the-new-amazon-fire-hd-8-eighth-generation-tested-against-its-competitors/"><u>Value Comparison: The New Amazon Fire HD 8 (Eighth Generation) Tested Against Its Competitors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/voice-assisted-decision-making-why-you-should-consider-google-assistant-over-alexa/"><u>Voice-Assisted Decision Making: Why You Should Consider Google Assistant Over Alexa</u></a></li>
 </ul></div>
 

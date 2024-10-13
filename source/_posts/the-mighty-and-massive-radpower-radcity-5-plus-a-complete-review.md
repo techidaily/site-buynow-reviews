@@ -1,7 +1,7 @@
 ---
 title: The Mighty and Massive RadPower RadCity 5 Plus - A Complete Review
-date: 2024-09-30T17:49:28.505Z
-updated: 2024-10-07T01:00:26.645Z
+date: 2024-10-07T23:53:31.268Z
+updated: 2024-10-12T20:40:14.457Z
 categories:
   - BestProducts
 description: This Article Describes The Mighty and Massive RadPower RadCity 5 Plus - A Complete Review
@@ -44,6 +44,13 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/_gP-SgRbIGXPYdlmqqhNJSxhmSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_HeroSquare-61fda9713bb44c89bf3c2f1f74386bee.jpg)
@@ -74,6 +81,19 @@ Lifewire / Erika Rawes
 
  The[Netgear](https://www.lifewire.com/best-netgear-routers-4159862) Nighthawk RAX120 is supposed to provide lightning-fast speeds while serving as one of the[best long-range wireless routers](https://www.lifewire.com/best-long-range-routers-4122554) currently on the market. Fully loaded with[Wi-Fi 6 technology](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , smart home connectivity, and a slew of other features, the AX12 should be an ideal router for small businesses, very large homes, or for homes with multiple devices. I tested the Netgear Nighthawk RAX120 to see how well it performs in the real world.
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Batman’s router**
 
  The Netgear Nighthawk RAX120 has a futuristic design—angular, with clean lines. It looks like a cross between a spaceship and the Batmobile. It’s matte black and rectangular, but instead of the multiple antennas you’d typically see protruding from the top of a Nighthawk router, it has two wing-like extensions that come from each side.
@@ -101,20 +121,13 @@ Lifewire / Erika Rawes
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/y2V4Ncx3Z1ul8B-4lsc_IeiyCRQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_04-9e452ddedd2b4a46893fddd147c06d4f.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Network performance: Stellar**
 
@@ -129,16 +142,10 @@ Lifewire / Erika Rawes
  The RAX120 is backward compatible with 802.11a/b/g/n/ac as well, so it’ll work with virtually all of your devices, Wi-Fi 6 or not.
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Key Features: Quality hardware, lacks antivirus**
@@ -159,18 +166,18 @@ Lifewire / Erika Rawes
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/MPwp1LtMC7Ua30t8VnJy7bjuqn4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_02-94fbae95ca5d4851a1cf40b197da4161.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Price: Expensive**
 
  The Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router will cost you a pretty penny—it sells for $400, which is $100 lower than its original retail price of $500\. But it’s still on the higher end of the price spectrum, especially considering it doesn’t include any sort of mesh points, and you only get the router, power supply, and an Ethernet cable.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Netgear Nighthawk RAX120 vs. TP-Link Archer AX6000**
 
@@ -181,13 +188,6 @@ Lifewire / Erika Rawes
  **A cool looking router that’s faster and more powerful than you probably need.**
 
  The Nighthawk RAX120 performs impressively, but it‘s costly and lacks some user-friendly features like strong parental controls and easy-to-manage antivirus, so it’ll be more desirable for those with heavier networking demands than the average user.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -227,16 +227,19 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-art-of-crafting-impactful-hashtags-for-instagram-content/"><u>[New] In 2024, The Art of Crafting Impactful Hashtags for Instagram Content</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-the-art-of-circle-and-sphere-construction-in-mc/"><u>[Updated] In 2024, The Art of Circle and Sphere Construction in MC</u></a></li>
-<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-xiaomi-redmi-k70-pro-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-excellence-in-affordability-how-the-latest-apple-ipad-102-inches-8th-gen-raises-the-bar-for-value/"><u>Exploring Excellence in Affordability – How The Latest Apple iPad 10.2 Inches (8Th Gen) Raises the Bar for Value</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/holy-stone-cartoon-race-car-unveiled-the-ultimate-choice-for-family-fun-and-learning/"><u>Holy Stone Cartoon Race Car Unveiled: The Ultimate Choice for Family Fun & Learning</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-hp-omen-obelisk-ultimate-value-for-gamers-seeking-power/"><u>In-Depth Look at the HP Omen Obelisk - Ultimate Value for Gamers Seeking Power</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-the-latest-kindle-paperwhite-gen-7-for-book-lovers-on-the-move/"><u>In-Depth Review: The Latest Kindle Paperwhite (Gen 7) for Book Lovers on the Move</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-expensiveness-of-speed-and-agility-in-swagtrons-swagboard-t1/"><u>Navigating the Expensiveness of Speed and Agility in Swagtron's Swagboard T1</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/novices-guide-to-animated-videos-with-wmm/"><u>Novice's Guide to Animated Videos with WMM</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/step-by-step-guide-accessing-windows-11s-group-policy-editor/"><u>Step-by-Step Guide: Accessing Windows 11'S Group Policy Editor</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ultimate-selection-of-12-premium-linux-recording-apps-by-experts/"><u>Ultimate Selection of 12 Premium Linux Recording Apps by Experts</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-groundbreaking-8-android-video-call-services-more-than-four/"><u>[New] Groundbreaking 8 Android Video Call Services, More Than Four</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-comprehensive-guide-to-fisheye-panoramas/"><u>[Updated] In 2024, Comprehensive Guide to Fisheye Panoramas</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-blueprint-for-successful-individual-podcasts/"><u>2024 Approved The Blueprint for Successful Individual Podcasts</u></a></li>
+<li><a href="https://win-lab.techidaily.com/easy-ipad-pdf-form-filling-app-effortlessly-complete-pdfs-directly-from-your-apple-tablet/"><u>Easy iPad PDF Form Filling App: Effortlessly Complete PDFs Directly From Your Apple Tablet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/editing-raw-photos-made-easy-discover-free-darktable-software-for-os-x-and-linux-users/"><u>Editing RAW Photos Made Easy - Discover Free Darktable Software for OS X and Linux Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insight-on-linksys-wrt3200acm-why-it-stands-out-amongst-open-source-router-options/"><u>Expert Insight on Linksys WRT3200ACM: Why It Stands Out Amongst Open Source Router Options</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fongo-review-canada-voip-service/"><u>Fongo Review: Canada VoIP Service</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/kindle-a-new-era-in-reading-habits/"><u>Kindle: A New Era in Reading Habits</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-the-wilds-of-gnawbone-insights-and-reviews-from-monster-hunter-world/"><u>Mastering the Wilds of Gnawbone: Insights & Reviews From 'Monster Hunter: World'</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-lost-data-from-phantom-v-fold-by-fonelab-android-recover-data/"><u>Recover lost data from Phantom V Fold</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/streamline-video-storage-with-our-top-choice-for-shrinking-mov-files-into-mp4-avi-or-flv-formats/"><u>Streamline Video Storage with Our Top Choice for Shrinking MOV Files Into MP4, AVI, or FLV Formats</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-premier-elearning-platforms-for-developers/"><u>The Premier eLearning Platforms for Developers</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/top-5-mma-games-for-virtual-fight-enthusiasts/"><u>Top 5 MMA Games for Virtual Fight Enthusiasts</u></a></li>
 </ul></div>
 

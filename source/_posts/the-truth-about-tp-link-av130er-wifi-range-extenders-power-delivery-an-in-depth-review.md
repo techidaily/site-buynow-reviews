@@ -1,7 +1,7 @@
 ---
 title: The Truth About TP-Link AV130er WiFi Range Extender's Power Delivery - An In-Depth Review
-date: 2024-10-05T01:20:13.040Z
-updated: 2024-10-07T00:25:14.069Z
+date: 2024-10-09T18:03:03.417Z
+updated: 2024-10-13T01:17:02.551Z
 categories:
   - BestProducts
 description: This Article Describes The Truth About TP-Link AV130er WiFi Range Extender's Power Delivery - An In-Depth Review
@@ -45,6 +45,13 @@ Lifewire / Rebecca Isaacs
 
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/GZTKidZtByl51GvkYiB-jNjEjbE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Ergodriven-Topo-Comfort-Mat-1-ccd96f7c454945c3b974a2f5cba4fe79.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
 
 [View On Amazon $99](https://www.amazon.com/Ergodriven-Not-Flat-Anti-Fatigue-Calculated-Must-Have/dp/B00V3TO9EK/?tag=lifewire-onsite-prod-20&ascsubtag=4775310%7Cn915a9e38dc0349c7bf58e56fac1a735710%7CB00V3TO9EK)
@@ -67,20 +74,13 @@ Lifewire / Rebecca Isaacs
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/KYfJPJ0jHZhmy15IUeGxDL8kmRw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ergodriven-Topo-Comfort-Mat-2-547d9823c4ac47cbb5a360040866172a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Design: Simply modern**
 
@@ -104,6 +104,13 @@ Lifewire / Rebecca Isaacs
 
  We also liked how the mat slides around on various surfaces, but it’s not too slippery. We hauled it around to various offices with tile and carpet. Each time we set it down, we could push it under the desk with ease if we needed to sit for extended lengths of time and pull it out just as easily when we wanted to stand.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Pretty steep for a mat**
 
  At around $100 on Amazon, the Topo is in the higher price range for a standing desk mat. We could find models that don’t have the massage mound in the center, however, the steep power wedges in the back make it a reasonable investment for anyone who really wants to stretch out their legs.
@@ -111,10 +118,10 @@ Lifewire / Rebecca Isaacs
  For a standing desk mat with some exercise features, the Ergodriven Topo is a fairly decent choice.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Topo Ergodriven vs. CubeFit TerraMat**
@@ -130,13 +137,6 @@ Lifewire / Rebecca Isaacs
 **Pricey, but solid for the features.**
 
  For a standing desk mat with some exercise features, the Ergodriven Topo is a fairly decent choice. While we think there are other, better mats out there, but the Topo does hide dirt better, and the deep rear wedges stretch the hamstrings more than most other models on the market. If you want a solid stretch, then the Ergodriven Topo is the best choice for you.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -163,22 +163,21 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-mastering-video-on-ios-top-10-applications-to-watch/"><u>[New] Mastering Video on iOS Top 10 Applications to Watch</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-ultimate-blueprint-for-permanent-instagram-exit-strategy/"><u>[Updated] In 2024, The Ultimate Blueprint for Permanent Instagram Exit Strategy</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/5-straightforward-steps-to-find-windows-ram-details/"><u>5 Straightforward Steps to Find Windows RAM Details</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-xiaomi-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Xiaomi</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fly-high-for-less-an-in-depth-review-of-the-economical-and-entertaining-syma-s111g-rc-helicopter/"><u>Fly High for Less: An In-Depth Review of the Economical and Entertaining Syma S111G RC Helicopter</u></a></li>
-<li><a href="https://win11.techidaily.com/fundamentals-of-windows-executable-files-pe/"><u>Fundamentals of Windows Executable Files (PE)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/get-more-for-less-with-the-amazing-value-and-efficiency-of-arcshells-ar-5-reviewed-here/"><u>Get More for Less with the Amazing Value and Efficiency of ArcShell's AR-5 Reviewed Here!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/get-up-close-with-the-latest-ampace-andes-1500-ultimate-portable-power-solution/"><u>Get Up Close with the Latest Ampacē Andes 1500: Ultimate Portable Power Solution</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-to-select-the-perfect-tablet-tips-on-finding-the-right-balance-of-size-and-weight/"><u>How to Select the Perfect Tablet: Tips on Finding the Right Balance of Size & Weight</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-best-sony-frp-bypass-guide-by-drfone-android/"><u>In 2024, Best Sony FRP Bypass Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-and-thoughts-on-the-huion-kamvas-gt-191-graphic-tablet-the-ultimate-pen-display-experience/"><u>In-Depth Analysis and Thoughts on the Huion Kamvas GT-191 Graphic Tablet - The Ultimate Pen Display Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-into-googles-pixelbook-go-stellar-execution-high-expense-evaluation/"><u>In-Depth Look Into Google's Pixelbook Go: Stellar Execution, High Expense Evaluation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/kindle-unlimited-a-bibliophiles-dream-understanding-its-four-major-selling-points/"><u>Kindle Unlimited: A Bibliophile's Dream - Understanding Its Four Major Selling Points</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-pc-sound-solutions-a-look-at-the-ultimate-models/"><u>Leading PC Sound Solutions: A Look at the Ultimate Models</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/navigating-content-size-on-igtv-top-5-expert-tips-to-consider-for-2024/"><u>Navigating Content Size on IGTV Top 5 Expert Tips to Consider for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/speeding-up-purchases-on-microsofts-digital-shelf/"><u>Speeding Up Purchases on Microsoft's Digital Shelf</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlock-your-tecno-spark-20-propluss-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Tecno Spark 20 Pro+s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-seamless-chromeos-screeen-logging/"><u>[New] 2024 Approved Seamless ChromeOS Screeen Logging</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unlocking-your-creative-potential-embrace-these-top-10-iphone-image-rules/"><u>[New] In 2024, Unlocking Your Creative Potential Embrace These Top 10 iPhone Image Rules</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-upgrade-your-facebook-experience-with-the-best-5-extensions/"><u>[New] In 2024, Upgrade Your Facebook Experience with the Best 5 Extensions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-how-to-save-on-phone-contracts-with-our-top-picks/"><u>Discover How to Save on Phone Contracts with Our Top Picks</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/discovering-the-best-10-online-tools-for-vimeo-videos-for-2024/"><u>Discovering the Best 10 Online Tools for Vimeo Videos for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-choice-the-premier-extended-desk-mats-of-the-year/"><u>Expert Choice: The Premier Extended Desk Mats of the Year</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-from-pc-to-smartphone-the-essential-guide-to-hulu-recording/"><u>In 2024, From PC to Smartphone The Essential Guide to Hulu Recording</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-realme-c53-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Realme C53 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/iphone-showdown-the-new-era-of-the-iphone-15-plus-versus-the-elite-pro-max/"><u>IPhone Showdown: The New Era of the iPhone 15 Plus Versus the Elite Pro Max</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovo-thinkpad-x1-titanium-yoga-review/"><u>Lenovo ThinkPad X1 Titanium Yoga Review</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-resume-writing-with-chatgpt-a-step-by-step-guide/"><u>Mastering Resume Writing with ChatGPT: A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-skagen-falster-3-dissected-exceptional-smartwatch-that-marries-advanced-specs-and-classic-elegance/"><u>The Skagen Falster 3 Dissected: Exceptional Smartwatch that Marries Advanced Specs and Classic Elegance</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ultimate-instructions-for-integrating-the-latest-version-of-vertical-flix-into-your-kodi-media-center-build-on-matrix/"><u>Ultimate Instructions for Integrating the Latest Version of Vertical Flix Into Your Kodi Media Center (Build on Matrix)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-amazon-kindle-oasis-is-its-superior-design-worth-the-price-tag/"><u>Unveiling the Amazon Kindle Oasis: Is Its Superior Design Worth the Price Tag?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/value-for-money-with-mobvoi-ticwatch-e2-a-comprehensive-review-of-affordability-vs-performance/"><u>Value for Money with Mobvoi TicWatch E2: A Comprehensive Review of Affordability vs Performance</u></a></li>
 </ul></div>
 

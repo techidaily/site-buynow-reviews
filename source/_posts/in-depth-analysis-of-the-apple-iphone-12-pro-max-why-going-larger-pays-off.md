@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of the Apple iPhone 12 Pro Max: Why Going Larger Pays Off"
-date: 2024-10-06T04:16:52.838Z
-updated: 2024-10-07T10:21:27.191Z
+date: 2024-10-07T17:35:55.351Z
+updated: 2024-10-13T02:45:55.010Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis of the Apple iPhone 12 Pro Max: Why Going Larger Pays Off"
@@ -46,13 +46,6 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/JA4MI_SE7Alxl0MLR7rMoIVzKgI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Zach Sweat
 
 [View On Amazon $150](https://www.amazon.com/Elite-2-Controller-Black-Xbox-One/dp/B07SFKTLZM/?tag=lifewire-onsite-prod-20&ascsubtag=4796457%7Cnbd5105eb0dc54e3e804df51703e5036902%7CB07SFKTLZM) [View On Walmart $150](https://www.walmart.com/ip/Microsoft-Xbox-Elite-Wireless-Controller-Series-2-Black-FST-00001/784834522) [View On Adorama.com $180](https://www.adorama.com/xbfst00001.html)
@@ -77,13 +70,6 @@ Lifewire / Zach Sweat
  We reviewed the original $150 Elite controller when it debuted years ago and loved nearly every aspect of it, but it wasn’t flawless suffering from the lack of a few key features and some durability issues. This is where the newly updated Elite Series 2 controller comes in. Listening to feedback provided by gamers on the weaknesses of Series 1, Microsoft has put out what is likely to be the last iteration of the[Xbox One controller,](https://www.lifewire.com/xbox-one-consoles-4156250) and it’s pretty much perfect—provided you’re willing to pay the hefty price tag.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/t8wI_yN2s_uIQ1leo87MmOnXxb4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-5-0c39ec4e89eb45b094471681efec0e7d.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -113,6 +99,13 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/TRrezKVbAUPs2Rud3g4_iOHyxB8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-2-4b3f9d8acd1440089989378253d902f4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 ## **Comfort: Hefty, but darn comfy**
@@ -129,20 +122,14 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/cS5fpyPSlqvyETs-nGxTtAB3vXU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-4-070b6c59b206457ba1068704bbe7bca9.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process and Software: Bluetooth, at long last**
 
@@ -188,6 +175,13 @@ Lifewire / Zach Sweat
 
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Like buying a brand new console**
 
  Right now, the Elite Series 2 controller retails at an MSRP of $249.99, about $100 more than its predecessor. This price tag makes it not only the most expensive first-party controller around, but also nearly the cost of a brand new Xbox One S console (or three brand new titles). That can be a tough sell for your average gamer.
@@ -201,10 +195,10 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
@@ -222,10 +216,10 @@ Lifewire / Zach Sweat
  Everything we disliked about the original Elite controller has been improved with the second iteration, making it the best first-party controller you can get for XB1 or PC. However, the steep price point might be a hard pill to swallow for users who don’t like to splurge.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -260,19 +254,24 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-pioneering-artistry-on-screen-top-15-stop-motion-marvels/"><u>[Updated] 2024 Approved Pioneering Artistry on Screen Top 15 Stop-Motion Marvels</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-beyondthebaseline-mycams-successor/"><u>[Updated] In 2024, BeyondTheBaseline MyCam's Successor?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-access-the-unreleased-best-in-class-5gb-console-emulators-for-windows-pcs/"><u>2024 Approved Access the Unreleased Best-in-Class 5GB Console Emulators for Windows PCs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/assessing-the-merits-why-choose-apple-vision-pro/"><u>Assessing the Merits: Why Choose Apple Vision Pro</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/bringing-tiktok-to-life-a-users-guide-to-watching-on-tv/"><u>Bringing TikTok to Life: A User's Guide to Watching on TV</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/determining-the-urgency-of-switching-to-ios-17/"><u>Determining the Urgency of Switching to iOS 17</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/evaluating-the-owc-mercury-pro-cutting-edge-drive-innovation-and-peak-performance-capabilities/"><u>Evaluating the OWC Mercury Pro: Cutting-Edge Drive Innovation and Peak Performance Capabilities</u></a></li>
-<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-vivo-t2-pro-5g-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Vivo T2 Pro 5G Devices | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximizing-wi-fi-reach-with-the-netgear-ex3700-an-authoritative-ac750-range-extender-review/"><u>Maximizing Wi-Fi Reach with the Netgear EX3700 - An Authoritative AC750 Range Extender Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/podcast-prowess-apples-airpods-pro-vs-galaxy-buds-pro/"><u>Podcast Prowess: Apple's AirPods Pro Vs. Galaxy Buds Pro</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-choosing-the-best-apc-gaming-ups-for-optimal-performance/"><u>Ultimate Guide to Choosing the Best APC Gaming UPS for Optimal Performance</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/ultimate-guide-to-enhancing-your-mac-usage-with-pro-tactics/"><u>Ultimate Guide to Enhancing Your Mac Usage with Pro Tactics</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/movavionline-mpeg-to-ogg/"><u>オフィシャルのMovaviアプリを使った簡単な、費用不要のOnline MPEG to OGGコンバーター方法</u></a></li>
-<li><a href="https://win-docs.techidaily.com/1726227363284-flacmkv-movavi/"><u>オンラインで簡単FlacとMkvの無料変換 - Movaviソリューション</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-how-to-guide-advanced-techniques-for-skype-screenshots-via-obs/"><u>[New] 2024 Approved How-To Guide Advanced Techniques for Skype Screenshots via OBS</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-instagram-backward-play-a-comprehensive-walkthrough/"><u>[Updated] 2024 Approved Instagram Backward Play A Comprehensive Walkthrough</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-the-essence-of-video-editing-filmoras-ten-wonders/"><u>[Updated] In 2024, The Essence of Video Editing Filmora's Ten Wonders</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-unlock-the-full-potential-of-vr-on-your-android-device/"><u>[Updated] In 2024, Unlock the Full Potential of VR on Your Android Device</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-virtual-escapades-you-cant-afford-to-miss-for-2024/"><u>[Updated] Virtual Escapades You Can't Afford to Miss for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-aerial-innovations-explained-drone-technology-simplified/"><u>2024 Approved Aerial Innovations Explained Drone Technology Simplified</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-powerhouse-apple-ipad-air-2020-vs-ipad-pro-a-comparative-review/"><u>Budget-Friendly Powerhouse: Apple iPad Air (2020) Vs. IPad Pro – A Comparative Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-flagships-the-detailed-breakdown-of-iphone-15-pro-max-and-galaxy-s24-ultra/"><u>Comparing Flagships: The Detailed Breakdown of iPhone 15 Pro Max and Galaxy S24 Ultra</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-asus-bw-16d1x-u-stylish-appearance-and-unique-features-reviewed/"><u>Comprehensive Analysis of the Asus BW-16D1X-U: Stylish Appearance & Unique Features Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-advantages-and-disadvantages-of-using-webex-for-remote-collaboration/"><u>Comprehensive Review: Advantages & Disadvantages of Using WebEx for Remote Collaboration</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/diving-into-tech-showdown-discovering-how-ipad-pro-stands-against-microsoft-surface-pro/"><u>Diving Into Tech Showdown: Discovering How iPad Pro Stands Against Microsoft Surface Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-kooteeck-cooling-pad-for-laptops-a-robust-and-versatile-choice/"><u>Evaluating Kooteeck Cooling Pad for Laptops – A Robust and Versatile Choice</u></a></li>
+<li><a href="https://article-helps.techidaily.com/expertly-recover-files-using-win-datacare/"><u>Expertly Recover Files Using WIN-DataCare</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-video-gurus-playbook-smooth-transition-to-easy-youtube-cc-and-subtitles/"><u>In 2024, The Video Guru's Playbook Smooth Transition to Easy YouTube CC & Subtitles</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/netgear-orbi-reviewed-your-definitive-choice-in-wifi-technology/"><u>Netgear Orbi Reviewed: Your Definitive Choice in WiFi Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/spotify-plus-is-paid-access-a-smart-move/"><u>Spotify Plus: Is Paid Access a Smart Move?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-allure-of-timeless-style-with-smart-functionality-in-the-withings-move-evaluation/"><u>The Allure of Timeless Style with Smart Functionality in the Withings Move Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-for-fitbit-charge-6-smartwatch/"><u>The Ultimate Review for Fitbit Charge 6 Smartwatch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unihertz-atom-xl-overview-how-this-compact-yet-durable-device-packs-big-performance/"><u>Unihertz Atom XL Overview: How This Compact Yet Durable Device Packs Big Performance</u></a></li>
 </ul></div>
 

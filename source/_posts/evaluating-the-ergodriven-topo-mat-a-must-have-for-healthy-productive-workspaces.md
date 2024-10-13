@@ -1,7 +1,7 @@
 ---
 title: "Evaluating the ErgoDriven Topo Mat: A Must-Have for Healthy, Productive Workspaces"
-date: 2024-09-30T19:38:48.656Z
-updated: 2024-10-07T02:27:53.736Z
+date: 2024-10-11T03:25:55.504Z
+updated: 2024-10-12T20:53:32.557Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating the ErgoDriven Topo Mat: A Must-Have for Healthy, Productive Workspaces"
@@ -49,10 +49,10 @@ Lifewire / Erika Rawes
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/aMRk3dxCpK74Zcn9NCYLlSncVTA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_HeroSquare-05a827c48b274d8e9ccd0070e770f4d4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -87,6 +87,13 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Connectivity: Dual Band AC1900**
 
  The Archer A9 is a[dual-band](https://www.lifewire.com/dual-band-wireless-networking-explained-818279) AC1900 router, so speeds max out at 1300 Mbps over the 5Ghz band and 600 Mbps over the 2.4 Ghz band. Setting up the networks was fast and easy, and I had my 5 Ghz and my 2.4 Ghz networks set up within five minutes using the companion app.
@@ -106,16 +113,10 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Network Performance: Not bad**
@@ -124,26 +125,33 @@ Lifewire / Erika Rawes
 
  In the same room as the router, speeds were excellent (naturally), getting up to 352 Mbps on the 5 Ghz band and 76 Mbps on the 2.4 Ghz band. I traveled upstairs, and speeds clocked in at a respectable 124 Mbps on the 5Ghz band and 36 Mbps over 2.4 Ghz. The signal remained strong almost everywhere in my two-level home, even in areas like closets, and many other places that could conceivably be Wi-Fi dead zones. However, I experienced a few slow zones in my garage, and in a guest room located on the opposite side of the home. I also experienced a spotty connection in the yard. The signal degraded significantly around the home’s exterior, so if you like to use your devices outside, you’ll want to invest in a[Wi-Fi extender](https://www.lifewire.com/best-wifi-extenders-4043312) , or go with a different router entirely.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Range: Around 2,000 square feet (give or take)**
 
  I didn’t see an exact range for the Archer A9 in the spec sheet, but I was able to get coverage in just about every area of my 3,000 square foot home. This is not to say the range is 3,000 square feet, as several factors like the type and number of devices you have, wall thickness, obstructions, your ISP, and other factors can all impact the signal quality and range. Generally speaking, it’s safe to say the A9 could probably cover at least a 2,000 square foot house.
 
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/yosOFzPzSpoghULMfbOuUFI5_E0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_06-94b9a314d8d24a37a7b4c90c7962e8a4.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Tether app**
 
@@ -163,13 +171,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **TP-Link Archer A9 vs. Netgear AC2300 Nighthawk Smart Wi-Fi Router**
 
  The Netgear AC2300 router is a simultaneous dual-band router with advertised speeds of 1625/600 Mbps. The AC2300 has two USB ports (one USB 2.0 and one USB 3.0) instead of just one USB port like the Archer A9, and it has a 1Ghz dual-core processor. The two routers have some differences, but they also boast a lot of similar features—MU-MIMO, smart connect, Alexa compatibility, and a companion app. The Netgear AC2300 (view on[Amazon](https://www.amazon.com/R7000P-100NAS-Nighthawk-Ethernet-Compatible-Parental/dp/B01NA80JML/?tag=lifewire-onsite-prod-20&ascsubtag=5076937%7Cn2952d2b5973949d990fe5b789fed97f118%7C) ) is more expensive, with a price tag of $200\. Once you get up into the $200 plus range, you may want to go ahead and get a tri-band or even a Wi-Fi 6 router. The TP-Link Archer A9 provides a better balance in terms of affordability and features.
@@ -179,13 +180,6 @@ Lifewire / Erika Rawes
  **A capable long-range router for those with average to moderate networking demands.**
 
  The TP-Link Archer A9 is an ideal router for a household with an average number of devices, but homes full of gamers or home office workers may want something a little more robust.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -222,15 +216,19 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-design-like-a-pro-free-premiere-plans-templates-2023-for-2024/"><u>[New] Design Like a Pro Free Premiere Plans, Templates 2023 for 2024</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-mastering-the-art-of-tweeting-video-uploads-on-instagram/"><u>[Updated] In 2024, Mastering the Art of Tweeting Video Uploads on Instagram</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/accelerate-your-videos-top-10-free-speed-changer-apps-for-ios-and-android/"><u>Accelerate Your Videos Top 10 Free Speed Changer Apps for iOS and Android</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/boosting-your-game-collection-adding-titles-to-the-nes-classic-edition/"><u>Boosting Your Game Collection: Adding Titles to the NES Classic Edition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-unmatched-reliability-in-connectivity-introducing-the-netgear-nighthawk-x6s-enhancer/"><u>Experience Unmatched Reliability in Connectivity: Introducing the Netgear Nighthawk X6S Enhancer</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-samsung-galaxy-a24-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Samsung Galaxy A24? Fixed | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/mastering-the-battlefield-communication-a-guide-for-fixing-csgo-mic-failures/"><u>Mastering the Battlefield Communication: A Guide for Fixing CS:GO Mic Failures</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/izing-views-optimal-youtube-thumbnails-for-2024/"><u>Maximizing Views Optimal YouTube Thumbnails for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-your-first-phone-journey-an-in-depth-look-at-nokia-24/"><u>Navigating Your First Phone Journey: An In-Depth Look at Nokia 2.4</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/selecting-the-perfect-iphone-extras-a-comprehensive-list-of-recommended-accessories/"><u>Selecting the Perfect iPhone Extras: A Comprehensive List of Recommended Accessories</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-boosting-your-brand-on-instagram-proven-5-techniques-and-success-stories/"><u>[New] Boosting Your Brand on Instagram Proven 5 Techniques & Success Stories</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-master-lightrooms-artistic-control-creating-and-merging-hdr-images/"><u>[New] In 2024, Master Lightroom's Artistic Control Creating & Merging HDR Images</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nlock-the-secrets-of-auditory-success-on-youtube-videos/"><u>[New] Unlock the Secrets of Auditory Success on YouTube Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-beyond-illusion-vr-timeline-explored/"><u>[Updated] Beyond Illusion VR Timeline Explored</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-evaluating-the-value-of-sns-hdr-in-a-crowded-market/"><u>[Updated] Evaluating the Value of SNS HDR in a Crowded Market</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-best-starter-accessories-to-elevate-your-gopro-capture/"><u>2024 Approved The Best Starter Accessories to Elevate Your GoPro Capture</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/disabling-iphone-x-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>Disabling iPhone X Parental Restrictions With/Without Password | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-asus-rog-gt-ac5300-a-dream-network-adapter-for-gamers-and-tech-experts/"><u>Expert Analysis of Asus ROG GT-AC5300: A Dream Network Adapter for Gamers & Tech Experts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-poweradd-pilot-pro2-the-go-to-power-bank-for-laptops-and-devices/"><u>In-Depth Analysis of POWERADD Pilot Pro2: The Go-To Power Bank for Laptops and Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-chatgpt-plus-worth-it-5-reasons-why-you-should-sign-up/"><u>Is ChatGPT Plus Worth It? 5 Reasons Why You Should Sign Up</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/next-generation-flight-gaming-at-its-best-an-insiders-look-into-the-x-plane-amo/"><u>Next Generation Flight Gaming at Its Best: An Insider's Look Into the X-Plane Amo</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-of-chat-app-usage-without-a-facebook-account/"><u>Secrets of Chat App Usage without a Facebook Account</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unleashing-imagination-with-these-grading-techniques-7-must-try-tips/"><u>Unleashing Imagination with These Grading Techniques 7 Must-Try Tips</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/yokus-journey-through-paradise-an-unforeseen-odyssey-revealed/"><u>Yoku's Journey Through Paradise: An Unforeseen Odyssey Revealed</u></a></li>
 </ul></div>
 

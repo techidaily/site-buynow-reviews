@@ -1,7 +1,7 @@
 ---
 title: Empires and Profits - An Insightful Review of the Offworld Trading Company's Capitalist Strategies
-date: 2024-09-08T21:53:37.364Z
-updated: 2024-09-15T08:29:51.168Z
+date: 2024-10-08T16:40:55.406Z
+updated: 2024-10-12T18:24:41.837Z
 categories:
   - BestProducts
 description: This Article Describes Empires and Profits - An Insightful Review of the Offworld Trading Company's Capitalist Strategies
@@ -44,6 +44,19 @@ Lifewire / Rebecca Isaacs
 
 4
 
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 7 Days to Die
 
 ![7 Days to Die](https://www.lifewire.com/thmb/mKaiRcg5xaWaOPRj0Ph1dRjUbSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4164252-1-e8b8c3eb31dd46e8a63e8e40a5a9d04b.jpg)
@@ -82,6 +95,19 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/Eq0YCIdbj82yj3lOCWEdZS7jX6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-4-341174c3997543728bd2b024c6e2a309.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
 ## **Plot: Open world horror sandbox**
@@ -101,16 +127,10 @@ Lifewire / Rebecca Isaacs
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Gameplay: Could be better, but solid overall**
@@ -143,35 +163,22 @@ Lifewire / Rebecca Isaacs
 
  Because the graphics are a rather mixed bag, the frames per second (fps) can vary dramatically. We experienced drops as low as 18 fps when playing. When surrounded by a horde, that can cost you your life.
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Platform: It’s complicated**
 
  7 Days to Die runs on many platforms:[PC](https://www.lifewire.com/what-is-a-mac-4155662) ,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and[Xbox 360](https://www.lifewire.com/xbox-360-buyers-guide-3562451) . We played 7 Days on PC, and at the time of writing, they released a teaser for the Alpha 18 update which would roll out to the PC version of the game.
 
  Last time we checked, the company that owned all console rights, Telltale, went bust, and The Fun Pimps (the developer) were in legal limbo trying to reacquire their own rights. There’s a good chance that there will not be an update in the console versions of the game anytime soon as this issue makes its way through the courts. Therefore, we strongly recommend that you purchase the PC version if you decide this is a game you might like to try.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Average for an alpha game**
 
  At around $25, 7 Days isn’t the most expensive zombie game on the market. However, it is the most expensive alpha zombie game out there. Because you can purchase it on[Steam](https://www.lifewire.com/what-is-steam-4177380) or Humble Bumble, we recommend waiting for a Steam sale and getting it for a discount, especially since it’s still in progress. This way, if you decide you don’t like it in the future, you aren’t out the full price.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Other sandbox shooters**
 
@@ -186,10 +193,10 @@ Lifewire / Rebecca Isaacs
  Despite flaws in graphics, there’s a lot to love about 7 Days to Die. The challenging skill tree system and dangerous intelligent zombies add an element that’s not typically found in zombie shooters. If you want a game to commit to for hours on end, building bases and exploring dungeon-like homes while slaying zombie cheerleaders, then 7 Days to Die could be a fun way to ease some stress after a long day of work.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -223,5 +230,26 @@ Lifewire / Rebecca Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-reviews.techidaily.com/1722676471430-dying-light-co-op-gaming-review-mastering-first-person-adrenaline-pumped-parkour-challenges-together/"><u>'Dying Light' Co-Op Gaming Review: Mastering First-Person, Adrenaline-Pumped Parkour Challenges Together</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/s55-best-bargain-in-high-definition-traffic-monitors-according-to-our-experts/"><u>'S55': Best Bargain in High Definition Traffic Monitors, According to Our Experts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-baffled-by-blank-screens-on-a6400-for-2024/"><u>[New] Baffled by Blank Screens on A6400 for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-discover-comprehensive-mac-art-app-selection/"><u>[New] Discover Comprehensive Mac Art App Selection</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-discovering-social-medias-top-5-innovations-in-fb/"><u>[New] In 2024, Discovering Social Media’s Top 5 Innovations in FB</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-essential-apps-best-10-software-to-capture-your-screens/"><u>[Updated] Essential Apps Best 10 Software to Capture Your Screens</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-hidden-gems-on-youtube-understanding-unlisted-videos/"><u>[Updated] Hidden Gems on YouTube Understanding 'Unlisted' Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722691394839-dbpower-600a-the-ultimate-guide-to-its-dependable-jump-starting-and-18000mah-power-supply-capabilities/"><u>DBPOWER 600A - The Ultimate Guide to Its Dependable Jump Starting and 18,000mAh Power Supply Capabilities</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/o-locate-your-youtube-fanbase-for-2024/"><u>How to Locate Your YouTube Fanbase for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-samsung-galaxy-f14-5g-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Samsung Galaxy F14 5G</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-apple-iphone-xr-or-ipad-by-drfone-ios/"><u>In 2024, How to Bypass Activation Lock on Apple iPhone XR or iPad?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-sumind-bt7ebt-fm-frequency-modulator-with-bluetooth-an-ideal-solution-for-vehicle-connectivity/"><u>Review of the Sumind BT7ebt FM Frequency Modulator with Bluetooth - An Ideal Solution for Vehicle Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/supercharge-your-device-point-processor-for-peak-performance/"><u>Supercharge Your Device’ Point Processor for Peak Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-under-100-router-an-experts-take-on-the-tp-link-archer-c80-speeds/"><u>The Best Under $100 Router - An Expert's Take on the TP-Link Archer C80 Speeds</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-gaomon-pd1560-revealed-crafting-masterpieces-with-this-top-tier-drawing-pad/"><u>The Gaomon PD1560 Revealed: Crafting Masterpieces with This Top-Tier Drawing Pad?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-dells-alienware-aurora-r9-a-revolutionary-future-of-gaming/"><u>Ultimate Guide to Dell's Alienware Aurora R9: A Revolutionary Future of Gaming</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-pros-and-cons-of-microsofts-expensive-all-in-one-surface-studio-2/"><u>Unveiling the Pros and Cons of Microsoft's Expensive All-in-One, Surface Studio 2</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-audio-video-alignment-made-easy-a-final-cut-pro-x-2024-guide/"><u>Updated Audio-Video Alignment Made Easy A Final Cut Pro X 2024 Guide</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Samsung Galaxy F54 5G? | Dr.fone</u></a></li>
+</ul></div>
 

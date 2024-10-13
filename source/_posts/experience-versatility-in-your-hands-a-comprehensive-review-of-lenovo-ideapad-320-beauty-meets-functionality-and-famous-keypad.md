@@ -1,7 +1,7 @@
 ---
 title: "Experience Versatility in Your Hands: A Comprehensive Review of Lenovo IdeaPad 320 - Beauty Meets Functionality & Famous Keypad"
-date: 2024-09-13T16:45:23.093Z
-updated: 2024-09-20T17:12:09.026Z
+date: 2024-10-10T23:29:10.090Z
+updated: 2024-10-12T17:18:17.358Z
 categories:
   - BestProducts
 description: "This Article Describes Experience Versatility in Your Hands: A Comprehensive Review of Lenovo IdeaPad 320 - Beauty Meets Functionality & Famous Keypad"
@@ -40,6 +40,13 @@ Lifewire / Jonno Hill
 [View On Amazon $35](https://www.amazon.com/dp/B01HQ4BRIG/?tag=lifewire-onsite-prod-20&ascsubtag=4843098%7Cnd0143d72158b4d609e6ef9a213c7445e18%7CB01HQ4BRIG) [View On Walmart $33](https://www.walmart.com/ip/Antennas-Direct-ECL-Clear-Stream-Eclipse-Sure-Grip-Indoor-HDTV-Antenna/146091443?slfpid=3)
 
 4.4
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Clearstream ECLIPSE
 
@@ -86,26 +93,26 @@ Lifewire / Jonno Hill
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Range: Fair to middling**
 
  Antenna’s Direct rates the ClearStream Eclipse Antenna for up to 35 miles of range, although I’ve seen reports of people getting good results from further, or having trouble from much closer. My apartment is well within the supported range, so my sentiments reflect its use in city settings more than suburbs or exurbs.
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Not bad for the performance**
@@ -113,10 +120,16 @@ Lifewire / Jonno Hill
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
@@ -154,5 +167,21 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unveiling-the-hidden-meanings-behind-facebooks-messenger-icon/"><u>[New] 2024 Approved Unveiling the Hidden Meanings Behind Facebook's Messenger Icon</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-keywords-in-the-realm-of-virtual-reality/"><u>[New] Keywords in the Realm of Virtual Reality</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-growth-excellence-in-valheim-optimal-seeds-unveiled/"><u>[Updated] Growth Excellence in Valheim Optimal Seeds Unveiled</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-streamline-your-video-capture-on-youtube/"><u>2024 Approved Streamline Your Video Capture on YouTube</u></a></li>
+<li><a href="https://blog-min.techidaily.com/pc-windowsmac10/"><u>軽快な動作 PC キャプチャ ツールを見つける！ Windows・Macでトップ10選</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/analyzing-the-reliable-and-classic-option-nulaxy-km18-bluetooth-car-stereo-transmitter/"><u>Analyzing the Reliable and Classic Option - Nulaxy KM18 Bluetooth Car Stereo Transmitter</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/best-solutions-for-poco-network-unlock-by-drfone-android/"><u>Best Solutions for Poco Network Unlock</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovo-tab-m1-2020-cost-effective-tablet-for-effortless-web-surfing-and-entertainment/"><u>Lenovo Tab M1지트 2020: Cost-Effective Tablet for Effortless Web Surfing and Entertainment</u></a></li>
+<li><a href="https://win-answers.techidaily.com/mastering-battlefield-2042-solutions-for-reducing-fps-drops-and-stutter-on-your-gaming-pc/"><u>Mastering Battlefield 2042: Solutions for Reducing FPS Drops & Stutter on Your Gaming PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/moneywise-moggiecat-cam-reviews/"><u>Moneywise Moggie/Cat Cam Reviews</u></a></li>
+<li><a href="https://techtrends.techidaily.com/overcoming-d3dx9-dll-not-found-practical-solutions-and-methods/"><u>Overcoming D3DX9 DLL Not Found: Practical Solutions and Methods</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranked-digital-programming-classes/"><u>Top-Ranked Digital Programming Classes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-leading-external-bd-writers-expert-reviews-and-picks/"><u>Ultimate Selection: Leading External BD Writers - Expert Reviews & Picks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/zenith-mounting-marvel-extensive-features-showcase/"><u>Zenith Mounting Marvel: Extensive Features Showcase</u></a></li>
+</ul></div>
 

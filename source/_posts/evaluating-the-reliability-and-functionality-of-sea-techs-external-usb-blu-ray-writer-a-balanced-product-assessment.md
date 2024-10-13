@@ -1,7 +1,7 @@
 ---
 title: "Evaluating the Reliability and Functionality of Sea Tech's External USB Blu-Ray Writer: A Balanced Product Assessment"
-date: 2024-10-06T00:06:32.225Z
-updated: 2024-10-07T10:06:29.556Z
+date: 2024-10-07T23:42:12.396Z
+updated: 2024-10-13T03:11:18.157Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating the Reliability and Functionality of Sea Tech's External USB Blu-Ray Writer: A Balanced Product Assessment"
@@ -44,15 +44,22 @@ Lifewire / Jordan Provost
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Nokia 7.1
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/FPdNqEjtI6f1tbMbciesCKN2pRQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_hero-14043634662d46998584bb21b3d7becd.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jordan Provost
 
@@ -86,25 +93,11 @@ Lifewire / Jordan Provost
 
 [Phone Reviews & Top Picks](https://www.lifewire.com/best-android-smartphones-577403)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: A mid-range phone with high-end sensibilities**
 
  The Nokia 7.1 is a mid-range handset that could pass for a higher-end device if you squint. It features the same general design—a glass front and back separated by an aluminum body—that we’ve seen so many times before, but it has a few design tweaks that help it stand out. The matte aluminum body features chamfered edges that add a bit of visual flair, especially when they catch the light.
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/1cMJEwjyd7B1WxBO7uBZOm0C2So=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_3-483bfb6a868848adaaf021846b9fb559.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
@@ -115,13 +108,6 @@ Lifewire / Jordan Provost
 ![Nokia 7.1](https://www.lifewire.com/thmb/NRHkz82CaIGpj9N3UQuqHzPSBas=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_4-2c6261afee9644848e68fbf1e73c3009.jpg)
 
  Lifewire / Jordan Provost
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Requires updates out of the box**
 
@@ -147,6 +133,13 @@ Lifewire / Jordan Provost
 
  It’s important to note that when the Nokia 7.1 launched, it was plagued with complaints about slow operation, lag, and an unresponsive touchscreen. These appear to have been software-related issues that have since been fixed, as we experienced no such problems in our hands-on testing.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Connectivity: Data connection is slow**
 
  In our testing, the Nokia 7.1 performed exceedingly well when connected to Wi-Fi, but it had far more problems with mobile data compared to similar handsets we tested. Connected to T-Mobile’s 4G LTE network (indoors), the Nokia 7.1 achieved 4.03 Mbps down and just 0.11 Mbps up via the Ookla Speedtest app. Tested at the same time, in the same location, a Google Pixel 3 recorded 4.69 Mbps down and 1.33 Mbps up.
@@ -164,22 +157,15 @@ Lifewire / Jordan Provost
 ![Nokia 7.1](https://www.lifewire.com/thmb/Z-CxaDLaus-Tzpvo30-F2j8i94o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_6-9eeeb5e2962c47e29b8a5335d69cc004.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
  The only problem with the Nokia 7.1’s display is that the color temperature is extremely cool. If you hold it next to any similar phone, you’ll notice a somewhat bluish tinge. The phone does include a “night mode” feature that tints the display in increasingly strong shades of amber after the sun goes down, which can help with eye strain at night. But if you’re sensitive to blue light, you may have trouble with this display.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Sound Quality: Loud, no distortion, but a lack of bass response**
 
@@ -200,10 +186,16 @@ Lifewire / Jordan Provost
 ![Nokia 7.1](https://www.lifewire.com/thmb/VI32Dr6kjQKlJti1W9Egtq7kb10=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_2-b7780c375da34f349ba0c037120ee3ff.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
@@ -221,6 +213,13 @@ Lifewire
  The handset also supports the “bothie” feature that Nokia has been pushing. This feature enables you to take photos or videos with the front-facing and rear-facing cameras at the same time (if that’s something you ever felt the need to do). It also has a very competent Bokeh feature that holds your subject in sharp focus while blurring the background.
 
  The hardware just isn’t there to challenge the best phone cameras found in flagship devices from the likes of Samsung, Apple, or Google, but the Nokia 7.1 doesn’t come with a flagship price tag either.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery: Enough to last through the work day**
 
@@ -244,6 +243,13 @@ Lifewire
 
  With Google ending their own mid-range line of phones with the Nexus 5X and 6P, Android One devices like the Nokia 7.1 are now the best way to keep up with the newest Android features without paying a premium.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Solidly mid-range**
 
  The Nokia 7.1 is a mid-range handset in terms of price, but it packs a lot of features that you’d expect from a much more expensive phone. It retails for $349 which, in the world of ever-expanding handset price tags, almost borders on the budget category. For what you get in terms of style, specifications, and features, that’s a pretty good deal.
@@ -264,18 +270,18 @@ Lifewire
 
  The Nokia 7.1 isn’t a high-end device, but it brings a lot of premium quality and features to the table. If you’re in the market for a solid mid-range handset, you won’t do much better than this.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [OnePlus 6T](https://www.lifewire.com/oneplus-6t-phone-review-4589385)
 * [Nokia 6.1](https://www.lifewire.com/nokia-6-1-review-4689956)
 * [Motorola Moto G6](https://www.lifewire.com/motorola-moto-g6-review-4689366)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -312,18 +318,18 @@ Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ap-into-thriving-youtube-threads-for-2024/"><u>[New] Tap Into Thriving YouTube Threads for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-elevate-your-mobile-surfing-with-these-top-7-blockers/"><u>[Updated] Elevate Your Mobile Surfing with These Top 7 Blockers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-seamless-viewing-clearing-up-streaming-hiccups-on-vimeo/"><u>2024 Approved Seamless Viewing Clearing Up Streaming Hiccups on Vimeo</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazons-e-readers-and-tablets-decoded-how-kindle-differs-from-the-fire-tablet/"><u>Amazon's E-Readers & Tablets Decoded: How Kindle Differs From the Fire Tablet</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/assessing-hulu-five-compelling-reasons-to-join/"><u>Assessing Hulu: Five Compelling Reasons to Join</u></a></li>
-<li><a href="https://win-blog.techidaily.com/banish-bluestacks-freezing-issues-a-5-step-guide/"><u>Banish BlueStacks Freezing Issues: A 5-Step Guide</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-vivo-y100-5g-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Vivo Y100 5G?</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-vivo-t2x-5g-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Vivo T2x 5G? Fixed | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/premier-picks-highest-rated-mp4s/"><u>Premier Picks Highest Rated MP4s</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/scouring-for-meaningful-youtube-discussions/"><u>Scouring for Meaningful YouTube Discussions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-samsung-galaxy-s20-fe-5g-why-its-a-top-choice-for-enthusiasts/"><u>Ultimate Guide to the Samsung Galaxy S20 FE 5G: Why It's a Top Choice for Enthusiasts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-allure-of-elegance-and-utility-the-ultimate-guide-to-the-michael-kors-gen-nv-access-wallet-mkgo/"><u>Unpacking the Allure of Elegance and Utility - The Ultimate Guide to the Michael Kors Gen Nv Access Wallet (MKGO)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-best-budget-laptop-a-comprehensive-guide-to-the-acer-aspire-e/"><u>Unveiling the Best Budget Laptop: A Comprehensive Guide to the Acer Aspire E</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-broadcasting-recorded-videos-live-on-facebook-step-by-step/"><u>[New] In 2024, Broadcasting Recorded Videos Live on Facebook Step by Step</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-breaking-into-the-digital-age-mobile-streaming-on-facebook/"><u>[Updated] In 2024, Breaking Into the Digital Age Mobile Streaming on Facebook</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-leading-routers-for-safe-online-surfing-and-child-monitoring/"><u>2024'S Leading Routers for Safe Online Surfing and Child Monitoring</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-balanced-perspective-on-the-viair-88p-air-compressor-impressive-capacity-with-slight-drawbacks-revealed/"><u>A Balanced Perspective on the Viair 88P Air Compressor - Impressive Capacity with Slight Drawbacks Revealed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-critical-look-at-microsofts-premium-ergonomic-keyboard-quality-and-comfort/"><u>A Critical Look at Microsoft's Premium Ergonomic Keyboard Quality & Comfort</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/accelerate-your-auto-enthusiasm-a-guide-to-new-age-automotive-engineering-reads-and-blogs-for-fans-in-chicago-book-five-of-fourth-series/"><u>Accelerate Your Auto Enthusiasm – A Guide to New-Age Automotive Engineering Reads & Blogs for Fans in Chicago, Book Five of Fourth Series!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-connectivity-on-wheels-unveiling-the-bouncie-driving-link-the-easy-guide-to-your-journey-tracking-system/"><u>Affordable Connectivity on Wheels: Unveiling the Bouncie Driving Link - The Easy Guide to Your Journey Tracking System</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-boost-your-videos-popularity-on-youtube/"><u>In 2024, Boost Your Video's Popularity on YouTube</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/leading-voice-transcription-tools-for-optimal-efficiency/"><u>Leading Voice Transcription Tools for Optimal Efficiency</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-enhances-trust-with-american-users/"><u>Meta Enhances Trust with American Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722686223699-revamping-an-iconic-series-the-fresh-take-on-ratchet-and-clank/"><u>Revamping an Iconic Series: The Fresh Take on Ratchet & Clank</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tactical-transformations-in-small-business-videography-for-2024/"><u>Tactical Transformations in Small Business Videography for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/yuneec-typhoon-q500-a-glimpse-of-tomorrow/"><u>Yuneec Typhoon Q500 - A Glimpse of Tomorrow</u></a></li>
 </ul></div>
 

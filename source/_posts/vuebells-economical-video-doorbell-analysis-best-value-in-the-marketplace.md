@@ -1,7 +1,7 @@
 ---
 title: "VueBell's Economical Video Doorbell Analysis: Best Value in the Marketplace"
-date: 2024-10-05T02:33:18.541Z
-updated: 2024-10-07T01:28:06.308Z
+date: 2024-10-06T01:53:53.795Z
+updated: 2024-10-12T23:30:06.498Z
 categories:
   - BestProducts
 description: "This Article Describes VueBell's Economical Video Doorbell Analysis: Best Value in the Marketplace"
@@ -44,16 +44,16 @@ thumbnail: https://thmb.techidaily.com/ab4e5b2f78d2947f058c6bbc1a1a3d8a464aeb89e
 
 3.6
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/EEEMCdq2FsBPMcT8nPUgndDIw4A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -77,13 +77,6 @@ thumbnail: https://thmb.techidaily.com/ab4e5b2f78d2947f058c6bbc1a1a3d8a464aeb89e
 
  Though Sony panels are sometimes on the expensive end of the spectrum, there are some older Sony 4K TVs that can be had for a nice little discount. One such TV is Sony’s XBR65X850F from their X850F series. This specific model has now been replaced by the X850G, but that doesn’t mean you necessarily need to go with the most current model. In fact, snagging one of these earlier generation sets can save you some cash without forcing you to compromise too much.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Standard Sony**
 
  The XBR65X850F's design is a combination of sleek and workmanlike. The stand on this Sony is pretty common for TVs these days, with two V-shaped feet that stick out to either side. While they look aluminum, these are actually plastic too, with merely an aluminum finish. They are decently steady, but we noticed a bit of wobble if you move the TV around. It should be plenty sturdy for most, though you will need a fairly wide stand for them to rest on since they stick out so far. There’s also no room for adjusting the unit up or down, but they’re tall enough to fit a soundbar underneath if you want. They also flip open on the top if you want to use them for some clever cable management.
@@ -103,13 +96,6 @@ thumbnail: https://thmb.techidaily.com/ab4e5b2f78d2947f058c6bbc1a1a3d8a464aeb89e
  The included remote is pretty standard for all Sony TVs, which means it’s big and packed with functionality. You can quickly set favorites with the hotkeys, access settings, change inputs, perform basic functions, and even manually enter channel numbers. We quite prefer this type of remote to something like a minimal Apple TV remote with only a sliver of the features. You’ve also got quick access to[Google Assistant](https://www.lifewire.com/what-is-google-assistant-4120911) right on the remote to perform some basic functions.
 
  On the front of the screen, the bezels are a little thicker than some of the 4K TVs we’ve reviewed, but they’re pretty thin and shouldn’t distract. There’s your standard anti-glare coating found on the screen here too.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Stick to the on-screen instructions**
 
@@ -131,13 +117,6 @@ thumbnail: https://thmb.techidaily.com/ab4e5b2f78d2947f058c6bbc1a1a3d8a464aeb89e
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/r5reh9LkA7QvieX1JzBg5J8qNjY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-5-00a73edbf91c48c6aa2718ab211f2e5d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
  However, IPS panels are notoriously bad for black uniformity and backlight bleed, which can cause clouding around the edges. We found this to be the case on our XBR65X850F, and while not unusable, it’s probably not the best option for viewing in dark environments because of this. The TV does have solid gray uniformity however, with no dirty screen effect. This is a huge boon if you’re a big sports fan.
@@ -152,13 +131,34 @@ thumbnail: https://thmb.techidaily.com/ab4e5b2f78d2947f058c6bbc1a1a3d8a464aeb89e
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Audio Quality: Loud, but distorted**
 
  Built-in speakers are never going to be great, but they’re nice to have if you’re lacking an[external sound system](https://www.lifewire.com/connect-tv-to-external-audio-system-1846816) like a soundbar. While we’d recommend getting an external setup for the best experience, let’s take a quick look at what the XBR65X850F has to offer with the included setup.
 
  Right off the bat, this TV can get quite loud and you shouldn’t run into any volume issues. That being said, the overall experience is mediocre at best. The louder you turn it up, the more distortion is added. These speakers should suffice in quiet environments if you’re primarily looking for nice clear dialogue with treble and mid, but the bass is not so good.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: A bit sluggish but good enough**
 
@@ -174,6 +174,19 @@ thumbnail: https://thmb.techidaily.com/ab4e5b2f78d2947f058c6bbc1a1a3d8a464aeb89e
 
  One last thing, your phone can also be used as a remote if you so choose. All you need to do is download the app and connect it to the TV. This works with both Android and iOS devices (thanks Google). While it’s not a good as the regular remote, it works fine enough if you’re too lazy to get up and find the standard remote.
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Not bad for the size, but not the cheapest**
 
  The X850F series come in a range of sizes, from 65 to 85 inches, so the prices can vary considerably depending on which one you go with. Any TV in this size range is going to cost a good bit of coin, no matter the manufacturer, but Sony isn’t too bad here.
@@ -181,13 +194,6 @@ thumbnail: https://thmb.techidaily.com/ab4e5b2f78d2947f058c6bbc1a1a3d8a464aeb89e
  On Sony’s website, the 65-inch model we tested here is listed at $1,300, the 75 at $2,300, and the 85 at a whopping $4,000\. Now these prices aren’t exactly accurate, especially since these are an older series. Typically you can find the 65-inch for about $1,100 or so. The other models are also heavily discounted depending on where you look, so definitely shop around. It’s likely that you can snag them for even less during sales.
 
  But how do these prices stack up against comparable TVs from competitors like LG or Samsung? Taking a quick look around online, you can easily save a few hundred dollars by going with a comparable LG TV, while Samsung was pretty closely matched with Sony. In the end, the price for the X850F series isn’t the best bang for your buck, but it ain’t bad either.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Sony XBR65X850F vs. Samsung UN65RU8000**
 
@@ -236,20 +242,18 @@ thumbnail: https://thmb.techidaily.com/ab4e5b2f78d2947f058c6bbc1a1a3d8a464aeb89e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-reviews.techidaily.com/homepod-mini-and-echo-dot-showdown-understanding-their-unique-features/"><u>HomePod Mini and Echo Dot Showdown: Understanding Their Unique Features</u></a></li>
-<li><a href="https://win-answers.techidaily.com/improved-fps-in-lost-ark-fixing-the-previous-lagging-issues/"><u>Improved FPS in Lost Ark - Fixing the Previous Lagging Issues</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Lava Blaze 2 5G | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-motorola-edge-40-pro-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Motorola Edge 40 Pro Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Realme 11 Pro+? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/master-the-darkness-an-insightful-look-into-the-resilient-and-portable-design-of-j5-tactical-v1-pro-lights/"><u>Master the Darkness: An Insightful Look Into the Resilient and Portable Design of J5 Tactical V1 Pro Lights</u></a></li>
-<li><a href="https://win-able.techidaily.com/resolving-destiny-2-server-disconnect-issues-a-comprehensive-guide/"><u>Resolving 'Destiny 2 Server Disconnect Issues': A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-console-experience-with-the-exceptional-asus-vg245h-monitor/"><u>Revolutionize Your Console Experience with the Exceptional Asus VG245H Monitor</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/social-scrutiny-who-felt-the-glance-on-your-insta-image-in-2024/"><u>Social Scrutiny Who Felt the Glance on Your Insta Image, In 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-cheetah-arms-for-budget-shoppers/"><u>The Ultimate Cheetah Arms for Budget Shoppers</u></a></li>
-<li><a href="https://change-location.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Vivo Y27s | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-best-streaming-apps-of-this-year/"><u>The Ultimate Guide to the Best Streaming Apps of This Year</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-features-reviewed-for-apples-popular-book-reading-app/"><u>Top Features Reviewed for Apple's Popular Book Reading App</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/uncompromised-audio-best-concert-earplug-guide/"><u>Uncompromised Audio: Best Concert Earplug Guide</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1725290001474-winxvideo-ai/"><u>WinxVideo AI: 화면, 웹캠 및 오디오 녹음을 위한 안내되는 효율적인 기법</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-a-glimpse-into-the-digital-frontier-todays-vr/"><u>[New] A Glimpse Into the Digital Frontier Today's VR</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/acurite-pro-weather-station-01036m-review-simple-setup-robust-design/"><u>AcuRite Pro Weather Station 01036M Review: Simple Setup, Robust Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-truckers-audio-companion-bluetooth-hearing-device-explored/"><u>Affordable Truckers' Audio Companion: Bluetooth Hearing Device Explored</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On ZTE Blade A73 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-most-economical-choice-for-home-security-our-comprehensive-vuebell-doorbell-guide/"><u>Discover the Most Economical Choice for Home Security: Our Comprehensive VueBell Doorbell Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honteruss-tales-of-triumph-and-tenacity/"><u>Honterus's Tales of Triumph & Tenacity</u></a></li>
+<li><a href="https://win-updates.techidaily.com/how-to-restore-games-and-progress-on-xbox-360-following-drive-erasure/"><u>How to Restore Games and Progress on Xbox 360 Following Drive Erasure</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-google-pixel-fold-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Google Pixel Fold online without jailbreak</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-vivo-x100-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Vivo X100</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-whatsapp-web-for-laptops-setting-up-remote-video-calls-step-by-step/"><u>In 2024, WhatsApp Web for Laptops Setting Up Remote Video Calls Step by Step</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-photo-management-with-the-nixplay-iris-system/"><u>Mastering Photo Management with the Nixplay Iris System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/step-by-step-guide-switching-to-ios-15/"><u>Step-by-Step Guide: Switching to iOS 15</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-seamless-integration-with-freestyle2-blue-software-for-your-mac-device/"><u>Unlocking Seamless Integration with Freestyle2 Blue Software for Your Mac Device</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Exploring Usability in the Face of Limited Power: A Comprehensive Review of the Lenovo N130 S Laptop"
-date: 2024-09-15T18:48:50.403Z
-updated: 2024-09-20T18:34:53.665Z
+date: 2024-10-06T18:17:53.568Z
+updated: 2024-10-13T01:38:49.786Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring Usability in the Face of Limited Power: A Comprehensive Review of the Lenovo N130 S Laptop"
@@ -75,6 +75,19 @@ Lifewire / Erika Rawes
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup: Relatively easy**
 
  Setting up the antenna is pretty straightforward. You start by plugging one end of the coaxial cable into the antenna, and then the other end to the coaxial/antenna-in connector to your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) .
@@ -86,13 +99,6 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels (in a rural area)**
 
@@ -111,10 +117,10 @@ Lifewire / Erika Rawes
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Super affordable**
@@ -123,14 +129,14 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
@@ -141,6 +147,13 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -171,5 +184,16 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/updated-ideal-virtual-reality-systems-for-drones/"><u>[Updated] Ideal Virtual Reality Systems for Drones</u></a></li>
+<li><a href="https://games-able.techidaily.com/9-strategies-to-tackle-windows-steam-folder-access/"><u>9 Strategies to Tackle Windows Steam Folder Access</u></a></li>
+<li><a href="https://win-forum.techidaily.com/connect-with-billions-on-the-leading-platforms-facebook-twitter-instagram-and-youtube/"><u>Connect With Billions on the Leading Platforms: Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-by-checkra1n-even-from-apple-iphone-14-if-youve-tried-everything-by-drfone-ios/"><u>In 2024, How To Bypass iCloud By Checkra1n Even From Apple iPhone 14 If Youve Tried Everything</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/is-it-possible-for-a-windows-server-to-backup-more-than-2tb-of-data-in-one-go/"><u>Is It Possible for a Windows Server to Backup More than 2TB of Data in One Go?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-linkedin-learning-classes/"><u>Top-Rated LinkedIn Learning Classes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-the-secrets-to-building-utopian-metropolises-with-cities-skylines-reviewed/"><u>Unlock the Secrets to Building Utopian Metropolises with Cities: Skylines Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/upgrade-or-stick-with-current-comparing-the-newest-flagships-galaxy-s24-and-s23/"><u>Upgrade or Stick with Current? Comparing the Newest Flagships - Galaxy S24 and S23</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/urban-armor-gear-protective-sleeve-for-macbook-pro-is-it-tough-enough/"><u>Urban Armor Gear Protective Sleeve for MacBook Pro - Is It Tough Enough?</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Expert Reviews: The Combination of Style and Technology in Samsung's UN65RU80TUXA Television Set"
-date: 2024-09-18T18:09:05.062Z
-updated: 2024-09-20T18:17:36.456Z
+date: 2024-10-06T18:21:36.623Z
+updated: 2024-10-12T19:56:06.494Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Reviews: The Combination of Style and Technology in Samsung's UN65RU80TUXA Television Set"
@@ -43,9 +43,29 @@ thumbnail: https://thmb.techidaily.com/2d6ac4daab03782e87bc719b2db632da8a61451d4
 
 3
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -65,6 +85,13 @@ thumbnail: https://thmb.techidaily.com/2d6ac4daab03782e87bc719b2db632da8a61451d4
  I’ve always been drawn to sandbox building games, from Roller Coaster Tycoon to[SimCity](https://www.lifewire.com/simcity-4-starting-new-city-840147) to Pharaoh. While I’ve built up great cities on earth, there is one place I haven’t been to: outer space. Surviving Mars fills this planet-sized hole.
 
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Plot: Lots of options**
 
@@ -91,10 +118,16 @@ thumbnail: https://thmb.techidaily.com/2d6ac4daab03782e87bc719b2db632da8a61451d4
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -135,13 +168,6 @@ thumbnail: https://thmb.techidaily.com/2d6ac4daab03782e87bc719b2db632da8a61451d4
 
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  Surviving Mars
@@ -167,5 +193,24 @@ thumbnail: https://thmb.techidaily.com/2d6ac4daab03782e87bc719b2db632da8a61451d4
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-daily-dose-your-go-to-anime-video-streams-online-for-2024/"><u>[New] Daily Dose Your Go-To Anime Video Streams Online for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-boost-your-post-with-three-video-border-methods/"><u>[New] In 2024, Boost Your Post with Three Video Border Methods</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-master-listings-for-melodic-mobile-alerts/"><u>[Updated] 2024 Approved Master Listings for Melodic Mobile Alerts</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unveil-windows-xp-professional-for-video-production/"><u>[Updated] Unveil Windows XP Professional for Video Production</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-watch-series-reviewed-the-impact-of-gps-and-cellular-functions-on-usage/"><u>Apple Watch Series Reviewed: The Impact of GPS and Cellular Functions on Usage</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-wifi-solution-in-depth-tp-link-archer-c9-analysis/"><u>Budget WiFi Solution: In-Depth TP-Link Archer C9 Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-premier-wrist-pads-for-computer-users/"><u>Discover the Premier Wrist Pads for Computer Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-the-perfect-beginner-friendly-tripod-on-amazonbasics/"><u>Discovering the Perfect Beginner-Friendly Tripod on AmazonBasics</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/echo-dot-gen-4-review-fresh-features-and-stylish-revamp/"><u>Echo Dot (Gen 4) Review: Fresh Features and Stylish Revamp</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elite-speed-on-demand-the-ultimate-review-of-the-netgear-nighthawk-rax120s-cutting-edge-technology/"><u>Elite Speed on Demand: The Ultimate Review of the Netgear Nighthawk RAX120's Cutting-Edge Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/embrace-comprehensive-wellness-tracking-with-the-fitbit-sense-an-effective-rival-to-apples-iconic-timepiece/"><u>Embrace Comprehensive Wellness Tracking With The Fitbit Sense: An Effective Rival To Apple's Iconic Timepiece</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-take-on-the-zmi-powerpack-20000-ultimate-in-depth-review/"><u>Expert Take on the ZMI PowerPack 20000: Ultimate In-Depth Review</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/flawless-flow-essential-macos-big-sur-video-editing-tools/"><u>Flawless Flow Essential MacOS Big Sur Video Editing Tools</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-motorola-edge-40-neo-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on Motorola Edge 40 Neo</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-itel-a70-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/luminous-leaders-top-5-monitors-that-bring-shades-to-life/"><u>Luminous Leaders Top 5 Monitors That Bring Shades to Life</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/preventing-chatgpt-from-recording-your-dialogue-a-step-by-step-guide/"><u>Preventing ChatGPT From Recording Your Dialogue: A Step-by-Step Guide</u></a></li>
+</ul></div>
 

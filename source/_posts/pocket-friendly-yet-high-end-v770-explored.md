@@ -1,7 +1,7 @@
 ---
 title: "Pocket-Friendly Yet High-End: V770 Explored"
-date: 2024-09-09T11:54:28.750Z
-updated: 2024-09-15T03:42:55.630Z
+date: 2024-10-08T01:49:30.680Z
+updated: 2024-10-12T18:23:38.872Z
 categories:
   - BestProducts
 description: "This Article Describes Pocket-Friendly Yet High-End: V770 Explored"
@@ -75,6 +75,13 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Features & Functionality: Full suite manual control**
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master has a lot of different options that will make it an attractive option for manual shooters. But before we dive into all the things it does well, let’s talk about what you_won’t_ find in this flash. The most notable omission is TTL. For the uninitiated, Through The Lens (TTL) is a metering mode that lets a flash unit fire a series of infrared bursts and evaluates the actual light coming through the lens to determine how much power to deliver when taking a photo. It’s very handy to have for beginners and event photographers, but by no means essential for many other types of users.
@@ -96,10 +103,16 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup: A lot of reading before use**
@@ -122,6 +135,13 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Yongnuo YN560 IV Wireless Flash Speedlite Master vs Neewer TT560 Flash Speedlite**
 
  Photographers just starting out (or with significantly less complicated lighting ambitions) might be better served by getting a dead-simple option like the Neewer TT560 Flash Speedlite. It’s a no-fuss option with very few extraneous controls that will be a good starting point for most users, and solid for pros who don’t want more than optical trigger functionality on a flash.
@@ -143,10 +163,10 @@ Lifewire / Jonno Hill
 * [Fovitec SPK10-037 Softbox Lighting Kit](https://www.lifewire.com/fovitec-spk10-037-softbox-lighting-kit-review-4692503)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -179,5 +199,20 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-capture-studio-ultimate-professional-record-for-2024/"><u>[New] Capture Studio Ultimate Professional Record for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rafting-youtube-channel-trailers-the-ultimate-guide-to-profitability/"><u>[New] Crafting YouTube Channel Trailers The Ultimate Guide to Profitability</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-seek-all-sharing-in-a-group-chat-via-messenger/"><u>[New] In 2024, Seek All Sharing in a Group Chat via Messenger</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-shorts-and-tiktok-which-one-is-better-for-personal-usage/"><u>[Updated] In 2024, YouTube Shorts & TikTok Which One Is Better for Personal Usage?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-most-powerful-and-sleek-17-inch-laptop-selection/"><u>2024'S Most Powerful and Sleek 17-Inch Laptop Selection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehhavisual-review-of-the-refined-samsung-galaxy-s21-features/"><u>A Comprehhavisual Review of the Refined Samsung Galaxy S21 Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-remobell-security-camera-review-top-choices-for-less-than-100/"><u>Affordable RemoBell Security Camera Review – Top Choices for Less Than $100</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/all-you-need-to-know-about-garmin-vivosmart-4-mastering-body-battery-and-stress-monitor-for-improved-wellness/"><u>All You Need to Know About Garmin Vivosmart 4: Mastering Body Battery & Stress Monitor for Improved Wellness</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/como-subir-y-editar-videos-en-imovie-el-mejor-convertidor-para-usar/"><u>Cómo Subir Y Editar Videos en iMovie: El Mejor Convertidor Para Usar</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/convert-aac-files-to-lossless-flac-format-for-free-with-online-tools/"><u>Convert AAC Files to Lossless FLAC Format for Free with Online Tools</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722678435738-experience-ultra-hd-with-the-reasonably-priced-sony-xbr65x850f-our-review/"><u>Experience Ultra HD with the Reasonably Priced Sony XBR65X850F - Our Review!</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-how-to-create-and-change-an-igtv-cover-photo-thumbnail/"><u>In 2024, How to Create and Change an IGTV Cover Photo (Thumbnail)?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/navigating-through-youtube-shorts-knowledge/"><u>Navigating Through YouTube Shorts Knowledge</u></a></li>
+</ul></div>
 

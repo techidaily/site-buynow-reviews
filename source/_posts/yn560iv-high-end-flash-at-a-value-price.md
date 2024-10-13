@@ -1,7 +1,7 @@
 ---
 title: "YN560IV: High-End Flash at a Value Price"
-date: 2024-09-17T17:12:22.638Z
-updated: 2024-09-20T18:16:35.964Z
+date: 2024-10-12T00:49:19.115Z
+updated: 2024-10-12T19:30:03.446Z
 categories:
   - BestProducts
 description: "This Article Describes YN560IV: High-End Flash at a Value Price"
@@ -45,6 +45,19 @@ Lifewire / Jonno Hill
 ## YONGNUO YN560 IV Wireless Flash Speedlite Master
 
 ![Yongnuo YN560 IV Wireless Flash Speedlite Master](https://www.lifewire.com/thmb/UOD6afkRh-xS-Dh1-iagOeoOSdY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_3LW4072366-Yongnuo-YN560-1-33b6547cc9014731ab6e144b0613aaef.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -100,6 +113,13 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup: A lot of reading before use**
 
  Once you unpack your flash and install the four AA batteries, you’re going to want to familiarize yourself with the buttons and menu system a little. The YN560 IV has a lot of functionality, but it doesn’t have the most intuitive interface. The front of the device contains a top row of four buttons (a Light/Music icon, Mode, a Wi-Fi icon, and Zoom). Below this is a charge indicator button marked “PILOT”, a direction pad, and an On/Off button.
@@ -114,24 +134,18 @@ Lifewire / Jonno Hill
 
  Overall, the YN560 IV gives you a lot of functionality and control, but definitely requires some reading and troubleshooting before you can master the device.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Significant savings for manual users**
 
  Buyers that need a lot of manual control for complex flash setups will be very pleased with what the get for the approximately $60 the YN560 IV costs. It sits at a price that’s a fraction of its TTL-enabled Canon and Nikon counterparts, but twice that of even simpler options. Do you need all the functionality that the YN560 IV offers? Are you willing to troubleshoot a bit with returns to make sure you get good, non-defective units? If the answer to those questions is yes, this is definitely the flash for you.
 
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Yongnuo YN560 IV Wireless Flash Speedlite Master vs Neewer TT560 Flash Speedlite**
 
@@ -147,18 +161,18 @@ Lifewire / Jonno Hill
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master may not be a very simple flash, but it packs enough functionality to make a very versatile platform for more aspirational photographers. Buyers that want full manual control and radio transmission without paying an arm and a leg will be more than pleased with what they get.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Canon Speedlite 430EX III-RT Flash](https://www.lifewire.com/canon-speedlite-430ex-iii-rt-flash-review-4686835)
 * [Nikon D3400](https://www.lifewire.com/nikon-d3400-review-4776644)
 * [Fovitec SPK10-037 Softbox Lighting Kit](https://www.lifewire.com/fovitec-spk10-037-softbox-lighting-kit-review-4692503)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -190,5 +204,18 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-choosing-excellence-hdr-cameras-decoded/"><u>[New] In 2024, Choosing Excellence HDR Cameras Decoded</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-morning-judgment-creative-viewpoints/"><u>[New] Morning Judgment Creative Viewpoints</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-seamless-social-sharing-upload-a-twt/"><u>[Updated] In 2024, Seamless Social Sharing Upload a Twt</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-watch-gps-vs-cellular-apple-watch/"><u>Apple Watch GPS Vs. Cellular Apple Watch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-the-newly-improved-budget-friendly-apple-ipad-102-gen-8/"><u>Comprehensive Evaluation of the Newly Improved, Budget-Friendly Apple iPad 10.2 - Gen 8</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-oppo-a79-5g-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Oppo A79 5G Location Settings | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-vivo-v27-pro-lock-screen-password-by-drfone-android/"><u>How To Change Vivo V27 Pro Lock Screen Password?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-premier-guide-to-choosing-an-ergonomic-keyboard-best-picks-of-2econd/"><u>The Premier Guide to Choosing an Ergonomic Keyboard: Best Picks of 2Econd</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/unlock-exclusive-deals-on-wonderfox-dvd-ripping-tool-with-bitsdujours-latest-offer/"><u>Unlock Exclusive Deals on WonderFox DVD Ripping Tool with BitsDuJour's Latest Offer</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-asus-rog-phone-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/x-chair-x4-executive-chair/"><u>X-Chair X4 Executive Chair</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "DJI's Sky-High Champion: In-Depth Review of the Air 2S Quadcopter"
-date: 2024-09-17T17:03:30.764Z
-updated: 2024-09-20T16:21:31.176Z
+date: 2024-10-08T18:29:42.295Z
+updated: 2024-10-12T21:08:17.092Z
 categories:
   - BestProducts
 description: "This Article Describes DJI's Sky-High Champion: In-Depth Review of the Air 2S Quadcopter"
@@ -71,6 +71,13 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -78,6 +85,13 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
  With very large sides, the front is really just a small panel with light-up LED indicators showing connectivity details and which Ethernet ports are in use. There’s also a small WPS button beneath the LED panel for easy connectivity with a router. On the wider back panel are the four wired[Ethernet ports](https://www.lifewire.com/what-is-an-ethernet-port-817546) for plugging in devices such as game consoles and computers, as well as a USB 3.0 port, DC power port, and the power button itself.
 
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Avoid the app**
 
@@ -92,10 +106,10 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -116,13 +130,6 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -130,13 +137,6 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
  It’s billed as an “8-stream” device, so it should be able to handle several simultaneous media streams at once, with a billed max speed of 4.8Gbps on the 5GHz band and 1.2Gbps on the 2.4GHz band. It has[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) (multiple users, multi-in multi-out) and beamforming capabilities, promising expanded range of up to 2,500 square feet and support for 30+ simultaneous devices.
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: More than most**
 
@@ -153,6 +153,13 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
  **Only for early adopters with Wi-Fi 6 routers and devices.**
 
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -178,5 +185,26 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-gamer-tested-streaming-software-picks/"><u>[New] 2024 Approved Gamer-Tested Streaming Software Picks</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-partnership-performed-live-tiktok-edition/"><u>[New] In 2024, Partnership Performed Live TikTok Edition</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-journey-into-cinematic-precision-with-windows-high-dynamic-range-support/"><u>[New] Journey Into Cinematic Precision with Windows High-Dynamic Range Support</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-pro-user-guide-to-mastering-the-latest-windows-10/"><u>[Updated] Pro User Guide to Mastering the Latest WINDOWS 10</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/1726219222053-movavi/"><u>多様なメディアに対応したセキュリティ機能が兼ね備わったMovaviの高度マルチメディアソフトウェア</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-honor-magic-6-pro-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Honor Magic 6 Pro is off? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-linksys-ea9500-the-smart-and-strong-wireless-networking-solution/"><u>Comprehensive Analysis of Linksys EA9500 - The Smart and Strong Wireless Networking Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-features-a-guide-to-mapmyride-user-reviews/"><u>Exploring Features: A Guide to MapMyRide User Reviews</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-galaxy-the-outer-worlds-an-engaging-sci-fi-adventure-game/"><u>Exploring the Galaxy: 'The Outer Worlds' - An Engaging Sci-Fi Adventure Game</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-dominate-in-games-with-the-smallest-pcs-on-the-market/"><u>How to Dominate in Games with the Smallest PCs on the Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-extract-and-save-embedded-photos-into-word-doc-templates/"><u>How To Extract & Save Embedded Photos Into Word Doc Templates</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-motorola-moto-g14-pictures-an-easy-method-explained-by-fonelab-android-recover-pictures/"><u>How to Restore Deleted Motorola Moto G14 Pictures An Easy Method Explained.</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-nokia-g42-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Nokia G42 5G to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-learn-to-access-final-cut-pro-for-free/"><u>In 2024, Learn To Access Final Cut Pro for Free</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-through-advanced-htpcs-a-comprehensive-review-of-the-best-models-for-a-stellar-movie-night/"><u>Navigating Through Advanced HTPCs: A Comprehensive Review of the Best Models for a Stellar Movie Night</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-real-deal-on-cheap-an-in-depth-look-at-the-mobvoi-ticwatch-e2-smartwatch/"><u>The Real Deal on Cheap: An In-Depth Look at the Mobvoi TicWatch E2 Smartwatch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-refined-challenger-skagen-falster-2-faces-off-with-apple-gadgets/"><u>The Refined Challenger: Skagen Falster 2 Faces Off with Apple Gadgets</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/unlock-your-iphone-14-in-minutes-with-iccid-code-everything-you-need-to-know-by-drfone-ios/"><u>Unlock Your iPhone 14 in Minutes with ICCID Code Everything You Need to Know</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/zombies-redefined-in-7-days-to-die-an-in-depth-critique-of-a-unique-survival-journey-across-an-open-world-playground/"><u>Zombies Redefined in '7 Days to Die': An In-Depth Critique of a Unique Survival Journey Across an Open World Playground</u></a></li>
+</ul></div>
 

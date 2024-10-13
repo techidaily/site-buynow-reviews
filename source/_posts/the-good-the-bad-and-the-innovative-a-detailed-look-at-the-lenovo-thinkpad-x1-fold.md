@@ -1,7 +1,7 @@
 ---
 title: The Good, the Bad & the Innovative - A Detailed Look at the Lenovo ThinkPad X1 Fold
-date: 2024-09-12T13:41:32.721Z
-updated: 2024-09-15T10:04:11.614Z
+date: 2024-10-08T16:07:20.954Z
+updated: 2024-10-13T00:04:54.149Z
 categories:
   - BestProducts
 description: This Article Describes The Good, the Bad & the Innovative - A Detailed Look at the Lenovo ThinkPad X1 Fold
@@ -45,9 +45,23 @@ Lifewire / Matthew S. Smith
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Lenovo ThinkPad X1 Titanium Yoga (20QA000EUS)
 
 ![Lenovo ThinkPad X1 Titanium Yoga](https://www.lifewire.com/thmb/ztk5VWzqM5cA2O8UpUWNOxiQOKI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Lenovo-ThinkPad-X1-Titanium-Yoga-1-eed9ce854c7c4e45b1b1312abc4db01e.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -99,6 +113,13 @@ The X1 Titanium Yoga is the thinnest ThinkPad, ever.
 
 ![Lenovo ThinkPad X1 Titanium Yoga](https://www.lifewire.com/thmb/Rrg_1tXEwECo-FxywmPXf75MNgo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo-ThinkPad-X1-Titanium-Yoga-4-39b12a29a7294d1ebd963669e3d50cc2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
 
 ## Display: It’s hip to be (almost) square
@@ -109,22 +130,22 @@ Lifewire / Matthew S. Smith
 
 ![Lenovo ThinkPad X1 Titanium Yoga](https://www.lifewire.com/thmb/YsLLj2-yQBwEq2GnyyHBwN5giFk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo-ThinkPad-X1-Titanium-Yoga-2-f732e0f2d9e24718a3bc28338febae40.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Matthew S. Smith
 
  Aspect ratio aside, the display isn’t remarkable. It’s an IPS touchscreen with 2256x1504 resolution, leading to a mediocre pixel density of 201 pixels per inch. That’s not as sharp as the optional 4K displays found on similarly priced alternatives like[Dell’s XPS 13 2-in-1](https://www.lifewire.com/dell-xps-13-7390-2-in-1-review-5113106) . The display has good color accuracy and a respectable contrast ratio of 1000:1, but the same can be said of nearly every alternative from the XPS 13 2-in-1 to[Apple’s MacBook Pro](https://www.lifewire.com/macbook-pro-13-inch-m1-2020-review-5092658) and HP’s Spectre x360 14\.
+
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Performance: More than meets the eye
 
@@ -141,10 +162,10 @@ Lifewire / Matthew S. Smith
  The 2-in-1’s good benchmark scores translated well to everyday performance. It felt smooth and responsive in a variety of situations and handled more demanding tasks, like photo editing, without much issue. This is not a[workstation laptop](https://www.lifewire.com/best-laptops-to-buy-4043650) , so it has limitations, but its overall performance is impressive given its thin profile and low weight.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Productivity: Another great keyboard from Lenovo
@@ -156,19 +177,6 @@ Lifewire / Matthew S. Smith
  The touchpad, which mimics the aspect ratio of the display, is rather small. It includes one set of physical buttons at the top, rather than the bottom, of the touchpad. It’s a sign this laptop is meant for ThinkPad purists. The location of the buttons feels odd if you use the touchpad, but it’s perfect if you prefer the Trackpoint, a red nub in the middle of the keyboard.
 
 ![Lenovo ThinkPad X1 Titanium Yoga](https://www.lifewire.com/thmb/GXZFQjT0E2Wwq-MXSfXK1Z-M_bo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo-ThinkPad-X1-Titanium-Yoga-3-dad8616d7a0c49818a505ae7ebd963cf.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -186,13 +194,6 @@ Lifewire / Matthew S. Smith
 
  Fast charging is supported, with Lenovo saying that 30 minutes of charging will provide up to 4 hours of battery life. My testing found this was accurate.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Audio: Clear, crisp, and pointed in the right direction
 
  A pair of 2-watt forward-facing speakers serve the ThinkPad X1 Titanium Yoga’s audio. They’re reasonably loud at maximum volume but have trouble overcoming ambient noise, such as a nearby air conditioner or box fan. They provide clear dialogue and reasonably enjoyable music.
@@ -206,6 +207,13 @@ Lifewire / Matthew S. Smith
  I wasn’t impressed by the laptop’s Wi-Fi performance. It’s great when very close to a Wi-Fi 6 router, pushing beyond 800 megabits per second (Mbps). That’s more than an average home Internet connection can deliver.
 
  However, the laptop only hit 25Mbps to 40Mbps in my detached office, which is about 40 feet from a powerful Wi-Fi 6 compatible mesh router node. It’s a disappointing result, as a desktop with a Wi-Fi 5 adapter exceeds 100Mbps in the same location.
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Camera: Making the most of 720p
 
@@ -254,10 +262,10 @@ Lifewire / Matthew S. Smith
 * [Lenovo Chromebook Duet](https://www.lifewire.com/lenovo-chromebook-duet-review-5090543)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -296,5 +304,22 @@ Lifewire / Matthew S. Smith
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-mastering-macbook-air-beginners-guide-to-screen-recording/"><u>[New] In 2024, Mastering MacBook Air Beginner's Guide to Screen Recording</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-metaverse-joke-ology-building-your-own-hilarious-memes/"><u>[New] Metaverse Joke-Ology Building Your Own Hilarious Memes</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-seamless-sync-tweets-as-videos-on-whatsapp/"><u>[New] Seamless Sync Tweets as Videos on WhatsApp</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-expert-advice-incorporating-narrative-elements-into-youtube-videos/"><u>[Updated] 2024 Approved Expert Advice Incorporating Narrative Elements Into YouTube Videos</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-effortless-mac-screenshots-exploring-five-simple-methods/"><u>2024 Approved Effortless Mac Screenshots Exploring Five Simple Methods</u></a></li>
+<li><a href="https://article-tips.techidaily.com/achieving-effortless-seams-in-inshot-videos/"><u>Achieving Effortless Seams in Inshot Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/elite-8-blu-ray-player-rankings-for-4k-quality-for-2024/"><u>Elite 8 Blu-Ray Player Rankings for 4K Quality for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-diving-deep-into-the-income-of-ajey-carryminati/"><u>In 2024, Diving Deep Into the Income of Ajey (CarryMinati)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-complete-guide-to-assembling-youtube-music-collections-onlineapp-wise/"><u>The Complete Guide to Assembling YouTube Music Collections Online/App-Wise</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transform-your-raw-images-with-darktable-the-top-free-image-editor-for-mac-and-linux/"><u>Transform Your Raw Images with Darktable: The Top-Free Image Editor for Mac & Linux</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/understanding-the-reasons-for-the-remarkable-success-of-nintendos-wii-u/"><u>Understanding the Reasons for the Remarkable Success of Nintendo's Wii U</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/uninterrupted-boosted-bass-exploring-the-wonders-of-ion-audio-tailgater-plus/"><u>Uninterrupted, Boosted Bass: Exploring the Wonders of ION Audio Tailgater Plus</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-samsung-galaxy-s10e-premium-performance-at-a-smaller-scale-and-lower-cost/"><u>Unpacking The Samsung Galaxy S10e: Premium Performance at a Smaller Scale and Lower Cost</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-success-of-rayman-legends-the-ultimate-2d-platformer-reviewed/"><u>Unpacking the Success of Rayman Legends - The Ultimate 2D Platformer Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-benefits-a-complete-review-of-the-toshiba-55lf7nu20-the-ideal-fire-tv-edition-set-for-your-amazon-prime-library/"><u>Unveiling the Benefits: A Complete Review of the Toshiba 55LF7nU20, The Ideal Fire TV Edition Set for Your Amazon Prime Library</u></a></li>
+</ul></div>
 

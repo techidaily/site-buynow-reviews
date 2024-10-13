@@ -1,7 +1,7 @@
 ---
 title: "Galaxy Face-Off: How Does the New S23 Ultra Stack Up Against Samsung's Previous Beast, the S21 Ultra?"
-date: 2024-09-30T03:06:06.059Z
-updated: 2024-10-07T04:40:29.623Z
+date: 2024-10-07T18:40:45.497Z
+updated: 2024-10-13T02:44:49.766Z
 categories:
   - BestProducts
 description: "This Article Describes Galaxy Face-Off: How Does the New S23 Ultra Stack Up Against Samsung's Previous Beast, the S21 Ultra?"
@@ -74,16 +74,16 @@ Lifewire / Sascha Brodsky
  I’ve been using Apple portables ever since the Powerbook 100 was released in 1991\. After spending several weeks with the new MacBook Pro, it offers the responsiveness previously associated only with iPads and iPhones, matched with the refined form factor of Apple’s best laptops.
 
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Design: Back to the future
@@ -94,18 +94,18 @@ Lifewire / Sascha Brodsky
 
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/dFndxams3xUoua0_gkYqRycgBdU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-1-db37ffedba744e8eb2070780c0d8de10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Sascha Brodsky
 
  The Pro could be considered a step back in some areas. For one thing, at 0.66 by 14 by 9.8 inches and 4.8 pounds, the MacBook Pro is chunkier and heavier than the model it replaces. This is definitely not a laptop you’ll forget you are carrying in your backpack. On the other hand, the heft of the new MacBook is reassuring and in keeping with its target market of professionals.
 
  Apple has also gone full circle and replaced the ports it removed in previous iterations of the MacBook. You get a MagSafe connector, headphone jack, SD card slot, HDMI port, and three Thunderbolt 4 ports, which should be enough for almost any user. There’s no USB-A port but most people won’t miss it.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Keyboard: Precision is everything
 
@@ -117,11 +117,25 @@ Lifewire / Sascha Brodsky
 
  Just above the keyboard is another area where Apple has decided to go backward. The company has ditched the Touch Bar, a strip that allows touch access to software functions. As someone who used the Touch Bar for several years and never found a use for it, I say good riddance.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Trackpad: Big and bold
 
  There’s nothing not to like about the trackpad on the new MacBook Pro. It’s big and responsive, and you won’t notice it after a while, which is all you need in an input device.
 
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/tD3rxlw9zH5xufV5ztJIZyrJc3Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-3-db6300639d8049d1862d0e4f25a35222.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Sascha Brodsky
 
@@ -141,13 +155,6 @@ Lifewire / Sascha Brodsky
 
  Text looks terrific on the Pro, and I ended up spending time gazing at Word documents just to admire the way words look so crisp and defined. Video playback was equally impressive, with the Mini-LED screen revealing a level of detail that made me want to rewatch my favorite movies. The no-glare coating also works very well, even when using the Pro in direct sunlight.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Performance: Sizzling speed that stays cool
 
  The MacBook Pro uses the same cutting-edge M1 chip, designed by Apple, that’s been powering some of the company’s other machines over the past year.
@@ -157,13 +164,6 @@ Lifewire / Sascha Brodsky
  Apps start nearly instantly on the Pro. I have a bad habit of keeping too many browser tabs open while I’m working. But even when I had dozens of tabs open in both the Chrome and Safari web browsers, the Pro didn’t slow down.
 
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/UM5_acSqOhRJtIaZE3CeAWp45y0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-2-2be1639ee44f489286cb43a53aaf6454.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Sascha Brodsky
 
@@ -189,13 +189,6 @@ Lifewire / Sascha Brodsky
 
  Another nice thing about the efficient M1 chip is the fact that the MacBook runs cool. I’ve used it for dozens of hours, and it never felt more than slightly warm. Contrast that to my 2019 MacBook Pro that used to get so hot I was worried it would catch fire.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Price: Cough, splutter?
 
  The big hiccup for most potential users of the MacBook Pro is its high price tag. I’ve been using the lowest-end model, which starts at $2499\. You get a 10-Core CPU, 16-Core GPU, 16GB of RAM, and 512GB SSD Storage for that price.
@@ -205,6 +198,13 @@ Lifewire / Sascha Brodsky
  I use my MacBook for hours every day for critical tasks, so spending big doesn’t phase me. I plan to keep the new Pro model for years and make sure I have a relatively futureproof setup.
 
  A less expensive MacBook will be just fine for many users who just need a light work and fun machine. But for anyone who wants arguably the best laptop ever made, only the new MacBook Pro will do.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## MacBook Pro (M1, 2021) vs. MacBook Air (M1, 2020)
 
@@ -264,20 +264,16 @@ Lifewire / Sascha Brodsky
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-discovering-the-top-5-engine-choices-for-your-drones/"><u>[New] 2024 Approved Discovering the Top 5 Engine Choices for Your Drones</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-capture-crop-and-color-correct-with-this-lists-top-5-android-apps/"><u>[New] Capture, Crop, and Color-Correct with This List's Top 5 Android Apps</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-comprehensive-guide-to-recording-hulu-across-platforms/"><u>[New] Comprehensive Guide to Recording Hulu Across Platforms</u></a></li>
-<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-honor-100-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Honor 100 | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/accessing-the-apex-high-definition-media-from-facebooks-realm-for-2024/"><u>Accessing the Apex High-Definition Media From Facebook's Realm for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/breaking-boundaries-weaving-single-photos-into-masterpieces/"><u>Breaking Boundaries Weaving Single Photos Into Masterpieces</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-testing-of-the-netgear-nighthawk-ax8-wi-fi-6-extender-the-ultimate-guide-for-modern-homes/"><u>Comprehensive Testing of the Netgear Nighthawk AX8 Wi-Fi 6 Extender: The Ultimate Guide for Modern Homes</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/elevate-your-pics-advanced-techniques-for-editing-photo-text/"><u>Elevate Your Pics Advanced Techniques for Editing Photo Text</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enhancing-your-network-coverage-the-tp-link-re505x-range-extender-scrutinized/"><u>Enhancing Your Network Coverage: The TP-Link RE505X Range Extender Scrutinized</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-newly-launched-samsung-galaxy-s21-a-shift-in-design-philosophy/"><u>Evaluating the Newly Launched Samsung Galaxy S21: A Shift in Design Philosophy</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-fashion-and-functionality-in-one-a-comprehensive-guide-to-the-garmin-vivomove-hr-watch/"><u>Experience Fashion and Functionality in One: A Comprehensive Guide to the Garmin Vivomove HR Watch</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-exciting-vr-technologies-shaping-gaming/"><u>In 2024, Exciting VR Technologies Shaping Gaming</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-remastered-spyro-series-quality-and-affordability-unleashed/"><u>In-Depth Analysis of the Remastered Spyro Series: Quality and Affordability Unleashed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-wasteland-ii-directors-edition-unveiling-a-captivating-tactical-adventure/"><u>In-Depth Analysis of The Wasteland II: Director's Edition - Unveiling a Captivating Tactical Adventure</u></a></li>
-<li><a href="https://techtrends.techidaily.com/overcoming-dll-errors-fixing-missing-or-not-found-msvcr71dll-issues-easily/"><u>Overcoming DLL Errors: Fixing Missing or Not Found MSVCR71.DLL Issues Easily</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-pioneering-profit-navigating-the-path-to-money-making-on-vimeo/"><u>[New] 2024 Approved Pioneering Profit Navigating the Path to Money-Making on Vimeo</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-immaculate-game-recordings-with-obs-studio-pro/"><u>[Updated] 2024 Approved Immaculate Game Recordings with OBS Studio Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/45-review-and-features-tailored-for-the-avid-marathoner/"><u>45 Review & Features Tailored for the Avid Marathoner!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/5-crucial-aspects-to-reflect-on-prior-to-investing-in-a-health-and-activity-monitor/"><u>5 Crucial Aspects to Reflect On Prior To Investing in a Health and Activity Monitor</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-critical-look-at-upgrading-to-the-latest-windows-os/"><u>A Critical Look at Upgrading to the Latest Windows OS</u></a></li>
+<li><a href="https://games-able.techidaily.com/a-new-chapter-in-gaming-without-borders/"><u>A New Chapter in Gaming Without Borders</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazons-kindle-versus-fire-tablet-a-detailed-comparison/"><u>Amazon's Kindle versus Fire Tablet - A Detailed Comparison</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/analyzing-the-lg-k51-beautiful-design-meets-frustratingly-slow-cpu/"><u>Analyzing the LG K51: Beautiful Design Meets Frustratingly Slow CPU</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-instant-data-integration-essential-steps-for-file-movement-onto-computer/"><u>In 2024, Instant Data Integration Essential Steps for File Movement Onto Computer</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/overcome-windows-update-error-0x80070422-in-windows-11-effortlessly-solution/"><u>Overcome Window's Update Error 0X80070422 in Windows 11 Effortlessly [Solution]</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: MBot Build & Code Adventure by Makeblock – An Intriguing Robotics DIY Kit Reviewed for Young Engineers
-date: 2024-09-19T17:41:01.307Z
-updated: 2024-09-20T18:08:42.667Z
+date: 2024-10-09T01:33:22.950Z
+updated: 2024-10-12T21:28:51.336Z
 categories:
   - BestProducts
 description: This Article Describes MBot Build & Code Adventure by Makeblock – An Intriguing Robotics DIY Kit Reviewed for Young Engineers
@@ -44,6 +44,13 @@ Lifewire / Yoona Wagener
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Amazon Halo
 
 ![Amazon Halo](https://www.lifewire.com/thmb/3Kfyp4XgBEtCuXPHAVw99RFqQs8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_HeroSquare-2e5c3941b8fe49afbd7464f382164976.jpg)
@@ -75,6 +82,13 @@ Lifewire / Yoona Wagener
 ![Amazon Halo](https://www.lifewire.com/thmb/W0-czfRzA-7ixa5VS8Cb4sBcaqM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_02-b2292f1ee1b54f4e9990c92e582c5a4b.jpg)
 
 Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Design: An accessory that blends in
 
@@ -115,10 +129,10 @@ Lifewire / Yoona Wagener
  The body fat scan is based on pictures uploaded to the app—and based on prompts from the app. While it felt invasive and isn’t a feature I’d seek out in a fitness tracker, it worked without issue. Amazon reports that this technology is twice as accurate as smart scales. For the right user who feels comfortable with this kind of data compilation, this feature also offers visualizations of how different body fat percentages would look on your frame and stores your scans for a look at trends over time. All voice data and images used for the body scan are deletable from the app, though you can also choose to back up body data in the[cloud](https://www.lifewire.com/what-is-cloud-computing-817770) , which Amazon assures is private and well secured.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Software: An essential and user-friendly mobile app
@@ -132,10 +146,10 @@ Lifewire / Yoona Wagener
  The app makes everything from the initial setup to body scanning and voice tracking straightforward.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Battery: Enough juice to last nearly a week
@@ -152,13 +166,6 @@ Lifewire / Yoona Wagener
 
  Retailing for just about $100, the Amazon Halo band certainly won’t break the bank for budget-minded shoppers. While the lack of display could be a deterrent, the solid mobile app provides convenient access to the detailed sleep, automatic activity tracking, and specialized tone of voice and body fat analysis the Halo provides.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Amazon Halo vs. WHOOP Strap 3
 
  The WHOOP Strap 3 is another screen-less fitness tracker with a minimalist bent but a bigger buy-in and emphasis on performance. Unlike the Halo, the WHOOP Strap requires a WHOOP membership, which, at the lowest end, costs $30 monthly for a 6-month membership or $180 total (band included). The Halo band comes with a free six-month subscription to Halo app services, then a $3.99 monthly charge, so it’s considerably cheaper—especially since WHOOP recommends replacing their fabric strap every six months as well.
@@ -171,18 +178,18 @@ Lifewire / Yoona Wagener
 
  The Amazon Halo isn’t for everyone with its lack of display and additional layers of data tracking to capture tone of voice and body fat percentage. But for the user that wants a little less hardware but more forward-thinking fitness/health tracking, this unique wearable offers a different approach to increasing activity and wellness awareness on a daily basis.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Apple Watch Series 5](https://www.lifewire.com/apple-watch-series-6-review-5087552)
 * [Fitbit Sense](https://www.lifewire.com/fitbit-sense-review-5085832)
 * [Ticwatch Pro](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -213,5 +220,18 @@ Lifewire / Yoona Wagener
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-convenient-hp-recording-strategies-for-seamless-productivity/"><u>[New] 2024 Approved Convenient HP Recording Strategies for Seamless Productivity</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-ultimate-guide-unpacking-the-secrets-of-du-recorder-for-2024/"><u>[Updated] Ultimate Guide Unpacking the Secrets of Du Recorder for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-focusing-on-the-best-our-countdown-of-camera-lenses-1-10/"><u>2024 Approved Focusing on the Best Our Countdown of Camera Lenses, #1-10</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-leading-the-pack-2023s-8-facebook-movie-downloads/"><u>2024 Approved Leading the Pack 2023'S #8 Facebook Movie Downloads</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-the-mohu-blade-outstanding-indoors-and-original-style/"><u>Comprehensive Evaluation of the Mohu Blade - Outstanding Indoors & Original Style</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dell-xps-13-7390-2-in-1-laptop-evaluation-an-exquisite-and-versatile-ultrathin-computer/"><u>Dell XPS 13 (7390) 2-in-1 Laptop Evaluation: An Exquisite & Versatile Ultrathin Computer</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-premier-collection-of-popular-mobile-alert-melodies/"><u>In 2024, Premier Collection of Popular Mobile Alert Melodies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-philips-hf3505-circadian-rhythm-clock-for-a-refreshing-morning-awakening/"><u>In-Depth Review: Philips HF3505 Circadian Rhythm Clock for a Refreshing Morning Awakening</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-selection-of-mobile-power-solutions-for-your-laptop/"><u>The Ultimate Selection of Mobile Power Solutions for Your Laptop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/thorough-review-of-the-motorola-one-t5g-ace-unparalleled-speed-and-remarkable-battery-longevity/"><u>Thorough Review of the Motorola One T5g Ace: Unparalleled Speed and Remarkable Battery Longevity</u></a></li>
+</ul></div>
 

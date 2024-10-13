@@ -1,7 +1,7 @@
 ---
 title: "Pro Artists Rejoice with Monoprice's Graphics Tablet: A Comprehensive Review of Its Premium Features at an Unbeatable Price Point."
-date: 2024-10-02T06:06:41.227Z
-updated: 2024-10-07T09:52:05.845Z
+date: 2024-10-07T01:24:22.153Z
+updated: 2024-10-12T21:37:33.699Z
 categories:
   - BestProducts
 description: "This Article Describes Pro Artists Rejoice with Monoprice's Graphics Tablet: A Comprehensive Review of Its Premium Features at an Unbeatable Price Point."
@@ -45,16 +45,16 @@ Lifewire / Matthew S. Smith
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Acer Predator Triton 300 SE
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/Coi6EdMOwuyjB7rdhov_hsKrHmo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Acer-Predator-Triton-300-SE-Gaming-Laptop-1-d6f9eeb5a43845a9a328125976c835b0.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -85,6 +85,13 @@ Lifewire / Matthew S. Smith
 
  Acer’s Predator Triton 300 SE is, in many respects, a mid-range gaming laptop, but it succeeds at one very important task: it delivers Nvidia RTX 3060 Max-Q at a reasonable price, and it’s actually in stock not just at, but sometimes below, MSRP. Its value pricing helps the Triton 300 SE stand out against attractive competitors like the Asus ROG Zephyrus G14.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Small but sturdy
 
  I’m surprised Acer didn’t slap a “Pro” label on the Predator Triton 300 SE. The spec sheet might scream gaming, but the laptop’s look and feel has more in common with[business laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) . The aluminum exterior and simple silver interior keep this laptop subtle. It’s a bit dull, actually, compared to the sleek elegance of[Razer’s Book 13](https://www.lifewire.com/razer-book-13-review-5176895) or the brash look of[Asus’ ROG Zephyrus G14](https://www.lifewire.com/asus-zephyrus-g14-review-a-no-compromises-gaming-laptop-5084841) .
@@ -96,6 +103,19 @@ Lifewire / Matthew S. Smith
  Physical connectivity is a mix of new and old. There are two USB-A 3.2 ports paired with a USB-C 3.2 Gen 2 port that supports DisplayPort Mode and[Thunderbolt 4](https://www.lifewire.com/what-is-thunderbolt-832713) . There’s also an HDMI output and a 3.5mm audio jack that handles audio-in and out.
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/RkOepytb4JglYF6g8lqap4lR4Uk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-5-b8c978f2d42a4865be1ea11a4785c104.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -121,13 +141,6 @@ Lifewire / Matthew S. Smith
 
  There’s one downside: poor viewing angles. This is unusual in a modern laptop, though I’ve noticed this trait in many high-refresh laptop displays. I can’t give the Triton 300 SE too much flak for this given its otherwise excellent performance.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Performance: Great for games, ok for everything else
 
  The Acer Predator Triton 300 SE’s most unusual feature is its Intel Core i7-11375H processor. It’s odd because it has just four cores (running eight threads) but is still sold as a top-tier component. The Core i7-11375H has higher minimum and maximum clock speeds than the comparable Intel Core i7-1165G7 found in thinner notebooks. The i7-11375H can clock as high as 5GHz. My review unit also had 16GB of RAM and a 512GB solid-state hard drive.
@@ -135,6 +148,13 @@ Lifewire / Matthew S. Smith
  PCMark 10 hit an overall score of 5,534\. Geekbench 5 turned in a single-core score of 1,418 and a multi-core score of 4,493\. The Geekbench 5 multi-core score is behind the curve;[new AMD Ryzen 7 5000-series laptops](https://www.lifewire.com/amd-vs-intel-which-processor-is-best-for-you-4780276) can almost double that result. This will disappoint content creators who use CPU-dependent applications. The Acer Triton 300 SE won’t keep up with AMD-powered rivals, like the Asus ROG Zephyrus G14, in such workloads.
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/_blPSVdy574t15clSGhbK6JH68o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-4-5a097b76e29b4ee985eee421ed6d0fe8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -147,16 +167,10 @@ Lifewire / Matthew S. Smith
  For me, the Triton 300 SE is easily fast enough: it can handle most games at an average of 60 frames per second (fps), and often much higher, at 1080p resolution. I wouldn’t recommend the Triton 300 SE if you plan to use an external 1440p or 4K monitor, however. Pushing a higher pixel count will lead to sub-60fps performance in most demanding games.
 
 <!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Productivity: All business
@@ -181,13 +195,6 @@ Lifewire / Matthew S. Smith
 
  There are limits, of course. It isn’t loud enough to project impressive volume in a living room or kitchen. It can also sound muddy and confused when playing bass-forward music or the most frantic action games. Still, it’s an impressive set of speakers that will rarely leave you wanting for more.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Network: Killer performance
 
  Downloading a big, hot new game can be a real hassle, especially over Wi-Fi, but the Triton 300 SE can help. It has Intel’s Killer Wi-Fi 6 AX1650 and let me tell you: this thing rips.
@@ -195,13 +202,6 @@ Lifewire / Matthew S. Smith
  It delivered network speeds of over 800 megabits per second (Mbps) near my router, which is typical. Every[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345#:~:text=Wi%2DFi%206%20is%20the,Fi%20faster%20and%20more%20reliable.) laptop I review manages that. I was impressed by its performance in my detached office, where the Triton 300 SE hit up to 195Mbps. By comparison, the[Lenovo ThinkPad X1 Titanium](https://www.lifewire.com/lenovo-thinkpad-x1-titanium-yoga-review-5179212) hit only 40Mbps in the same space.
 
  This translated to excellent real-world results. I created a real-world stress test by downloading Cyberpunk 2077 on Steam while simultaneously downloading Metro Exodus on Epic. Surprisingly, both downloads averaged in excess of 25Mbps. I’m used to seeing numbers in the teens.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Camera: BYOW (Bring Your Own Webcam)
 
@@ -221,7 +221,21 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/RSfl2dEVmErlvh3BUUFcxqsbt9w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-2-c5eed4bfe7e44014952b5503566097d9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Software: Planet what now?
 
@@ -253,31 +267,11 @@ Lifewire / Matthew S. Smith
 
  Acer’s Predator Triton 300 SE is an excellent value that has what gamers want: a great gaming experience and a quality display. Its short battery life and mediocre multi-core processor hold it back in everyday use, but the laptop’s competitive price makes these flaws easy to forgive.
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
 * [Dell XPS 13 2-in-1 Laptop](https://www.lifewire.com/dell-xps-13-2-in-1-laptop-review-4795686)
 * [Microsoft Surface Laptop 2](https://www.lifewire.com/microsoft-surface-laptop-2-review-4779760)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -313,16 +307,16 @@ Lifewire / Matthew S. Smith
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-visualizing-your-vision-the-art-of-using-luts-in-photos/"><u>[New] 2024 Approved Visualizing Your Vision The Art of Using LUTs in Photos</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-balancing-width-and-height-for-ultimate-videography/"><u>[New] Balancing Width and Height for Ultimate Videography</u></a></li>
-<li><a href="https://win-blog.techidaily.com/effective-fixes-for-google-chromes-high-cpu-utilization-issue/"><u>Effective Fixes for Google Chrome's High-CPU Utilization Issue</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/how-is-device-based-artificinas-engineered-and-used/"><u>How Is Device-Based Artificinas Engineered and Used?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-reset-your-tecno-spark-20-pro-lock-screen-password-by-drfone-android/"><u>How to Reset your Tecno Spark 20 Pro Lock Screen Password</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/itel-a60-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Itel A60 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/masterful-3d-design-best-animation-software-selection/"><u>Masterful 3D Design Best Animation Software Selection</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-print-projects-expert-strategies-inside-adobe-photoshop/"><u>Navigating Print Projects: Expert Strategies Inside Adobe Photoshop</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/overcome-connectivity-woes-with-the-netgear-ex3700-an-authoritative-review-on-ac750-wi-fi-boosters/"><u>Overcome Connectivity Woes with the Netgear EX3700 - An Authoritative Review on AC750 Wi-Fi Boosters</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/putting-the-tp-link-av1300-to-the-test-an-expert-review-on-powerline-network-extension/"><u>Putting the TP-Link AV1300 to the Test: An Expert Review on Powerline Network Extension</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/quality-accessories-that-will-revolutionize-your-iphone-usage/"><u>Quality Accessories That Will Revolutionize Your iPhone Usage</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-expert-tips-for-zoom-engagement-building-stronger-remote-relationships/"><u>2024 Approved Expert Tips for Zoom Engagement Building Stronger Remote Relationships</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-hack-the-system-avoid-video-ads-directly-on-fb/"><u>2024 Approved Hack the System Avoid Video Ads Directly on FB</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-top-rated-phone-signal-enhancers-boosting-your-cellular-reception-today/"><u>2024'S Top Rated Phone Signal Enhancers: Boosting Your Cellular Reception Today!</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/30-best-freefire-tagshashtags-for-youtube-for-2024/"><u>30 Best FreeFire Tags/Hashtags For YouTube for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-and-durable-in-depth-look-at-the-fellowes-microban-wireless-keyboard/"><u>Affordable & Durable: In-Depth Look at the Fellowes Microban Wireless Keyboard</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-security-top-review-of-the-iseebell-video-doorbell-under-50/"><u>Affordable Security: Top Review of the ISeeBell Video Doorbell Under $50</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amplify-your-television-clarity-on-a-budget-in-depth-analysis-of-the-1byone-digital-indoor-tv-antenna/"><u>Amplify Your Television Clarity on a Budget: In-Depth Analysis of the 1BYONE Digital Indoor TV Antenna</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/enjoy-family-cinema-night-with-these-6-amazing-free-movie-sites-for-kids/"><u>Enjoy Family Cinema Night with These 6 Amazing Free Movie Sites for Kids</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/surpassing-the-maximum-character-allowance-in-gpt/"><u>Surpassing The Maximum Character Allowance in GPT</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-leading-choice-for-affordable-high-fidelity-webm-playbacks-for-2024/"><u>The Leading Choice for Affordable, High-Fidelity WebM Playbacks for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722633138336-the-ultimate-guide-to-omnicharge-omni-20-your-all-in-one-qi-wireless-portable-charger-reviewed/"><u>The Ultimate Guide to Omnicharge Omni 20 - Your All-in-One Qi Wireless Portable Charger Reviewed!</u></a></li>
 </ul></div>
 

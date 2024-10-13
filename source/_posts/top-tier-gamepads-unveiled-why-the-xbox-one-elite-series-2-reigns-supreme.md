@@ -1,7 +1,7 @@
 ---
 title: "Top-Tier Gamepads Unveiled: Why the Xbox One Elite Series 2 Reigns Supreme"
-date: 2024-09-29T22:02:48.367Z
-updated: 2024-10-07T08:58:45.138Z
+date: 2024-10-07T18:05:16.323Z
+updated: 2024-10-13T01:33:37.377Z
 categories:
   - BestProducts
 description: "This Article Describes Top-Tier Gamepads Unveiled: Why the Xbox One Elite Series 2 Reigns Supreme"
@@ -43,22 +43,15 @@ Lifewire / Zach Sweat
 4.8
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/JA4MI_SE7Alxl0MLR7rMoIVzKgI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -87,6 +80,13 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Dark, sturdy, and feature-packed**
 
  The general format of the Elite Series 2 takes the basic XB1 controller and builds upon that excellent design by adding in tons of extras and features. However, unlike the first Elite controller, this version uses the newer One S model controller as its basis. This means there is no more two-piece design where the top and bottom shells of the controller are separate. The build is less flashy perhaps, no longer sporting a two-tone finish, but it makes it feel much more solid and creates a sleeker look.
@@ -113,13 +113,26 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/TRrezKVbAUPs2Rud3g4_iOHyxB8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-2-4b3f9d8acd1440089989378253d902f4.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Comfort: Hefty, but darn comfy**
@@ -137,13 +150,6 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/cS5fpyPSlqvyETs-nGxTtAB3vXU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-4-070b6c59b206457ba1068704bbe7bca9.jpg)
 
  Lifewire / Zach Sweat
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process and Software: Bluetooth, at long last**
 
@@ -167,13 +173,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance/Durability: Enhanced performance and durability**
 
  To test the performance of the new Elite Series 2 controller, I put this device through several hours of gaming on both PC and Xbox One platforms running a number of games and layouts. The results were promising, so let’s take a closer look.
@@ -195,6 +194,13 @@ Lifewire / Zach Sweat
  The bumpers on every XB1 controller up until the One S were another point of failure due to the thin plastic piece that attached them to the controller. If you dropped your controller in just the right spot, even from a short height, they often broke and flopped around, requiring you to either send it in for repair or fix it yourself at home. The original Elite also suffered from this, and I experienced this with my first device. Now that the Series 2 is built off the S controller, this is supposedly no longer an issue.
 
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Like buying a brand new console**
 
@@ -254,19 +260,18 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-getting-comfortable-with-zoom-a-beginners-tutorial-for-2024/"><u>[Updated] Getting Comfortable with Zoom A Beginner’s Tutorial for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/accelerating-video-success-on-youtube-for-100kplus-views/"><u>Accelerating Video Success on YouTube for 100K+ Views</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-touchscreen-perfection-the-moto-g-stylus-phones-unboxed/"><u>Affordable Touchscreen Perfection: The Moto G Stylus Phones Unboxed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazon-echo-dot-gen-4-unveiled-innovative-design-meets-advanced-capabilities/"><u>Amazon Echo Dot Gen 4 Unveiled: Innovative Design Meets Advanced Capabilities</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazons-kindle-oasis-201-delving-into-a-refined-paper-similar-reading-journey/"><u>Amazon's Kindle Oasis 201#: Delving Into a Refined, Paper-Similar Reading Journey</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/androids-best-in-sky-file-sanctuaries/"><u>Android's Best In-Sky File Sanctuaries</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-underwater-wonders-and-more-in-high-quality-with-x2/"><u>Discover Underwater Wonders & More in High Quality with X2</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-on-the-superior-features-of-samsung-galaxy-tab-s3-for-android-aficionados/"><u>Expert Analysis on the Superior Features of Samsung Galaxy Tab S^3 for Android Aficionados</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Share/Fake Location on WhatsApp for Apple iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/overcoming-errors-in-windows-memory-check-tool/"><u>Overcoming Errors in Windows Memory Check Tool</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/rt-of-cozy-cinematography-top-5-winter-scenes-for-2024/"><u>The Art of Cozy Cinematography Top 5 Winter Scenes for 2024</u></a></li>
-<li><a href="https://network-issues.techidaily.com/tips-for-reinstating-missing-gpu-on-system/"><u>Tips for Reinstating Missing GPU on System</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-3-multilingual-apps-for-swiftly-expanding-your-lexicon/"><u>Top 3 Multilingual Apps for Swiftly Expanding Your Lexicon</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unlocking-efficiency-the-top-5-video-shortener-tools-for-2024/"><u>Unlocking Efficiency The Top 5 Video Shortener Tools for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-elite-efficiency-enhancement-codes/"><u>[New] 2024 Approved Elite Efficiency Enhancement Codes</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-best-of-the-best-12-screen-capture-tools-no-end/"><u>[New] Best of the Best 12 Screen Capture Tools (No End)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-authentic-audience-growth-practical-advice-for-content-creators/"><u>[New] In 2024, Authentic Audience Growth Practical Advice for Content Creators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tep-by-step-methodology-assembling-youtube-playlists/"><u>[New] Step-by-Step Methodology Assembling YouTube Playlists</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-kindle-and-amazon-fire-tablets-key-distinctions/"><u>Comparing Kindle and Amazon Fire Tablets: Key Distinctions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/easy-tutorial-setting-up-a-unique-nintendo-network-profile-for-your-3ds-game-console/"><u>Easy Tutorial: Setting Up a Unique Nintendo Network Profile for Your 3DS Game Console</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/explore-our-selection-of-premier-lgbt-movies-featured-on-netflix-for-july-2n4/"><u>Explore Our Selection of Premier LGBT Movies Featured on Netflix for July 2N4</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/interlace-snaps-a-guide-to-crafting-picture-panoramas-for-2024/"><u>Interlace Snaps A Guide to Crafting Picture Panoramas for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/jabra-evolve2-85-review/"><u>Jabra Evolve2 85 Review</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-transform-your-mp4-files-a-step-by-step-video-editing-tutorial-for-mac-and-windows-for-2024/"><u>New Transform Your MP4 Files A Step-by-Step Video Editing Tutorial for Mac and Windows for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/pinnacle-top-5-camcorders-for-flexible-filming/"><u>Pinnacle Top 5 Camcorders for Flexible Filming</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-selecting-the-best-streaming-device-apple-tv-4k-or-roku-ultra/"><u>The Ultimate Guide to Selecting the Best Streaming Device: Apple TV 4K or Roku Ultra?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-picks-asus-vg245h-the-ideal-display-for-console-gamers/"><u>The Ultimate Picks - Asus VG245H, the Ideal Display for Console Gamers</u></a></li>
 </ul></div>
 

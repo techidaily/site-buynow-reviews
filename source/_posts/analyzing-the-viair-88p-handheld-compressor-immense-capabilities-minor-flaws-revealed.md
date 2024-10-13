@@ -1,7 +1,7 @@
 ---
 title: "Analyzing the Viair 88P Handheld Compressor: Immense Capabilities, Minor Flaws Revealed"
-date: 2024-09-13T16:32:35.395Z
-updated: 2024-09-20T17:10:54.193Z
+date: 2024-10-05T23:29:24.053Z
+updated: 2024-10-12T23:26:39.527Z
 categories:
   - BestProducts
 description: "This Article Describes Analyzing the Viair 88P Handheld Compressor: Immense Capabilities, Minor Flaws Revealed"
@@ -46,6 +46,13 @@ Lifewire / Jeffrey Daniel Chadwick
 
 ![Audew Portable Air Compressor Pump](https://www.lifewire.com/thmb/oqYlb0kfEKI_L1jXrcVUnxqWgy0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Audew-Tire-Inflator_HeroSquare-918a4d5f24ed473594c14775a3110898.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jeffrey Daniel Chadwick
 
 [View On Audew.com](https://www.audew.com/Audew-12V-150PSI-Triangle-Tire-Inflator-with-10-ft-Power-Cord-LCD-Digital-Display-p-182023.html)
@@ -67,6 +74,13 @@ Lifewire / Jeffrey Daniel Chadwick
  The Audew Portable Air Compressor Pump is a portable tire inflator that’s budget-friendly, convenient, and discreet. You can expect it to perform reliably and efficiently whenever you pull it out of your trunk. It’s not only a good just-in-case device for unexpected flats, but also for regular pressure maintenance so you get the most out of your tires. It loses some points for subpar instructions, but the pump is so intuitive that it shouldn’t matter. For the price, there’s not much to complain about.
 
  Lifewire / Jeffrey Daniel Chadwick
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design and Features: Easy enough for anyone**
 
@@ -96,6 +110,13 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Language Barriers Overcome with Simplicity**
 
  Despite the Audew being so intuitive and straightforward, you’ll definitely want to take at least a few minutes to familiarize yourself with it because it has a few foibles. The most notable stumbling block is the instruction manual and warranty card. It is printed in, at best, broken English. The instructions themselves are brief and only cover the most basic aspects of the device. Fortunately, the air compressor is intuitive enough to grasp after only a few minutes, but you definitely want those minutes to be spent in your driveway. However, once you have a good grasp of it, you should be able to take the Audew portable air compressor out, hook it up, and get it running in less than a minute.
@@ -103,10 +124,10 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Fast filling for the road**
@@ -130,13 +151,6 @@ Lifewire / Jeffrey Daniel Chadwick
 ## **Price: Great for budget hawks**
 
  The list price for the Audew Portable Air Compressor Pump is about $32 on Amazon, making it one of the most budget-friendly portable tire inflators out there. However, if you shop around, it’s very easy to find it cheaper, making it an even more attractive deal.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Audew Portable Air Compressor Pump vs. Jaco SmartPro Digital Tire Inflator**
 
@@ -178,5 +192,23 @@ Lifewire / Jeffrey Daniel Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-gently-ebbing-sounds-with-logic-pros-dimming-function/"><u>2024 Approved Gently Ebbing Sounds with Logic Pro's Dimming Function</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/abbyy-triumphs-with-prestigious-accolade-securing-five-distinctive-mobile-star-awards/"><u>ABBYY Triumphs with Prestigious Accolade: Securing Five Distinctive Mobile Star Awards</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/best-affordable-openai-image-modifiers/"><u>Best Affordable OpenAI Image Modifiers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-the-convenience-and-performance-of-a-google-wireless-nest-doorbell-on-batteries/"><u>Expert Review: The Convenience and Performance of a Google Wireless Nest Doorbell on Batteries</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-the-mini-powerhouse-in-depth-review-of-the-acer-predator-triton-300-se/"><u>Explore the Mini Powerhouse: In-Depth Review of the Acer Predator Triton 300 SE!</u></a></li>
+<li><a href="https://win11.techidaily.com/exploring-windows-11s-foundation-a-deep-dive-into-its-registry/"><u>Exploring Windows 11'S Foundation: A Deep Dive Into Its Registry</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/head-to-head-showdown-samsung-s23-ultra-against-the-s21-ultra/"><u>Head-to-Head Showdown: Samsung S23 Ultra Against the S21 Ultra</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-does-the-samsung-q60r-series-stack-up-an-in-depth-review-of-a-4k-smart-gaming-tv/"><u>How Does the Samsung Q60R Series Stack Up? An In-Depth Review of a 4K Smart Gaming TV</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-the-new-m1-processor-redefines-performance-in-the-latest-macbook-pro-13-2e03/"><u>How the New M1 Processor Redefines Performance in the Latest MacBook Pro 13 (2E03)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/important-aspects-to-ponder-on-when-buying-an-independent-smartphone/"><u>Important Aspects To Ponder On When Buying An Independent Smartphone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-prime-top-10-drones-filmmakings-visual-frontiers/"><u>In 2024, Prime Top 10 Drones Filmmaking's Visual Frontiers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-and-testing-why-linksys-wrt3er-is-a-superior-choice-for-home-networks/"><u>In-Depth Analysis & Testing: Why Linksys WRT3er Is a Superior Choice for Home Networks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/premium-photographic-archives/"><u>Premium Photographic Archives</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/understanding-the-limitations-when-is-facebook-marketplace-unavailable/"><u>Understanding the Limitations: When Is Facebook Marketplace Unavailable?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/upgrade-your-iphone-4-with-free-mac-software-the-top-choice-for-high-quality-dvd-to-ios-video-conversion/"><u>Upgrade Your iPhone 4 with Free Mac Software – The Top Choice for High-Quality DVD to iOS Video Conversion</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-oneplus-ace-2-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On OnePlus Ace 2? Fixed | Dr.fone</u></a></li>
+</ul></div>
 

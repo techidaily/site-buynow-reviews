@@ -1,7 +1,7 @@
 ---
 title: "Avoid the Last Batch Meltdown: Expert Strategies for Windows Systems (Updated for 202#4)"
-date: 2024-09-07T16:52:47.650Z
-updated: 2024-09-15T03:30:02.911Z
+date: 2024-10-07T19:33:21.214Z
+updated: 2024-10-12T17:03:26.647Z
 tags:
   - win11
   - win10
@@ -34,6 +34,13 @@ _Arma 3_ keeps closing to the desktop unexpectedly? If you’re experiencing thi
 6. **[Launch Arma 3 with the malloc=system command](https://tools.techidaily.com/drivereasy/download/)**
 7. **[Reinstall the BattlEye service](https://tools.techidaily.com/drivereasy/download/)**
 8. **[Reinstall your game and/or Steam](https://tools.techidaily.com/drivereasy/download/)**
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 1: Meet the minimum system requirements
 
@@ -80,9 +87,29 @@ _Arma 3_ crashing issues might occur when it fails to access critical game files
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/image.png)
 
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **3)**  Click the **Compatibility tab** and check the box next to **Run this program as an administrator** . Then, click **OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/image-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **4)**  Relaunch Steam and_Arma 3_ to test your issue.
 
@@ -132,13 +159,6 @@ _Arma 3_ crashing issues might occur when it fails to access critical game files
  Don’t end any program that you’re not familiar with. It may be critical for the functioning of your computer.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-810.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Try launching _Arma 3_  to see if it works properly now. If the crash error still happens, go ahead with the fix below.
 
@@ -200,16 +220,16 @@ OR
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-720.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **3)** Select **Power Options.**
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/image-721.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **4)** Select **High Performance** .
 
@@ -218,19 +238,6 @@ OR
  Restart your computer and_Arma 3_ to see if this worked for you. If your problem persists, try the fix below.
 
 ---
-
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Fix 6: Launch Arma 3 with the malloc=system** command
 
@@ -253,6 +260,13 @@ OR
 **5)**  Remove any launch options currently shown.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/image-374.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **6)** Type**\-malloc=system** and click **OK** .
 
@@ -280,6 +294,13 @@ OR
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/image-41.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **4)** Delete the**BattlEye folder** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/image-43.png)
@@ -306,13 +327,6 @@ OR
  Wait for the scans to be complete, then relaunch_Arma 3_ to reinstall BattlEye. If the game still crashes, try the next fix.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 8: Reinstall Arma 3 and/or Steam
 
@@ -352,10 +366,10 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-360.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **3)**  On your keyboard, press the **Windows logo**  key and type **control** . Then, click **Control Panel** .
@@ -365,6 +379,13 @@ OR
 **4)** Under **View by** , select **Category.**  Then, select **Uninstall a program** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-374.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **5)** Right-click **Steam** , and then click **Uninstall** . Then, wait for the process to be complete.
 
@@ -403,5 +424,23 @@ OR
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-invisible-viewers-for-fb-chronicles-for-2024/"><u>[New] Invisible Viewers for FB Chronicles for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-clearcut-technique-for-backdrop-free-imagery/"><u>2024 Approved The Ultimate Clearcut Technique for Backdrop-Free Imagery</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/comment-restaurer-des-photographies-perdues-sur-amazon-photos-pour-plusieurs-appareils/"><u>Comment Restaurer Des Photographies Perdues Sur Amazon Photos Pour Plusieurs Appareils</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/te-your-profits-youtubes-studio-monetization-simplified-for-2024/"><u>Elevate Your Profits YouTube's Studio Monetization Simplified for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/how-can-you-view-all-shared-videos-and-photos-on-messenger/"><u>How Can You View All Shared Videos And Photos on Messenger?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instagram-intonations-choosing-the-right-notes-for-your-snap-for-2024/"><u>Instagram Intonations Choosing the Right Notes for Your Snap for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/modern-warfare-2-fixed-improving-pc-performance-no-more-dropping-frames-or-stuttering-during-gameplay/"><u>Modern Warfare 2 Fixed: Improving PC Performance, No More Dropping Frames or Stuttering During Gameplay</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-truth-about-the-tp-link-re505x-an-authoritative-review-on-wifi-range-enhancement/"><u>The Truth About the TP-Link RE505X: An Authoritative Review on WiFi Range Enhancement</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-audio-headphones-no-cords/"><u>Top Audio Headphones, No Cords !</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-minecraft-game-analysis-a-family-friendly-building-adventure/"><u>Top Minecraft Game Analysis: A Family-Friendly Building Adventure</u></a></li>
+<li><a href="https://fox-within.techidaily.com/top-strategies-for-implementing-efficient-rapid-development-approaches/"><u>Top Strategies for Implementing Efficient Rapid Development Approaches</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-overcoming-the-scariest-monsters-in-monster-hunter-world/"><u>Ultimate Guide to Overcoming the Scariest Monsters in Monster Hunter: World</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-2024s-premier-video-game-platforms-unveiled/"><u>Ultimate Selection: 2024'S Premier Video Game Platforms Unveiled!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-nikons-waterproof-affordable-photography-companion/"><u>Unveiling Nikon's Waterproof, Affordable Photography Companion</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/what-to-consider-before-you-buy-an-unlocked-smartphone/"><u>What to Consider Before You Buy an Unlocked Smartphone</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-poco-c65-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Poco C65 Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+</ul></div>
 

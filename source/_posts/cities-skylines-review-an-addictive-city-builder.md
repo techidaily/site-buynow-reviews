@@ -1,7 +1,7 @@
 ---
 title: "Cities: Skylines Review: An Addictive City-Builder"
-date: 2024-09-18T17:11:08.245Z
-updated: 2024-09-20T18:45:56.240Z
+date: 2024-10-08T20:16:43.171Z
+updated: 2024-10-12T21:58:40.762Z
 categories:
   - BestProducts
 description: "This Article Describes Cities: Skylines Review: An Addictive City-Builder"
@@ -90,28 +90,34 @@ Lifewire / Emily Isaacs
 
  Clocking in at 2 pounds, it’s also lightweight which makes it easy to pack. Whether you’re commuting between the home and the office or you’re heading out of town for a vacation, it’s easy to break down and bring anywhere so long as there’s a flat surface to place it during use.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: For Apple products only**
 
  The Kinesis Freestyle2 Blue arrives with the two keyboard halves, the instructional pamphlet, and a six-foot USB charging cable. Designed for use with iPads,[iPhones](https://www.lifewire.com/iphone-and-ios-4781515) , and[Macs](https://www.lifewire.com/macs-4781332) , the setup process is quick and easy to complete. First, we flipped the switch on the right-hand side of the keyboard from the off position to the on position. Then, we flipped the keyboard over and pressed the connect button on the backside. We knew it was ready to begin pairing when the lights on the frontside began flashing blue.
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/XHY6Xe9cdaO1U6Uj0wDY6rROlcA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_04-7fad98b589454e0388ecf48afe425e8c.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  From here, we followed the instructions in the provided instructional pamphlet and enabled Bluetooth on our iPad. After about a minute of scanning, the Kinesis KB800MB-BT keyboard appeared as an available device. We simply tapped to connect. From here, it prompted us to input a numeric code and press return. Once we’d done this, setup was complete.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Features: Efficient hotkeys once you get used to them**
@@ -122,16 +128,22 @@ Lifewire / Emily Isaacs
 
  Its split design is comfortable, following the natural arc of your fingers and hands as they rest upon its keys.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery: Plenty of juice so you’re never in a bind**
 
  The battery life on the Freestyle2 is excellent. It arrives with a partial charge, so it’s important to remember to fully charge it after receiving it. Once charged, the battery life can last up to 300 plus hours of regular use. The Freestyle2 does an excellent job of letting you know when its battery is getting low—battery lights will flash red to indicate when there are about four hours of battery life remaining. This ensures you’re never left hanging.
+
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Excellent for the features**
 
@@ -140,6 +152,13 @@ Lifewire / Emily Isaacs
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/vncgu0FEgBJ69UL6H8BjQ2QoGRI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_03-9055476d1d974c8bbe9b1c39d479b300.jpg)
 
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Kinesis Freestyle2 Blue vs. Microsoft Sculpt Ergonomic Keyboard**
 
@@ -188,5 +207,19 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-unearthing-the-best-free-mac-apps-for-speech-to-text/"><u>[New] Unearthing the Best Free Mac Apps for Speech to Text</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-conquering-video-design-challenges-with-filmora-tips/"><u>In 2024, Conquering Video Design Challenges with Filmora Tips</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-stabilize-your-story-a-guide-to-steadying-handheld-gopro-recordings/"><u>In 2024, Stabilize Your Story A Guide to Steadying Handheld GoPro Recordings</u></a></li>
+<li><a href="https://win-help.techidaily.com/movavis-top-pick-seamless-wma-to-3gp-conversion-without-charge/"><u>Movavi's Top Pick: Seamless WMA to ^3GP Conversion Without Charge</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-audio-problems-with-your-runmus-gaming-headset/"><u>Resolving Audio Problems with Your RunmuS Gaming Headset</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-amazon-tech-bargains-unmissable-prime-day-offers-2024/"><u>Top Amazon Tech Bargains: Unmissable Prime Day Offers 2024!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-apple-ipad-pro-11-inch-comprehensive-2018-review-ultimate-tech-picks/"><u>Top Rated Apple iPad Pro (11-Inch) - Comprehensive 2018 Review: Ultimate Tech Picks</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-tips-for-an-iphone-not-showing-up-in-itunesfinder/"><u>Troubleshooting Tips for an iPhone Not Showing Up in iTunes/Finder</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-samsung-qn55q6f-your-next-4k-uhd-smart-television/"><u>Ultimate Guide to the Samsung QN55Q6F - Your Next 4K UHD Smart Television</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-of-premium-17-inch-laptops-for-2er-2024/"><u>Ultimate Selection of Premium 17-Inch Laptops for 2Er 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/week-in-review-atandts-data-leak-exposed-and-samsung-unveils-latest-phone-line-up/"><u>Week in Review: AT&T's Data Leak Exposed & Samsung Unveils Latest Phone Line-Up</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Best Online Coding Courses
-date: 2024-10-05T05:01:52.896Z
-updated: 2024-10-06T21:50:55.564Z
+date: 2024-10-09T17:02:24.677Z
+updated: 2024-10-13T03:18:27.731Z
 categories:
   - BestProducts
 description: This Article Describes Best Online Coding Courses
@@ -52,13 +52,6 @@ thumbnail: https://www.lifewire.com/thmb/rBNY6v5dSJHJhGbVntYpGxI0U2s=/400x300/fi
 
 **TL;DR:** Nintendo knows how to make great handheld gaming consoles with the Switch OLED the best of the bunch thanks to its great screen, huge amount of games, and lightweight build.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Why We Recommend This
 
  It might not be the most powerful console around but the Nintendo Switch OLED is the one that I’m most likely to grab before heading out for the day. It has all the charm you’d expect from a Nintendo console. It takes seconds to start up, its menu system is easy to figure out, and its game catalog is fantastic.
@@ -89,13 +82,6 @@ thumbnail: https://www.lifewire.com/thmb/rBNY6v5dSJHJhGbVntYpGxI0U2s=/400x300/fi
 * **Who else recommends it?** TechRadar, Wired, T3, Tom’s Guide, Digital Trends, and CNET recommend the Nintendo Switch OLED.
 * **What do buyers think?** 90% of buyers on Amazon have rated the Nintendo Switch OLED five stars, with the console having an average score of 4.8 out of 5.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Also Great
 
 [Valve Steam Deck](https://www.amazon.com/Valve-Handheld-Console-No-Operating-System/dp/B0BBQRYN9M?tag=lifewire-onsite-prod-20&ascsubtag=8656300%7Cn828e9c21ba084df1b24d3ffdd45b85b813%7CB0BBQRYN9M)
@@ -107,6 +93,13 @@ thumbnail: https://www.lifewire.com/thmb/rBNY6v5dSJHJhGbVntYpGxI0U2s=/400x300/fi
 [$450 at Amazon](https://www.amazon.com/Valve-Handheld-Console-No-Operating-System/dp/B0BBQRYN9M?tag=lifewire-onsite-prod-20&ascsubtag=8656300%7Cn828e9c21ba084df1b24d3ffdd45b85b813%7CB0BBQRYN9M) [$459 at Walmart](https://www.walmart.com/ip/Valve-Steam-Deck-64-GB/2237665775) [$399 at Steampowered.com](https://store.steampowered.com/steamdeck)
 
 **TL;DR:** The Steam Deck makes PC gaming truly portable and much simpler than ever before. It’s all within a sleek and easy to hold shell with a great screen whether you go LED or OLED. As with the Switch, you can always dock it, and even install Windows if you want a full portable PC.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Why We Recommend This
 
@@ -140,13 +133,6 @@ thumbnail: https://www.lifewire.com/thmb/rBNY6v5dSJHJhGbVntYpGxI0U2s=/400x300/fi
 * **Who else recommends it?** The Verge, Forbes, IGN, PCGamer, and Wired have all recommended the Steam Deck with the Steam Deck OLED considered a particular highlight.
 * **What do buyers think?** The Steam Deck has sold over 3 million units on the Steam website. Relatively recently featured on Amazon, it has 86% four- or five-star ratings across 564 reviews.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Easiest on the Budget
 
 [Hyper Mega Tech Super Pocket](https://www.walmart.com/ip/Hyper-Mega-Tech-Capcom-Super-Pocket-Retro-System/5194946970)
@@ -160,10 +146,10 @@ thumbnail: https://www.lifewire.com/thmb/rBNY6v5dSJHJhGbVntYpGxI0U2s=/400x300/fi
 **TL;DR:** Old enough to remember the Nintendo Game Boy? This is a lot like that with plenty of nostalgic games on-board and more to be purchased separately. It’s perfect for anyone seeking nostalgia and it’s very keenly priced too.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Why We Recommend This
@@ -195,6 +181,13 @@ thumbnail: https://www.lifewire.com/thmb/rBNY6v5dSJHJhGbVntYpGxI0U2s=/400x300/fi
 * **Who else recommends it?** TechRadar, GamesRadar, Stuff, and The Guardian have all highly rated the Hyper Mega Tech Super Pocket.
 * **What do buyers think?** Between the two models, the Hyper Mega Tech Super Pocket has an average rating of 4.5 out of 5 on Amazon. 84% of customers have rated the Capcom version 4 or 5 stars, with 90% rating the Taito the same score.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How I Test
 
  I reviewed every handheld gaming console featured here over a number of weeks. The Nintendo Switch OLED, Switch Lite, and Steam Deck were purchased by me, while the Hyper Mega Tech Super Pocket, and Logitech G Cloud were acquired on loan from the manufacturer.
@@ -206,6 +199,19 @@ thumbnail: https://www.lifewire.com/thmb/rBNY6v5dSJHJhGbVntYpGxI0U2s=/400x300/fi
  The[Nintendo Switch Lite](https://www.amazon.com/dp/B092VT1JGD?tag=lifewire-onsite-prod-20&ascsubtag=8656300%7Cn828e9c21ba084df1b24d3ffdd45b85b813%7C) is the smaller and solely portable Switch option. It can’t be docked to your TV and has a weaker screen, but it’s cheaper and ideal for solo gaming.
 
 ![Logitech G Cloud.](https://www.lifewire.com/thmb/SMW56Oe3oBSahp0Lznq6lQGJiTU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LogitechGCloud1-c2a2bb36b9ff4fa7bf3d6d8e65253de1.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Logitech G Cloud.
 
@@ -254,21 +260,22 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-help.techidaily.com/new-exclusive-guide-to-the-best-7-android-browsers-ad-free/"><u>[New] Exclusive Guide to the Best 7 Android Browsers, Ad-Free</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-a-complete-resource-for-aspiring-xbox-streaming-pros/"><u>[Updated] In 2024, A Complete Resource for Aspiring Xbox Streaming Pros</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-cutting-edge-editing-a-magix-video-pro-x-evaluation/"><u>[Updated] In 2024, Cutting-Edge Editing A Magix Video Pro X Evaluation</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-oneplus-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On OnePlus</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/asus-zenwifi-xt8-ax6600-rigorous-assessment-setting-the-standard-for-modern-mesh-wi-fi-systems/"><u>ASUS ZenWiFi XT8 AX6600 Rigorous Assessment - Setting the Standard for Modern Mesh Wi-Fi Systems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-seatechs-usb-external-blu-ray-burner-inconsistent-output/"><u>Comprehensive Analysis of SeaTech's USB External Blu-Ray Burner: Inconsistent Output</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-performance-and-features-of-chargetechs-27000mah-mega-capacity-battery-pack/"><u>Evaluating the Performance and Features of ChargeTech's 27000mAh Mega Capacity Battery Pack</u></a></li>
-<li><a href="https://win-dash.techidaily.com/getting-targus-displaylink-driver-updates-for-windows-11-8-and-7-guide/"><u>Getting Targus DisplayLink Driver Updates for Windows 11, 8 and 7 - Guide</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/harmonizing-sounds-seamless-transitions-in-ableton-live-for-2024/"><u>Harmonizing Sounds Seamless Transitions in Ableton Live for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-monitor-and-engage-with-savors-of-your-posts-on-instagram-effortlessly/"><u>How to Monitor and Engage with Savors of Your Posts on Instagram Effortlessly</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-13-mini-3-ways-to-unlock-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone 13 mini 3 Ways To Unlock</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-netgear-nighthawk-x4-superior-wi-fi-mesh-capabilities/"><u>In-Depth Analysis of the Netgear Nighthawk X4 - Superior Wi-Fi Mesh Capabilities</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/quick-and-simple-guide-speed-up-your-mp3-to-avi-conversion-process/"><u>Quick & Simple Guide: Speed Up Your MP3 to AVI Conversion Process</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-perfect-slumber-technology-your-gateway-to-blissful-rest/"><u>The Perfect Slumber Technology: Your Gateway to Blissful Rest</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-amazon-kindle-oasis-is-its-lavish-aesthetics-justified-by-its-cost/"><u>The Ultimate Guide to Amazon Kindle Oasis – Is Its Lavish Aesthetics Justified by Its Cost?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-test-drive-report-the-toy-sized-marvel-galaxy-ford-f-1-remote-control-vehicle/"><u>Unboxing and Test Drive Report: The Toy-Sized Marvel, Galaxy Ford F-1# Remote Control Vehicle</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-best-8-sbt-to-srtr-conversion-tools-pcmac-compatibility/"><u>[New] Best 8 SBT to SRTR Conversion Tools - PC/Mac Compatibility</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/uide-incorporating-youtube-videos-in-google-slides-for-2024/"><u>[New] Guide Incorporating YouTube Videos in Google Slides for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-flipping-currencies-through-cosmetics-content/"><u>[Updated] 2024 Approved Flipping Currencies Through Cosmetics Content</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-how-to-turn-off-igtv-for-2024/"><u>[Updated] How to Turn Off IGTV for 2024</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/explore-top-notch-robotic-process-automation-with-our-coe-masterclass-online-session/"><u>Explore Top-Notch Robotic Process Automation with Our CoE Masterclass Online Session</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/game-like-never-before-on-the-philips-49-inches-pro-premium-oled-curve-screen/"><u>Game Like Never Before on the Philips 49 Inches Pro Premium OLED Curve Screen</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gpu-excellence-in-4k-gameplay-experience-for-2024/"><u>GPU Excellence in 4K Gameplay Experience for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-harmonize-hues-learning-to-edit-tamil-tracks-for-ringtones/"><u>In 2024, Harmonize Hues Learning to Edit Tamil Tracks for Ringtones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-anker-powercore-26800-top-rated-battery-pack-bundle/"><u>In-Depth Look at the Anker PowerCore 26800 - Top Rated Battery Pack Bundle</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-samsung-galaxy-a20-an-affordable-option-for-android-lovers/"><u>In-Depth Look at the Samsung Galaxy A20 - An Affordable Option for Android Lovers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/razer-blade-pro-17-analysis-the-ultimate-gaming-laptop-on-the-go/"><u>Razer Blade Pro 17 Analysis: The Ultimate Gaming Laptop on the Go</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/streamline-your-pets-diet-with-the-automatic-six-serving-petfeast-by-petsafe/"><u>Streamline Your Pet’s Diet with the Automatic Six-Serving PetFeast by PetSafe</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-beginners-path-to-professional-windows-10-video-production-for-2024/"><u>The Beginner's Path to Professional Windows 10 Video Production for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-and-worst-of-the-new-lenovo-thinkpad-x1-fold-an-expert-review/"><u>The Best and Worst of the New Lenovo ThinkPad X1 Fold - An Expert Review</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-digital-giants-how-facebook-twitter-instagram-and-youtube-shape-our-lives/"><u>The Digital Giants: How Facebook, Twitter, Instagram and YouTube Shape Our Lives</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleash-your-photographic-potential-with-canon-sx530/"><u>Unleash Your Photographic Potential with Canon SX530</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-improved-functionality-in-amazons-latest-echo-model-our-detailed-review/"><u>Unveiling the Improved Functionality in Amazon’s Latest Echo Model – Our Detailed Review</u></a></li>
 </ul></div>
 

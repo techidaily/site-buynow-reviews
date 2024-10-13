@@ -1,7 +1,7 @@
 ---
 title: "Nikon COOLPIX A10: An Inexpensive Camera That Takes Great Photos But Is Hamstrung by a Frustrating User Experience"
-date: 2024-10-02T02:57:48.653Z
-updated: 2024-10-07T03:31:40.306Z
+date: 2024-10-08T20:49:36.911Z
+updated: 2024-10-12T22:00:20.261Z
 categories:
   - BestProducts
 description: "This Article Describes Nikon COOLPIX A10: An Inexpensive Camera That Takes Great Photos But Is Hamstrung by a Frustrating User Experience"
@@ -69,6 +69,13 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 ## **Setup Process: Straight into the action**
@@ -77,21 +84,7 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Plot: A character torn between obligation and friendship**
 
@@ -105,20 +98,13 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Gameplay: Parkour and zombies galore**
@@ -145,7 +131,21 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Worth the cost, especially with a friend**
 
@@ -164,10 +164,16 @@ Harran is a whole different city at night.
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -191,17 +197,20 @@ Harran is a whole different city at night.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ed-capturing-coziness-ideal-winter-scenes-for-yt-video/"><u>[Updated] Capturing Coziness Ideal Winter Scenes for YT Video</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-is-inshot-the-best-video-editing-app-our-in-depth-review/"><u>2024 Approved Is InShot the Best Video Editing App? Our In-Depth Review</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/effiziente-belegabwicklung-durch-die-integration-von-arvato-systems-in-kombination-mit-der-abbyy-enterprise-capture-losung/"><u>Effiziente Belegabwicklung Durch Die Integration Von Arvato Systems in Kombination Mit Der ABBYY Enterprise Capture Lösung</u></a></li>
-<li><a href="https://media-tips.techidaily.com/how-to-link-your-computer-with-television-for-media-playback-transferring-music-and-films-seamlessly/"><u>How to Link Your Computer with Television for Media Playback: Transferring Music and Films Seamlessly</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-show-wi-fi-password-on-nubia-by-drfone-android/"><u>How to Show Wi-Fi Password on Nubia</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-redmi-a2plus-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Xiaomi Redmi A2+ Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Vivo S17 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/introducing-the-future-of-in-home-automation-a-deep-dive-into-the-amazon-echo-show-eby-3rd-generation/"><u>Introducing the Future of In-Home Automation: A Deep Dive Into the Amazon Echo Show Eby (3Rd Generation)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-the-microsoft-surface-go-a-cost-effective-tablet-or-a-compact-computer-our-comprehensive-review-unveils-the-answer/"><u>Is the Microsoft Surface Go a Cost-Effective Tablet or a Compact Computer? Our Comprehensive Review Unveils the Answer.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/jabra-steel-review-one-of-the-toughest-bluetooth-headsets-you-can-buy/"><u>Jabra Steel Review: One of The Toughest Bluetooth Headsets You Can Buy</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-pc-sound-card-reviews-the-definitive-list-of-2024-models/"><u>Leading PC Sound Card Reviews - The Definitive List of 2024 Models</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lenovo-ideapad-flex-5-yoga-a940-comprehensive-evaluation/"><u>Lenovo IdeaPad Flex 5 (Yoga A940) - Comprehensive Evaluation</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-the-ultimate-playlist-best-sandbox-game-choices/"><u>[New] The Ultimate Playlist Best Sandbox Game Choices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-timeframe-equation-for-20mb-content/"><u>[Updated] 2024 Approved Timeframe Equation for 20MB Content</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-caixun-75-inch-4k-android-tv-comprehensive-review-and-analysis/"><u>Budget-Friendly Caixun 75 Inch 4K Android TV: Comprehensive Review and Analysis</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/copia-facile-e-libera-di-dvd-con-software-freeware-rip-2020-tecnologia-anticopy-protection/"><u>Copia Facile E Libera Di DVD Con Software Freeware Rip 2020 - Tecnologia AntiCopy Protection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-positives-and-negatives-an-insightful-look-into-pidgin-im-solutions/"><u>Evaluating Positives and Negatives: An Insightful Look Into Pidgin IM Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-midland-gxt1000vp4-handheld-radio-a-comprehensive-review/"><u>Exploring the Midland GXT1000VP4 Handheld Radio: A Comprehensive Review</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-oppo-reno-9a-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Oppo Reno 9A in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/86901847-in-2024-buy-subscribers-wisely-watch-your-numbers-soar/"><u>In 2024, Buy Subscribers Wisely, Watch Your Numbers Soar</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-examination-of-the-lg-gram-17-large-display-meets-ultraportability/"><u>In-Depth Examination of the LG Gram 17: Large Display Meets Ultraportability</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ipad-pro-and-surface-pro-face-off-determining-your-ideal-device/"><u>IPad Pro and Surface Pro Face-Off: Determining Your Ideal Device</u></a></li>
+<li><a href="https://win-able.techidaily.com/maximize-your-horizon-zero-dawn-experience-with-optimal-fps-and-speed-tweaks/"><u>Maximize Your Horizon Zero Dawn Experience with Optimal FPS and Speed Tweaks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/moto-g-play-review-massive-battery-and-decent-performance/"><u>Moto G Play Review: Massive Battery and Decent Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revved-up-for-another-round-dive-into-our-in-depth-fortnite-battle-royale-season-reveal/"><u>Revved Up for Another Round: Dive Into Our In-Depth Fortnite Battle Royale Season Reveal</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>Thinking About Changing Your Netflix Region Without a VPN On Apple iPhone XS? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/value-meets-innovation-in-our-apple-watch-se-assessment-the-smart-choice-for-cost-conscious-consumers/"><u>Value Meets Innovation in Our Apple Watch SE Assessment: The Smart Choice for Cost-Conscious Consumers</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Microsoft Surface Laptop Go - An In-Depth Analysis of a Truly Portable and Cost-Effective Device
-date: 2024-09-19T17:55:07.473Z
-updated: 2024-09-20T17:51:29.576Z
+date: 2024-10-05T22:46:59.063Z
+updated: 2024-10-13T01:06:57.434Z
 categories:
   - BestProducts
 description: This Article Describes The Microsoft Surface Laptop Go - An In-Depth Analysis of a Truly Portable and Cost-Effective Device
@@ -76,6 +76,19 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  One unique feature of the Sculpt we loved was the function switch. Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key. Options include refreshing the active page, navigating to the home page in web, opening up the computer’s settings, a play/pause button, switching between active windows, and increasing or decreasing volume.
@@ -84,22 +97,29 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
@@ -110,10 +130,10 @@ Lifewire / Emily Isaacs
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Great for the features**
@@ -123,13 +143,6 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
  Lifewire / Emily Isaacs
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
@@ -183,5 +196,18 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-the-ultimate-size-solution-to-boost-your-videos-online-performance/"><u>[New] 2024 Approved The Ultimate Size Solution to Boost Your Video's Online Performance</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/amd-ryzen-9-9950x-surpasses-7950x-with-a-24-increase-in-rendering-benchmarks-an-examination-of-the-flagship-zen-5-desktop-cpu/"><u>AMD Ryzen 9 9950X Surpasses 7950X with a 24% Increase in Rendering Benchmarks: An Examination of the Flagship Zen 5 Desktop CPU</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experiencing-speedy-internet-all-over-your-house-heres-our-thorough-review-of-orbi-tri-band-mesh-wifi-6-system/"><u>Experiencing Speedy Internet All Over Your House? Here's Our Thorough Review of Orbi Tri-Band Mesh WIFI 6 System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-assessment-of-the-amplifi-hd-wireless-networking-solution-defeat-wi-fi-weak-spots-with-ease/"><u>In-Depth Assessment of the Amplifi HD Wireless Networking Solution: Defeat Wi-Fi Weak Spots with Ease</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-netgears-nighthawk-c7000-a-superior-wifi-modem-reviewed/"><u>In-Depth Look at Netgear's Nighthawk C7000: A Superior WiFi Modem Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/interactive-showdown-with-the-philips-49-curvaceous-oled-display-perfect-for-gamers/"><u>Interactive Showdown with the Philips 49 Curvaceous OLED Display - Perfect for Gamers</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Vivo G2 | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/step-by-step-guide-enjoy-live-baseball-on-tv-or-explore-free-online-streaming-options/"><u>Step-by-Step Guide: Enjoy Live Baseball on TV or Explore Free Online Streaming Options</u></a></li>
+<li><a href="https://driver-install.techidaily.com/streamlining-dells-auditory-experience-with-updated-drivers/"><u>Streamlining Dell's Auditory Experience with Updated Drivers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-review-for-highly-rated-battery-operated-google-wireless-nest-doorbells/"><u>Top Review for Highly Rated Battery Operated Google Wireless Nest Doorbells</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-tecno-pop-7-pro-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Tecno Pop 7 Pro | Dr.fone</u></a></li>
+</ul></div>
 

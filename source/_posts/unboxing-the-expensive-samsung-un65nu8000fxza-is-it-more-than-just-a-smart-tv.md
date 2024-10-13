@@ -1,7 +1,7 @@
 ---
 title: "Unboxing the Expensive Samsung UN6^5NU8000FXZA: Is It More Than Just a Smart TV?"
-date: 2024-09-13T17:11:03.130Z
-updated: 2024-09-20T17:25:06.793Z
+date: 2024-10-06T23:41:29.802Z
+updated: 2024-10-13T00:06:10.498Z
 categories:
   - BestProducts
 description: "This Article Describes Unboxing the Expensive Samsung UN6^5NU8000FXZA: Is It More Than Just a Smart TV?"
@@ -72,6 +72,13 @@ Lifewire / Andy Zahn
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/_yzFIL-bClIpQ2-BreG8tli1L2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-4-a802a799a7c34067905c9ff965feea8e.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
 ## **Design: Big and tough**
@@ -90,6 +97,19 @@ Lifewire / Andy Zahn
 
  We did encounter one troublesome bug where the remote partially de-synced from the display so that only the power button functioned properly. This is obviously a known issue, as on-screen instructions immediately appeared to reset the remote and re-establish the connection, and we found these instructions repeated inside the battery compartment of the remote. We also missed having dedicated buttons for popular streaming services such as Netflix and Hulu.
 
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Some assembly required**
 
  The sturdiness of the NU8000’s stand comes at a small price in terms of ease of setup. The back panel of the pillar must be popped off to screw the stand together. The assembled base is then attached to the screen via a plate that slides into place and is then secured by more screws. The caveat is that unless you have a large table available for this process then it's very difficult and requires the cooperation of at least two other people. Once this is complete, insert the batteries into the remote, attach the power cord and any other wired connections, and you’re ready to go.
@@ -99,13 +119,6 @@ Lifewire / Andy Zahn
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/bOGvBL3-atPnw9kBu9ugoXGE9ag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-3-44ef4614305946739623813ea1476c2b.jpg)
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Image Quality: A real letdown**
 
@@ -136,10 +149,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: A little slow**
@@ -151,22 +164,15 @@ Lifewire / Andy Zahn
  The other software issue is that the NU8000 runs an older version of FreeSync, which means it doesn’t handle screen tearing as well as newer displays, especially when gaming on high-end hardware. However, during our testing, we didn’t notice an appreciable problem with this, though that may vary depending on your viewing and gaming habits.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Expensive at MSRP**
 
  With an MSRP of $999 the NU8000 is certainly no bargain, especially considering that superior displays are available for the same cost. However, as this is an older TV it may be possible to find steep discounts that make up for its deficiencies.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: NU8000 vs RU8000**
 
@@ -181,6 +187,13 @@ Lifewire / Andy Zahn
 **Hard to recommend.**
 
  The Samsung UN65NU8000FXZ is capable, provides high resolution, and has excellent, flexible software with a good selection of apps. It's also exceptionally thin with a screen that's almost bezel-less, but unless the extremely sturdy stand is the most important feature to you, then RU8000 is just a better display at the exact same MSRP.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -208,5 +221,24 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-2023-how-to-fix-live-video-interrupted-on-facebook/"><u>[New] 2024 Approved 2023 | How to Fix Live Video Interrupted on Facebook?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-elevating-your-online-presence-a-complete-handbook-for-tiktok-name-change/"><u>[New] In 2024, Elevating Your Online Presence A Complete Handbook for TikTok Name Change</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-vivo-v29-pro-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Vivo V29 Pro Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-pros-and-cons-for-monoprice-designer-canvas-pen-display/"><u>Budget-Friendly Pros and Cons for Monoprice Designer Canvas Pen Display</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-linksys-velops-superior-wireless-coverage-and-speed/"><u>Comprehensive Guide to Linksys Velop's Superior Wireless Coverage and Speed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-the-gotrax-gxl-v2-your-solution-for-speedy-and-convenient-city-commuting/"><u>Discovering the Gotrax GXL V2 - Your Solution for Speedy and Convenient City Commuting</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Vivo Y200e 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-ergodriven-topo-mat-a-must-have-for-healthy-productive-workspaces/"><u>Evaluating the ErgoDriven Topo Mat: A Must-Have for Healthy, Productive Workspaces</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-fix-shell32dll-not-found-or-missing-errors/"><u>How to Fix Shell32.dll Not Found or Missing Errors</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-ice-dance-showcase-olympic-winter-2022/"><u>In 2024, Ice Dance Showcase Olympic Winter 2022</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-no-cost-visual-aids-free-templates-and-slide-show-resources/"><u>In 2024, No-Cost Visual Aids Free Templates & Slide Show Resources</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/portable-prodigy-showdown-a-close-look-at-the-razer-book-13/"><u>Portable Prodigy Showdown: A Close Look at the Razer Book 13</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/professional-recordings-at-home-10-key-strategies-for-excellence/"><u>Professional Recordings at Home 10 Key Strategies for Excellence</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-step-plan-to-a-viral-youtube-video/"><u>The 2-Step Plan to a Viral YouTube Video</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-elegant-speedster-examining-price-features-and-performance-of-glion-dollys-e-scooter/"><u>The Elegant Speedster: Examining Price, Features & Performance of Glion Dolly's E-Scooter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-greatness-of-yakuza-like-a-dragon-your-next-essential-jrgp-reviewed/"><u>Unveiling the Greatness of 'Yakuza: Like A Dragon' - Your Next Essential JRGP Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/urban-armor-gear-macbook-case-assessment-combining-robustness-with-everyday-use/"><u>Urban Armor Gear MacBook Case Assessment: Combining Robustness with Everyday Use</u></a></li>
+</ul></div>
 

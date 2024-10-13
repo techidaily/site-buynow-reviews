@@ -1,7 +1,7 @@
 ---
 title: Inside Look at the Dell Alienware Aurora R9 - Cutting Edge Gaming Aesthetics Reviewed
-date: 2024-09-14T05:36:05.203Z
-updated: 2024-09-14T18:24:03.847Z
+date: 2024-10-10T16:22:16.358Z
+updated: 2024-10-12T17:38:30.532Z
 categories:
   - BestProducts
 description: This Article Describes Inside Look at the Dell Alienware Aurora R9 - Cutting Edge Gaming Aesthetics Reviewed
@@ -46,9 +46,29 @@ Lifewire / Jeremy Laukkonen
 
 4.2
 
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Microsoft Xbox Series S
 
 ![Xbox Series S](https://www.lifewire.com/thmb/wlG_GrSmQPVex-VRt3ap4hsTP-s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -97,6 +117,13 @@ Lifewire / Jeremy Laukkonen
 
  I ended up wiping the console back to factory settings a few times while I put it through its paces, so I also tried the traditional setup method after circling back. It’s similar to setting up an Xbox One; not that difficult or time-consuming, but the app option is better.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Rock solid 1440p gaming**
 
  The Xbox Series S is a bit of a mixed bag in the performance department because of its stripped-down hardware. The CPU is similar to the more expensive Xbox Series X, but the GPU is significantly weaker[in teraflops (TFLOPs)](https://www.lifewire.com/what-is-a-teraflop-5076877) and has less RAM.
@@ -119,6 +146,19 @@ Lifewire / Jeremy Laukkonen
 
  Load times were negligible in each game I played, which I expected from a super-fast NVME SSD storage system. Some games had more noticeable load times than others, but not enough to disrupt gameplay.
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Games: Microsoft still has an exclusivity problem**
 
  You won't have any shortage of games to play on the Xbox Series S, especially if you're a[Game Pass](https://www.lifewire.com/xbox-game-pass-4178809) subscriber. I predicted that the Series S would be the ultimate Game Pass machine at release, and that prediction has borne fruit in my home, at least.
@@ -134,6 +174,13 @@ Lifewire / Jeremy Laukkonen
  Other consoles, like the PlayStation 5 and Nintendo Switch, have games you can't get anywhere else, while the Xbox Series X|S has timed exclusives and console exclusives. That isn't a knock against Microsoft, as the availability of Xbox exclusives on the PC is fantastic for computer gamers. Still, it does put Xbox consoles in a tough spot compared to consoles from other manufacturers.
 
  Microsoft's $7.5B purchase of Bethesda's parent company, Zenimax, brought some hope of additional exclusives appearing in Microsoft's arsenal. (Bethesda is the publisher of Fallout, DOOM, Dishonored, Skyrim, Wolfenstein, The Elder Scrolls, and more.) However, the situation is murky as the company has yet to clarify which (if any) Bethesda titles will be exclusive to Xbox.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Storage: Disappointingly shallow, so bring your USB drive**
 
@@ -169,19 +216,6 @@ Lifewire / Jeremy Laukkonen
 
  An overhaul of the dashboard is currently in the works, and we expect it to arrive in 2023.
 
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Controller: Iteration more than innovation**
 
  The Xbox Series X|S controller is a pleasant surprise, as Microsoft also chose to stick with a winning formula. The original Xbox One controller was well-received, and its minor facelift with the release of the Xbox One made it even better. Microsoft took that design for the Xbox Series X|S and tweaked it ever so slightly.
@@ -198,20 +232,19 @@ Lifewire / Jeremy Laukkonen
 
 ![Xbox Series S](https://www.lifewire.com/thmb/MZdEnnFWPzhGzv_P5GO8byAY5qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3-dd9458b294e74205acad2ff6fee33913.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Jaw-droppingly low**
@@ -223,13 +256,6 @@ Lifewire / Jeremy Laukkonen
  One nice thing about the Xbox Series X|S is that when you buy a new console, you typically have a bunch of add-ons to worry about that drive the price up. For example, you might have to purchase several controllers to support multiplayer, which adds up to $60 or more per controller. Since the Series S supports most Xbox One peripherals, owners don’t have to worry about the added expense of buying extra controllers.
 
  One expense you may need to budget is a high-speed USB 3.1 drive. The console is perfectly usable without an external drive, but expect to uninstall games regularly to make more space if you limit yourself to the onboard storage.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Xbox Series S vs. PS5 Digital**
 
@@ -254,19 +280,6 @@ Lifewire / Jeremy Laukkonen
 [Nintendo Switch Review](https://www.lifewire.com/nintendo-switch-review-4707563)
 
 [Nintendo Switch Lite Review](https://www.lifewire.com/nintendo-switch-lite-review-4788015)
-
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -298,5 +311,24 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-the-art-of-google-meet-modifications-using-masks-and-effects/"><u>[New] 2024 Approved The Art of Google Meet Modifications Using Masks & Effects</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-a-step-by-step-guide-to-including-vimeo-on-instagram/"><u>[New] A Step-by-Step Guide to Including Vimeo on Instagram</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ideal-voice-transformation-tools-for-digital-talent/"><u>[Updated] Ideal Voice Transformation Tools for Digital Talent</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-the-quintessential-list-of-top-tier-gaming-cams-for-live-viewers/"><u>[Updated] In 2024, The Quintessential List of Top-Tier Gaming Cams for Live Viewers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-art-of-aerial-broadcasting-a-dji-drone-guide-for-facebook/"><u>[Updated] The Art of Aerial Broadcasting A DJI Drone Guide for Facebook</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-best-spots-for-free-downloadable-got-ringtones/"><u>In 2024, The Best Spots for Free Downloadable GoT Ringtones</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/control-a-compreeved-guide-to-iphoneipad-screen-recordings-on-youtube-for-2024/"><u>Take Control A Compreeved Guide to iPhone/iPad Screen Recordings on YouTube for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-best-ipad-ever-why-the-2018-apple-pro-model-outshines-others-on-amazon/"><u>The Ultimate Guide to the Best iPad Ever – Why the 2018 Apple Pro Model Outshines Others on Amazon</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-the-garmin-vivosmart-4-unlocking-the-power-of-body-energy-and-stress-tracking/"><u>The Ultimate Review of the Garmin Vivosmart 4: Unlocking the Power of Body Energy and Stress Tracking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-unseen-side-of-the-clearstream-2v-hdtv-antenna-balancing-excellent-function-with-unconventional-appearance-reviewed/"><u>The Unseen Side of the ClearStream 2V HDTV Antenna: Balancing Excellent Function with Unconventional Appearance Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ergonomic-keyboard-picks-for-maximum-comfort/"><u>Top Ergonomic Keyboard Picks for Maximum Comfort</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-your-gameplay-sound-in-counter-strike-2-microphone-fixes/"><u>Troubleshooting Your Gameplay Sound in Counter-Strike 2: Microphone Fixes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-chargetech-27000mah-power-bank-high-capacity-portable-charging-reviewed/"><u>Ultimate Guide to the ChargeTech 27000mAh Power Bank - High-Capacity Portable Charging Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-powerhouse-in-depth-review-of-apples-revolutionary-2020-m1-mac-mini/"><u>Unboxing the Powerhouse: In-Depth Review of Apple's Revolutionary 2020 M1 Mac Mini</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/understanding-the-contrast-macbook-air-vs-macbook-pro-differences-explored/"><u>Understanding the Contrast: MacBook Air Vs. MacBook Pro Differences Explored</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/unstick-your-pdf-printer-effortless-fixes-for-a-smooth-printout/"><u>Unstick Your PDF Printer: Effortless Fixes for a Smooth Printout</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-advancements-in-apple-watch-series-4-greatness-redefined-and-refined/"><u>Unveiling the Advancements in Apple Watch Series 4: Greatness Redefined and Refined</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Essential TL-WR902AC by TP-Link: A Small Package, Powerful Wireless Internet Anywhere"
-date: 2024-10-06T08:31:01.878Z
-updated: 2024-10-07T00:32:22.199Z
+date: 2024-10-10T18:50:45.386Z
+updated: 2024-10-12T23:11:01.712Z
 categories:
   - BestProducts
 description: "This Article Describes The Essential TL-WR902AC by TP-Link: A Small Package, Powerful Wireless Internet Anywhere"
@@ -74,13 +74,6 @@ Lifewire / Gannon Burgett
 
 ![Max Oak](https://www.lifewire.com/thmb/SHsB9QkFaBbOrU6sw55TzNOqC7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_4Web-5c8ff4adc9e77c0001ff0b36.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Gannon Burgett
 
  As for the materials, the metal enclosure and place ends give it a fairly solid feel, but the metal doesn't sit perfectly flush with the plastic ends, at least not in our model. It could be a one-off quality control issue or it might simply be the way in which the charger is constructed, but it's definitely noticeable.
@@ -91,6 +84,13 @@ Lifewire / Gannon Burgett
 
  Charging the device is done via a small 16.8-volt 2.5A plug-in style port on the opposite side of the power button. Overall, the design is roughly what you'd expect from a 50000mAh laptop battery charger. Yes, it's heavy, yes it's quite beefy in size, but it comes with the territory.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Simple to start, but yet another adapter to carry around**
 
  Setting up the MaxOak laptop battery charger is as simple as it gets. After removing it from its unbranded cardboard box, it's simply a matter of plugging it in and getting it charged up completely. Our device came charged at roughly 50% based on the onboard[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) battery indicator, but to complete our tests we wanted it charged entirely, which leads us to our biggest complaint about this charger.
@@ -98,10 +98,10 @@ Lifewire / Gannon Burgett
  The point of a charger is to have extra battery power on hand when needed so you don't have to carry around unnecessary cables when traveling. Unfortunately, the MaxOak battery pack doesn't use any kind of USB or standardized port. Rather than charging it with a[USB Type-C](https://www.lifewire.com/usb-c-4149490) or even a micro-USB port, the MaxOak battery pack relies on its own proprietary power supply that's nearly as large as most laptop chargers. Sure, the 50000mAh onboard is likely enough that you could leave both the battery pack charger and your laptop charger behind for most events, but eventually you'll run out of juice and rather than reaching for a cable you would probably already have in your bag, you're stuck bringing along a proprietary charger.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Charging Speed and Battery: Slow and steady wins this race**
@@ -109,6 +109,19 @@ Lifewire / Gannon Burgett
  The MaxOak 50000mAh manages to charge at a decent rate considering its capacity, but we would’ve liked to see more high-powered ports for speedier charging. We charged and fully drained the MaxOak power bank five times and charging took roughly six to eight hours per recharge with an average of seven hours and fifteen minutes.
 
 ![Max Oak](https://www.lifewire.com/thmb/FlP4JZUVLoJ3DjKoSRUIFuf1peY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_6Web-5c8ff3e6c9e77c0001a926ff.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -123,22 +136,15 @@ Lifewire / Gannon Burgett
  Moving onto laptops, our ASUS X555LA was able to be charged four and a half times from 0% with the MaxOak power bank, with an average charge time of three hours or so. The ASUS X555LA has a relatively small battery compared to most laptops, which means it falls in line with MaxOak’s claims that its power bank can charge a laptop two times over give or take a little.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Right down the middle**
 
  The MaxOak 50000mAh power bank comes in at $135.99 at the time of this review. This is a reasonable price when taking into consideration how much battery capacity you're getting with it.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: One in the same**
 
@@ -192,24 +198,21 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-crafting-compelling-gopro-livestreams-on-facebook-and-periscope/"><u>[New] Crafting Compelling GoPro Livestreams on Facebook & Periscope</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-best-photo-to-cartoon-software-for-windows-and-mac/"><u>[New] In 2024, Best Photo to Cartoon Software for Windows & Mac</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-top-non-udemy-online-learning-platforms-for-self-improvement/"><u>[Updated] In 2024, Top Non-Udemy Online Learning Platforms for Self-Improvement</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-ultimate-instagram-live-mastering-video-chats/"><u>[Updated] In 2024, Ultimate Instagram Live Mastering Video Chats</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-mobilize-your-storytelling-crafting-content-with-a-phone/"><u>[Updated] Mobilize Your Storytelling Crafting Content with a Phone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/best-5-apple-podcast-services-for-ios-users/"><u>Best 5 Apple Podcast Services for iOS Users</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/bypassing-windows-11-sudden-shutdowns/"><u>Bypassing Windows 11 Sudden Shutdowns</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-resolve-your-apple-iphone-6s-plus-keeps-asking-for-outlook-password-by-drfone-ios/"><u>In 2024, Resolve Your Apple iPhone 6s Plus Keeps Asking for Outlook Password</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/step-into-the-future-upgrading-32-bit-win10-into-a-64-bit-powerhouse/"><u>Step Into the Future: Upgrading 32-Bit Win10 Into a 64-Bit Powerhouse</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-best-of-both-worlds-reviewing-microsoft-surface-laptop-go-a-low-cost-yet-powerful-on-the-go-device/"><u>The Best of Both Worlds - Reviewing Microsoft Surface Laptop Go: A Low-Cost Yet Powerful On-the-Go Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-future-in-your-hands-assessing-the-samsung-galaxy-note20-ultra-5g-edition/"><u>The Future in Your Hands? Assessing the Samsung Galaxy Note20 Ultra 5G Edition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-two-sides-of-webex-evaluating-its-pros-and-cons-for-virtual-gatherings/"><u>The Two Sides of WebEx - Evaluating Its Pros and Cons for Virtual Gatherings</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tips-and-tricks-for-extracting-and-preserving-images-from-word-documents/"><u>Tips & Tricks for Extracting and Preserving Images From Word Documents</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-review-of-mophies-ac-powerstation-balancing-convenience-against-expense/"><u>Top Review of Mophie's AC Powerstation: Balancing Convenience Against Expense</u></a></li>
-<li><a href="https://apple-account.techidaily.com/turning-off-two-factor-authentication-from-apple-iphone-12-pro-5-tips-you-must-know-by-drfone-ios/"><u>Turning Off Two Factor Authentication From Apple iPhone 12 Pro? 5 Tips You Must Know</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleashing-potential-comprehensive-review-of-the-innovative-hp-zbook-firefly-15-g8/"><u>Unleashing Potential: Comprehensive Review of the Innovative HP ZBook Firefly 15 G8</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/unlock-advanced-broadcast-techniques-with-obs-on-youtube-and-twitch/"><u>Unlock Advanced Broadcast Techniques with OBS on YouTube & Twitch</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-hisense-40-inch-5590f-an-insightful-guide-to-an-economical-smart-television/"><u>Unveiling the Hisense 40-Inch 5590F: An Insightful Guide to an Economical, SMART Television</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-secrets-to-continuous-play-the-mavix-m9-chairs-reign-in-ergonomics-and-comfort/"><u>Unveiling the Secrets to Continuous Play: The Mavix M9 Chair's Reign in Ergonomics and Comfort</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-premier-mic-choices-perfected-for-high-res-videos/"><u>[New] 2024 Approved Premier Mic Choices Perfected for High-Res Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-revolutionize-your-content-with-innovative-tagging-approaches/"><u>[New] In 2024, Revolutionize Your Content with Innovative Tagging Approaches</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-insiders-guide-to-ultimate-audio-equipment/"><u>[New] In 2024, The Insider's Guide to Ultimate Audio Equipment</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-boost-your-budget-a-straightforward-triple-step-method-to-monitor-youtube-revenue/"><u>2024 Approved Boost Your Budget A Straightforward Triple-Step Method to Monitor YouTube Revenue</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-practical-steps-to-enhance-videos-with-device-based-filtering/"><u>2024 Approved Practical Steps to Enhance Videos with Device-Based Filtering</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-prestigious-zooids-introduction-spotlight/"><u>2024 Approved Prestigious Zooids Introduction Spotlight</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/acer-predator-triton-300-se-comprehensive-review-on-a-compact-powerhouse/"><u>Acer Predator Triton 300 SE - Comprehensive Review on a Compact Powerhouse</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/aeiousys-mobile-solar-generator-perfect-pure-sine-wave-output-reviewed-for-healthcare-device-compatibility/"><u>Aeiousy's Mobile Solar Generator: Perfect Pure Sine Wave Output Reviewed For Healthcare Device Compatibility</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-vuebell-video-doorbell-evaluation-top-budget-friendly-choice/"><u>Affordable VueBell Video Doorbell Evaluation: Top Budget-Friendly Choice</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazon-luna-gaming-console-analysis-impressive-effortless-video-game-broadcasting/"><u>Amazon Luna Gaming Console Analysis: Impressive, Effortless Video Game Broadcasting</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amplifi-hd-wi-fi-networking-solution-say-goodbye-to-connectivity-dead-spots/"><u>Amplifi HD Wi-Fi Networking Solution: Say Goodbye to Connectivity Dead Spots</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/analog-charm-with-digital-powerhouse-a-thorough-review-of-the-withings-move-watch/"><u>Analog Charm with Digital Powerhouse - A Thorough Review of the Withings Move Watch</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/artistic-horizons-scouting-the-finest-8-drawing-apps-for-iphones/"><u>Artistic Horizons Scouting the Finest 8 Drawing Apps for iPhones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722707492600-experience-high-definition-with-the-affordable-sony-xbr65x850f-our-in-depth-65-inch-tv-review/"><u>Experience High Definition with the Affordable Sony XBR65X850F - Our In-Depth 65-Inch TV Review!</u></a></li>
+<li><a href="https://facebook.techidaily.com/solutions-for-disabled-fb-notifications/"><u>Solutions for Disabled FB Notifications</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-unleash-your-creativity-free-gif-loop-creator-tools/"><u>Updated In 2024, Unleash Your Creativity Free GIF Loop Creator Tools</u></a></li>
 </ul></div>
 

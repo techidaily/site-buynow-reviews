@@ -1,7 +1,7 @@
 ---
 title: "Fix Guide: Addressing HyperX Cloud Alpha Microphone Performance Issues"
-date: 2024-09-13T07:08:46.213Z
-updated: 2024-09-15T00:08:59.140Z
+date: 2024-10-06T18:58:52.771Z
+updated: 2024-10-12T20:40:21.207Z
 tags:
   - win11
   - win10
@@ -50,6 +50,13 @@ Having a headphone crackling problem? You’re certainly not alone. But don’t 
  1) On the bottom right of your screen, right-click on**the sound icon** , then click**Sounds** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/12sound.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  2) In the**Playback** tab, right-click on**speakers** and click **Properties** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/08/img_5b63fdf0b0ffe.jpg)
@@ -64,18 +71,18 @@ Having a headphone crackling problem? You’re certainly not alone. But don’t 
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/08/img_5b6403e757810.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  6) Hopefully the popping/crackling sound in your headphone problem has gone by now. If not, you might also want to change it to other audio formats to see if it works.
 
  Check if the headphone crackling problem persists. If yes, then congrats! But if it still persists, you should try **Fix 3** , below.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 3: Update your audio driver
 
@@ -89,8 +96,29 @@ Having a headphone crackling problem? You’re certainly not alone. But don’t 
 2. Run Driver Easy and click the **Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.  
 ![](https://www.drivereasy.com/wp-content/uploads/2018/12/scan.jpg)
 3. Click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you’re not ready to buy the Pro version, Driver Easy offers a 7-day free trial which includes access to all the Pro features such as high-speed download and one-click install. You won’t be charged anything until your 7 day trial has ended.).  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://www.drivereasy.com/wp-content/uploads/2018/09/IntelR-Display-Audio.jpg)
 4. Restart your computer, play some audio through your headphone to see if this nasty crackling noise has been resolved. If yes, then great! If it’s still happening, move on to **Fix 4**  , below.
+
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ---
 
@@ -103,29 +131,16 @@ Having a headphone crackling problem? You’re certainly not alone. But don’t 
 2. Click the **High performance** option > **Change plan settings** .  
 
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/08/img_5b612f654c09d.jpg)
 3. Click **Change advanced power settings** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/08/img_5b612fc0bbd6e.jpg)
 4. Double-click on **Processor power management**  \> **Minimum processor state** . Type **100** in **Setting (%)** . Then click **Apply** \> **OK** .  
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/08/img_5b63fa15d798d.jpg)
 
@@ -154,5 +169,20 @@ Having a headphone crackling problem? You’re certainly not alone. But don’t 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-frontier-visionaries-merging-media-triad-for-2024/"><u>[New] Frontier Visionaries Merging Media Triad for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-sharpen-up-discover-the-best-online-photo-fixers/"><u>2024 Approved Sharpen Up! Discover the Best Online Photo Fixers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-ultimate-guide-to-selecting-superior-netgear-routers/"><u>2024'S Ultimate Guide to Selecting Superior Netgear Routers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-captivating-journey-through-narrative-and-creation-review-of-sci-fi-rpg-torment-tides-of-numenera/"><u>A Captivating Journey Through Narrative and Creation - Review of Sci-Fi RPG 'Torment: Tides of Numenera'</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-the-google-pixel-6-highlighting-its-cutting-edge-camera-features/"><u>A Closer Look at the Google Pixel 6: Highlighting Its Cutting-Edge Camera Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-review-top-long-reach-routers-dominating-the-market-in-ebytes/"><u>A Comprehensive Review: Top Long-Reach Routers Dominating the Market in Ebytes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-remobell-smart-doorbell-under-100-in-depth-product-analysis/"><u>Affordable RemoBell Smart Doorbell (Under $100) - In-Depth Product Analysis</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/affordable-ways-to-transform-your-dorm-into-a-personalized-wireless-cinema-experience/"><u>Affordable Ways to Transform Your Dorm Into a Personalized Wireless Cinema Experience</u></a></li>
+<li><a href="https://win-blog.techidaily.com/cracked-the-code-how-to-get-the-ascent-app-up-and-running-smoothly/"><u>Cracked the Code! How to Get 'The Ascent' App Up and Running Smoothly</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722692754237-long-term-bisphosphonate-use-can-lead-to-complications-such-as-osteonecrosis-of-the-jaw-onj-due-to-impaired-angiogenesis-in-bone-tissue/"><u>Long-Term Bisphosphonate Use Can Lead to Complications Such as Osteonecrosis of the Jaw (ONJ) Due to Impaired Angiogenesis in Bone Tissue</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-the-ultimate-list-of-video-maker-apps-with-music-for-mobile-devices/"><u>New The Ultimate List of Video Maker Apps with Music for Mobile Devices</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/start-your-ai-adventure-with-these-9-community-hubs/"><u>Start Your AI Adventure with These 9 Community Hubs</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unveiling-enhanced-functionality-with-ai-for-windows-11-users/"><u>Unveiling Enhanced Functionality with AI for Windows 11 Users</u></a></li>
+</ul></div>
 

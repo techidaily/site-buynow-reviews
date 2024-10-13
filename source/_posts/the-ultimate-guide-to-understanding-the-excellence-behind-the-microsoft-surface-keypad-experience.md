@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Understanding the Excellence Behind the Microsoft Surface Keypad Experience
-date: 2024-10-02T01:29:55.772Z
-updated: 2024-10-07T04:16:28.677Z
+date: 2024-10-06T02:04:37.984Z
+updated: 2024-10-13T01:15:59.410Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Guide to Understanding the Excellence Behind the Microsoft Surface Keypad Experience
@@ -44,16 +44,16 @@ Andrew Hayward / Lifewire
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Meta Quest 2
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/KO4q8p9NOXatDIXmzsBBpQgN5eA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_horiz_Oculus-Quest-2-VR-Headset-1-bf9c326da16b47f6b2bdcc6ba1e7068e.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Andrew Hayward / Lifewire
 
@@ -81,10 +81,10 @@ Andrew Hayward / Lifewire
  It was one of last year’s greatest new gadgets, and now Oculus has returned with a sequel. The Oculus Quest 2 is smaller and lighter, yet more powerful and with a much better screen—yet it costs $100 less than the original. How did that happen? Well, it’s not all great news, thanks to a couple of cost-cutting measures that you’ll feel and potentially see, but the end result is ultimately a better and more affordable device that serves as an ideal gateway into VR.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Design and Comfort: Compromises were made
@@ -113,13 +113,6 @@ Andrew Hayward / Lifewire
 
 ![Oculus Quest 2 ](https://www.lifewire.com/thmb/1aG6kdNHMuvnim8p8_i1RwH9QG8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-3-eec6cabc11db4ed9be5254aa2bc46ec1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Andrew Hayward / Lifewire
 
  But there is a potential loss for function and comfort with one other particular aspect of the headset itself: IPD adjustment. Inter-pupillary distance, or IPD, is the physical distance between your eyes, and a headset must account for it to effectively deliver clear, 3D experiences. On the original Quest, a physical slider let you precisely adjust the distance to match your own face. With the Quest 2, however, there are just three settings, and you can physically shift the placement of the lenses to choose the position that is closest to your own.
@@ -131,6 +124,13 @@ Andrew Hayward / Lifewire
 ![Oculus Quest 2](https://www.lifewire.com/thmb/gwWuuSfTzWNDoS45b-iG9qG32-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-4-27f169e7e71b4372a38e13332b7b1364.jpg)
 
  Andrew Hayward / Lifewire
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Setup Process: You’ll need a phone… and Facebook
 
@@ -159,10 +159,10 @@ Andrew Hayward / Lifewire
  I felt the Quest 2’s enhancements more prominently in some games over others. Laser sword-swinging music game Beat Saber, for example, ran well on the first headset and isn’t that different here—just smoother and clearer-looking. But with the online battle royale shooter Population: One, the cleaner-looking textures and more fluid performance helped mitigate some of the light motion sickness I felt playing on the first Quest.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Sound Quality: Works fine without headphones
@@ -177,14 +177,20 @@ Andrew Hayward / Lifewire
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/Ns2S3DQVema5UEDDSO8n3N7SC_4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-7-0a0e40b6a3064fe7abc985f0900dbeff.jpg)
 
- Andrew Hayward / Lifewire
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Andrew Hayward / Lifewire
 
 ## Software: Use the headset or connect to PC
 
@@ -198,16 +204,16 @@ Andrew Hayward / Lifewire
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/72vxixVr7kdKoLfUC3QkIrBl26I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-6-12fcb6054cf2475191bc613a3f26bcfc.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Andrew Hayward / Lifewire
 
  The $299 edition of the headset comes with 64GB of internal storage and the $399 version nets you 256GB, with some of each tally taken up by system software and resources. Luckily, the games and apps themselves aren’t huge, typically weighing in between 1-4GB apiece, sometimes less, and they’re pretty quick to download again if you want to revisit something. The 64GB edition should provide enough space for most players, as you could probably comfortably have a dozen or more games installed, along with streaming media apps, but anyone who wants to have a robust VR library on hand at all times without waiting might consider spending the extra cash.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Games: A good, growing selection
 
@@ -223,13 +229,6 @@ Andrew Hayward / Lifewire
 
  Andrew Hayward / Lifewire
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Price: It’s an amazing value
 
  The Oculus Quest was already impressively priced at $399, so launching the more powerful Oculus Quest 2 at $299 is pretty phenomenal. Granted, the design compromises are a little frustrating, and I would’ve rather paid more for a better strap and more precise IPD settings like on the original—but those are the tweaks made to try and broaden the market for the Quest and VR as a whole. Still, even with those design annoyances, the Quest 2 is an incredible value for a portable, fully self-contained VR game console.
@@ -237,6 +236,13 @@ Andrew Hayward / Lifewire
 ![Oculus Quest 2](https://www.lifewire.com/thmb/TDsFPvRGkhZaFzIaNnKRk1_xO4s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-8-Comparison-1b0c51b029da41389167e103a4c4843a.jpg)
 
  Andrew Hayward / Lifewire
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Oculus Quest 2 vs. PlayStation VR
 
@@ -289,24 +295,20 @@ Andrew Hayward / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-aural-archive-download-preserve-and-examine-tracks/"><u>[New] Aural Archive Download, Preserve & Examine Tracks</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-ultimate-step-by-step-guide-to-kinemasters-green-screen-mastery/"><u>[New] In 2024, The Ultimate Step-by-Step Guide to Kinemaster's Green Screen Mastery</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-pioneering-pedagogy-through-film-in-the-classroom-for-2024/"><u>[New] Pioneering Pedagogy Through Film in the Classroom for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-smart-selections-ideal-mac-software-for-video-snatching/"><u>[Updated] In 2024, Smart Selections Ideal Mac Software for Video Snatching</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unlocking-money-with-youtube-shorts-necessities-and-possible-earnings/"><u>[Updated] In 2024, Unlocking Money with YouTube Shorts Necessities and Possible Earnings</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/beyond-thee-tangle-discovering-m06s-clear-sound-link/"><u>Beyond Thee Tangle: Discovering M06's Clear Sound Link</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/compact-yet-imperfect-an-in-depth-review-on-criacrs-bluetooth-fm-transmitter-cp2n/"><u>Compact yet Imperfect? An In-Depth Review on Criacr's Bluetooth FM Transmitter - CP2n</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/essential-questions-before-acquiring-renewed-tech/"><u>Essential Questions Before Acquiring Renewed Tech</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-the-samsung-galaxy-watch-active-a-revolution-in-wellness-technology/"><u>Expert Review: The Samsung Galaxy Watch Active - A Revolution in Wellness Technology</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/explore-the-features-of-new-cycwagen-e-cargo-bike-a-personal-encounter/"><u>Explore the Features of New CycWagen E-Cargo Bike: A Personal Encounter</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/from-recording-to-broadcasting-the-steam-gamers-path-for-2024/"><u>From Recording to Broadcasting The Steam Gamers' Path for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/limited-offer-upgrade-to-windows-11-pro-with-a-staggering-88-reduction/"><u>Limited Offer: Upgrade to Windows 11 Pro with a Staggering 88% Reduction!</u></a></li>
-<li><a href="https://win11.techidaily.com/mastering-energy-monitors-set-up-fully-charged-notifications-in-win11/"><u>Mastering Energy Monitors: Set Up Fully Charged Notifications in Win11</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/most-acclaimed-3ip-voice-recorders-on-tablets-for-2024/"><u>Most Acclaimed 3iP Voice Recorders on Tablets for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-nokia-72-unveiled-why-this-phone-outshines-its-peers-in-the-mid-range-segment/"><u>The Nokia 7.2 Unveiled: Why This Phone Outshines Its Peers in the Mid-Range Segment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-list-of-8-highly-addictive-mobile-gaming-experiences/"><u>Ultimate List of 8 Highly Addictive Mobile Gaming Experiences</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-future-of-performance-a-comprehensive-look-at-the-dell-alienware-aurora-r9/"><u>Unveiling the Future of Performance: A Comprehensive Look at the Dell Alienware Aurora R9</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/user-experience-guide-for-the-garmin-forerunner-265-fitness-tracker/"><u>User Experience Guide for the Garmin Forerunner 265 Fitness Tracker</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/emystifying-income-for-t-series-on-youtube/"><u>[New] Demystifying Income for T-Series on YouTube</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-how-to-shoot-spectaculr-igtv-videos-using-smartphonedlsr-cameras/"><u>[Updated] 2024 Approved How to Shoot Spectaculr IGTV Videos Using Smartphone/DLSR Cameras</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-auditory-aesthetics-weaving-melodies-into-your-feed/"><u>[Updated] Auditory Aesthetics Weaving Melodies Into Your Feed</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/adatas-ddr5-memory-module-achieves-impressive-8118-million-transfers-per-second-speed/"><u>Adata's DDR5 Memory Module Achieves Impressive 8118 Million Transfers per Second Speed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-examination-of-pixel-slates-challenges-with-chromeos/"><u>Comprehensive Examination of Pixel Slate's Challenges with ChromeOS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-samsung-un6e-55un8000fxza-overpriced-and-underwhelming-smart-tv/"><u>Expert Analysis of Samsung UN6e 55UN8000FXZA - Overpriced and Underwhelming Smart TV</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-can-we-unlock-our-oppo-a18-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Oppo A18 Phone Screen?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Infinix Hot 30i? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-itel-a70-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Itel A70? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-from-iphone-xs-max-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked From iPhone XS Max?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/news-on-the-apple-m4-chip-unveiling-when-it-drops-and-what-to-expect-in-terms-of-specs/"><u>News on the Apple M4 Chip Unveiling: When It Drops & What To Expect in Terms of Specs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/omotons-t1-tablet-support-an-unmatched-blend-of-strength-and-cost-effectiveness-reviewed/"><u>Omoton's T1 Tablet Support – An Unmatched Blend of Strength and Cost-Effectiveness Reviewed!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-gamers-companhren-expert-review-on-nvidia-shield-tv-pro/"><u>The Ultimate Gamer's Companhren: Expert Review on Nvidia Shield TV Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-value-for-artists-in-depth-look-at-the-monoprice-graphic-drawing-pad-on-a-shoestring-budget/"><u>Top Value for Artists: In-Depth Look at the Monoprice Graphic Drawing Pad on a Shoestring Budget</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-wi-fi-6-with-the-stylish-and-efficient-netgear-nighthawk-rax80/"><u>Unveiling the Power of Wi-Fi 6 with the Stylish and Efficient Netgear Nighthawk RAX80</u></a></li>
 </ul></div>
 

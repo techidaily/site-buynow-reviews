@@ -1,7 +1,7 @@
 ---
 title: Creative Labs' 2013 Sound Blaster ZXR - In-Depth Analysis and Expert Evaluation
-date: 2024-09-19T17:07:42.380Z
-updated: 2024-09-20T16:47:25.398Z
+date: 2024-10-08T21:34:48.980Z
+updated: 2024-10-12T16:46:49.997Z
 categories:
   - BestProducts
 description: This Article Describes Creative Labs' 2013 Sound Blaster ZXR - In-Depth Analysis and Expert Evaluation
@@ -44,6 +44,13 @@ Lifewire / Andrew Hayward
 [View On Amazon $699](https://www.amazon.com/dp/B078WRSHV4/?tag=lifewire-onsite-prod-20&ascsubtag=4779835%7Cnbd1cf0f7690f4c68a44d26c3ec46a2c410%7CB078WRSHV4)
 
 4.2
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## LG Gram 15.6-inch (2018)
 
@@ -104,6 +111,19 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Just follow the directions**
 
  There's little reason to worry about getting the LG Gram 15.6-inch laptop up and running quickly. It has Windows 10 pre-installed, so you'll simply follow the onscreen prompts to enter your Wi-Fi info, check for updates, select a few options, and ultimately find yourself ready to roll on the desktop. It shouldn't take more than a handful of minutes.
@@ -117,13 +137,6 @@ Lifewire / Andrew Hayward
  The downside is that this 1920x1080 IPS LCS panel isn't nearly as high-resolution as some of its rivals, such as the MacBook Air (2560x1600) and Surface Laptop 2 (2256x1504)—both of which also benefit from squeezing their pixels into smaller respective frames. The LG Gram just doesn't have the pin-sharp allure of those screens, plus it looks dimmer and doesn't come across as vibrant as a result. It's solid, and 1080p can certainly get the job done, but there are much better-looking screens in this category.
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/TFbt9G36hk5JyrBL8cIdIuYQ66E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Keyboard_03-fd7e355ac5944f12a8107746d0afbf24.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -140,10 +153,10 @@ Lifewire / Andrew Hayward
  As an aside, while the LG Gram often runs near-silently, there are extended periods of time in which there's an audible hum coming from the back. It's not the typical, very loud fan noise that pops up while gaming or heavy multitasking from some computers, but it can be a bit grating. We noticed it while charging the computer, but also while running on the battery—with no consistency on that front. It's a mild annoyance, but it's one we noticed whenever it emerged.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Audio: It makes an impression**
@@ -159,26 +172,13 @@ Lifewire / Andrew Hayward
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/AhDZOG33ttJ8LfKQnzvHO7K-S8I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Closed_02-d40445064b4945729278aeae3d8ae1c0.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Battery: Seriously amazing**
 
@@ -188,11 +188,25 @@ Lifewire / Andrew Hayward
 
  With our typical workflow of browsing the web, chatting on Slack, typing up documents, and streaming a little bit of media, we typically saw 8-9 hours of uptime at 100% brightness.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software: Hello, Windows (but no Windows Hello)**
 
  The LG Gram 15.6-inch comes with Windows 10 Home preinstalled, and if you've used Windows over the years, then you should be pretty comfortable here. Windows 10 has lightly evolved the PC operating system with feature enhancements and tweaks without losing the classic, familiar DNA within, and it's the OS of choice for computer gaming and apps of all shapes and sizes. It's easy to use and understand, and runs well with the Intel Core i5 and an SSD onboard.
 
  Unfortunately, this entry-level model of the LG Gram 15.6-inch isn't able to take advantage of Windows Hello biometric security, as the camera above the display doesn't have the needed sensors for scanning your face. We missed the near-instantaneous facial recognition of the Surface Laptop 2, and having to type in a PIN number each time we opened up the lid. Pricier models of the laptop offer a fingerprint scanner, however.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Solidly priced, considering its strengths**
 
@@ -203,13 +217,6 @@ Lifewire / Andrew Hayward
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/5yzhAkphyYfWOMofqawuktHJlA0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-v.-Surface-comparison-4946178bf2e94230820d2b19d2fb7197.jpg)
 
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **LG Gram 15.6-inch (2018) vs. Microsoft Surface Laptop 2: Better than Microsoft's own?**
 
@@ -255,5 +262,24 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-reviews.techidaily.com/are-you-still-using-an-out-of-date-ipad-device/"><u>Are You Still Using an Out-of-Date iPad Device?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-assessment-of-the-google-pixel-6-camera-performance-in-focus/"><u>Comprehensive Assessment of the Google Pixel 6 – Camera Performance in Focus</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-lg-gram-notebook-17-evaluation-unmatched-lightness-with-robust-capabilities/"><u>Comprehensive LG Gram Notebook 17 Evaluation: Unmatched Lightness with Robust Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-creme-de-la-creme-of-handheld-consoles-for-gaming/"><u>Discover the Crème De La Crème of Handheld Consoles for Gaming</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/easy-guide-sharing-your-xbox-gaming-experience-with-friends/"><u>Easy Guide: Sharing Your Xbox Gaming Experience with Friends</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/gopro-vs-polaroid-which-video-editor-prevails/"><u>GoPro Vs. Polaroid Which Video Editor Prevails?</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-it-xiaomi-redmi-a2-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Xiaomi Redmi A2 Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-expedite-vimeo-video-playback/"><u>In 2024, Expedite Vimeo Video Playback</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/incorporate-rhetorical-questions-to-engage-the-reader/"><u>Incorporate Rhetorical Questions to Engage the Reader.</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/physical-presence-vs-virtual-validation-for-2024/"><u>Physical Presence vs Virtual Validation for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-error-code-31-on-your-windows-pc-a-comprehensive-guide/"><u>Resolving Error Code 31 on Your Windows PC: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-gaming-tech-corsair-one-pros-review-on-efficiency-and-artistry/"><u>Revolutionizing Gaming Tech: Corsair One Pro's Review on Efficiency and Artistry</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-large-address-space-of-ipv6-eliminates-the-need-for-nat-simplifying-network-design-and-management/"><u>The Large Address Space of IPv6 Eliminates the Need for NAT, Simplifying Network Design and Management.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-sd-cards-optimal-for-digital-photography-equipment/"><u>Top Rated SD Cards Optimal for Digital Photography Equipment</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-an-exhaustive-list-of-lip-sync-apps-for-vibrant-video-creation/"><u>Updated In 2024, An Exhaustive List of Lip Sync Apps for Vibrant Video Creation</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/your-digital-footprint-the-impact-of-off-facebook-history/"><u>Your Digital Footprint The Impact of Off-Facebook History</u></a></li>
+</ul></div>
 

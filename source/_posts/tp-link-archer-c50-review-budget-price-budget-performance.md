@@ -1,7 +1,7 @@
 ---
 title: "TP-Link Archer C50 Review: Budget Price, Budget Performance"
-date: 2024-10-05T04:12:24.395Z
-updated: 2024-10-06T22:11:31.116Z
+date: 2024-10-11T18:16:06.725Z
+updated: 2024-10-13T00:46:45.409Z
 categories:
   - BestProducts
 description: "This Article Describes TP-Link Archer C50 Review: Budget Price, Budget Performance"
@@ -41,6 +41,13 @@ Lifewire / Danny Chadwick
 [View On Apemans.com](https://apemans.com/products/apeman-dash-cam-c450a)
 
 4.2
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Apeman C450 Dash Cam
 
@@ -88,20 +95,13 @@ Lifewire / Danny Chadwick
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/A63ztrIxThbZlrb_lHJH3YL7778=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_02-6ef4e204d0bd452b9601ec468e5358bf.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: You’ll have to figure a lot of stuff out for yourself**
 
@@ -125,14 +125,14 @@ Lifewire / Danny Chadwick
 
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/Hp7FvJ_BMgl0S2-Dsd-hd2qiQ7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_04-82d0af63043344a6b7b44863790050d7.jpg)
 
- Lifewire / Danny Chadwick
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Danny Chadwick
 
 ## **Performance: Travels as well as the rest of them**
 
@@ -155,10 +155,10 @@ Lifewire / Danny Chadwick
  One thing to note about this car dashboard camera is that the battery life is quite short. When we tested the Apeman C450, it powered down 28 minutes after we unplugged it. If you want continuous recording, it must be connected to power at all times.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Affordable even on a budget**
@@ -166,16 +166,10 @@ Lifewire / Danny Chadwick
  The defects of this dashcam can be forgiven pretty easily considering that it costs less than $50\. If you’re looking for a very inexpensive device, the Apeman C450 is a decent if somewhat flawed solution—it’s definitely not built as solidly and lacks the high resolution of its more expensive competitors, but if you are comfortable working around those shortcomings, this dashcam performs pretty well for the price.
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Apeman C450 vs. Z-Edge Z3 Plus**
@@ -229,20 +223,22 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-boosting-your-content-a-guide-to-instagram-video-fame/"><u>[New] 2024 Approved Boosting Your Content A Guide to Instagram Video Fame</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-transform-your-podcast-with-these-google-upload-insights/"><u>[Updated] Transform Your Podcast with These Google Upload Insights</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-discover-the-craft-of-iphone-reflection-photography/"><u>2024 Approved Discover the Craft of iPhone Reflection Photography</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Nokia C12 Plus | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/amp-up-your-pixel-with-top-download-links/"><u>Amp Up Your Pixel with Top Download Links</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/are-budget-ssls-secure-enough-for-businesses/"><u>Are Budget SSLS Secure Enough for Businesses?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-list-of-elite-exercise-bands/"><u>Comprehensive List of Elite Exercise Bands</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-how-to-navigate-with-ease-using-mods-new-sidecar-electric-bike-model/"><u>Discover How to Navigate with Ease Using Mod's New Sidecar Electric Bike Model</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-the-dawn-of-a-new-day-with-totobays-2nd-gen-alarm-clock-best-value-for-money/"><u>Experience the Dawn of a New Day with Totobay's 2Nd Gen Alarm Clock - Best Value for Money</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/frontier-focus-tripod-travelers-sturdy-companion/"><u>Frontier Focus Tripod: Traveler's Sturdy Companion</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-12-pro-max-to-other-iphone-13-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 12 Pro Max To Other iPhone 13 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-razer-blade-pro-17-redefining-laptop-performance-and-mobility/"><u>In-Depth Look at Razer Blade Pro 17: Redefining Laptop Performance and Mobility</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-free-and-easy-3gp-video-rotation-top-picks-for-this-year/"><u>New In 2024, Free and Easy 3GP Video Rotation Top Picks for This Year</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/step-by-step-solutions-for-addressing-known-graphics-driver-issues/"><u>Step-by-Step Solutions for Addressing Known Graphics Driver Issues</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/uncovering-the-strengths-and-weaknesses-in-midlands-lxt500vp3-radio-a-detailed-review/"><u>Uncovering the Strengths & Weaknesses in Midland’s LXT500VP3 Radio - A Detailed Review</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-iphone-savvy-techniques-for-storing-and-streaming-animated-images/"><u>[New] 2024 Approved IPhone-Savvy Techniques for Storing and Streaming Animated Images</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-discovering-metaverse-8-premium-vr-eyewear-selections-for-2024/"><u>[New] Discovering Metaverse 8 Premium VR Eyewear Selections for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-quick-tips-for-transcribing-audio-to-text-using-microsoft-word-for-2024/"><u>[Updated] Quick Tips for Transcribing Audio to Text Using Microsoft Word for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-top-8-social-and-adventure-games-for-oculus-users/"><u>2024 Approved Top 8 Social & Adventure Games for Oculus Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apples-itouch-7th-review-mobile-music-interim-solution/"><u>Apple's iTouch 7Th Review: Mobile Music Interim Solution</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-explore-the-finest-8-websites-3d-and-luxurious-text/"><u>In 2024, Explore the Finest 8 Websites 3D & Luxurious Text</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/kindle-or-fire-tablet-discover-their-main-differences-for-a-better-choice/"><u>Kindle or Fire Tablet? Discover Their Main Differences for a Better Choice</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/mp3-a-aac-convertire-i-file-gratuitamente-su-internet-senza-costi-e-movavi/"><u>MP3 a AAC: Convertire I File Gratuitamente Su Internet Senza Costi E - MOVAVI</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/neighbor-discovery/"><u>Neighbor Discovery</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-top-6-free-online-video-mergers/"><u>New 2024 Approved Top 6 Free Online Video Mergers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/next-level-efficiency-an-in-depth-look-at-the-razer-blade-stealth-13s-trailblazing-ultrabook-features/"><u>Next-Level Efficiency: An In-Depth Look at the Razer Blade Stealth 13'S Trailblazing Ultrabook Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/red-planet-ruckus-enjoyably-chaotic-city-building-adventures-beyond-earths-boundaries/"><u>Red Planet Ruckus: Enjoyably Chaotic City-Building Adventures Beyond Earth's Boundaries</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/secrets-of-the-savvy-the-ultimate-guide-to-the-best-12-free-image-banks-for-2024/"><u>Secrets of the Savvy - The Ultimate Guide to the Best 12 Free Image Banks for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-long-distance-wifi-routers-buyers-guide/"><u>Top Long-Distance WiFi Routers : Buyer's Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-pet-tracker-reviews-unveiling-petcube-wonders/"><u>Top Pet Tracker Reviews: Unveiling Petcube Wonders</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/watching-fun-unfold-the-arrival-of-nickwatch-on-american-screens-during-the-kid-focused-event/"><u>Watching Fun Unfold: The Arrival of NickWatch on American Screens During the Kid-Focused Event</u></a></li>
+<li><a href="https://win-blog.techidaily.com/f4vavi-movavi/"><u>オンラインで免責提供: F4VファイルをAVIに簡単変換の手引き - Movavi解説</u></a></li>
 </ul></div>
 

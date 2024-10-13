@@ -1,7 +1,7 @@
 ---
 title: Mastering Photography with the Huawei P20 Pro – A Detailed Look at a Fantastic Handset
-date: 2024-10-03T04:28:08.503Z
-updated: 2024-10-06T23:10:37.797Z
+date: 2024-10-07T00:57:51.688Z
+updated: 2024-10-12T20:23:21.150Z
 categories:
   - BestProducts
 description: This Article Describes Mastering Photography with the Huawei P20 Pro – A Detailed Look at a Fantastic Handset
@@ -49,13 +49,6 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/Coi6EdMOwuyjB7rdhov_hsKrHmo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Acer-Predator-Triton-300-SE-Gaming-Laptop-1-d6f9eeb5a43845a9a328125976c835b0.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Matthew S. Smith
 
 [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6455816.p) [View On Acer.com](https://www.acer.com/ac/en/US/content/predator-model/NH.QD0AA.002)
@@ -86,10 +79,10 @@ Lifewire / Matthew S. Smith
  Acer’s Predator Triton 300 SE is, in many respects, a mid-range gaming laptop, but it succeeds at one very important task: it delivers Nvidia RTX 3060 Max-Q at a reasonable price, and it’s actually in stock not just at, but sometimes below, MSRP. Its value pricing helps the Triton 300 SE stand out against attractive competitors like the Asus ROG Zephyrus G14.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Design: Small but sturdy
@@ -103,19 +96,6 @@ Lifewire / Matthew S. Smith
  Physical connectivity is a mix of new and old. There are two USB-A 3.2 ports paired with a USB-C 3.2 Gen 2 port that supports DisplayPort Mode and[Thunderbolt 4](https://www.lifewire.com/what-is-thunderbolt-832713) . There’s also an HDMI output and a 3.5mm audio jack that handles audio-in and out.
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/RkOepytb4JglYF6g8lqap4lR4Uk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-5-b8c978f2d42a4865be1ea11a4785c104.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -137,22 +117,15 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/eRv5Q4rKutM9zrhSTCRxbBO4rVc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-6-2af7f9999ae847bda4f5b9b830c9c555.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Matthew S. Smith
 
  There’s one downside: poor viewing angles. This is unusual in a modern laptop, though I’ve noticed this trait in many high-refresh laptop displays. I can’t give the Triton 300 SE too much flak for this given its otherwise excellent performance.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Performance: Great for games, ok for everything else
@@ -195,6 +168,13 @@ Lifewire / Matthew S. Smith
 
  There are limits, of course. It isn’t loud enough to project impressive volume in a living room or kitchen. It can also sound muddy and confused when playing bass-forward music or the most frantic action games. Still, it’s an impressive set of speakers that will rarely leave you wanting for more.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Network: Killer performance
 
  Downloading a big, hot new game can be a real hassle, especially over Wi-Fi, but the Triton 300 SE can help. It has Intel’s Killer Wi-Fi 6 AX1650 and let me tell you: this thing rips.
@@ -203,9 +183,23 @@ Lifewire / Matthew S. Smith
 
  This translated to excellent real-world results. I created a real-world stress test by downloading Cyberpunk 2077 on Steam while simultaneously downloading Metro Exodus on Epic. Surprisingly, both downloads averaged in excess of 25Mbps. I’m used to seeing numbers in the teens.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Camera: BYOW (Bring Your Own Webcam)
 
  Acer’s Predator Triton 300 SE straddles the line between entertainment and productivity in its design, but the camera falls short of its professional aspirations. It’s a tiny 720p pinhole camera that squeezes between the display and the top bezel. Video quality is grainy in all but the brightest rooms and uneven lighting can easily confuse it.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Battery: Ouch
 
@@ -222,20 +216,13 @@ Lifewire / Matthew S. Smith
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/RSfl2dEVmErlvh3BUUFcxqsbt9w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-2-c5eed4bfe7e44014952b5503566097d9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Software: Planet what now?
 
@@ -244,6 +231,19 @@ Lifewire / Matthew S. Smith
  Despite this, most laptop functions are controlled through the PredatorSense software interface. It can control fan modes, adjust keyboard lighting, and monitor temperatures, among other functions. PredatorSense is not much to look at, but I find it less confusing than the alternatives from Asus and Razer.
 
  The laptop comes with Norton antivirus installed. It’s eager to remind you of its presence whenever you download a file or visit an unfamiliar website. The antivirus is easy to uninstall, but its presence takes away from what otherwise feels like a special laptop in Acer’s Predator line.
+
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Price: An outstanding value
 
@@ -307,21 +307,17 @@ Lifewire / Matthew S. Smith
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-luminous-leadership-elevating-content-through-insta-hits/"><u>[Updated] 2024 Approved Luminous Leadership Elevating Content Through Insta Hits</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-the-epic-explorers-guide-listing-best-action-adventures-ever/"><u>2024 Approved The Epic Explorer's Guide Listing Best Action-Adventures Ever</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/blending-images-into-a-masterpiece-of-mosaics/"><u>Blending Images Into a Masterpiece of Mosaics</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-oneplus-ace-3-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset OnePlus Ace 3 without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-adaptive-sharing-techniques-for-igtv-on-fb/"><u>In 2024, Adaptive Sharing Techniques for IGTV on FB</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-mapping-out-instagram-departures/"><u>In 2024, Mapping Out Instagram Departures</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/stealth-mode-a-guide-to-living-large-unlabeled/"><u>Stealth Mode A Guide to Living Large, Unlabeled</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/step-by-step-instructions-for-leveraging-preview-as-your-powerful-inbuilt-photo-editor-on-mac/"><u>Step-by-Step Instructions for Leveraging Preview as Your Powerful, Inbuilt Photo Editor on Mac</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-definitive-breakdown-of-ergonomics-and-design-in-the-x-chair-x4-corporate-seating-solution/"><u>The Definitive Breakdown of Ergonomics and Design in the X-Chair X4 Corporate Seating Solution</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-elite-selection-pinnacle-gear-for-distance-runners/"><u>The Elite Selection: Pinnacle Gear for Distance Runners</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-motorola-one-hyper-a-vibrant-choice-in-todays-competitive-mid-range-phones/"><u>The Motorola One Hyper - A Vibrant Choice in Today's Competitive Mid-Range Phones!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-revolution-of-wake-up-lights-unpacking-the-philips-hf3505s-effectiveness-as-an-alarm-clock/"><u>The Revolution of Wake-Up Lights: Unpacking the Philips HF3505's Effectiveness as an Alarm Clock</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-gamers-companion-mavix-m9-gaming-throne-reviewed-perfect-blend-of-ergonomics-and-ease/"><u>The Ultimate Gamer's Companion: Mavix M9 Gaming Throne Reviewed - Perfect Blend of Ergonomics and Ease</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-guide-to-the-3rd-generation-apple-tv-4k-streaming-device-reviewed/"><u>The Ultimate Guide to the 3Rd Generation Apple TV 4K Streaming Device Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-why-apples-iphone-12-outshines-all-competitors/"><u>The Ultimate Review: Why Apple's iPhone 12 Outshines All Competitors</u></a></li>
-<li><a href="https://common-error.techidaily.com/ultimate-guide-to-troubleshooting-and-solving-crashes-in-total-war-rome-remastered/"><u>Ultimate Guide to Troubleshooting and Solving Crashes in Total War: Rome Remastered</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-techniques-to-increase-instagram-content-playback-speed/"><u>[New] In 2024, Techniques to Increase Instagram Content Playback Speed</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-the-ultimate-guide-to-facebook-live-recording/"><u>[New] In 2024, The Ultimate Guide to Facebook Live Recording</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-experts-guide-to-laptop-screenrecord-software/"><u>[Updated] 2024 Approved Expert's Guide to Laptop ScreenRecord Software</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-lensblend-elite-cohesive-image-composer/"><u>[Updated] LensBlend Elite Cohesive Image Composer</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-warrior-whistles-expertly-chosen-destinations-to-download-game-ringtones/"><u>2024 Approved Warrior Whistles Expertly Chosen Destinations to Download Game Ringtones</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/full-guide-to-unlock-apple-iphone-15-pro-max-with-itunes-drfone-by-drfone-ios/"><u>Full Guide to Unlock Apple iPhone 15 Pro Max with iTunes | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-realme-narzo-60-5g-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Realme Narzo 60 5G Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-honor-play-40c-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-fongo-canadian-ip-telephony-services/"><u>In-Depth Analysis of Fongo Canadian IP Telephony Services</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/next-level-mini-smart-speaker-insights-in-depth-look-at-the-third-gen-echo-dot-and-its-alexa-integration/"><u>Next-Level Mini Smart Speaker Insights: In-Depth Look at the Third Gen Echo Dot and Its Alexa Integration</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-5-essentials-a-comprehensive-guide-to-purchasing-your-perfect-fitness-tracker/"><u>Top 5 Essentials: A Comprehensive Guide to Purchasing Your Perfect Fitness Tracker</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-list-of-the-top-8-mobile-video-games/"><u>Ultimate List of the Top 8 Mobile Video Games</u></a></li>
 </ul></div>
 

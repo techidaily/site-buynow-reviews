@@ -1,7 +1,7 @@
 ---
 title: "Budget-Friendly Wireless Router Assessed: The TP-Clink Archer C50 Reviewed"
-date: 2024-09-18T16:20:57.978Z
-updated: 2024-09-20T18:54:38.169Z
+date: 2024-10-08T20:17:35.673Z
+updated: 2024-10-13T00:03:46.165Z
 categories:
   - BestProducts
 description: "This Article Describes Budget-Friendly Wireless Router Assessed: The TP-Clink Archer C50 Reviewed"
@@ -74,6 +74,13 @@ Lifewire / Erika Rawes
 
  The[Netgear](https://www.lifewire.com/best-netgear-routers-4159862) Nighthawk RAX120 is supposed to provide lightning-fast speeds while serving as one of the[best long-range wireless routers](https://www.lifewire.com/best-long-range-routers-4122554) currently on the market. Fully loaded with[Wi-Fi 6 technology](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , smart home connectivity, and a slew of other features, the AX12 should be an ideal router for small businesses, very large homes, or for homes with multiple devices. I tested the Netgear Nighthawk RAX120 to see how well it performs in the real world.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Batman’s router**
 
  The Netgear Nighthawk RAX120 has a futuristic design—angular, with clean lines. It looks like a cross between a spaceship and the Batmobile. It’s matte black and rectangular, but instead of the multiple antennas you’d typically see protruding from the top of a Nighthawk router, it has two wing-like extensions that come from each side.
@@ -84,6 +91,13 @@ Lifewire / Erika Rawes
 
 Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup: Quick and easy**
 
  The Netgear Nighthawk app walks you through the setup process. There’s a QR code sticker on the router, as well as a temporary network name and password on the label, which allow you to connect quickly and easily.
@@ -91,10 +105,10 @@ Lifewire / Erika Rawes
  The app guides you through creating separate 2.4 and 5GHz networks, but you can also take advantage of a feature called smart connect, which combines your networks and designates your devices based on optimal performance. You can create a guest network, as well as manage and monitor your devices individually. The initial setup process took me about ten minutes in total.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: Superfast speeds**
@@ -108,13 +122,6 @@ Lifewire / Erika Rawes
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/y2V4Ncx3Z1ul8B-4lsc_IeiyCRQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_04-9e452ddedd2b4a46893fddd147c06d4f.jpg)
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Network performance: Stellar**
 
@@ -148,15 +155,22 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Expensive**
 
  The Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router will cost you a pretty penny—it sells for $400, which is $100 lower than its original retail price of $500\. But it’s still on the higher end of the price spectrum, especially considering it doesn’t include any sort of mesh points, and you only get the router, power supply, and an Ethernet cable.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Netgear Nighthawk RAX120 vs. TP-Link Archer AX6000**
@@ -168,13 +182,6 @@ Lifewire / Erika Rawes
  **A cool looking router that’s faster and more powerful than you probably need.**
 
  The Nighthawk RAX120 performs impressively, but it‘s costly and lacks some user-friendly features like strong parental controls and easy-to-manage antivirus, so it’ll be more desirable for those with heavier networking demands than the average user.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -212,5 +219,22 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-guide-to-correcting-and-confirming-your-age-information-on-tiktok/"><u>[New] Guide to Correcting & Confirming Your Age Information on TikTok</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-leveraging-data-key-performance-indicators-for-igtv-videos-for-2024/"><u>[Updated] Leveraging Data Key Performance Indicators for IGTV Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-ultimate-tips-for-youtube-content-creation-excellence/"><u>[Updated] Ultimate Tips for YouTube Content Creation Excellence</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-ac68u-wireless-router-analysis-top-performing-robust-5g-connectivity/"><u>Asus AC68U Wireless Router Analysis: Top-Performing, Robust 5G Connectivity</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/avoid-these-mistakes-understanding-the-most-frequent-chatgpt-hiccups/"><u>Avoid These Mistakes: Understanding the Most Frequent ChatGPT Hiccups</u></a></li>
+<li><a href="https://common-error.techidaily.com/beat-the-pixel-shuffle-resolving-tech-problems-in-valorant-gaming/"><u>Beat the Pixel Shuffle: Resolving Tech Problems in Valorant Gaming</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-upgrading-tips-for-intel-powered-imac-systems/"><u>Comprehensive Upgrading Tips for Intel-Powered iMac Systems</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/decoding-ai-black-boxes-how-do-these-hidden-mechanisms-function/"><u>Decoding AI Black Boxes - How Do These Hidden Mechanisms Function?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/fixing-hevc-video-issues-in-windows-a-comprehensive-solution-manual-for-windows-10-and-11/"><u>Fixing HEVC Video Issues in Windows: A Comprehensive Solution Manual for WINDOWS 10 and 11</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-make-unrecognized-headphones-appear-as-a-sound-device-on-windows-10/"><u>How To Make Unrecognized Headphones Appear as a Sound Device on Windows 10</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/linksys-velop-review-powerful-mesh-router/"><u>Linksys Velop Review: Powerful Mesh Router</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-photography-with-the-huawei-p20-pro-a-detailed-look-at-a-fantastic-handset/"><u>Mastering Photography with the Huawei P20 Pro – A Detailed Look at a Fantastic Handset</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/text-message-recovery-tips-for-iphone-android-and-more-a-complete-guide/"><u>Text Message Recovery Tips for iPhone, Android and More – A Complete Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-totobay-wake-up-light-2nd-gen-why-its-crowned-as-the-most-economical-alarm-clock-for-gentle-mornings/"><u>The Ultimate Guide to the Totobay Wake-Up Light (2Nd Gen): Why It's Crowned as the Most Economical Alarm Clock for Gentle Mornings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-capabilities-extollo-lansocket-1500-with-swift-connectivity-and-low-latency-advantages/"><u>Unveiling the Capabilities: Extollo LANSocket 1500 with Swift Connectivity and Low-Latency Advantages</u></a></li>
+</ul></div>
 

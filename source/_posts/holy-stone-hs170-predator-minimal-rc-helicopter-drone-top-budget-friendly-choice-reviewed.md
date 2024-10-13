@@ -1,7 +1,7 @@
 ---
 title: "Holy Stone HS1,70 Predator Minimal RC Helicopter Drone: Top Budget-Friendly Choice Reviewed"
-date: 2024-10-03T02:28:26.552Z
-updated: 2024-10-07T07:59:11.490Z
+date: 2024-10-10T03:03:27.102Z
+updated: 2024-10-13T03:05:54.040Z
 categories:
   - BestProducts
 description: "This Article Describes Holy Stone HS1,70 Predator Minimal RC Helicopter Drone: Top Budget-Friendly Choice Reviewed"
@@ -43,15 +43,22 @@ Lifewire / Nick Jaynes
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/kUpys0K04ePH0SuEfAENz--MXSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
@@ -75,6 +82,13 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: All-plastic, but sturdy and subtle**
 
  The Anker PowerDrive 2 might not be the sharpest or most cutting-edge looking in-car USB charger, but what it lacks in visual pizazz, it more than makes up for in sturdiness.
@@ -87,13 +101,6 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Fast charging for demanding devices**
 
  The best part of the Anker PowerDrive 2 is its charging. It has the ability to charge iPads simultaneously without getting overheated thanks to its PowerIQ and VoltageBoost technology. Each USB port can output a maximum 5V/2.4A, for a total of 24W. That’s in line with other car[chargers](https://www.lifewire.com/best-wireless-phone-chargers-4138571) we tested, but the PowerIQ technology can help identify device and deliver the fastest possible charge. This also gives you some overvoltage protection to make sure something like a smartwatch doesn’t fry when you plug it in.
@@ -104,18 +111,18 @@ Lifewire / Nick Jaynes
 
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Middle of the pack**
 
  The list price of $14.99 is positioned in the mid-range of the USB charger market, which ranges from just a few dollars to upwards of $50 for some fancier chargers. However, Anker PowerDrive 2 can be had for a discounted price on some websites. Considering the fact that the Anker PowerDrive 2 includes both the fast-charger and a 3-foot micro USB cable, it is well priced for the marketplace.
 
  Lifewire / Nick Jaynes
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: A handful of rivals**
 
@@ -130,13 +137,6 @@ Lifewire / Nick Jaynes
  **The Anker PowerDrive 2 is the workhorse of the in-car USB charger market.**
 
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -164,22 +164,24 @@ Lifewire / Nick Jaynes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-configure-measure-and-optimize-the-ultimate-guide-to-fb-instream-ads/"><u>[Updated] In 2024, Configure, Measure & Optimize The Ultimate Guide to FB Instream Ads</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-integrating-advanced-zoom-features-on-tiktok/"><u>[Updated] Integrating Advanced Zoom Features on TikTok</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/bid-farewell-to-32-bit-windows-10-welcome-64-bit-life/"><u>Bid Farewell to 32-Bit Windows 10, Welcome 64-Bit Life</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-samsung-galaxy-tab-s4-a-multifacer-android-experience/"><u>Comprehensive Analysis of the Samsung Galaxy Tab S4: A Multifacer Android Experience</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/effortless-setup-for-your-xbox-with-official-wireless-driver-downloads/"><u>Effortless Setup for Your Xbox with Official Wireless Driver Downloads</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/epson-xp-330-driver-download-guide-step-by-step-instructions/"><u>Epson XP-330 Driver Download Guide – Step by Step Instructions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exclusive-review-of-eufys-t8200-video-doorbell-with-built-in-ai-subscription-free-feature-set/"><u>Exclusive Review of Eufy's T8200 Video Doorbell with Built-In AI, Subscription-Free Feature Set!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exquisite-choice-over-iphone-discover-why-skagen-falster-2-deserves-your-attention/"><u>Exquisite Choice Over iPhone? Discover Why Skagen Falster 2 Deserves Your Attention!</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-read-and-modify-pages-format-in-a-cross-platform-way/"><u>How to Read and Modify .pages Format in a Cross-Platform Way</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-evaluating-macs-leading-snipping-tools-compilation/"><u>In 2024, Evaluating Mac's Leading Snipping Tools Compilation</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-jumpstart-your-marketing-game-with-these-top-reddit-insights/"><u>In 2024, Jumpstart Your Marketing Game with These Top Reddit Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-online-code-bootcamps-master-your-development-goals-by-end-of-2024/"><u>Leading Online Code Bootcamps: Master Your Development Goals by End of 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/live-streaming-made-easy-with-manycam-the-ultimate-virtual-webcam-and-recording-app/"><u>Live Streaming Made Easy with ManyCam: The Ultimate Virtual Webcam and Recording App</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-big-picture-on-acer-chromebook-15-an-engaging-review-of-a-notable-chrome-os-device/"><u>The Big Picture on Acer Chromebook 15: An Engaging Review of a Notable Chrome OS Device</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ultimate-solutions-for-troubleshooting-code-31-issues-on-your-pc/"><u>Ultimate Solutions for Troubleshooting Code 지구 31 Issues on Your PC</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unbeatable-prime-day-discounts-on-your-favorite-apple-products/"><u>Unbeatable Prime Day Discounts on Your Favorite Apple Products</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-secrets-of-the-oneplus-nord-n10-5g-your-ultimate-smartphone-companion/"><u>Unveiling the Secrets of the OnePlus Nord N10 5G - Your Ultimate Smartphone Companion</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-essential-elements-for-implementing-channel-banners-in-games-for-2024/"><u>[Updated] Essential Elements for Implementing Channel Banners in Games for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-examining-youtubers-monthly-revenue-strategies/"><u>[Updated] In 2024, Examining YouTubers' Monthly Revenue Strategies</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-gopro-camera-showdown-for-2024/"><u>[Updated] The Ultimate GoPro Camera Showdown for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-analyzed-the-finest-screen-capture-software-for-macos/"><u>2024 Approved Analyzed The Finest Screen Capture Software for macOS</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/bridging-the-gap-audio-to-text-in-powerpoint-slides/"><u>Bridging the Gap Audio to Text in PowerPoint Slides</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-linksys-ea8300-mastering-multi-device-connectivity/"><u>Comprehensive Analysis of Linksys EA8300: Mastering Multi-Device Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-top-rated-lightzone-photo-editor-cross-platform-windowsmaclinux-free/"><u>Comprehensive Guide: Top-Rated LightZone Photo Editor - Cross-Platform (Windows/Mac/Linux) - Free!</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-vivo-y77t-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Vivo Y77t Location Settings | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/game-changing-tactics-to-record-high-stakes-gameplay/"><u>Game-Changing Tactics to Record High-Stakes Gameplay</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/guide-to-convert-youtube-twitter-videos-to-mp3-songs/"><u>Guide to Convert YouTube Twitter Videos to MP3 Songs</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-xiaomi-redmi-note-12-proplus-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Xiaomi Redmi Note 12 Pro+ 5G online without jailbreak</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-features-and-performance-on-samsung-galaxy-note20-ultra-with-5g-connectivity/"><u>In-Depth Analysis of the Features and Performance on Samsung Galaxy Note20 Ultra with 5G Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-comparison-and-evaluation-dji-air-2s-vs-competitors-drones/"><u>In-Depth Comparison & Evaluation: DJI Air 2S vs Competitors' Drones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-gameplay-with-the-samsung-q60r-series-smart-tv-an-expert-review/"><u>Maximizing Gameplay with the Samsung Q60R Series Smart TV: An Expert Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-through-tech-enhancements-an-in-depth-look-at-the-linksys-ea9500s-intelligent-network-solutions/"><u>Navigating Through Tech Enhancements: An In-Depth Look at the Linksys EA9500's Intelligent Network Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-e-reader-guide-how-the-impressive-features-of-the-kobo-forma-change-your-reading-habits/"><u>The Ultimate E-Reader Guide: How the Impressive Features of the Kobo Forma Change Your Reading Habits</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranking-htpc-picks-the-ultimate-guide-to-the-ideal-htpc-systems/"><u>Top-Ranking HTPC Picks: The Ultimate Guide to the Ideal HTPC Systems</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722966679404-troubleshooting-your-logitech-c615-master-driver-fixes-here/"><u>Troubleshooting Your Logitech C615? Master Driver Fixes Here</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-flight-simulator-x-gold-continues-to-dominate-the-skies-in-player-reviews/"><u>Why Flight Simulator X Gold Continues to Dominate the Skies in Player Reviews</u></a></li>
 </ul></div>
 

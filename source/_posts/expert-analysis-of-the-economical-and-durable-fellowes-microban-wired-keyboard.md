@@ -1,7 +1,7 @@
 ---
 title: Expert Analysis of the Economical and Durable Fellowes Microban Wired Keyboard
-date: 2024-09-19T17:34:26.241Z
-updated: 2024-09-20T16:02:56.221Z
+date: 2024-10-11T18:56:26.476Z
+updated: 2024-10-12T19:49:39.048Z
 categories:
   - BestProducts
 description: This Article Describes Expert Analysis of the Economical and Durable Fellowes Microban Wired Keyboard
@@ -76,6 +76,13 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  One unique feature of the Sculpt we loved was the function switch. Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key. Options include refreshing the active page, navigating to the home page in web, opening up the computer’s settings, a play/pause button, switching between active windows, and increasing or decreasing volume.
@@ -84,35 +91,22 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
@@ -129,10 +123,10 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
@@ -148,6 +142,13 @@ Lifewire / Emily Isaacs
 [Microsoft Surface Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-surface-ergonomic-keyboard-review-4780282)
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -189,5 +190,23 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-5-rapid-steps-unearthing-disappeared-reddit-posts/"><u>[New] 5 Rapid Steps Unearthing Disappeared Reddit Posts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-amplify-your-profile-pull-clever-hacks-that-work-on-tinder-for-2024/"><u>[Updated] Amplify Your Profile Pull Clever Hacks That Work on Tinder for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/boost-academic-achievement-how-students-can-benefit-from-chatgpt-5-key-methods/"><u>Boost Academic Achievement: How Students Can Benefit From ChatGPT (5 Key Methods)</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/enhance-google-slides-presentations-with-dynamic-gif-animations-tips-and-tricks/"><u>Enhance Google Slides Presentations with Dynamic GIF Animations – Tips and Tricks</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723205974664-error-651-on-windows-heres-how-to-easily-correct-it/"><u>Error 651 on Windows? Here's How to Easily Correct It</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/formulating-windowsmac-skype-group-chats-easily-for-2024/"><u>Formulating Windows/Mac Skype Group Chats Easily for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/future-proof-picks-top-consoles-to-game-on-in-2e-2024-unveiled/"><u>Future-Proof Picks: Top Consoles to Game On in 2E 2024 Unveiled</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-htpc-options-a-buyers-guide-to-best-picks/"><u>Navigating HTPC Options: A Buyer's Guide to Best Picks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-essential-tl-wr902ac-by-tp-link-a-small-package-powerful-wireless-internet-anywhere/"><u>The Essential TL-WR902AC by TP-Link: A Small Package, Powerful Wireless Internet Anywhere</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-fitbit-versa-lite-smartwatch-for-enhanced-workouts-at-great-prices/"><u>The Ultimate Guide to Fitbit Versa Lite: Smartwatch for Enhanced Workouts at Great Prices</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-vivo-s17t-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Vivo S17t IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-profitable-potential-leveraging-buyselladscom-for-blogging-success/"><u>Unlocking Profitable Potential: Leveraging buySellAds.com for Blogging Success</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-premium-byb-e430s-features-an-insightful-review-of-its-ergonomic-led-light/"><u>Unveiling the Premium BYB E430's Features – An Insightful Review of Its Ergonomic LED Light</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/wet-curing-methods-involve-maintaining-moisture-through-water-or-wet-coverings/"><u>Wet Curing Methods Involve Maintaining Moisture Through Water or Wet Coverings.</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/windows-11-stepping-out-of-the-clip-as-photos/"><u>Windows 11 Stepping Out of the Clip as Photos</u></a></li>
+</ul></div>
 

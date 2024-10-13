@@ -1,7 +1,7 @@
 ---
 title: "Innovative Chargeless Illumination: Evaluating the Robustness of Romer's Rechargeable Lantern"
-date: 2024-09-13T16:11:28.171Z
-updated: 2024-09-20T18:17:46.941Z
+date: 2024-10-06T21:44:46.361Z
+updated: 2024-10-13T00:01:26.318Z
 categories:
   - BestProducts
 description: "This Article Describes Innovative Chargeless Illumination: Evaluating the Robustness of Romer's Rechargeable Lantern"
@@ -43,6 +43,13 @@ Lifewire / Andy Zahn
 [View On Amazon](https://www.amazon.com/dp/B079NT94BQ/?tag=lifewire-onsite-prod-20&ascsubtag=4777301%7Cn6fc652b61ad7488a86de45c37d729ac101%7CB079NT94BQ) [View On Walmart $2,000](https://www.walmart.com/ip/Samsung-8000-UN65NU8000F-64-5-2160p-Smart-LED-LCD-TV-16-9-4K-UHDTV-Eclipse-Silver-Black-Slate-un65nu8000fxza-b/597549840) [View On Samsung $1,699](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fus%2Ftelevisions-home-theater%2Ftvs%2Fpremium-uhd-tvs%2F65-class-nu8000-smart-4k-uhd-tv-un65nu8000fxza%2F)
 
 2.9
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Samsung UN65NU8000FXZA
 
@@ -90,13 +97,6 @@ Lifewire / Andy Zahn
 
  We did encounter one troublesome bug where the remote partially de-synced from the display so that only the power button functioned properly. This is obviously a known issue, as on-screen instructions immediately appeared to reset the remote and re-establish the connection, and we found these instructions repeated inside the battery compartment of the remote. We also missed having dedicated buttons for popular streaming services such as Netflix and Hulu.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Some assembly required**
 
  The sturdiness of the NU8000’s stand comes at a small price in terms of ease of setup. The back panel of the pillar must be popped off to screw the stand together. The assembled base is then attached to the screen via a plate that slides into place and is then secured by more screws. The caveat is that unless you have a large table available for this process then it's very difficult and requires the cooperation of at least two other people. Once this is complete, insert the batteries into the remote, attach the power cord and any other wired connections, and you’re ready to go.
@@ -106,13 +106,20 @@ Lifewire / Andy Zahn
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/bOGvBL3-atPnw9kBu9ugoXGE9ag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-3-44ef4614305946739623813ea1476c2b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Image Quality: A real letdown**
 
@@ -140,13 +147,6 @@ Lifewire / Andy Zahn
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/AXYnUtoRwLv0QLo0Xm0_W28X-zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-5-531f7de77d9746ba993c9966f10920be.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
 
 ## **Software: A little slow**
@@ -157,16 +157,16 @@ Lifewire / Andy Zahn
 
  The other software issue is that the NU8000 runs an older version of FreeSync, which means it doesn’t handle screen tearing as well as newer displays, especially when gaming on high-end hardware. However, during our testing, we didn’t notice an appreciable problem with this, though that may vary depending on your viewing and gaming habits.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Expensive at MSRP**
 
  With an MSRP of $999 the NU8000 is certainly no bargain, especially considering that superior displays are available for the same cost. However, as this is an older TV it may be possible to find steep discounts that make up for its deficiencies.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: NU8000 vs RU8000**
 
@@ -181,6 +181,13 @@ Lifewire / Andy Zahn
 **Hard to recommend.**
 
  The Samsung UN65NU8000FXZ is capable, provides high resolution, and has excellent, flexible software with a good selection of apps. It's also exceptionally thin with a screen that's almost bezel-less, but unless the extremely sturdy stand is the most important feature to you, then RU8000 is just a better display at the exact same MSRP.
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -208,5 +215,20 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-assessing-the-best-platform-for-individual-use-tiktok-vs-shorts/"><u>[New] 2024 Approved Assessing the Best Platform for Individual Use TikTok vs Shorts</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/behind-the-drone-a-close-look-at-dji-phantom-3-pros-features/"><u>Behind the Drone A Close Look at DJI Phantom 3 Pro's Features</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/capturing-webcasts-without-payment-fees/"><u>Capturing Webcasts Without Payment Fees</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/dive-deep-into-high-quality-video-capture-technology/"><u>Dive Deep Into High-Quality Video Capture Technology</u></a></li>
+<li><a href="https://win-able.techidaily.com/enhance-frame-rates-now-6-effective-techniques-to-solve-elden-rings-fps-challenges/"><u>Enhance Frame Rates Now! 6 Effective Techniques to Solve Elden Ring's FPS Challenges</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-asus-rog-gt-ac5300-perfect-for-gamers-and-hardcore-techies/"><u>Expert Analysis of Asus ROG GT-AC5300: Perfect for Gamers & Hardcore Techies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-assessment-unveiling-the-capabilities-of-jacos-smartpro-digital-tire-inflator/"><u>Expert Assessment: Unveiling the Capabilities of Jaco's SmartPro Digital Tire Inflator</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insight-on-the-performance-and-features-of-samsung-galaxy-note20-ultra-5g/"><u>Expert Insight on the Performance and Features of Samsung Galaxy Note20 Ultra 5G</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-picks-elite-running-watch-models-launching/"><u>Expert Picks: Elite Running Watch Models Launching</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-motorola-moto-g84-5g-screen-sharing-drfone-by-drfone-android/"><u>How To Do Motorola Moto G84 5G Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-rated-portable-storage-options-external-hdds-and-ssds-for-macos-users/"><u>Top Rated Portable Storage Options: External HDDs & SSDs for macOS Users</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-elevate-your-video-experience-free-online-quality-enhancement-tools/"><u>Updated 2024 Approved Elevate Your Video Experience Free Online Quality Enhancement Tools</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Discovering Affordable Joy in Hobby Drones: In-Depth Look at Syma S111G RC Helicopter for Indoor Use"
-date: 2024-10-06T06:16:24.527Z
-updated: 2024-10-07T08:10:32.397Z
+date: 2024-10-12T00:48:18.472Z
+updated: 2024-10-12T23:53:34.411Z
 categories:
   - BestProducts
 description: "This Article Describes Discovering Affordable Joy in Hobby Drones: In-Depth Look at Syma S111G RC Helicopter for Indoor Use"
@@ -42,16 +42,16 @@ Lifewire / Zach Sweat
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Nintendo Switch Lite
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/ral6yRtba1CN2dg2W4Log4OcjAg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Nintendo-Switch-Lite-1-66fc3642c4d448b18f4a0775c059247d.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -79,21 +79,7 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/EUqklfDyxuB1ye8-DBboDrjzkUw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-2-225f5107c7b74f159afecba8c3f6174a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Design: Cute and compact**
 
@@ -149,13 +135,20 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/kQx9K3tATPBWAMgyJJymqBqYPao=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-3-7349fa7d79f34dbaa50c25cb59aec820.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Decent for mobile gaming, but no FHD**
@@ -194,6 +187,13 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/KxMaFgooi4rm3qbImmLKatuUtVI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-4-ef84dbbbde3d48ff97515e5c6b9981a4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 ## **Software: Still a bit drab, but smooth and snappy**
@@ -213,13 +213,20 @@ Lifewire / Zach Sweat
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/eFyBn6jL7cdHOO4q7zc6pALdQzw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-6-42a5bc5ea4e544bdb6d3fbbd074583c2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery Life: Slightly better, but not the best**
 
@@ -265,13 +272,6 @@ Lifewire / Zach Sweat
 
  Despite being stripped of some of the Switch’s more unique features and strengths, the Switch Lite is a perfect console for gamers on the go or those who prefer handheld. It features an extensive library of exclusives that are perfect for a highly mobile system like Animal Crossing—and it’s hard to argue with the price.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 [Nintendo Switch Review](https://www.lifewire.com/nintendo-switch-review-4707563)
@@ -314,24 +314,22 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-essential-strategies-for-successful-mukbang-production/"><u>[New] 2024 Approved Essential Strategies for Successful Mukbang Production</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-hand-tracking-insights-and-types/"><u>[New] In 2024, Hand Tracking Insights and Types</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-top-alert-tones-superior-download-sites-list/"><u>[New] Top Alert Tones Superior Download Sites List</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-brainless-beats-continue-selecting-top-8-zombie-masterpieces/"><u>[Updated] Brainless Beats Continue Selecting Top 8 Zombie Masterpieces</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-free-high-quality-edits-explore-these-9-cloud-apps/"><u>[Updated] Free, High-Quality Edits Explore These 9 Cloud Apps</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-enhancing-minecraft-through-optimal-ram-assignment/"><u>[Updated] In 2024, Enhancing Minecraft Through Optimal RAM Assignment</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-soundtracking-your-snapchats-for-2024/"><u>[Updated] SoundTracking Your Snapchats for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-unveiling-the-secrets-to-supervised-simultaneous-streams/"><u>2024 Approved Unveiling the Secrets to Supervised Simultaneous Streams</u></a></li>
-<li><a href="https://techtrends.techidaily.com/como-convertir-automaticamente-imagenes-ppm-a-tiff-sin-costo-mediante-el-servicio-de-movavi-online/"><u>Cómo Convertir Automáticamente Imágenes PPM a TIFF Sin Costo Mediante El Servicio De Movavi Online</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-docooler-usb-20-12mp-lens-analysis-uncovering-the-facts/"><u>Comprehensive Docooler USB 2.0 12MP Lens Analysis - Uncovering the Facts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/cutthroat-commerce-simplified-an-in-depth-review-of-the-offworld-trading-company/"><u>Cutthroat Commerce Simplified: An In-Depth Review of the Offworld Trading Company</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/from-play-to-display-the-battle-of-portability-vs-pixels-nintendos-lite-vs-oled/"><u>From Play to Display: The Battle of Portability Vs. Pixels - Nintendo's Lite Vs. OLED</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Teleport Your GPS Location On Apple iPhone 14? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-gaming-platforms-showdown-2024-edition/"><u>Leading Gaming Platforms Showdown: 2024 Edition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lenovo-thinkpad-x1-titanium-yoga-genesis-review-the-ultimate-hybrid-for-devoted-thinkpad-enthusiasts/"><u>Lenovo ThinkPad X1 Titanium Yoga (Genesis) Review - The Ultimate Hybrid for Devoted ThinkPad Enthusiasts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/logitech-c615-webcam-review-performance-and-affordability/"><u>Logitech C615 Webcam Review: Performance and Affordability</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/selecting-a-streaming-device-roku-or-fire-tv-stick-your-essential-buying-guide/"><u>Selecting a Streaming Device: Roku or Fire TV Stick? Your Essential Buying Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-portable-360-degree-camera-theta-sc2/"><u>The Ultimate Portable 360-Degree Camera – Theta SC2</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-powerhouse-samsung-galaxy-tab-s4-review-and-its-allure-as-a-top-tier-android-device/"><u>Unboxing The Powerhouse: Samsung Galaxy Tab S4 Review and Its Allure as a Top-Tier Android Device</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-a-detailed-review-of-the-top-10-gopro-protectors/"><u>[New] A Detailed Review of the Top 10 GoPro Protectors</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/aomei-software-nutzungsbedingungen-verstandliche-lizenzvereinbarungen-fur-benutzer/"><u>AOMEI Software Nutzungsbedingungen: Verständliche Lizenzvereinbarungen Für Benutzer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/built-to-last-a-comprehensive-look-at-the-efficiency-usb-charging-capability-and-durability-of-the-apc-be600m1/"><u>Built to Last: A Comprehensive Look at the Efficiency, USB Charging Capability & Durability of The APC BE600M1</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comprehensive-samsung-ru7300-55-4k-uhd-smart-led-tv-analysis-are-the-unique-features-justified/"><u>Comprehensive Samsung RU7300 55 4K UHD Smart LED TV Analysis - Are the Unique Features Justified?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/embrace-simplicity-with-the-hp-stream-11-your-perfect-portable-companion/"><u>Embrace Simplicity with the HP Stream 11 - Your Perfect Portable Companion</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/guia-paso-a-paso-sobre-como-convertir-facilmente-tus-archivos-m4b-en-formatos-de-video-mkv-utilizando-herramientas-online-gratuitas/"><u>Guía Paso a Paso Sobre Cómo Convertir Fácilmente Tus Archivos M4B en Formatos De Video MKV Utilizando Herramientas Online Gratuitas</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-vivo-y100-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Vivo Y100 in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-samsung-galaxy-a24-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Samsung Galaxy A24 to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/microsoft-sculpt-ergonomic-keyboard-analysis-unparalleled-comfort-at-a-fantastic-price/"><u>Microsoft Sculpt Ergonomic Keyboard Analysis: Unparalleled Comfort at a Fantastic Price</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-smooth-audio-transitions-in-final-cut-pro-2-approaches/"><u>New Smooth Audio Transitions in Final Cut Pro 2 Approaches</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/next-level-power-safeguard-an-insightful-review-of-gaming-specific-apc-ups-units/"><u>Next-Level Power Safeguard: An Insightful Review of Gaming-Specific APC UPS Units</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revisiting-the-old-but-gold-a-detailed-review-of-the-netgear-c3000-router/"><u>Revisiting the Old but Gold - A Detailed Review of the Netgear C3000 Router</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/score-big-during-prime-day-hunt-for-spectacular-discounts-on-benq-display-devices/"><u>Score Big During Prime Day: Hunt for Spectacular Discounts on BenQ Display Devices</u></a></li>
+<li><a href="https://some-skills.techidaily.com/streamlined-image-enhancement-software-for-2024/"><u>Streamlined Image Enhancement Software for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-vivo-y36-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Vivo Y36? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-latest-samsung-galaxy-tab-s6-a-comprehensive-review-with-a-focus-on-s-pen-and-dex-functionality/"><u>Unveiling the Latest Samsung Galaxy Tab S6: A Comprehensive Review with a Focus on S Pen and DeX Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-microsoft-sculpt-an-expert-review-of-its-stellar-features-and-value/"><u>Unveiling the Microsoft Sculpt: An Expert Review of Its Stellar Features & Value!</u></a></li>
 </ul></div>
 

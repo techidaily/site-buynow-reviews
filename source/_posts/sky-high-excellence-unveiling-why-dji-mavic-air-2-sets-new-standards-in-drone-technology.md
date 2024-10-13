@@ -1,7 +1,7 @@
 ---
 title: Sky High Excellence - Unveiling Why DJI Mavic Air 2 Sets New Standards in Drone Technology
-date: 2024-09-13T17:37:21.155Z
-updated: 2024-09-15T08:08:23.102Z
+date: 2024-10-06T16:03:43.754Z
+updated: 2024-10-12T17:14:17.879Z
 categories:
   - BestProducts
 description: This Article Describes Sky High Excellence - Unveiling Why DJI Mavic Air 2 Sets New Standards in Drone Technology
@@ -87,6 +87,13 @@ Lifewire/Jeremy Laukkonen
 
 ![iMac M1 (2021)](https://www.lifewire.com/thmb/kWyk_ORWGF4cESW9qR4PB_fq-oU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iMacM12021_3-259902f12007403184368f631caabff7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire/Jeremy Laukkonen
 
  The latter represents a bit of a return to form, as the iMac line was once known for its bright, friendly color options, but the last few iterations have been available only in shades of white, silver, and grey.
@@ -112,6 +119,13 @@ Lifewire/Jeremy Laukkonen
  Apple bumped the screen size from 21.5 inches to 24 inches for the M1 iMac refresh, and the difference is remarkable. Apple refers to the panel as a 4.5K[Retina display](https://www.lifewire.com/what-is-retina-display-2000362) , which translates to a resolution of 4480 x 2520 and a pixel density of 218ppi in terms of hard numbers.
 
  Colors also look fantastic, as the display covers the entire[DCI-P3 gamut](https://www.lifewire.com/what-is-true-tone-display-4048131) , and it’s quite bright as well. I found myself running it at about 60 percent most of the time, despite the big, south-facing windows in my office.
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Performance: The M1 chip continues to impress
 
@@ -143,9 +157,23 @@ Lifewire/Jeremy Laukkonen
 
 ![Apple iMac M1 (2021)](https://www.lifewire.com/thmb/M5SVrQdMYUOt-gMWcR5czP6dNlc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iMacM12021_2-c80d821c9b544a8e939ebba9d01b49ba.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire/Jeremy Laukkonen
 
  The Magic Mouse 2 that comes with the M1 iMac is the same mouse that’s been around since 2015, with one minor tweak. The glass top is still while, but the sides and bottom are color-matched to your iMac. The lightning charger connector is still inexplicably located on the bottom, so you can’t use it while charging, and it feels uncomfortably small in my hand.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Audio: Excellent built-in speakers and decent Bluetooth for wireless headphones
 
@@ -170,10 +198,10 @@ Lifewire/Jeremy Laukkonen
  In addition to Wi-Fi and wired connections, the M1 iMac also features[Bluetooth 5.0](https://www.lifewire.com/bluetooth-5-4160255) . The Bluetooth connection is primarily used to connect the Magic Keyboard and Magic Mouse 2, but I also used it with a pair of AirPods Pro and my Avantree Ario Podio headphones. Sound quality and range were both excellent thanks to the Bluetooth 5.0 support, and I was able to listen to music and podcasts throughout my house.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Camera: 1080P FaceTime camera
@@ -182,6 +210,13 @@ Lifewire/Jeremy Laukkonen
 
  Paired with the improved camera, the M1 iMac also includes a massively improved built-in microphone array. The three high-quality microphones leverage directional beamforming and a high signal-to-noise ratio to turn in surprisingly good results.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Software: Big Sur with some beautiful custom backgrounds
 
  Like the first round of M1 Macs, the 2021 iMac ships with macOS 11.4 Big Sur. Apple built this version of macOS with the M1 hardware in mind, and each update has come with M1-only improvements. First and foremost, it has the ability to run iPhone and iPad apps natively, and the ability to run legacy Intel Mac apps via Rosetta 2.
@@ -189,13 +224,6 @@ Lifewire/Jeremy Laukkonen
  Support for mobile apps is a little spotty, as a lot of apps don’t show up in the Mac App store. For example, smash hit Zelda-clone Genshin Impact isn’t available despite the fact it now supports controllers. Legacy Intel Mac app support is a lot better, and I didn’t run into any trouble running apps through Rosetta 2\. Most notably, Photoshop ran without a hitch, and the Final Fantasy 14 client also ran surprisingly well.
 
  Photoshop and other popular apps are slated to eventually get M1 support, but I’ve found Rosetta 2 to deliver more than acceptable performance in the meantime.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What’s New: Apple’s M1 chip and a visual refresh
 
@@ -209,21 +237,7 @@ Lifewire/Jeremy Laukkonen
 
 ![Apple iMac M1 (2021)](https://www.lifewire.com/thmb/X35BpUO8w1Zk_PhNSA9TmEgvZpE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iMacM12021_1-0dc585a074e64b749bea01aad82d498c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire/Jeremy Laukkonen
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## M1 iMac (2021) vs. M1 Mac mini
 
@@ -239,18 +253,18 @@ Lifewire/Jeremy Laukkonen
 
  The new iMac (M1, 2021) is a massive improvement over its predecessor, offering excellent performance, a beautiful Retina display, great sound, and a slick, colorful look. Power users who need more memory or a more powerful graphics chip may want to wait for an update to the iMac Pro line, but just about everyone else should be satisfied by this hardware.  
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Apple iMac 21.5-inch 4K](https://www.lifewire.com/apple-imac-21-5-inch-4k-review-4689108)
 * [Apple Mac mini (M1, 2020)](https://www.lifewire.com/mac-mini-m1-apple-review-5092828)
 * [Apple MacBook Air 13-inch (M1, 2020)](https://www.lifewire.com/macbook-air-13-inch-m1-2020-review-5092793)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -286,5 +300,26 @@ Lifewire/Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-effective-ways-to-archive-and-record-youtube-events-for-2024/"><u>[New] Effective Ways to Archive and Record Youtube Events for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-ultimate-playbook-iphone-downloading-for-podcast-enthusiasts-for-2024/"><u>[New] The Ultimate Playbook IPhone Downloading for Podcast Enthusiasts for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-a-step-by-step-path-to-authentic-selfie-verification-on-ig-for-2024/"><u>[Updated] A Step-by-Step Path to Authentic Selfie Verification on IG for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-voice-changer-expertise-unlocking-morphvox-potential/"><u>[Updated] Voice Changer Expertise Unlocking MorphVOX Potential</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-tech-on-the-go-amazon-fire-hd-8-8th-gen-features-and-value-insights/"><u>Affordable Tech on the Go: Amazon Fire HD 8 (8Th Gen) Features and Value Insights.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/audiopure-pd-301-audiophiles-favorite-cd-player/"><u>AudioPure PD-301: Audiophile's Favorite CD Player</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-conscious-pet-owners-rejoice-petcubes-affordable-hd-cam/"><u>Budget-Conscious Pet Owners Rejoice - Petcube’s Affordable HD Cam</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/bypassing-the-cant-add-your-folder-now-hiccup-in-windows-onedrive/"><u>Bypassing the 'Can't Add Your Folder Now' Hiccup in Windows OneDrive</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-your-ideal-ipad-our-comprehensive-comparison-chart-explained/"><u>Choosing Your Ideal iPad? Our Comprehensive Comparison Chart Explained</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-apple-iphone-12-evaluation-why-its-the-superior-choice-this-year/"><u>Comprehensive Apple iPhone 12 Evaluation - Why It's the Superior Choice This Year</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-asus-rog-gt-ac5300-adapter-analysis-the-ideal-choice-for-gamers-and-technology-buffs/"><u>Comprehensive Asus ROG GT-AC5300 Adapter Analysis: The Ideal Choice for Gamers & Technology Buffs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722707245661-ddpai-mini3-revealed-how-this-dashcam-is-shaking-up-the-norm-with-fun/"><u>DDpai Mini3 Revealed: How This Dashcam Is Shaking Up the Norm with Fun!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-highest-quality-iphone-extras-and-enhancements/"><u>Discover the Highest Quality iPhone Extras and Enhancements</u></a></li>
+<li><a href="https://fox-links.techidaily.com/exploring-hand-tracking-an-in-depth-look/"><u>Exploring Hand Tracking An In-Depth Look</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-s23-ultra-phone-without-pin-by-drfone-android/"><u>How to Unlock Samsung Galaxy S23 Ultra Phone without PIN</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-itel-s23plus-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Itel S23+ Pattern Lock Screen</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Infinix Smart 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-hdr-camera-connoisseurs-handbook/"><u>In 2024, The HDR Camera Connoisseur's Handbook</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-the-linksys-ac1900-is-the-ultimate-wi-fi-solution-for-users-of-all-levels/"><u>Why the Linksys AC1900 Is the Ultimate Wi-Fi Solution for Users of All Levels</u></a></li>
+</ul></div>
 

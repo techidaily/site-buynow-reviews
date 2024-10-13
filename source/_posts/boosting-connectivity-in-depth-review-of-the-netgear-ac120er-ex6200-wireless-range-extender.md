@@ -1,7 +1,7 @@
 ---
 title: "Boosting Connectivity: In-Depth Review of the Netgear AC120er (EX6200) Wireless Range Extender"
-date: 2024-10-04T05:32:44.022Z
-updated: 2024-10-07T08:50:56.066Z
+date: 2024-10-11T19:20:48.160Z
+updated: 2024-10-12T19:47:55.788Z
 categories:
   - BestProducts
 description: "This Article Describes Boosting Connectivity: In-Depth Review of the Netgear AC120er (EX6200) Wireless Range Extender"
@@ -43,22 +43,16 @@ thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6
 
 3
 
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -80,10 +74,10 @@ thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Plot: Lots of options**
@@ -95,13 +89,6 @@ thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
  Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Humans have never been so annoying**
 
@@ -116,13 +103,6 @@ thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6
  In over twenty hours of gameplay, I learned the hard way that humans in this game are not only picky, but they demand the life of luxury the second they step off the rocket and into the dome. It didn’t matter that only twelve called a single dome home. It didn’t matter that there was barely enough of them to cover operating the grocery store and space bar. A lack of space for these amenities fell upon deaf ears. They wanted access to their art stores, electronics, and fine dining immediately. In that regard, I’m a little conflicted; as much as I wanted more shopping options for Mars, I realized not long after humans arrived that Haemimont Games, in reality, gave me a blessing by keeping a bland palate. Plus, more buildings and items become available as research, funding, and planetary discoveries allow.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -142,11 +122,25 @@ thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -189,19 +183,22 @@ thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-chromebooks-voice-alteration-guide-the-leading-online-text-to-speech-apps-for-2024/"><u>[New] Chromebook's Voice Alteration Guide The Leading Online Text-to-Speech Apps for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-amazon-halo-a-cutting-edge-fitness-monitor-with-a-daring-twist/"><u>Exploring the Amazon Halo: A Cutting-Edge Fitness Monitor with a Daring Twist</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-features-and-value-a-thorough-review-of-the-beantech-bitwatch-s1plus-wearable-tech/"><u>Exploring the Features & Value - A Thorough Review of the Beantech Bitwatch S1+ Wearable Tech</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/future-of-home-management-discover-the-latest-buzz-on-apples-automated-household-companion-costs-and-features-preview/"><u>Future of Home Management? Discover the Latest Buzz on Apple's Automated Household Companion - Costs and Features Preview</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/highly-recommended-touchpens-and-mice-for-the-ipad-experience/"><u>Highly Recommended Touchpens and Mice for the iPad Experience</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-poco-x5-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Poco X5 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-jump-to-youtube-affiliate-ranking-with-a-swift-10000-views/"><u>In 2024, Jump to YouTube Affiliate Ranking with a Swift 10,000 Views</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-linksys-velop-tri-band-mesh-wifi-system/"><u>In-Depth Analysis of the Linksys Velop Tri-Band Mesh WiFi System</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/interactive-guide-discover-the-ultimate-performance-with-philips-49-oled-curve-display-for-gamers/"><u>Interactive Guide: Discover the Ultimate Performance with Philips 49 OLED Curve Display for Gamers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-edge-lens-tripod-travelers-trusty-sidekick/"><u>Leading-Edge Lens Tripod: Traveler's Trusty Sidekick</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolving-the-dark-screen-hurdle-a-players-handbook-for-cyberpunk-ebooten2077-successes/"><u>Resolving the Dark Screen Hurdle: A Player's Handbook for Cyberpunk Ebooten2077 Successes</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/straightforward-stories-essence/"><u>Straightforward Stories' Essence</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlocking-value-with-nokia-71-impressive-display-camera-performance-at-low-prices/"><u>Unlocking Value with Nokia 7.1: Impressive Display, Camera Performance at Low Prices</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/lpuzzle-editor-for-2024/"><u>VisualPuzzle Editor for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-enhancing-audio-visual-experience-with-youtube-music-insertion/"><u>[New] 2024 Approved Enhancing Audio-Visual Experience with YouTube Music Insertion</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nstant-video-visionary/"><u>[New] Instant Video Visionary</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-elevate-your-visuals-music-integration-for-vimeo-films/"><u>[Updated] Elevate Your Visuals Music Integration for Vimeo Films</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/audio-technica-at-lp120xusb-bk-review-an-easy-to-use-turntable-that-can-convert-your-vintage-records-into-digital-audio/"><u>Audio-Technica AT-LP120XUSB-Bk Review: An Easy to Use Turntable that Can Convert Your Vintage Records Into Digital Audio</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-mastery-on-screen-a-review-of-the-impressive-lg-um7300-49-inch-4k-television/"><u>Budget Mastery on Screen: A Review of the Impressive LG UM7300 49-Inch 4K Television</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-kooteks-cooling-solution-for-computers/"><u>Comprehensive Review of Kootek's Cooling Solution for Computers</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/decode-the-meaning-of-error-0xc0000185-and-easy-steps-to-resolve-it/"><u>Decode the Meaning of Error 0xC0000185 & Easy Steps to Resolve It</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/download-your-favorite-films-from-the-2023-oscar-winners-list-watch-the-ceremony-online/"><u>Download Your Favorite Films From the 2023 Oscar Winners List! Watch the Ceremony Online.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-performance-a-detailed-look-at-mapmyrides-biking-and-running-capabilities/"><u>Evaluating Performance: A Detailed Look at MapMyRide's Biking and Running Capabilities</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-12-pro-5g-phone-without-google-account-by-drfone-android/"><u>How to Unlock Realme 12 Pro 5G Phone without Google Account?</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/monthly-revenue-streams-for-video-content-creators-for-2024/"><u>Monthly Revenue Streams for Video Content Creators for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/new-wave-of-home-assistants-second-gen-google-nest-hub-review-and-its-absence-of-cameras/"><u>New Wave of Home Assistants - Second Gen Google Nest Hub Review and Its Absence of Cameras</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/pro-film-masterclass-the-quickest-5-diy-cinematic-tricks-for-2024/"><u>Pro-Film Masterclass The Quickest 5 DIY Cinematic Tricks for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/secure-your-home-on-a-budget-with-the-best-remobell-doorbell-reviews-for-less-than-1/"><u>Secure Your Home on a Budget with the Best RemoBell Doorbell Reviews for Less than $1</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-lenovo-thinkpad-x1-fold-reviewed-pioneering-portability-meets-room-for-improvement/"><u>The Lenovo ThinkPad X1 Fold Reviewed: Pioneering Portability Meets Room for Improvement</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-truth-about-knack-innovative-lead-lost-in-a-derivative-quest/"><u>Unveiling the Truth About Knack - Innovative Lead Lost in a Derivative Quest</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/44ob44on44o844og44ow44od44kv44gn6zplusz5qw944ks5yan55sf44gn44gn44gq44ge5ac05zci44gu44oi44op44ow44or44k344ol44o844og44kj44oz44kw5oml6acg/"><u>チョームブックで音楽を再生できない場合のトラブルシューティング手順</u></a></li>
 </ul></div>
 

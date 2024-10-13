@@ -1,7 +1,7 @@
 ---
 title: "Dive Into Our Review: How Moto G Power Delivers on Long-Lasting Battery and Style"
-date: 2024-09-19T18:16:38.565Z
-updated: 2024-09-20T18:24:34.571Z
+date: 2024-10-07T02:21:31.519Z
+updated: 2024-10-13T03:09:05.164Z
 categories:
   - BestProducts
 description: "This Article Describes Dive Into Our Review: How Moto G Power Delivers on Long-Lasting Battery and Style"
@@ -41,9 +41,29 @@ Lifewire / Kelsey Simon
 
 2.7
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -77,18 +97,18 @@ Lifewire / Kelsey Simon
 
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Gameplay: Dialogue prompts and effort**
 
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -112,20 +132,13 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Only worth it if you’re keen on the story**
@@ -169,5 +182,20 @@ Lifewire / Kelsey Simon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-facebooks-best-friend-on-mobile-top-10-android-extractor-apps-overview/"><u>[New] In 2024, Facebook's Best Friend on Mobile Top 10 Android Extractor Apps Overview</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-harnessing-hype-strategies-to-elevate-your-instagram-presence/"><u>[New] In 2024, Harnessing Hype Strategies to Elevate Your Instagram Presence</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-ultra-30-review-the-virb-action-cam-for-adventurers-for-2024/"><u>[New] Ultra 30 Review – The VIRB Action Cam for Adventurers for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/outube-seo-mastery-balancing-titles-and-tags-for-2024/"><u>[New] YouTube SEO Mastery Balancing Titles and Tags for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-quick-instructions-for-downloading-and-fun-with-ifunny-memes/"><u>2024 Approved Quick Instructions for Downloading and Fun with iFunny Memes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dell-xps-13-7390-2-in-1-laptop-evaluation-an-exquisite-and-versatile-ultrathin-computer/"><u>Dell XPS 13 (7390) 2-in-1 Laptop Evaluation: An Exquisite & Versatile Ultrathin Computer</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-instagrams-backward-video-display-an-insight/"><u>In 2024, Instagram's Backward Video Display An Insight</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-assessment-of-the-amplifi-hd-wireless-networking-solution-defeat-wi-fi-weak-spots-with-ease/"><u>In-Depth Assessment of the Amplifi HD Wireless Networking Solution: Defeat Wi-Fi Weak Spots with Ease</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-netgears-nighthawk-c7000-a-superior-wifi-modem-reviewed/"><u>In-Depth Look at Netgear's Nighthawk C7000: A Superior WiFi Modem Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/interactive-showdown-with-the-philips-49-curvaceous-oled-display-perfect-for-gamers/"><u>Interactive Showdown with the Philips 49 Curvaceous OLED Display - Perfect for Gamers</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-best-video-editing-software-to-remove-audio-from-video-windows/"><u>New Best Video Editing Software to Remove Audio From Video Windows</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-review-for-highly-rated-battery-operated-google-wireless-nest-doorbells/"><u>Top Review for Highly Rated Battery Operated Google Wireless Nest Doorbells</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshoot-and-overcome-your-game-installation-woes-with-quick-tips-to-solve-steam-errors/"><u>Troubleshoot & Overcome Your Game Installation Woes with Quick Tips to Solve Steam Errors</u></a></li>
+</ul></div>
 

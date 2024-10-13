@@ -1,7 +1,7 @@
 ---
 title: Expand and Strengthen Home Internet with the Netgear Nighthawk X6S Router Range Extender
-date: 2024-09-15T18:20:13.824Z
-updated: 2024-09-20T17:35:41.552Z
+date: 2024-10-10T02:36:22.739Z
+updated: 2024-10-13T02:28:03.112Z
 categories:
   - BestProducts
 description: This Article Describes Expand and Strengthen Home Internet with the Netgear Nighthawk X6S Router Range Extender
@@ -44,9 +44,23 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/_gP-SgRbIGXPYdlmqqhNJSxhmSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_HeroSquare-61fda9713bb44c89bf3c2f1f74386bee.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -74,6 +88,13 @@ Lifewire / Erika Rawes
 
  The[Netgear](https://www.lifewire.com/best-netgear-routers-4159862) Nighthawk RAX120 is supposed to provide lightning-fast speeds while serving as one of the[best long-range wireless routers](https://www.lifewire.com/best-long-range-routers-4122554) currently on the market. Fully loaded with[Wi-Fi 6 technology](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , smart home connectivity, and a slew of other features, the AX12 should be an ideal router for small businesses, very large homes, or for homes with multiple devices. I tested the Netgear Nighthawk RAX120 to see how well it performs in the real world.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Batman’s router**
 
  The Netgear Nighthawk RAX120 has a futuristic design—angular, with clean lines. It looks like a cross between a spaceship and the Batmobile. It’s matte black and rectangular, but instead of the multiple antennas you’d typically see protruding from the top of a Nighthawk router, it has two wing-like extensions that come from each side.
@@ -81,6 +102,19 @@ Lifewire / Erika Rawes
  The eight antennas are housed inside of the two wings, so they’re not visible. The antennas are supposed to be ideally pre-positioned for you to get the best possible connection. However, because the eight individual antennas are housed within the wings, you can’t adjust them to your liking. The wings are on hinges though, so can fold down the wings to store the router, as the unit is somewhat large and bulky. It weighs three pounds, and it measures about a foot wide and almost eight inches in depth.
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/fw0FJuD9bAOkQEHuAZ9OFq5toXk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_05-2a03227466354aad82fe55b884b76ac6-4d18f476974a44b081aafc943a8e56b1.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -91,10 +125,16 @@ Lifewire / Erika Rawes
  The app guides you through creating separate 2.4 and 5GHz networks, but you can also take advantage of a feature called smart connect, which combines your networks and designates your devices based on optimal performance. You can create a guest network, as well as manage and monitor your devices individually. The initial setup process took me about ten minutes in total.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: Superfast speeds**
@@ -141,23 +181,9 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Expensive**
 
  The Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router will cost you a pretty penny—it sells for $400, which is $100 lower than its original retail price of $500\. But it’s still on the higher end of the price spectrum, especially considering it doesn’t include any sort of mesh points, and you only get the router, power supply, and an Ethernet cable.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Netgear Nighthawk RAX120 vs. TP-Link Archer AX6000**
 
@@ -168,13 +194,6 @@ Lifewire / Erika Rawes
  **A cool looking router that’s faster and more powerful than you probably need.**
 
  The Nighthawk RAX120 performs impressively, but it‘s costly and lacks some user-friendly features like strong parental controls and easy-to-manage antivirus, so it’ll be more desirable for those with heavier networking demands than the average user.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -212,5 +231,26 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-facebooks-guide-to-enhancing-past-recordings-for-live-streaming/"><u>[Updated] In 2024, Facebook's Guide to Enhancing Past Recordings for Live Streaming</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-easy-content-making-10-basic-youtube-videos/"><u>[Updated] The Ultimate Guide to Easy Content Making 10 Basic YouTube Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-srt-innovations-the-future-explained-today/"><u>2024 Approved SRT Innovations The Future Explained Today</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/achieving-perfection-insightful-hitman-3-assessment/"><u>Achieving Perfection: Insightful Hitman 3 Assessment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/analyzing-the-merits-of-wi-fi-mesh-setups/"><u>Analyzing the Merits of Wi-Fi Mesh Setups</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/beat-it-back-with-eargasm-pro-earmuffs-review/"><u>Beat It Back with Eargasm Pro Earmuffs Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-in-class-portable-battery-packs-to-power-your-laptop-this-year/"><u>Best-in-Class Portable Battery Packs to Power Your Laptop This Year</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-yet-high-quality-expert-review-of-the-hisense-50h8f-4k-tv/"><u>Budget-Friendly Yet High-Quality: Expert Review of the Hisense 50H8F 4K TV</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/celebrating-excellence-with-a-comprehensive-analysis-of-the-samsung-galaxy-s10-beyond-ordinary/"><u>Celebrating Excellence with a Comprehensive Analysis of the Samsung Galaxy S10: Beyond Ordinary</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-moto-g-plays-extended-battery-life-and-performance-standards/"><u>Comprehensive Review of Moto G Play's Extended Battery Life & Performance Standards</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cp24-by-criacr-a-critical-look-at-the-portable-bluetooth-fm-transmitter-with-flaws-and-features/"><u>CP24 by CRIACR: A Critical Look at the Portable Bluetooth FM Transmitter with Flaws and Features</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-the-issue-how-to-prevent-madden-nfl-21-from-frequently-crashing-on-your-pc/"><u>Fixing the Issue: How to Prevent Madden NFL 21 From Frequently Crashing on Your PC</u></a></li>
+<li><a href="https://article-helps.techidaily.com/from-shopping-spree-to-stunning-video-haul-editing-explained/"><u>From Shopping Spree to Stunning Video Haul Editing Explained</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Vivo V30 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Tecno Spark 20? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Infinix Smart 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/no-more-game-interruptions-mastering-stability-in-total-war-rome-remastered/"><u>No More Game Interruptions: Mastering Stability in Total War: Rome Remastered</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/viking-saga-unveiled-in-assassins-creed-valhalla-a-comprehensive-game-review/"><u>Viking Saga Unveiled in Assassin's Creed: Valhalla - A Comprehensive Game Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-words-ranking-longest-to-shortest/"><u>World Words Ranking: Longest to Shortest</u></a></li>
+</ul></div>
 

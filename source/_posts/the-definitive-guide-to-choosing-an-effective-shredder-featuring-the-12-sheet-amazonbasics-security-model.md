@@ -1,7 +1,7 @@
 ---
 title: "The Definitive Guide to Choosing an Effective Shredder: Featuring the 12-Sheet AmazonBasics Security Model"
-date: 2024-09-30T01:51:45.255Z
-updated: 2024-10-06T23:01:26.566Z
+date: 2024-10-07T17:21:16.093Z
+updated: 2024-10-12T23:16:44.216Z
 categories:
   - BestProducts
 description: "This Article Describes The Definitive Guide to Choosing an Effective Shredder: Featuring the 12-Sheet AmazonBasics Security Model"
@@ -47,19 +47,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/KabMCV8f8k1Pxtd-vhM86zkedrw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-HeroSquare-41f20e9c72b84bfd92f578807ae1edaf.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jeremy Laukkonen
 
 [View On Amazon](https://www.amazon.com/Extollo-Powerline-LANSocket-1500-HomePlug/dp/B00Y3XRRI8/?tag=lifewire-onsite-prod-20&ascsubtag=4778158%7Cneae2cae292c94a2b9373551f10cd366c17%7CB00Y3XRRI8)
@@ -88,13 +75,6 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Big, bulky, and basic, with a filtered pass-through**
 
  Extollo won’t win any awards for the basic, blocky design of the LANSocket 1500 adapters. They’re big, plastic, white, and take up a lot of space. That’s somewhat mediated by the inclusion of a pass-through electrical socket, which is a really nice touch.
@@ -109,7 +89,21 @@ Lifewire / Jeremy Laukkonen
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/Ahhqweppp7LoE4s2gervkZuyOS8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-04-e086de486a5a4e16ac16cff8ae813b22.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Pain-free plug and play**
 
@@ -125,18 +119,18 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Connectivity: MIMO with beamforming**
 
  The Extollo LANSocket 1500 powerline adapters use the HomePlug AV2 specification, which includes support for[multi-in, multi-out (MIMO)](https://www.lifewire.com/mimo-wifi-routers-818332) with beamforming, which increases both speed and the allowable distance between adapters. This is a significant improvement over the HomePlug AV specification, which is slower and requires you to place your adapters more closely together.
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/B7pek1jOL0gtn-sl7QsuHcO3_CU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-03-04f860db31f049e1a2ecb40196f7aaf7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -151,13 +145,6 @@ Lifewire / Jeremy Laukkonen
  It’s important to note that your personal experience with the LANSocket 1500, or with any powerline adapter, will be dependent on the age and quality of the wiring in your home. Old wiring, damaged wiring, and situations where ground wires aren’t present will all have a negative impact on speeds. If you experience significantly low speeds, try switching the adapters to different outlets.
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/s7sBTQQEDT14u1i6nHyeA6O4hEw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-05-d60cab3cba9446c1b398076a39432b70.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -175,18 +162,18 @@ Lifewire / Jeremy Laukkonen
 
  The embedded Linux distro does open up some security concerns, but they can be mostly erased if you connect through a firewalled router. You can find cheaper options, but the bottom line is that you won’t find a cheaper alternative that provides the same high speed, low latency, video buffering, and pass-through socket that you get with the LANSocket 1500.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Decent price for such good performance**
 
  The Extollo LANSocket 1500 has an MSRP of $90 for a set of two. That places these adapters right in the same general price range as other similar devices. You can find HomePlug AV2 compatible adapters for a little less, but they typically don’t perform quite as well.
 
  Since the LANSocket 1500 adapters are so easy to use, and provide such a high level of performance, it’s our judgment that they’re worth the $10 or so premium you’ll typically pay compared to similar competitors.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Wins on transfer speeds with some security concerns**
 
@@ -209,6 +196,13 @@ Lifewire / Jeremy Laukkonen
  **Buy this powerline adapter kit, but secure it behind a firewall.**
 
  The Extollo LANSocket 1500 checks all the right boxes, with some of the highest speeds on the market, a pass-through electrical socket, and a decent price. The high speeds and low latency make this kit a good choice if you need to connect a game console, and the extra memory allowed by the use of Linux really helps out if you stream a lot of video, just be wary of security considerations.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -240,22 +234,19 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expert-advice-at-your-screen-the-finest-15-stock-channels/"><u>[New] In 2024, Expert Advice at Your Screen The Finest 15 Stock Channels</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-invigorate-snaps-implement-inner-blur-spread-in-cs/"><u>[New] In 2024, Invigorate Snaps Implement Inner Blur Spread in CS</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-a-compre-written-in-the-stars-how-to-choose-an-ideal-podcast-title/"><u>[Updated] A Compre Written in the Stars How to Choose an Ideal Podcast Title</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-expand-your-viewing-realm-on-youtube-platforms/"><u>2024 Approved Expand Your Viewing Realm on YouTube Platforms</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-samsung-galaxy-f04-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Samsung Galaxy F04 is off? | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/crafting-movement-on-face-images-with-picsart-for-2024/"><u>Crafting Movement on Face Images with Picsart for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-strength-and-cost-efficiency-of-the-omoton-t1-tablet-mount-a-thorough-examination/"><u>Discover the Strength and Cost-Efficiency of the Omoton T1 Tablet Mount - A Thorough Examination</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-world-of-7-days-to-life-an-engaging-zombie-adventure-with-a-twist-in-sandbox-gaming/"><u>Exploring the World of '7 Days to Life': An Engaging Zombie Adventure with a Twist in Sandbox Gaming</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-top-rated-video-door-entry-systems-the-incredible-under-100-remobell-review/"><u>Exploring Top-Rated Video Door Entry Systems: The Incredible Under-$100 RemoBell Review</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Samsung Galaxy A25 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-unpacking-google-nest-hellos-capabilities-from-video-monitoring-to-package-detection/"><u>In-Depth Analysis: Unpacking Google Nest Hello's Capabilities From Video Monitoring to Package Detection</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-midland-lxt500vp3-high-on-capabilities-low-on-efficacy/"><u>In-Depth Look at the Midland LXT500VP3: High on Capabilities, Low on Efficacy</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/insightful-guide-to-webexs-benefits-and-limitations-in-online-collaboration/"><u>Insightful Guide to WebEx's Benefits and Limitations in Online Collaboration</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/intuitive-interaction-unveiled-the-lenovo-9-inch-tablet-experience/"><u>Intuitive Interaction Unveiled: The Lenovo 9 Inch Tablet Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-innovations-the-ultimate-list-of-smart-glasses-for-2ebracket-2024/"><u>Leading Innovations: The Ultimate List of Smart Glasses for 2Ebracket 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-oppo-find-n3-flip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Oppo Find N3 Flip | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/bl/"><u>トップパワーボイス：人気のある韓流BL劇場シリーズを見つけてダウンロードする手引き</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-navigating-through-8-prime-free-srt-translation-options/"><u>[New] Navigating Through 8 Prime Free SRT Translation Options</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-expedited-guide-to-distinguishing-genuine-followers-on-instagram/"><u>[Updated] In 2024, Expedited Guide to Distinguishing Genuine Followers on Instagram</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/2024-approved-unlocking-talkshoplive-pros-and-tips-for-live-shopping-success/"><u>2024 Approved Unlocking TalkShopLive Pros and Tips for Live Shopping Success</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhance-your-connectivity-with-the-slim-and-efficient-orlink-u631-wi-fi-stick-for-usb-ports/"><u>Enhance Your Connectivity with the Slim and Efficient ORLINK U631 Wi-Fi Stick for USB Ports</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-compact-marvel-in-depth-analysis-of-the-apple-iphone-12-mini/"><u>Exploring the Compact Marvel - In-Depth Analysis of the Apple iPhone 12 Mini</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>How to Fake Snapchat Location without Jailbreak On Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-discovering-potential-youtubes-role-in-modern-education-strategies/"><u>In 2024, Discovering Potential YouTube's Role in Modern Education Strategies</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-filmmakers-guide-to-the-top-10-essential-camera-brands/"><u>In 2024, Filmmaker's Guide to the Top 10 Essential Camera Brands</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pros-and-cons-determining-if-applecareplus-is-a-smart-choice/"><u>Pros and Cons: Determining if AppleCare+ Is a Smart Choice</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/relive-retro-gaming-glory-with-our-comprehensive-review-of-super-mario-bros-on-nintendo-game-and-watch-handheld/"><u>Relive Retro Gaming Glory with Our Comprehensive Review of Super Mario Bros on Nintendo Game & Watch Handheld</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solution-strategies-addressing-forza-horizon-n-game-crashes-on-windows-platforms/"><u>Solution Strategies: Addressing Forza Horizon N Game Crashes on Windows Platforms</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/step-by-step-guide-closing-persistent-dialog-boxes-in-windows-os/"><u>Step-by-Step Guide: Closing Persistent Dialog Boxes in Windows OS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-sea-and-swim-spots-gear-guide/"><u>The Best Sea & Swim Spots Gear Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/vintage-gaming-spotlight-in-depth-review-of-the-nintendo-game-and-watch-super-mario-bros-edition/"><u>Vintage Gaming Spotlight: In-Depth Review of the Nintendo Game & Watch - Super Mario Bros Edition</u></a></li>
 </ul></div>
 

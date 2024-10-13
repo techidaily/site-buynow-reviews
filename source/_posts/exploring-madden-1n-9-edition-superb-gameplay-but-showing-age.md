@@ -1,7 +1,7 @@
 ---
 title: "Exploring Madden 1N 9 Edition: Superb Gameplay but Showing Age"
-date: 2024-09-16T16:49:43.232Z
-updated: 2024-09-20T16:52:00.925Z
+date: 2024-10-10T19:59:53.513Z
+updated: 2024-10-12T19:44:31.171Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring Madden 1N 9 Edition: Superb Gameplay but Showing Age"
@@ -46,6 +46,13 @@ Lifewire / Jonno Hill
 
 ![Yongnuo YN560 IV Wireless Flash Speedlite Master](https://www.lifewire.com/thmb/UOD6afkRh-xS-Dh1-iagOeoOSdY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_3LW4072366-Yongnuo-YN560-1-33b6547cc9014731ab6e144b0613aaef.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jonno Hill
 
 [View On Amazon $85](https://www.amazon.com/dp/B00PGTOX26?tag=lifewire-onsite-prod-20&ascsubtag=4686829%7Cned26b5ddc861462ea8962bb31e85883020%7CB00PGTOX26) [View On B&H Photo Video $85](https://www.bhphotovideo.com/c/product/1101196-REG/yongnuo%5Fyn%5F560iv%5Fyn560%5Fiv%5Fspeedlite.html)
@@ -67,6 +74,13 @@ Lifewire / Jonno Hill
  The Yongnuo YN560 IV Wireless Flash Speedlite Master finds an interesting balance between barebones manual flashes that sell for around half the price, and much more expensive options from big brands like[Canon](https://www.lifewire.com/best-new-canon-cameras-493499) and Nikon. The big upgrade is full radio control, letting you adjust a group of these lights in concert. Along with 24-105mm zoom support and a quick 3-second recycle time, this is a very appealing flash for off-camera use for portrait and real estate photographers.
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Punching above the price point**
 
@@ -100,13 +114,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: A lot of reading before use**
 
  Once you unpack your flash and install the four AA batteries, you’re going to want to familiarize yourself with the buttons and menu system a little. The YN560 IV has a lot of functionality, but it doesn’t have the most intuitive interface. The front of the device contains a top row of four buttons (a Light/Music icon, Mode, a Wi-Fi icon, and Zoom). Below this is a charge indicator button marked “PILOT”, a direction pad, and an On/Off button.
@@ -120,6 +127,13 @@ Lifewire / Jonno Hill
  The last quirk that users will have to familiarize themselves with is that a lot of menu functionality is only accessed by pressing two of the top row buttons simultaneously. Pressing the first two opens the advanced options, pressing the middle two issues an activation command to the slave units when in TX mode, and pressing the final two buttons lets you set the channel.
 
  Overall, the YN560 IV gives you a lot of functionality and control, but definitely requires some reading and troubleshooting before you can master the device.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Significant savings for manual users**
 
@@ -141,18 +155,18 @@ Lifewire / Jonno Hill
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master may not be a very simple flash, but it packs enough functionality to make a very versatile platform for more aspirational photographers. Buyers that want full manual control and radio transmission without paying an arm and a leg will be more than pleased with what they get.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Canon Speedlite 430EX III-RT Flash](https://www.lifewire.com/canon-speedlite-430ex-iii-rt-flash-review-4686835)
 * [Nikon D3400](https://www.lifewire.com/nikon-d3400-review-4776644)
 * [Fovitec SPK10-037 Softbox Lighting Kit](https://www.lifewire.com/fovitec-spk10-037-softbox-lighting-kit-review-4692503)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -184,5 +198,21 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-unlocking-windows-8-movie-maker-an-easy-introduction/"><u>[New] Unlocking Windows 8 Movie Maker An Easy Introduction</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-elite-screenwriting-circle-for-2024/"><u>[Updated] Elite Screenwriting Circle for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-total-gaze-field-vr-device-overview/"><u>[Updated] Total Gaze Field VR Device Overview</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-dynamics-of-motorola-one-hyper-where-affordability-meets-excellence-in-a-mid-tier-device/"><u>Exploring the Dynamics of Motorola One Hyper - Where Affordability Meets Excellence in a Mid-Tier Device</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/fix-rapidly-resolving-itunes-failed-to-backup-iphone-due-to-error-problem/"><u>Fix Rapidly: Resolving 'iTunes Failed to Backup iPhone Due to Error' Problem</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/google-pixel-5-insights-striking-a-chord-between-economy-and-flagship-quality/"><u>Google Pixel 5 Insights: Striking a Chord Between Economy and Flagship Quality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/head-to-head-comparison-chromecast-and-roku-battle-for-your-living-room/"><u>Head-to-Head Comparison: Chromecast and Roku Battle for Your Living Room</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-does-the-202n-apple-macbook-air-with-m1-chip-13-inches-stack-up-an-in-depth-analysis-and-review/"><u>How Does The 202N Apple MacBook Air with M1 Chip (13 Inches) Stack Up? An In-Depth Analysis and Review</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-motorola-edge-40-pro-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Motorola Edge 40 Pro Phone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-linksys-wrt3200acm-top-choice-among-open-source-routers/"><u>In-Depth Analysis: Linksys WRT3200ACM - Top Choice Among Open Source Routers</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-fixing-windows-audio-device-graphs-overuse-of-processor-resources/"><u>Step-by-Step Guide: Fixing Windows Audio Device Graph's Overuse of Processor Resources</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-ultimate-hardware-showdown-discover-what-toms-experts-say/"><u>The Ultimate Hardware Showdown: Discover What Tom's Experts Say</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/thorough-summary-googles-podcast-platform-demystified-for-2024/"><u>Thorough Summary Google's Podcast Platform Demystified for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-t2-5g-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo T2 5G Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+</ul></div>
 

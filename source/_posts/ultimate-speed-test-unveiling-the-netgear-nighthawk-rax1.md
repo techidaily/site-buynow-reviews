@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Speed Test: Unveiling the Netgear Nighthawk RAX1"
-date: 2024-09-18T18:38:43.615Z
-updated: 2024-09-20T18:04:59.087Z
+date: 2024-10-08T22:10:36.441Z
+updated: 2024-10-12T18:00:25.105Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Speed Test: Unveiling the Netgear Nighthawk RAX1"
@@ -82,14 +82,14 @@ Lifewire / Erika Rawes
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/fw0FJuD9bAOkQEHuAZ9OFq5toXk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_05-2a03227466354aad82fe55b884b76ac6-4d18f476974a44b081aafc943a8e56b1.jpg)
 
-Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Lifewire / Erika Rawes
 
 ## **Setup: Quick and easy**
 
@@ -109,13 +109,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Network performance: Stellar**
 
  The Nighthawk RAX120 indicates top speeds of 1,200 Mbps on the 2.4Ghz band and 4,800 Mbps on the 5Ghz band. My Internet speed maxes out at 500 Mbps. I have about 50 connected devices, more than half of which are smart home devices like smart light switches, smart appliances, security cameras, and smart speakers and displays. The RAX120 had no problem managing my numerous smart devices, nor did I experience any lag or connectivity issues on streaming and gaming devices. I simultaneously ran a gaming computer, two playstations, and two FireTVs without the connection missing a beat.
@@ -127,6 +120,13 @@ Lifewire / Erika Rawes
  Final Verdict
 
  The RAX120 is backward compatible with 802.11a/b/g/n/ac as well, so it’ll work with virtually all of your devices, Wi-Fi 6 or not.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Key Features: Quality hardware, lacks antivirus**
 
@@ -140,6 +140,13 @@ Lifewire / Erika Rawes
 
  The router has two USB 3.0 storage ports on the back for connecting an external hard drive.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software: Nighthawk App**
 
  In the Nighthawk app, you can change your router’s settings, create a guest network, control your router remotely, manage your devices individually, and you can test your network speeds. However, when testing my network speeds, they consistently clock much faster on the Nighthawk app than on other platforms like Ookla and VeeApps.
@@ -147,24 +154,30 @@ Lifewire / Erika Rawes
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/MPwp1LtMC7Ua30t8VnJy7bjuqn4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_02-94fbae95ca5d4851a1cf40b197da4161.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Expensive**
 
  The Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router will cost you a pretty penny—it sells for $400, which is $100 lower than its original retail price of $500\. But it’s still on the higher end of the price spectrum, especially considering it doesn’t include any sort of mesh points, and you only get the router, power supply, and an Ethernet cable.
+
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Netgear Nighthawk RAX120 vs. TP-Link Archer AX6000**
 
@@ -212,5 +225,22 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-why-do-my-photoshoot-videos-grind-to-a-halt-for-2024/"><u>[New] Why Do My Photoshoot Videos Grind to a Halt for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-wirecast-techniques-for-captivating-facebook-viewers/"><u>[New] Wirecast Techniques for Captivating Facebook Viewers</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-how-to-record-itunes-videos-for-2024/"><u>[Updated] How to Record iTunes Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-tailoring-timeline-memories-the-look-back-video-expertise/"><u>2024 Approved Tailoring Timeline Memories The Look Back Video Expertise</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/amending-damaged-media-formats-on-macos-devices/"><u>Amending Damaged Media Formats on macOS Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-your-smartphone-iphone-vs-samsung-making-the-right-decision/"><u>Choosing Your Smartphone: IPhone Vs. Samsung - Making the Right Decision</u></a></li>
+<li><a href="https://network-issues.techidaily.com/enhance-graphics-performance-intellupdates-for-windows-pc/"><u>Enhance Graphics Performance: IntellUpdates for Windows PC</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-poco-x5-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Poco X5 Pro without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-microsoft-surface-go-a-low-cost-tablet-struggling-with-identity/"><u>In-Depth Look at Microsoft Surface Go: A Low-Cost Tablet Struggling with Identity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/masterclass-review-the-mavix-m9-your-key-to-effortless-hours-of-gaming-comfort/"><u>Masterclass Review: The Mavix M9 - Your Key to Effortless Hours of Gaming Comfort</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-silence-is-golden-removing-background-noise-in-final-cut-pro-x-made-easy/"><u>New Silence Is Golden Removing Background Noise in Final Cut Pro X Made Easy</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/oneplus-nord-n10-5g-smartphone-assessment-a-must-consider-contender/"><u>OnePlus Nord N10 5G Smartphone Assessment: A Must-Consider Contender</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/teslas-next-big-thing-delving-into-potential-price-tags-specs-and-launch-date-for-the-revolutionary-automaton/"><u>Tesla's Next Big Thing? Delving Into Potential Price Tags, Specs, & Launch Date for the Revolutionary Automaton</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-apeman-c450-on-a-budget-evaluating-the-performance-of-an-entry-level-dashcam/"><u>The Apeman C450 on a Budget: Evaluating the Performance of an Entry-Level Dashcam</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-mods-latest-innovation-the-intuitive-and-practical-e-bike-sidecar/"><u>Unveiling Mod's Latest Innovation: The Intuitive and Practical E-Bike Sidecar</u></a></li>
+</ul></div>
 

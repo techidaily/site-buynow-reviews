@@ -1,7 +1,7 @@
 ---
 title: The Synology RT2eac AC Wireless Router Reviewed – Enjoy Extended Connectivity Range & Effective Child Safety Measures
-date: 2024-09-17T17:06:19.878Z
-updated: 2024-09-20T17:12:10.173Z
+date: 2024-10-06T17:18:39.090Z
+updated: 2024-10-13T01:31:36.449Z
 categories:
   - BestProducts
 description: This Article Describes The Synology RT2eac AC Wireless Router Reviewed – Enjoy Extended Connectivity Range & Effective Child Safety Measures
@@ -71,6 +71,13 @@ thumbnail: https://www.lifewire.com/thmb/cLpwb7w2274VdPPxnh_WC6T0lDk=/400x300/fi
 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -91,7 +98,27 @@ thumbnail: https://www.lifewire.com/thmb/cLpwb7w2274VdPPxnh_WC6T0lDk=/400x300/fi
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: Smooth sailing**
 
@@ -109,13 +136,6 @@ thumbnail: https://www.lifewire.com/thmb/cLpwb7w2274VdPPxnh_WC6T0lDk=/400x300/fi
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -125,10 +145,10 @@ thumbnail: https://www.lifewire.com/thmb/cLpwb7w2274VdPPxnh_WC6T0lDk=/400x300/fi
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: More than most**
@@ -136,13 +156,6 @@ thumbnail: https://www.lifewire.com/thmb/cLpwb7w2274VdPPxnh_WC6T0lDk=/400x300/fi
  The Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender is listed at $250, although it’s being sold for $220 at multiple retailers as of this writing. That’s definitely on the higher end for an extender.
 
  Should you really spend that much on an extender? If you don’t already have a new Wi-Fi 6 router, then probably not. You might see higher peaks of speed as I did, but rather than trying to mix and match old and new tech, you’re probably better off investing in a new Wi-Fi mesh system that can cover the entire house. Netgear’s Orbi is a favorite, as is Google’s similar Nest Wi-Fi system.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Netgear Nighthawk AX8 vs. Netgear Nighthawk X6S (EX8000)**
 
@@ -178,5 +191,26 @@ thumbnail: https://www.lifewire.com/thmb/cLpwb7w2274VdPPxnh_WC6T0lDk=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-from-novice-to-geometric-master-crafting-perfect-circular-and-spherical-objects/"><u>[New] In 2024, From Novice to Geometric Master Crafting Perfect Circular & Spherical Objects</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-iphone-time-travel-mastering-prolonged-photo-captures/"><u>[New] IPhone Time Travel Mastering Prolonged Photo Captures</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-apowersoft-capture-app-reviewed/"><u>[Updated] 2024 Approved Apowersoft Capture App Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-android-tv-caixun-75/"><u>Budget Android TV Caixun 75</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-j5-tacticals-v1-pro-flashlight-a-blend-of-strength-and-convenience-for-dark-settings/"><u>Comprehensive Guide to the J5 Tactical's V1-Pro Flashlight – A Blend of Strength & Convenience for Dark Settings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/embracing-fun-while-playing-pokemon-shining-pearl/"><u>Embracing Fun While Playing Pokemon Shining Pearl</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-price-tag-samsung-un65nu8000fxza-smart-tv-in-detail/"><u>Evaluating the Price Tag: Samsung UN65NU8000FXZA Smart TV in Detail</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-on-apc-back-ups-pro-1500va-ample-energy-convenient-ports-and-interchangeable-battery-packs/"><u>Expert Analysis on APC Back-UPS Pro 1500VA - Ample Energy, Convenient Ports & Interchangeable Battery Packs</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/exploring-the-genesis-and-evolution-of-windows-movie-maker/"><u>Exploring the Genesis and Evolution of Windows Movie Maker</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-troubleshoot-problems-when-sharing-content-via-family-sharing/"><u>How To Troubleshoot Problems When Sharing Content Via Family Sharing</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Vivo V29? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/maximizing-display-performance-with-high-ppi-settings/"><u>Maximizing Display Performance with High PPI Settings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-your-workout-with-the-cost-effective-fitbit-versa-lite-a-detailed-review/"><u>Maximizing Your Workout with the Cost-Effective Fitbit Versa Lite – A Detailed Review</u></a></li>
+<li><a href="https://network-issues.techidaily.com/overcoming-screen-flip-issue-with-windows-11/"><u>Overcoming Screen Flip Issue with Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-cat-s42s-tradeoff-superior-armor-at-the-expense-of-processing-pace/"><u>Reviewing the CAT S42's Tradeoff: Superior Armor at the Expense of Processing Pace</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/versatile-moko-compact-usb-type-c-portable-bluetooth-keyboard/"><u>Versatile MoKo Compact USB Type-C Portable Bluetooth Keyboard</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On OnePlus Nord N30 SE? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-you-need-the-netgear-nighthawk-rax120-top-tier-performance-for-ultimate-internet-speed/"><u>Why You Need The Netgear Nighthawk RAX120: Top-Tier Performance for Ultimate Internet Speed</u></a></li>
+</ul></div>
 
