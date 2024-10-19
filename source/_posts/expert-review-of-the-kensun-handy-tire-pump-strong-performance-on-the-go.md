@@ -1,7 +1,7 @@
 ---
 title: "Expert Review of the Kensun Handy Tire Pump: Strong Performance On-the-Go"
-date: 2024-10-09T19:14:31.081Z
-updated: 2024-10-12T18:19:03.214Z
+date: 2024-10-15T16:43:00.505Z
+updated: 2024-10-18T21:09:14.623Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Review of the Kensun Handy Tire Pump: Strong Performance On-the-Go"
@@ -44,16 +44,16 @@ thumbnail: https://thmb.techidaily.com/9530a6a7ae2d76ba480cbada332a623fd47509bd2
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## M MOOCK Car Jump Starter
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/9HsjvcJhUjJuGMXLaAGh2B_0bAw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -91,10 +91,10 @@ thumbnail: https://thmb.techidaily.com/9530a6a7ae2d76ba480cbada332a623fd47509bd2
  The accessory kit that comes with the unit is full-bodied. The main piece is the jump starter module which has the two jumper clamps coming off a plastic module that plugs into the unit. To charge the unit you can choose to use either a wall charger for home use or a power port charger for use within a running vehicle. Finally, a set of laptop port adapters and a short DC cable to use with them can be used to[charge your laptop](https://www.lifewire.com/overcharging-laptop-battery-causes-life-span-to-decrease-2378126) or similar device.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: It takes time to find a spot just right to set up for a jump**
@@ -105,19 +105,6 @@ thumbnail: https://thmb.techidaily.com/9530a6a7ae2d76ba480cbada332a623fd47509bd2
 
  To charge other devices there’s a lot less fuss involved. You simply need to plug the device into the USB or DC power port and turn the unit on. A Micro USB cable is provided, so if you have a device that uses a more modern charging port, you'll want to put an extra cable for it in the MOOCK case as well.
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: A nice jolt of power to start even the most drained of vehicles**
 
  Assuming you’ve carefully placed the M MOOCK in a spot where it can securely clamp onto the battery yet not fall out of the engine bay, you’ll find that the unit does a good job of jump starting a car. The test vehicle had a battery depleted down to 10V, and while the vehicle did momentarily struggle to start initially, it started just fine after double-checking the connections. It’s hard to say if that initial struggle was due to the unit’s relatively lower start and peak output currents, or if it truly just boiled down to a connectivity issue.
@@ -127,6 +114,13 @@ An inexpensive option considering what it can do.
  Plug a phone into the 5V/2A USB port and you’ll find that it delivers a charge rate of 1,200mAh, fast enough to rapidly top off even the thirstiest phones. For example, the Samsung Galaxy S10 would charge it from fully depleted to full in just over three hours. With the unit’s 18,000mAh capacity you could, in theory, do that repeatedly, but it's recommended to leave at least 50 percent of the unit’s battery for jump starts.
 
 Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Key Features: A bright flashlight, but in a decidedly narrow band**
 
@@ -157,10 +151,10 @@ A good choice with just a few nagging flaws.
  The M Moock 1000A Peak 18000mAh Car Jump Starter is a surprisingly solid choice in jump starters. It has few glaring flaws, and the ones that it does have (like the short cables) just make it marginally more difficult to use, as opposed to being true deal breakers. That said, there are other units available on the market that share some or all the same features but have fewer drawbacks. Overall, the unit's successful but flawed, yet very reliable when you need it most.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -193,17 +187,18 @@ A good choice with just a few nagging flaws.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-how-to-pick-a-unique-name-for-youtube-channel-filmora/"><u>[New] 2024 Approved How To Pick a Unique Name for YouTube Channel - Filmora</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-breakthrough-vloggers-reviewed-the-best-15-youtube-channels-for-product-reviews/"><u>[New] Breakthrough Vloggers Reviewed The Best 15 YouTube Channels for Product Reviews</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-full-screen-pro-tips-and-tricks-for-editors/"><u>[Updated] Full Screen Pro Tips and Tricks for Editors</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-ultimate-guide-top-15-innovative-snapchat-ideas/"><u>[Updated] In 2024, The Ultimate Guide Top 15 Innovative Snapchat Ideas</u></a></li>
-<li><a href="https://program-issues.techidaily.com/clearing-up-the-haze-tips-for-sharpening-visuals-in-call-of-duty-warzone-on-your-computer/"><u>Clearing Up the Haze: Tips for Sharpening Visuals in Call of Duty: Warzone on Your Computer</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-updated-nvidia-geforce-rtx-2n60-super-drivers-for-windows-1011-systems/"><u>Download Updated NVIDIA GeForce RTX 2N60 Super Drivers for Windows 10/11 Systems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-kobo-clara-color-ereader/"><u>In-Depth Evaluation of Kobo Clara Color eReader</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lamicall-s-tablet-holder-assessment-a-deep-dive-into-its-utility-and-elegance/"><u>Lamicall S Tablet Holder Assessment: A Deep Dive Into Its Utility and Elegance</u></a></li>
-<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-oppo-a78-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Oppo A78 ? Fix It Easily | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-truth-behind-the-hype-analyzing-shortcomings-of-the-pixel-slate-on-chromeos/"><u>The Truth Behind the Hype: Analyzing Shortcomings of the Pixel Slate on ChromeOS</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-picks-for-ultra-hd-tvs-detailed-reviews-on-the-features-of-samsung-qn55q60rafxza-with-hdr10plus-support/"><u>Top Picks for Ultra HD TVs - Detailed Reviews on the Features of Samsung QN55Q60RAFXZA with HDR10+ Support</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-d-link-pl-2000-kit-streamlined-configuration-and-rapid-data-exchange-review/"><u>Unveiling the D-Link PL 2000 Kit: Streamlined Configuration & Rapid Data Exchange Review</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-snapperview-4-review-synopsis/"><u>[Updated] 2024 Approved SnapperView 4 Review Synopsis</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-pioneering-avengers-the-marvellous-world-builders/"><u>2024 Approved Pioneering Avengers The Marvellous World-Builders</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-the-seventh-line-up-of-all-weather-action-cams/"><u>2024 Approved The Seventh Line-Up of All-Weather Action Cams</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-turn-the-tape-counterclockwise-instagrams-reverse-play-technique/"><u>2024 Approved Turn the Tape Counterclockwise Instagram's Reverse Play Technique</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/effektieve-strategies-voor-serveermigratie-over-keeserigheid-en-de-drie-meestgebruikte-methoden/"><u>Effektieve Strategies Voor Serveermigratie: Over Keeserigheid en De Drie Meestgebruikte Methoden</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-trendsetters-in-instagram-ae-best-selling-template-collections/"><u>In 2024, Trendsetters in Instagram AE Best-Selling Template Collections</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-samsungs-55-inch-ru7300-smart-tv-with-curved-screen-a-worthy-review/"><u>In-Depth Analysis of Samsung's 55-Inch RU7300 Smart TV with Curved Screen - A Worthy Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-lenovo-yoga-a940-comprehensive-review/"><u>In-Depth Analysis: Lenovo Yoga A940 - Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-features-and-usability-of-googles-calling-solution/"><u>In-Depth Look at the Features and Usability of Google's Calling Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/key-points-to-evaluate-when-selecting-a-dash-camera/"><u>Key Points to Evaluate When Selecting a Dash Camera</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/navigating-cutting-edge-imaging-a-shoppers-selection-process-for-2024/"><u>Navigating Cutting-Edge Imaging A Shopper's Selection Process for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-rated-childrens-tablets-endorsed-by-parents-featured-on-zdnet/"><u>Top-Rated Children's Tablets Endorsed by Parents - Featured on ZDNet</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-call-logs-from-itel-by-fonelab-android-recover-call-logs/"><u>Undelete lost call logs from Itel</u></a></li>
 </ul></div>
 

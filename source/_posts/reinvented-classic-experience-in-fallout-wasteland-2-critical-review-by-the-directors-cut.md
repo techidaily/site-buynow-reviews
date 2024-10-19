@@ -1,7 +1,7 @@
 ---
 title: "Reinvented Classic Experience in Fallout: Wasteland 2 - Critical Review by the Director’s Cut"
-date: 2024-09-11T00:35:06.966Z
-updated: 2024-09-15T10:09:58.013Z
+date: 2024-10-17T21:51:28.951Z
+updated: 2024-10-18T19:30:52.496Z
 categories:
   - BestProducts
 description: "This Article Describes Reinvented Classic Experience in Fallout: Wasteland 2 - Critical Review by the Director’s Cut"
@@ -65,22 +65,16 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Inoffensive but unexceptional**
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
-
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup: Simple and easy**
 
@@ -100,13 +94,20 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Not bad for the performance**
@@ -124,16 +125,16 @@ Lifewire / Jonno Hill
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
 
 <!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -161,5 +162,26 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-enhancing-vimeo-videos-with-effective-end-credits/"><u>[New] In 2024, Enhancing Vimeo Videos with Effective End Credits</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-top-10-youtube-video-grabber-apps-best-in-class-compatibility-for-2024/"><u>[New] Top 10 YouTube Video Grabber Apps, Best-in-Class Compatibility for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-celebrating-top-10-moba-play-android-edition-for-2024/"><u>[Updated] Celebrating Top 10 MOBA Play Android Edition for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-get-hooked-easy-ways-to-loop-any-youtube-video/"><u>2024 Approved Get Hooked Easy Ways to Loop Any YouTube Video</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/aerial-imaging-face-off-dji-fpv-vs-gopro-max-x-for-2024/"><u>Aerial Imaging Face-Off DJi FPV vs GoPro Max X for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/compiling-the-top-10-affordable-video-conferencing-for-phones/"><u>Compiling the Top 10 Affordable Video Conferencing for Phones</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/control-data-row-dialog/"><u>Control Data Row Dialog.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/digital-pictorial-prestige-the-creme-de-la-creme-of-2024/"><u>Digital Pictorial Prestige: The Crème De La Crème of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-excellence-in-minimalism-an-in-depth-analysis-of-the-iphone-12-mini-by-apple/"><u>Discovering Excellence in Minimalism: An In-Depth Analysis of the iPhone 12 Mini by Apple</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/l-scoreboard-the-premier-six-of-video-downloads/"><u>Global Scoreboard The Premier Six of Video Downloads</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-a-comprerans-guide-to-capturing-spectacular-slow-motion-on-hero-10/"><u>In 2024, A Compreran's Guide to Capturing Spectacular Slow Motion on Hero 10</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-critique-why-the-new-apple-ipad-mini-5-is-a-portable-powerhouse/"><u>In-Depth Critique: Why the New Apple iPad Mini 5 Is a Portable Powerhouse</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/keep-fit-anywhere-anytime-with-samsungs-versatile-galaxy-fit2-tracker/"><u>Keep Fit Anywhere, Anytime with Samsung's Versatile Galaxy Fit2 Tracker</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/latest-nickwatch-release-debuts-at-us-kids-choice-award-ceremony/"><u>Latest NickWatch Release Debuts at U.S. Kids' Choice Award Ceremony</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/make-unforgettable-highlights-top-picks-for-desktop-and-mobile/"><u>Make Unforgettable Highlights Top Picks for Desktop and Mobile</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reliability-test-results-a-student-and-kids-guide-to-the-asus-chromebook-c202sa/"><u>Reliability Test Results: A Student & Kid's Guide to the Asus Chromebook C202SA</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-omnicharge-omni-20-the-ultimate-all-in-one-portable-charger-with-qi-wireless-capability/"><u>Review of the Omnicharge Omni 20: The Ultimate All-in-One Portable Charger with Qi Wireless Capability</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-owning-a-nook-glowlight-n4-ereader-your-complete-review/"><u>The Ultimate Guide to Owning a Nook GlowLight N°4 eReader - Your Complete Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-potential-of-budget-4k-tvs-with-lg-um7300-a-closer-look-at-this-economical-49-inch-marvel/"><u>Unlocking the Potential of Budget 4K TVs with LG UM7300 - A Closer Look at This Economical 49-Inch Marvel</u></a></li>
+</ul></div>
 

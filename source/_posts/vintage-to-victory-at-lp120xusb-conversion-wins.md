@@ -1,7 +1,7 @@
 ---
 title: Vintage to Victory - AT-LP120XUSB Conversion Wins
-date: 2024-10-11T02:39:39.739Z
-updated: 2024-10-12T23:05:26.912Z
+date: 2024-10-16T23:04:27.682Z
+updated: 2024-10-18T20:40:18.123Z
 categories:
   - BestProducts
 description: This Article Describes Vintage to Victory - AT-LP120XUSB Conversion Wins
@@ -43,16 +43,16 @@ thumbnail: https://www.lifewire.com/thmb/FTmH2b0r8KTfE_lHJWQDEqEhpik=/400x300/fi
 
 3
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -73,13 +73,6 @@ thumbnail: https://www.lifewire.com/thmb/FTmH2b0r8KTfE_lHJWQDEqEhpik=/400x300/fi
 
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -88,7 +81,21 @@ thumbnail: https://www.lifewire.com/thmb/FTmH2b0r8KTfE_lHJWQDEqEhpik=/400x300/fi
 
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Humans have never been so annoying**
 
@@ -122,13 +129,6 @@ thumbnail: https://www.lifewire.com/thmb/FTmH2b0r8KTfE_lHJWQDEqEhpik=/400x300/fi
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
@@ -136,13 +136,6 @@ thumbnail: https://www.lifewire.com/thmb/FTmH2b0r8KTfE_lHJWQDEqEhpik=/400x300/fi
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
  Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Other city-building games**
 
@@ -155,6 +148,13 @@ thumbnail: https://www.lifewire.com/thmb/FTmH2b0r8KTfE_lHJWQDEqEhpik=/400x300/fi
  **A interesting new take on city-builders, if you can stomach the micromanagement.**
 
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -183,21 +183,22 @@ thumbnail: https://www.lifewire.com/thmb/FTmH2b0r8KTfE_lHJWQDEqEhpik=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-4-effective-methods-for-slide-embedding-from-youtube/"><u>[Updated] 2024 Approved 4 Effective Methods for Slide Embedding From YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-banishing-blackout-blues-from-youtube-videos/"><u>[Updated] 2024 Approved Banishing Blackout Blues From YouTube Videos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-ultimate-6-film-compiler-tools/"><u>[Updated] 2024 Approved Ultimate 6 Film Compiler Tools</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-deciphering-the-world-of-touchless-interaction/"><u>2024 Approved Deciphering the World of Touchless Interaction</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comparing-echo-dot-and-apple-homepod-mini-features-pricing-and-performance/"><u>Comparing Echo Dot and Apple HomePod Mini: Features, Pricing & Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/eargasm-high-fidelity-earplug-review/"><u>Eargasm High Fidelity Earplug Review</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/essential-android-camera-techniques-and-software/"><u>Essential Android Camera Techniques & Software</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximizing-your-watching-pleasure-with-youtube-premium/"><u>Maximizing Your Watching Pleasure with YouTube Premium</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/moto-g-play-examined-a-harmonious-blend-of-extended-battery-capacity-and-satisfactory-operational-proficiency/"><u>Moto G Play Examined - A Harmonious Blend of Extended Battery Capacity and Satisfactory Operational Proficiency</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/obs-or-streamlabs-determining-the-superior-livestream-software/"><u>OBS or Streamlabs? Determining the Superior Livestream Software</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/pictureforge-hub-for-2024/"><u>PictureForge Hub for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-vivo-v29e-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Vivo V29e? 8 Solutions Inside | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-understanding-the-power-behind-the-luxury-samsung-galaxy-s10-unleashed/"><u>The Ultimate Guide to Understanding the Power Behind the Luxury: Samsung Galaxy S10 Unleashed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unmissable-benq-offers-during-prime-day-high-quality-monitors-and-projectors/"><u>Unmissable BenQ Offers During Prime Day - High-Quality Monitors & Projectors</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-samsung-un65ru80txfa-a-review-of-its-smart-features-on-a-luxurious-display-unit/"><u>Unveiling the Samsung UN65RU80TXFA: A Review of Its Smart Features on a Luxurious Display Unit</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-8-popular-oculus-rift-games/"><u>[Updated] 8 Popular Oculus Rift Games</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-direct-digital-delivery-streamlined-steps-for-files-for-2024/"><u>[Updated] Direct Digital Delivery Streamlined Steps for Files for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-maximize-your-money-with-these-top-10-simple-and-strategic-youtube-biz-channels-for-2024/"><u>[Updated] Maximize Your Money with These Top 10 Simple and Strategic YouTube Biz Channels for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-editors-edge-the-power-of-video-tools-on-m1-technology/"><u>2024 Approved Editors' Edge The Power of Video Tools on M1 Technology</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-turn-off-the-screen-lock-on-my-infinix-note-30-5g-by-drfone-android-unlock-android-unlock/"><u>How to turn off the screen lock on my Infinix Note 30 5G</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-ignite-a-sensation-how-to-have-your-video-go-viral/"><u>In 2024, Ignite a Sensation How to Have Your Video Go Viral</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-guide-to-visualizing-audio-brilliance/"><u>In 2024, The Ultimate Guide to Visualizing Audio Brilliance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-skies-premier-apps-to-forecast-and-follow-storms-in-2hemorrhage-of-2024/"><u>Navigating the Skies: Premier Apps to Forecast and Follow Storms in 2Hemorrhage of 2024</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/outils-complets-pour-travail-avec-des-dvd-extraction-conversion-et-transfert-vers-iphoneipad-via-winxdvd-version-official-du-logiciel/"><u>Outils Complets Pour Travail Avec Des DVD : Extraction, Conversion Et Transfert Vers iPhone/iPad via WinXDVD - Version Official Du Logiciel</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-home-entertainment-toshiba-55-fire-edition-series-unveiled/"><u>Revolutionizing Home Entertainment - Toshiba 55 Fire Edition Series Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-a51-5g-top-rated-affordable-5g-smartphone-with-impressive-specs/"><u>Samsung Galaxy A51 5G - Top-Rated Affordable 5G Smartphone with Impressive Specs!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/showdown-of-giants-how-the-samsung-galaxy-s23-ultra-stacks-up-against-the-s21-ultra/"><u>Showdown of Giants: How the Samsung Galaxy S23 Ultra Stacks Up Against the S21 Ultra</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/shutter-speeds-and-simplicity-in-tt560-flashlight-review/"><u>Shutter Speeds and Simplicity in TT560 Flashlight Review</u></a></li>
+<li><a href="https://win11.techidaily.com/switch-off-windows-11-defender-firewall-now/"><u>Switch Off Windows 11 Defender Firewall Now!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tech-face-off-comparing-amazons-fire-tablet-to-apples-ipad-for-you/"><u>Tech Face-Off: Comparing Amazon's Fire Tablet to Apple's iPad for You</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-lihan-bluetooth-fm-transmitter-review-how-it-amps-up-car-audio-experience/"><u>The Definitive LIHAN Bluetooth FM Transmitter Review: How It Amps Up Car Audio Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-perfect-blend-of-form-and-function-in-the-apple-imac-21cu-inch-4k-display-revealed/"><u>The Perfect Blend of Form and Function in the Apple iMac - 21.cu Inch 4K Display Revealed</u></a></li>
 </ul></div>
 

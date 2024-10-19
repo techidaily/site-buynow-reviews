@@ -1,7 +1,7 @@
 ---
 title: Canon G9 X Mark II Review – A Blend of Old & New
-date: 2024-10-12T00:47:57.473Z
-updated: 2024-10-13T02:00:48.483Z
+date: 2024-10-14T18:23:11.859Z
+updated: 2024-10-18T20:56:23.813Z
 categories:
   - BestProducts
 description: This Article Describes Canon G9 X Mark II Review – A Blend of Old & New
@@ -43,16 +43,16 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Insignia NS-43DF710NA19 43" 4K Fire TV
 
 ![Insignia NS-43DF710NA19 Fire TV Edition](https://www.lifewire.com/thmb/Zu1XJXI9ru8-HVTz9rG_PZoTkxw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4135681-1-3cce4a8c20b848baa2594db3b20ec943.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -81,6 +81,13 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
 
 ![Insignia NS-43DF710NA19 Fire TV Edition](https://www.lifewire.com/thmb/MXH7eY7oDLeZbWXcastu1A7OhpQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4135681-5-2ec275929e8543f0ab9c4ada6276d84c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 ## **Design: Thick body, thick bezel, but light enough for one person to handle**
@@ -99,6 +106,13 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
 
 ![Insignia NS-43DF710NA19 Fire TV Edition](https://www.lifewire.com/thmb/8ovvGrqb8Me9IvWHrQc7UW02kw8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4135681-4-acb78e6d55e4488ca394495d5c74c754.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 ## **Setup Process: You’ll need a Phillips screwdriver and your Amazon password**
@@ -112,13 +126,6 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
  Once the feet are on, or the television has been hung on a wall mount, it’s time to turn it on. This presents you with the Fire TV interface, so you should be ready to pick your favorite apps, connect to your[Wi-Fi](https://www.lifewire.com/what-is-wi-fi-2377430) or wired network, and then log into your Amazon account if you want to get the most out of your new television. There’s also a basic mode if you don’t have an Amazon account or just don’t want to log in.
 
  The final part of the setup process involves waiting for your apps to download, and then allowing the Fire TV to download and install a firmware update. None of this is too terribly time consuming, but plan on setting aside at least 10 to 15 minutes before your TV is fully ready to watch.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Image Quality: Crystal clear and beautiful colors, but HDR leaves a bit to be desired**
 
@@ -144,6 +151,19 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Ports: Full complement of digital and analog inputs and outputs**
 
  The ports are split, with some on the left side of the television as you face it, and others exiting toward the bottom.
@@ -157,13 +177,6 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
 ![Insignia NS-43DF710NA19 Fire TV Edition](https://www.lifewire.com/thmb/V97gOTfZ6Zys4aZv9gzGupbwRi8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4135681-3-b8a8cb21803f40ada92bf08de6ee6fc0.jpg)
 
  Lifewire / Jeremy Laukkonen
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Built-in Fire TV with Alexa voice controls is snappy and responsive**
 
@@ -179,16 +192,16 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
 
  You can ask Alexa to tune to specific channels, and the Fire TV interface has a section for over the air television channels, but the implementation is a little clumsy in its current incarnation.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Right in line with other 43-inch class smart TVs**
 
  The Insignia NS-43DF710NA19 has an MSRP of $299.99, but it’s typically available for around $249.99\. Priced at around $249.99, it’s right in the general neighborhood of other 43-inch class smart televisions, including other Fire TVs, sets built around Roku, and others with proprietary systems. There are a lot of decent options in the general $200 to $250 range, but this one is the best of the bunch if you’re firmly entrenched in Amazon’s ecosystem.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Beats out other Fire TV models**
 
@@ -203,13 +216,6 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
  **This is the budget Fire TV to own if you can’t step up to a larger model.**
 
  The Insignia NS-43DF710NA19 isn’t perfect, but it’s probably as close as you’ll get at this price point. This is definitely the UHD TV to own in the 43-inch class if you’re deep in the Amazon ecosystem and really want to go with Fire TV as your smart TV platform. It has great color reproduction, excellent viewing angles, and even decent sound from the onboard stereo speakers.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -248,22 +254,20 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-for-the-digital-novice-a-beginners-guide-to-visual-clarity-and-pixel-perfect-images/"><u>[New] For the Digital Novice A Beginner's Guide to Visual Clarity and Pixel-Perfect Images</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-twitters-visual-treats-free-video-to-gif-transformation/"><u>[New] Twitter's Visual Treats Free Video to Gif Transformation</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-banishing-facebook-broadcasts-from-laptoptablet/"><u>[Updated] 2024 Approved Banishing Facebook Broadcasts From Laptop/Tablet</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/alcatel-joy-tab-2-pro-your-guide-to-the-best-economical-lte-tablet-ever-made/"><u>Alcatel Joy Tab 2 Pro: Your Guide to the Best Economical LTE Tablet Ever Made</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/competitive-analysis-of-the-kobo-nia-is-it-time-to-switch-from-your-amazon-kindle/"><u>Competitive Analysis of the Kobo Nia - Is It Time to Switch From Your Amazon Kindle?</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/crafting-silent-scenes-audio-fade-techniques-in-adobe-premiere-pro/"><u>Crafting Silent Scenes Audio Fade Techniques in Adobe Premiere Pro</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/exploring-the-performance-of-apples-latest-m1-powered-macbook-air-13/"><u>Exploring the Performance of Apple's Latest M1 Powered MacBook Air 13</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlock-apple-id-from-your-apple-iphone-15-pro-without-security-questions-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID From your Apple iPhone 15 Pro without Security Questions?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-the-steam-deck-a-list-of-the-2023-gaming-essentials/"><u>Mastering the Steam Deck: A List of the 2023 Gaming Essentials</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/step-by-step-tutorial-setting-up-dual-monitors-with-a-macbook-air-for-efficient-workflows/"><u>Step-by-Step Tutorial: Setting Up Dual Monitors with a MacBook Air for Efficient Workflows</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-lg-2aturfy-24lh4830-a-cost-effective-choice-without-compromising-on-features/"><u>The LG 2Aturfy 24LH4830: A Cost-Effective Choice Without Compromising on Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-reading-on-the-go-with-apple-books-bookworms-perspective/"><u>The Ultimate Guide to Reading on the Go with Apple Books – Bookworm's Perspective</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-considerations-when-shopping-for-your-next-printer/"><u>Top Considerations When Shopping for Your Next Printer</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-aeeusy-portable-solar-generator-ideal-pure-sine-wave-for-delicate-medical-devices/"><u>Top Rated AEEUSY Portable Solar Generator: Ideal Pure Sine Wave for Delicate Medical Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tp-link-re200-ac750-wi-fi-range-extender-review-cheap-and-decent/"><u>TP-Link RE200 AC750 Wi-Fi Range Extender Review: Cheap and Decent</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/twitters-hot-spots-1-10-viral-visits-for-2024/"><u>Twitter's Hot Spots #1-#10 Viral Visits for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-microsoft-surface-laptop-4-guide-top-rated-performance-and-design/"><u>Ultimate Microsoft Surface Laptop 4 Guide: Top-Rated Performance & Design</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-explore-artistic-possibilities-premier-android-graphics-app-selection/"><u>[Updated] Explore Artistic Possibilities Premier Android Graphics App Selection</u></a></li>
+<li><a href="https://apple-account.techidaily.com/3-ways-of-how-to-get-someones-apple-id-off-iphone-15-pro-without-password-by-drfone-ios/"><u>3 Ways of How to Get Someones Apple ID Off iPhone 15 Pro without Password</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-360-degree-view-transformative-media-experience-for-2024/"><u>A 360-Degree View Transformative Media Experience for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/accelerating-textual-analysis-from-pdfs-using-chatgpt-solutions/"><u>Accelerating Textual Analysis From PDFs Using ChatGPT Solutions</u></a></li>
+<li><a href="https://article-helps.techidaily.com/analyzing-the-financial-gains-of-podcasting/"><u>Analyzing the Financial Gains of Podcasting</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-maximizing-wireless-coverage-with-the-linksys-velop-mesh-system/"><u>Comprehensive Evaluation: Maximizing Wireless Coverage with the Linksys Velop Mesh System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-top-tier-professional-development-on-linkedin/"><u>Discover Top-Tier Professional Development on LinkedIn</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/do-advantages-of-new-apple-watch-outweigh-costs/"><u>Do Advantages of New Apple Watch Outweigh Costs?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dont-miss-out-amazing-discounts-and-offers-for-oneplus-during-prime-day/"><u>Don't Miss Out: Amazing Discounts and Offers for OnePlus During Prime Day!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-performance-the-legacy-tech-behind-netgears-c3000-model/"><u>Evaluating Performance: The Legacy Tech Behind Netgear's C3000 Model</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-stunning-clarity-with-the-samsung-qn55q6f-4k-uhd-smart-tv-in-depth-review/"><u>Experience Stunning Clarity with the Samsung QN55Q6F 4K UHD Smart TV - In-Depth Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-versatile-communication-tango-offers-free-video-chat-service/"><u>Experience Versatile Communication - Tango Offers Free Video Chat Service</u></a></li>
+<li><a href="https://win-dash.techidaily.com/free-download-nvidia-3d-vision-drivers-for-windows-complete-guide/"><u>Free Download: Nvidia 3D Vision Drivers for Windows - Complete Guide</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-3-ways-of-how-to-get-someones-apple-id-off-iphone-7-without-password-by-drfone-ios/"><u>In 2024, 3 Ways of How to Get Someones Apple ID Off iPhone 7 without Password</u></a></li>
+<li><a href="https://games-able.techidaily.com/uncharted-upsurges-ephemeral-play-advantages/"><u>Uncharted Upsurges: Ephemeral Play Advantages</u></a></li>
 </ul></div>
 

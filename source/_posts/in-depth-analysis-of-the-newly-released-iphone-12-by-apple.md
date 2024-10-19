@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the Newly Released iPhone 12 by Apple
-date: 2024-10-12T00:48:39.649Z
-updated: 2024-10-13T00:37:44.313Z
+date: 2024-10-11T19:05:05.588Z
+updated: 2024-10-18T17:26:55.311Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the Newly Released iPhone 12 by Apple
@@ -68,6 +68,13 @@ Lifewire / Gannon Burgett
 
  While there's no shortage of options on the market, there aren’t many that can keep you going for days. That’s not the case with the MaxOak 50000mAh, an absolutely massive and robust charger that attempts to be the jack of all when it comes to charging gadgets on the go. It’s power comes at the cost of massive size and the charging ports aren’t too fast, but if you need tons of power, this is the battery pack to get.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Bulky for travelers**
 
  First and foremost, this thing is a tank. At 2.77 pounds, it weighs many times more than most smartphones and nearly as much as most compact laptops. It also measures in at 8.1 x 5.3 x 1.3 inches (HWD), making it quite the behemoth to lug around. A small detail regarding the weight of the MaxOak is that it isn't balanced. The side without the ports holds a fair bit more weight than the side with the various ports. It's not a significant detail, but one you might notice with time.
@@ -84,13 +91,6 @@ Lifewire / Gannon Burgett
 
  Charging the device is done via a small 16.8-volt 2.5A plug-in style port on the opposite side of the power button. Overall, the design is roughly what you'd expect from a 50000mAh laptop battery charger. Yes, it's heavy, yes it's quite beefy in size, but it comes with the territory.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Simple to start, but yet another adapter to carry around**
 
  Setting up the MaxOak laptop battery charger is as simple as it gets. After removing it from its unbranded cardboard box, it's simply a matter of plugging it in and getting it charged up completely. Our device came charged at roughly 50% based on the onboard[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) battery indicator, but to complete our tests we wanted it charged entirely, which leads us to our biggest complaint about this charger.
@@ -102,6 +102,13 @@ Lifewire / Gannon Burgett
  The MaxOak 50000mAh manages to charge at a decent rate considering its capacity, but we would’ve liked to see more high-powered ports for speedier charging. We charged and fully drained the MaxOak power bank five times and charging took roughly six to eight hours per recharge with an average of seven hours and fifteen minutes.
 
 ![Max Oak](https://www.lifewire.com/thmb/FlP4JZUVLoJ3DjKoSRUIFuf1peY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_6Web-5c8ff3e6c9e77c0001a926ff.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -116,28 +123,15 @@ Lifewire / Gannon Burgett
  Moving onto laptops, our ASUS X555LA was able to be charged four and a half times from 0% with the MaxOak power bank, with an average charge time of three hours or so. The ASUS X555LA has a relatively small battery compared to most laptops, which means it falls in line with MaxOak’s claims that its power bank can charge a laptop two times over give or take a little.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Right down the middle**
 
  The MaxOak 50000mAh power bank comes in at $135.99 at the time of this review. This is a reasonable price when taking into consideration how much battery capacity you're getting with it.
-
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: One in the same**
 
@@ -162,10 +156,10 @@ Lifewire / Gannon Burgett
 * [Anker PowerCore+ 26800 Battery Pack Bundle](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -198,24 +192,19 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-perfect-cone-capture-equipment/"><u>[New] 2024 Approved Perfect Cone Capture Equipment</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-how-do-youtube-channels-get-paid-regularly/"><u>2024 Approved How Do YouTube Channels Get Paid Regularly?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-best-of-tech-in-the-oneplus-e-6t-top-notch-performance-meets-budget-friendliness/"><u>Discover the Best of Tech in the OnePlus E 6T: Top-Notch Performance Meets Budget Friendliness</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/exclusive-hats-review-best-action-cameras-on-two-wheels/"><u>Exclusive Hats Review Best Action Cameras on Two Wheels</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-insight-on-xbox-one-elite-series-2-controller-a-historic-leader-in-gamepads/"><u>Expert Insight on Xbox One Elite Series 2 Controller: A Historic Leader in Gamepads</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/exploring-bert-vs-gpt-insights-into-advanced-language-models-for-ai-enthusiasts/"><u>Exploring BERT Vs. GPT: Insights Into Advanced Language Models for AI Enthusiasts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/hisense-40-h5590f-model-analysis-affordable-quality-in-a-smart-led-television/"><u>Hisense 40 H5590F Model Analysis: Affordable Quality in a SMART LED Television</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/impressive-book-trails-presented-for-2024/"><u>Impressive Book Trails Presented for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-removing-device-from-apple-id-for-your-apple-iphone-13-pro-by-drfone-ios/"><u>In 2024, Removing Device From Apple ID For your Apple iPhone 13 Pro</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-yokus-island-express-a-unique-twist-on-classic-gaming/"><u>In-Depth Analysis of Yoku's Island Express - A Unique Twist on Classic Gaming</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/instagram-tv-disable-guide/"><u>Instagram TV Disable Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leaders-take-on-the-pro-level-dreame-bot-l10-highly-efficient-cleaning-with-precision-lidar-navigation-unveiled/"><u>Leaders' Take on the Pro-Level Dreame Bot L10: Highly Efficient Cleaning with Precision LiDAR Navigation Unveiled</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/macos-15-sequoia-beta-now-available-for-download-get-the-latest-features-on-macbook-and-desktop-zdnet/"><u>MacOS 15 'Sequoia' Beta Now Available for Download – Get the Latest Features on MacBook & Desktop | ZDNET</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-tamriels-lore-and-quests-in-the-immersive-world-of-skyrim-a-detailed-review-for-switch-players/"><u>Mastering Tamriel's Lore & Quests in the Immersive World of Skyrim - A Detailed Review for Switch Players</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigate-your-day-with-books-by-your-side-experience-effortless-reading-with-kobo-clara-hd/"><u>Navigate Your Day With Books By Your Side - Experience Effortless Reading with Kobo Clara HD</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-voice-cloning-simplified-two-approaches-to-achieve-consistent-ai-voices/"><u>New 2024 Approved Voice Cloning Simplified Two Approaches to Achieve Consistent AI Voices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/quality-meets-play-in-the-samsung-q60r-series-the-ideal-4k-gamers-television-review/"><u>Quality Meets Play in the Samsung Q60R Series - The Ideal 4K Gamer's Television Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-2018-apple-ipad-pro-11-inch-a-buyers-best-pick/"><u>The Ultimate Guide to the 2018 Apple iPad Pro 11-Inch: A Buyer's Best Pick</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unlocking-seamless-linktree-addition-in-your-tiktok-profile-for-2024/"><u>Unlocking Seamless Linktree Addition in Your TikTok Profile for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-tunefab-vs-competitors-screen-recorder-showdown/"><u>[Updated] In 2024, Tunefab vs Competitors Screen Recorder Showdown</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-proven-steps-to-elevate-webinar-video-quality/"><u>[Updated] Proven Steps to Elevate Webinar Video Quality</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-advanced-techniques-capturing-teams-screen-content/"><u>2024 Approved Advanced Techniques Capturing Teams' Screen Content</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-fitness-tracking-with-the-best-value-a-comprehensive-fitbit-versa-lite-review/"><u>Affordable Fitness Tracking with the Best Value - A Comprehensive Fitbit Versa Lite Review</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/efficiently-determining-your-datasets-middle-value-the-median-formula-in-excel-unveiled/"><u>Efficiently Determining Your Dataset's Middle Value: The Median Formula in Excel Unveiled</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/fast-track-download-samsung-c460-printer-driver-get-it-now/"><u>Fast Track Download: Samsung C460 Printer Driver - Get It Now!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-screen-captures-galore-expert-techniques-for-twitter-visuals/"><u>In 2024, Screen Captures Galore Expert Techniques for Twitter Visuals</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-into-a-new-dimension-mastering-3d-image-posts-on-facebook/"><u>Step Into a New Dimension: Mastering 3D Image Posts on Facebook</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-fixes-for-missing-or-lost-cygwin1dll-file-problems/"><u>The Ultimate Fixes for Missing or Lost cygwin1.dll File Problems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-key-trackers-the-ultimate-selection/"><u>Top-Rated Key Trackers: The Ultimate Selection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/triumph-in-trade-wars-a-deep-dive-into-the-strategies-of-building-an-empire-in-offworld-trading-company/"><u>Triumph in Trade Wars: A Deep Dive Into the Strategies of Building an Empire in Offworld Trading Company</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/uncover-hidden-gems-on-a-shoestring-a-detailed-look-at-the-incredible-library-offered-by-roku/"><u>Uncover Hidden Gems on a Shoestring: A Detailed Look at the Incredible Library Offered by Roku</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-excellence-of-the-premium-samsung-galaxy-s1-0-smartphone/"><u>Unveiling the Excellence of the Premium Samsung Galaxy S1 0 Smartphone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-lenovo-thinkpad-x1-titanium-yoga-the-definitive-2-in-1-choice-for-serious-thinkpad-fans/"><u>Unveiling the Lenovo ThinkPad X1 Titanium Yoga: The Definitive 2-in-1 Choice for Serious ThinkPad Fans</u></a></li>
 </ul></div>
 

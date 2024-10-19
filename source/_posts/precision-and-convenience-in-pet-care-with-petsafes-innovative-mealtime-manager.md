@@ -1,7 +1,7 @@
 ---
 title: Precision and Convenience in Pet Care with PetSafe's Innovative Mealtime Manager
-date: 2024-09-08T00:33:53.947Z
-updated: 2024-09-15T01:06:00.976Z
+date: 2024-10-12T00:33:15.091Z
+updated: 2024-10-19T02:53:59.657Z
 categories:
   - BestProducts
 description: This Article Describes Precision and Convenience in Pet Care with PetSafe's Innovative Mealtime Manager
@@ -75,6 +75,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -91,19 +98,6 @@ Lifewire / Andy Zahn
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
@@ -117,6 +111,13 @@ Lifewire / Andy Zahn
  The electronic viewfinder (EVF) is bright and clear with 2,360,000 dots. It’s not the best EVF we’ve ever used as it seems slightly small and cramped, but it gets the job done. A sensor automatically detects when you put your eye up to it (a function that can be adjusted in the settings), which means you don’t have to hunt for a button to switch the EVF on.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Autofocus: Blazing fast**
 
@@ -142,6 +143,19 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -156,6 +170,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Video Quality: A mixed bag**
 
  The SX70 HS fumbles a bit when it comes to video. It’s no slouch by any means, but the footage is nothing to brag about. You can record up to 4K resolution, but unfortunately, the camera has to crop in to record at this resolution. Also, we found that footage is never especially sharp compared to other cameras.
@@ -169,13 +190,6 @@ Lifewire / Andy Zahn
  Time-lapse mode is where the SX70 HS really shines in terms of video. You can easily access this mode via the menu system, and there is a wide range of customizable options available. For those not experienced with time-lapse video, you can simply select from one of three subject-based settings. Time-lapses can be recorded at up to 4K resolution and truly excellent quality.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Lots of options**
 
@@ -210,10 +224,10 @@ Lifewire / Andy Zahn
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -221,13 +235,6 @@ Lifewire / Andy Zahn
 * [Panasonic Lumix DC-FZ80](https://www.lifewire.com/panasonic-lumix-dc-fz80-review-4691071)
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -261,5 +268,26 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-best-nintendo-switch-fighter-ranks-max-156/"><u>[Updated] 2024 Approved Best Nintendo Switch Fighter Ranks (Max 156)</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-quick-start-guide-to-editing-with-snapseed/"><u>[Updated] In 2024, Quick Start Guide to Editing with Snapseed</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-essential-techniques-for-enhancing-obs-studio-edits/"><u>2024 Approved Essential Techniques for Enhancing OBS Studio Edits</u></a></li>
+<li><a href="https://win-able.techidaily.com/androidioswav/"><u>Android/iOSを使用してスマートフォンでWAV音楽ファイル再生に関する解決策</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-anker-super-bright-lantern-ideal-durable-outdoor-gear-for-nighttime-adventures/"><u>Comprehensive Review of Anker Super Bright Lantern: Ideal Durable Outdoor Gear for Nighttime Adventures</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-the-pros-and-cons-of-the-swagtron-swagboard-t1/"><u>Expert Analysis: The Pros and Cons of the Swagtron Swagboard T1</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/explore-the-best-image-recovery-applications-the-top-10-picks-for-your-pc-and-mac/"><u>Explore the Best Image Recovery Applications: The Top 10 Picks for Your PC and Mac</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-extollo-lansocket-1500-outstanding-networking-speed-coupled-with-low-latency-and-unique-power-transfer-functionality/"><u>Exploring Extollo LANSocket 1500: Outstanding Networking Speed Coupled with Low Latency & Unique Power Transfer Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/harmony-and-hearing-protection-top-earplugs-assessment/"><u>Harmony & Hearing Protection: Top Earplugs Assessment</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-htc-u23-frp-by-drfone-android/"><u>How Can We Bypass HTC U23 FRP?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-cutting-the-cord-of-creation-how-to-setup-a-youtube-channel-from-phone-to-platform/"><u>In 2024, Cutting the Cord of Creation How to Setup a YouTube Channel From Phone to Platform</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-ocam-screen-recorder-review-and-alternative/"><u>In 2024, OCam Screen Recorder Review and Alternative</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-5-fan-heat-dispersion-unit-by-havit-securing-your-gaming-laptops-longevee-with-enhanced-cooling/"><u>In-Depth Analysis of the 5-Fan Heat Dispersion Unit by HAVIT: Securing Your Gaming Laptop's Longevee with Enhanced Cooling</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-the-exceptional-benefits-of-using-a-netgear-nighthawk-c7000-modem-for-seamless-connectivity/"><u>In-Depth Evaluation: The Exceptional Benefits of Using a Netgear Nighthawk C7000 Modem for Seamless Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/level-up-your-nes-classic-console-mastering-the-art-of-adding-extra-titles/"><u>Level Up Your NES Classic Console: Mastering The Art Of Adding Extra Titles</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/qc35-ii-unleashed-the-premier-quiet-headphones/"><u>QC35 II Unleashed: The Premier Quiet Headphones</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/snap-inspiration-selecting-stunning-ig-visuals-for-2024/"><u>Snap Inspiration! Selecting Stunning IG Visuals for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/streamlining-mf4770n-functions-on-w11w8w7-os/"><u>Streamlining MF4770n Functions on W11/W8/W7 OS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-choose-the-steam-deck-for-your-next-pc-gaming-device/"><u>Why Choose the Steam Deck for Your Next PC Gaming Device</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Expert Analysis: The Pros and Cons of the Swagtron Swagboard T1"
-date: 2024-10-07T21:16:54.808Z
-updated: 2024-10-13T01:51:40.906Z
+date: 2024-10-17T19:21:53.266Z
+updated: 2024-10-19T00:52:50.145Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Analysis: The Pros and Cons of the Swagtron Swagboard T1"
@@ -46,23 +46,9 @@ Lifewire / Emily Isaacs
 
 4.4
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -85,10 +71,10 @@ Lifewire / Emily Isaacs
  You can tell Microsoft put a considerable amount of thought into the Sculpt Ergonomic Keyboard’s design. From the manta ray style folds, which keep shoulders and hands at a relaxed, comfortable angle, to the detached numpad and magnetized risers for increased customization options when you want them, the Sculpt is quite the package. As with anything new, it took a period of adjustment, but we found it relatively quick thanks to the intuitive, easy-to-use design.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Made for comfort**
@@ -97,13 +83,6 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  One unique feature of the Sculpt we loved was the function switch. Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key. Options include refreshing the active page, navigating to the home page in web, opening up the computer’s settings, a play/pause button, switching between active windows, and increasing or decreasing volume.
@@ -111,6 +90,13 @@ Lifewire / Emily Isaacs
  Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key.
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Batteries required**
 
@@ -150,6 +136,19 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  The Surface is a high-end keyboard, but that quality comes at a higher price. The Surface tends to retail for around $129, much more than the Sculpt which retails for around $80\. That said, it’s an upgrade in almost every way. If you’re on a budget, the Sculpt is a great option, but if you’re able to splurge, the Surface is our top pick for wireless ergonomic keyboards.
@@ -161,6 +160,13 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -192,20 +198,24 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/updated-apex-cameras-capturing-sporting-triumphs/"><u>[Updated] Apex Cameras Capturing Sporting Triumphs</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-exclusive-high-end-computer-choices/"><u>[Updated] Exclusive High-End Computer Choices</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-simplified-steps-for-posting-tweets-on-facebook/"><u>[Updated] In 2024, Simplified Steps for Posting Tweets on Facebook</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tweeting-with-videos-a-quick-tutorial-for-2024/"><u>[Updated] Tweeting with Videos A Quick Tutorial for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/anker-powercoreplus-26800-battery-pack-bundle-review-sleek/"><u>Anker PowerCore+ 26800 Battery Pack Bundle Review: Sleek</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-asus-x441ba-balancing-large-display-with-compromises/"><u>In-Depth Analysis of Asus X441BA: Balancing Large Display with Compromises</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/oculus-top-grossing-virtual-reality-titles-list/"><u>Oculus Top Grossing Virtual Reality Titles List</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-of-the-antolin-antop-at-127-stylish-and-high-performance-antenna-delivers-flawless-tv-signal-without-charge/"><u>Review of the Antolin Antop AT-127: Stylish & High-Performance Antenna Delivers Flawless TV Signal Without Charge</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stream-in-style-comparing-chromecast-and-roku-for-ultimate-entertainment/"><u>Stream in Style: Comparing Chromecast and Roku for Ultimate Entertainment</u></a></li>
-<li><a href="https://program-issues.techidaily.com/the-definitive-2024-cheat-sheet-overcoming-battlenet-startup-errors/"><u>The Definitive 2024 Cheat Sheet: Overcoming Battle.net Startup Errors</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-innovative-lenovo-x1-fold-laptoptablet-hybrid-an-in-depth-review/"><u>The Innovative Lenovo X1 Fold Laptop/Tablet Hybrid - An In-Depth Review</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-your-communication-skills-with-mondlyvr-experience/"><u>Transform Your Communication Skills with MondlyVR Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/transform-your-moments-engage-every-room-the-carver-review/"><u>Transform Your Moments, Engage Every Room - The Carver Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-testing-in-depth-review-of-the-halo-bolt-power-bankjump-start-unit/"><u>Unboxing & Testing: In-Depth Review of The Halo Bolt Power Bank/Jump Start Unit</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unfolding-the-potential-and-pitfalls-of-the-new-lenovo-thinkpad-x1-fold-laptop/"><u>Unfolding the Potential and Pitfalls of the New Lenovo ThinkPad X1 Fold Laptop</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-dominating-the-digital-realm-youtube-marketing-secrets/"><u>[New] 2024 Approved Dominating the Digital Realm YouTube Marketing Secrets</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-instagram-feed-adding-videos/"><u>[New] In 2024, Instagram Feed Adding Videos</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-leveraging-slack-and-filmora-a-path-to-scheduling-excellence-for-2024/"><u>[New] Leveraging Slack and Filmora A Path to Scheduling Excellence for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-unlocking-the-potential-voice-control-with-siri-on-tiktok-for-2024/"><u>[New] Unlocking the Potential Voice Control with Siri on TikTok for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-expert-strategies-obs-streams-to-facebook-success/"><u>[Updated] In 2024, Expert Strategies OBS Streams to Facebook Success</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-minimizing-disorientation-your-vr-wellbe-written-guide/"><u>[Updated] Minimizing Disorientation Your VR Wellbe Written Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nickwatch-launches-in-the-us-a-highlight-of-the-kids-choice-awards-night/"><u>NickWatch Launches in the U.S.: A Highlight of the Kids' Choice Awards Night</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/noble-nineties-for-pocket-pet-vids/"><u>Noble Nineties for Pocket Pet Vids</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/razer-blade-stealth-13-review/"><u>Razer Blade Stealth 13 Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-uncovering-knacks-freshness-in-an-often-recycled-video-game-world/"><u>Review: Uncovering Knack's Freshness in an Often-Recycled Video Game World</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smart-networking-on-a-budget-the-ultimate-tp-link-archer-a6-ac1200-router-review-with-performance-breakdown/"><u>Smart Networking on a Budget: The Ultimate TP-Link Archer A6 AC1200 Router Review with Performance Breakdown</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smartpacking-for-the-modern-wanderer/"><u>Smartpacking for the Modern Wanderer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/step-by-step-installation-tips-boosting-the-performance-of-your-intel-imac/"><u>Step-by-Step Installation Tips: Boosting the Performance of Your Intel iMac</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stream-smart-a-detailed-comparison-of-chromecast-vs-roku/"><u>Stream Smart: A Detailed Comparison of Chromecast Vs. Roku</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/superior-performance-in-a-compact-form-discover-the-ourlink-u631-wi-fi-adapter-usb/"><u>Superior Performance in a Compact Form: Discover the Ourlink U631 Wi-Fi Adapter (USB)</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-latest-on-dall-e-3-now-includes-edit-options-that-need-tweaking/"><u>The Latest on DALL-E 3: Now Includes Edit Options That Need Tweaking</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-nubia-z50s-pro-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Nubia Z50S Pro for Parents | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ultimate-tutorial-how-to-load-media-into-freevideo-converter-factory-software-for-easy-editing/"><u>Ultimate Tutorial: How to Load Media Into FREEVIDEO CONVERTER FACTORY Software for Easy Editing</u></a></li>
 </ul></div>
 

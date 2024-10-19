@@ -1,7 +1,7 @@
 ---
 title: "OnePlus 9 Pro Assessment: A Blend of Fashionable Appearance, Swift Functionality & Impressive Camera Quality"
-date: 2024-10-11T19:34:07.303Z
-updated: 2024-10-12T18:28:03.464Z
+date: 2024-10-18T02:28:28.859Z
+updated: 2024-10-18T17:02:05.645Z
 categories:
   - BestProducts
 description: "This Article Describes OnePlus 9 Pro Assessment: A Blend of Fashionable Appearance, Swift Functionality & Impressive Camera Quality"
@@ -45,13 +45,6 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/0gXsFyigpZzsnNAEj3tIrKImB8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jonno Hill
 
 [View On Amazon $35](https://www.amazon.com/dp/B01HQ4BRIG/?tag=lifewire-onsite-prod-20&ascsubtag=4843098%7Cnd0143d72158b4d609e6ef9a213c7445e18%7CB01HQ4BRIG) [View On Walmart $33](https://www.walmart.com/ip/Antennas-Direct-ECL-Clear-Stream-Eclipse-Sure-Grip-Indoor-HDTV-Antenna/146091443?slfpid=3)
@@ -78,16 +71,10 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Inoffensive but unexceptional**
@@ -103,28 +90,28 @@ Lifewire / Jonno Hill
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Above average**
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Range: Fair to middling**
 
  Antenna’s Direct rates the ClearStream Eclipse Antenna for up to 35 miles of range, although I’ve seen reports of people getting good results from further, or having trouble from much closer. My apartment is well within the supported range, so my sentiments reflect its use in city settings more than suburbs or exurbs.
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
@@ -141,6 +128,19 @@ Lifewire / Jonno Hill
 **The best unpowered indoor antenna.**
 
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
+
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -169,24 +169,15 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-groundbreaking-top-10-photo-grid-software-for-2024/"><u>[New] Groundbreaking Top 10 Photo Grid Software for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-high-definition-excellence-selecting-the-top-youtube-converters/"><u>[New] In 2024, High Definition Excellence Selecting the Top YouTube Converters</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-high-quality-video-transfer-from-fb-to-mp4-no-cost-online-method/"><u>[New] In 2024, High-Quality Video Transfer From FB to MP4 – No Cost Online Method</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-windows-11-gamers-top-5-techniques-for-perfect-snapshots/"><u>[Updated] 2024 Approved Windows 11 Gamers Top 5 Techniques for Perfect Snapshots</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-edition-expert-advice-on-creating-compelling-video-edits/"><u>[Updated] Youtube Edition Expert Advice on Creating Compelling Video Edits</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/can-the-tp-link-archer-ax60-grower-outperform-the-nighthawk-ax12-find-out-in-our-review/"><u>Can the TP-Link Archer AX60 Grower Outperform the Nighthawk AX12? Find Out in Our Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-j5s-prov1-tactical-torch-blending-ruggedness-with-compact-convenience-for-optimal-visibility-after-dark/"><u>Comprehensive Review: J5's ProV1 Tactical Torch - Blending Ruggedness with Compact Convenience for Optimal Visibility After Dark</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/elevate-your-basketball-game-with-the-all-new-and-enhanced-nba-2k19-simulator/"><u>Elevate Your Basketball Game with the All-New and Enhanced NBA 2K19 Simulator</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/elevate-your-internet-game-with-the-netgeer-nighthawk-x10-ad7200-an-in-depth-performance-review/"><u>Elevate Your Internet Game with the Netgeer Nighthawk X10 (AD7200) – An In-Depth Performance Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-jaco-smartpro-compact-digital-tire-inflator-a-dynamic-energy-efficient-solution/"><u>Evaluating The Jaco SmartPro Compact Digital Tire Inflator - A Dynamic, Energy Efficient Solution</u></a></li>
-<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Infinix Hot 30 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/get-pumped-years-best-tunes-for-exercise/"><u>Get Pumped: Year's Best Tunes for Exercise</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-to-set-up-a-personalized-nintendo-online-profile-on-the-3ds/"><u>How To Set Up A Personalized Nintendo Online Profile On The 3DS</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-oppo-find-x7-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Oppo Find X7 FRP In 3 Different Ways</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-samsung-galaxy-s23-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Samsung Galaxy S23 Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/tream-giants-rivalry-facebook-vs-youtube-vs-periscope-for-2024/"><u>Livestream Giants' Rivalry Facebook Vs. YouTube Vs. Periscope for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-early-childhood-education-with-wonder-workshops-dash-a-closer-look-at-its-capabilities-and-features/"><u>Revolutionizing Early Childhood Education with Wonder Workshop's Dash: A Closer Look at Its Capabilities and Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sketch-like-a-pro-on-the-huion-kamvas-gt-191-an-extensive-review-of-this-large-canvas-pen-device/"><u>Sketch Like a Pro on the Huion Kamvas GT-191: An Extensive Review of This Large Canvas Pen Device</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/step-by-step-guide-to-hilarious-memes/"><u>Step-by-Step Guide to Hilarious Memes</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-selecting-the-best-mac-sniping-solutions/"><u>[New] Selecting the Best Mac Sniping Solutions</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-novices-map-to-snapseed-photoshop-wonders/"><u>[New] The Novice's Map to Snapseed Photoshop Wonders</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-the-ultimate-guide-to-reverse-films-on-android/"><u>[Updated] In 2024, The Ultimate Guide to Reverse Films on Android</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-honor-x50-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Honor X50? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/introductory-limolight-agg814-kit-review/"><u>Introductory LimoLight AGG814 Kit Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/join-forces-for-survival-in-the-high-stakes-parkour-world-of-dying-light/"><u>Join Forces for Survival in the High-Stakes, Parkour World of Dying Light.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-gaming-platforms-dominating-202n4-market/"><u>Leading Gaming Platforms Dominating 202N4 Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-portable-battery-chargers-to-extend-your-laptops-life/"><u>Leading Portable Battery Chargers to Extend Your Laptop's Life</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/ultimate-tutorial-discover-4-effective-techniques-to-play-dvd-movies-in-windows-11/"><u>Ultimate Tutorial: Discover 4 Effective Techniques to Play DVD Movies in Windows 11</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Tecno Pop 7 Pro? | Dr.fone</u></a></li>
 </ul></div>
 

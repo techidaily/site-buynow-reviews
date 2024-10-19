@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the Barnes & Noble Nook GlowLight 3 - Your Ideal Device for Reading at Night
-date: 2024-10-07T00:19:21.151Z
-updated: 2024-10-12T21:24:37.889Z
+date: 2024-10-12T21:15:12.202Z
+updated: 2024-10-18T20:38:37.022Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the Barnes & Noble Nook GlowLight 3 - Your Ideal Device for Reading at Night
@@ -44,6 +44,13 @@ thumbnail: https://www.lifewire.com/thmb/m3GxIESHk0YscVU0ewhWpb46sdM=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Netgear Nighthawk X10 AD7200 Router
 
 ![Netgear Nighthawk X10 AD7200](https://www.lifewire.com/thmb/0rm8vUox5EoeaGCQJw0E5XQxwck=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_HeroSquare-885945bb208b49a583aca8da1aa09378.jpg)
@@ -72,13 +79,6 @@ thumbnail: https://www.lifewire.com/thmb/m3GxIESHk0YscVU0ewhWpb46sdM=/400x300/fi
 
  I recently unpacked a Netgear Nighthawk X10 and plugged it into my own wireless network to see how it performs in the real world. Over several hours of intense testing, and a couple of days of more casual use, I tested connection speeds at various distances, ease of setup and use, and more.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Netgear continues to impress with its off-beat designs**
 
  I’ve tested a lot of[Netgear routers](https://www.lifewire.com/best-netgear-routers-4159862) , and this falls somewhere between the stealth bomber angles of the Nighthawk AC series and the slick flying wing designs seen in the Nighthawk RAX routers.
@@ -95,6 +95,13 @@ thumbnail: https://www.lifewire.com/thmb/m3GxIESHk0YscVU0ewhWpb46sdM=/400x300/fi
 
 Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Zero hassle from start to finish**
 
  Setting up the Netgear Nighthawk X10 AD7200 was easy, from unboxing to plugging it into my network. Unlike most routers, the Nighthawk X10 comes completely assembled. Each antenna comes sheathed in a bit of protective plastic, but even that slips right off. The router is basically ready to go right out of the box, which is a big time saver.
@@ -104,13 +111,6 @@ Lifewire / Jeremy Laukkonen
  The Nighthawk X10 did require a firmware update as soon as I got it set up, but that only took a couple of minutes. You’ll also have to budget some extra time if you want to dig into additional features, like the built-in Plex Media Server, but the basic setup process is over really fast.
 
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/RfTANl22rAcY7Xy986eYa_62r44=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_02-1721b933d315435f98631847bf3ebb0b.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -128,6 +128,13 @@ Lifewire / Jeremy Laukkonen
 
  For physical connectivity, the Nighthawk X10 features six Ethernet ports, two of which can be used together to create a single 2Gbps connection. You also get two USB 3.0 ports for connecting USB drives and a single 10Gbps SFP+ LAN port. This final port is potentially the most interesting, and also most niche since it allows you to connect a high-speed NAS server, a secondary switch for more Ethernet ports, or other devices that require a bunch of high-speed bandwidth.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Network Performance: Fantastic 5GHz performance, WiGig leaves a bit to be desired**
 
  Since this is an 802.11ad router, and the 60GHz WiGig network is the key feature here, that’s where I’m going to start. All of my tests are performed using a 1Gbps Mediacom cable internet connection, so any testing done on an 802.11ad router like this involves data transfer speeds within my network, not the internet connection. For testing purposes, I have a[laptop](https://www.lifewire.com/best-laptops-to-buy-4043650) that I retrofitted with a network interface card featuring the QCA9005 chipset.
@@ -140,13 +147,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/Jwl6BD38cWznmN0op6bpzAmBs_U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_03-4cfe683a7cf94e94b14c0ec2be12da50.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
  To the Nighthawk X10’s credit, the 5GHz network performance exceeded my wildest expectations. Using my 1Gbps Mediacom cable internet connection, I measured a relatively mediocre 373Mbps down and 73.6Mbps up. At the same time, using a wired connection to the same router, I measured 536.8Mbps down.
@@ -158,19 +158,6 @@ Lifewire / Jeremy Laukkonen
  The Nighthawk X10 held strong though, dropping the download speed to 38.8Mbps and the upload speed to 13.1Mbps, but without touching the ping, barely increasing jitter, and introducing just 1.2 percent packet loss. Strangely enough, this 802.11ad router’s strongest selling point might be the impressively robust nature of its 5GHz network.
 
  Strangely enough, this 802.11ad router’s strongest selling point might be the impressively robust nature of its 5 GHz network.
-
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Netgear’s web interface and web app, plus Plex and more**
 
@@ -186,6 +173,13 @@ Lifewire / Jeremy Laukkonen
 
  I plugged in one of my media-filled SSD USB drives and had no trouble streaming to any of the Plex clients I have on my network.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Not bad if you really need 802.11ad**
 
  With an MSRP of $500, and a street price closer to $250, the Nighthawk X10 AD7200 is a tough sell to most consumers. It features a wireless technology that hasn’t really caught on, and which most consumers just won’t be able to take advantage of. For the money you’d spend on this router, you could get a high-end 802.11ax router.
@@ -195,10 +189,10 @@ Lifewire / Jeremy Laukkonen
  By way of comparison, the Nighthawk Pro Gaming XR700 has similar specifications, swaps out Plex Media Server for some gaming-centric quality of life (QoL) features, and has a street price that’s close to $400.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Netgear Nighthawk X10 AD7200 vs. Netgear Nighthawk RAX80**
@@ -251,17 +245,20 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-deep-dive-into-du-recorders-design-and-functionality/"><u>[New] 2024 Approved Deep Dive Into Du Recorder's Design and Functionality</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-ultimate-guide-to-best-liked-ae-templates/"><u>[New] In 2024, The Ultimate Guide to Best-Liked AE Templates</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-boost-viewership-mastering-vimeo-distribution/"><u>[Updated] In 2024, Boost Viewership Mastering Vimeo Distribution</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-video-repair-tool-to-fix-and-repair-corrupted-video-files-of-huawei-mate-60-pro-by-stellar-video-repair-mobile-video-repair/"><u>Best Video Repair tool to Fix and Repair Corrupted video files of Huawei Mate 60 Pro</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-ring-battery-doorbell-plus-evaluation/"><u>Comprehensive Ring Battery Doorbell Plus Evaluation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-value-of-chatgpt-plus-essential-reasons-for-joining-now/"><u>Discover the Value of ChatGPT Plus – Essential Reasons for Joining Now!</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-11-best-location-changers-for-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Vivo V27 | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-frugal-cloud-loft-economical-space-for-huge-file-stashes/"><u>In 2024, Frugal Cloud Loft Economical Space for Huge File Stashes</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-samsung-galaxy-z-fold-5-easily-by-drfone-android/"><u>In 2024, How To Unlock a Samsung Galaxy Z Fold 5 Easily?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/outstanding-motorola-one-hyper-the-standout-mid-range-smartphone/"><u>Outstanding Motorola One Hyper - The Standout Mid-Range Smartphone!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stay-connected-on-the-go-the-definitive-list-of-elite-wi-fi-travel-routers/"><u>Stay Connected on the Go: The Definitive List of Elite Wi-Fi Travel Routers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-excellence-of-the-google-pixel-3-true-essence-of-android-mastery/"><u>Unveiling the Excellence of the Google Pixel 3: True Essence of Android Mastery</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/urn-your-videos-into-a-revenue-stream-with-these-tips-for-2024/"><u>[New] Turn Your Videos Into a Revenue Stream with These Tips for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-budget-friendly-recording-software-for-windows-users/"><u>[Updated] 2024 Approved Budget-Friendly Recording Software for Windows Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/acer-xfa240-the-perfect-blend-of-design-and-function-for-enhanced-user-experience/"><u>Acer XFA240 - The Perfect Blend of Design and Function for Enhanced User Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/an-ipv6-address-consists-of-128-bits-typically-represented-as-eight-groups-of-four-hexadecimal-digits/"><u>An IPv6 Address Consists of 128 Bits, Typically Represented as Eight Groups of Four Hexadecimal Digits.</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/capture-movies-with-ease-cross-platform-techniques-and-tips/"><u>Capture Movies with Ease Cross-Platform Techniques & Tips</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/craft-perfect-openings-anywhere-and-anytime-for-2024/"><u>Craft Perfect Openings, Anywhere and Anytime for 2024</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/criar-uma-copia-com-aomei-backupper-um-guia-completo/"><u>Criar Uma Cópia Com AOMEI Backupper: Um Guia Completo</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubes-flawless-beauty-masterclass-skincare-hairdos-and-cosmetics/"><u>In 2024, YouTube's Flawless Beauty Masterclass Skincare, Hairdos & Cosmetics</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/saving-a-look-at-your-window-for-2024/"><u>Saving a Look at Your Window for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/secure-sound-blaster-z-driver-installation-on-windows-10-easy-and-reliable-methods/"><u>Secure Sound Blaster Z Driver Installation on Windows 10 - Easy and Reliable Methods</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-potential-with-ankers-superspeed-usb-hub-in-depth-analysis-and-review/"><u>Unlocking Potential with Anker's SuperSpeed USB Hub - In-Depth Analysis & Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-microsoft-surface-ergonomic-keyboard-a-detailed-assessment-of-its-superior-design/"><u>Unveiling the Microsoft Surface Ergonomic Keyboard – A Detailed Assessment of Its Superior Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-pinnacle-a-comprehensive-review-of-alienware-aurora-r11-for-avid-gamers/"><u>Unveiling the Pinnacle: A Comprehensive Review of Alienware Aurora R11 for Avid Gamers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-connectivity-in-depth-review-of-mobvoi-ticwatch-pro-4g-smartwatch/"><u>Unveiling the Power of Connectivity: In-Depth Review of Mobvoi Ticwatch Pro 4G Smartwatch</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-honor-70-lite-5g-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Honor 70 Lite 5G Offline? Troubleshooting Guide | Dr.fone</u></a></li>
 </ul></div>
 

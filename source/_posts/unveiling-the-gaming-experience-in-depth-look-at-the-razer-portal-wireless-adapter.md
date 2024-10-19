@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Gaming Experience: In-Depth Look at the Razer Portal Wireless Adapter"
-date: 2024-10-09T23:20:01.621Z
-updated: 2024-10-13T00:24:25.027Z
+date: 2024-10-11T16:57:17.440Z
+updated: 2024-10-19T02:52:08.182Z
 categories:
   - BestProducts
 description: "This Article Describes Unveiling the Gaming Experience: In-Depth Look at the Razer Portal Wireless Adapter"
@@ -46,6 +46,13 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/ltgwwtDrSkLcZMSVU6VX1rKcbaA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_HP-OMEN-Obelisk-Gaming-Desktop-Computer-1-56ba747009334162a328f46d8b4743af.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jonno Hill
 
 [View On Amazon $950](https://www.amazon.com/dp/B07SW895CZ?tag=lifewire-onsite-prod-20&ascsubtag=5072832%7Cnbfa2130ffdd54ba8b950c4ad0f0be8b007%7CB07SW895CZ) [View On Microsoft](https://www.microsoft.com/en-us/p/hp-omen-obelisk-gaming-desktop/8rqn7sf9phfz?activetab=pivot%3aoverviewtab)
@@ -75,6 +82,19 @@ Lifewire / Jonno Hill
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/OXMiCXvzh8P7esVvbjPoSorzoxM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-2-7b14850c2ca84af39d5fd116ab483d5d.jpg)
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design** : **Nice looks and small footprint, with many reservations**
 
@@ -108,13 +128,6 @@ Lifewire / Jonno Hill
 
  The Omen comes equipped with a 1TB[NVMe SSD](https://www.lifewire.com/what-is-m2-833453) and 32GB of DDR4 2666 memory. This is definitely more RAM than games alone will call for, but it’s merely an adequate amount of RAM for some creative professionals working with more demanding software like Adobe After Effects. Keep in mind though, even those that don’t normally need a lot of RAM can still benefit from having more. Among other things, it gives you the luxury of keeping all of your browser tabs and background applications running without having to start juggling applications on and off, which can be helpful from a productivity standpoint.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Gaming** :**Great for the most demanding titles**
 
  Gaming performance is great on the HP OMEN Obelisk thanks to the Nvidia GTX GeForce 2080 Super and Intel i9-9900K combo. I tested a number of games on my 3440x1440 monitor to get a sense of performance. To put this in perspective, this resolution is roughly 60 percent of the pixels of a 4K monitor.
@@ -130,16 +143,10 @@ Lifewire / Jonno Hill
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
@@ -161,10 +168,10 @@ Lifewire / Jonno Hill
  The option to overclock your system has you first run a nondescript benchmark, which produces a score with no reference point (to establish a baseline). While it’s nice to have the option, this really,_sincerely_ isn’t a system you want to be overclocking. The i9-9900K CPU already runs alarmingly hot, even with its pre-installed water cooling solution. There also isn’t enough room for anything beyond a 120mm AIO watercooler, and not nearly enough clearance for a popular air heatsink like the Noctua NH-D15.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Highly competitive**
@@ -174,13 +181,6 @@ Lifewire / Jonno Hill
  As far as I’m concerned, $200 is a perfectly reasonable premium to pay for a system that is already assembled and shipped to your door.
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/J3cZUfrEy-ALtFpRbDRhw7FZI8M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-4-f78d504d7bd348eca19b7e65b4d10289.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
@@ -197,10 +197,10 @@ Lifewire / Jonno Hill
  The HP OMEN Obelisk delivers fantastic value for gamers shopping for a high-performance, pre-built PC. HP has come a long way, and now offers a much more compelling solution that will appeal to a much broader set of buyers. That said, there is work to be done still, as the case suffers from poor airflow, poor thermals, and not a lot of meaningful ways to improve them.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -237,15 +237,20 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-3-easy-ways-to-record-overwatch-gameplay/"><u>[New] 3 Easy Ways to Record Overwatch Gameplay</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-the-best-mobile-editors-for-professional-gopro-videos/"><u>[Updated] In 2024, The Best Mobile Editors for Professional GoPro Videos</u></a></li>
-<li><a href="https://win-guides.techidaily.com/can-you-add-a-custom-logo-atop-your-websites-homepage-using-flipbuilder/"><u>Can You Add a Custom Logo Atop Your Website's Homepage Using FlipBuilder?</u></a></li>
-<li><a href="https://driver-error.techidaily.com/how-to-get-your-qualcomm-atheros-bluetooth-driver-up-and-running-on-windows-10/"><u>How to Get Your Qualcomm Atheros Bluetooth Driver Up and Running on Windows 10</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-a-comparative-analysis-androids-finest-video-downloaders/"><u>In 2024, A Comparative Analysis Android's Finest Video Downloaders</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-thermopro-tp-67-a-great-deal-or-an-unreliable-gadget/"><u>Is ThermoPro TP 67 a Great Deal or an Unreliable Gadget?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tech-face-off-finding-the-right-choice-between-alexa-and-google-assistant-for-your-needs/"><u>Tech Face-Off: Finding the Right Choice Between Alexa & Google Assistant for Your Needs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-truth-about-tp-link-av1300-range-extender-a-review-with-limited-effectiveness/"><u>The Truth About TP-Link AV1300 Range Extender: A Review with Limited Effectiveness</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-2024-list-top-cops-scanners/"><u>Ultimate 2024 List: Top Cops' Scanners</u></a></li>
-<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Oppo A2? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ffortlessly-replay-videos-on-iphone/"><u>[New] Effortlessly Replay Videos on iPhone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-game-capture-made-easy-with-5-methods-on-windows-11/"><u>[New] Game Capture Made Easy with 5 Methods on Windows 11</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-jumpstart-your-virtual-engagement-with-these-tips-for-livestreams/"><u>[New] Jumpstart Your Virtual Engagement with These Tips for Livestreams</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-request-info-on-obtaining-full-shared-content-on-messengers-for-2024/"><u>[New] Request Info on Obtaining Full Shared Content on Messengers for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-zombification-extravaganza-8-epic-titles-ranked/"><u>[New] Zombification Extravaganza - 8 Epic Titles Ranked</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-direct-youtube-share-on-snapchat-tips/"><u>[Updated] Direct YouTube, Share on Snapchat Tips</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/illustration-giggles-memecrafterz-for-2024/"><u>Illustration Giggles MemeCrafterz for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovo-ideapad-130s-evaluation-constrained-performance-yet-exceptional-user-experience/"><u>Lenovo IdeaPad 130S Evaluation: Constrained Performance, Yet Exceptional User Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lightning-fast-lg-gram-17-an-ultraportable-powerhouse-with-stellar-performance/"><u>Lightning-Fast LG Gram 17: An Ultraportable Powerhouse with Stellar Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-printer-settings-a-comprehensive-guide-using-adobe-photoshop/"><u>Mastering Printer Settings: A Comprehensive Guide Using Adobe Photoshop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-your-online-entertainment-with-lenovos-affordable-tab-m10-hd-2020-thorough-review-inside/"><u>Maximize Your Online Entertainment with Lenovo's Affordable Tab M10 HD (2020): Thorough Review Inside</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-home-weather-solutions-expert-picks-for-the-best-in-24/"><u>Navigating Home Weather Solutions: Expert Picks for The Best in '24</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-maze-key-points-in-selecting-an-elite-gaming-pc/"><u>Navigating the Maze: Key Points in Selecting an Elite Gaming PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-unparalleled-clarity-with-the-sony-xbr49x900f-smart-led-tv-review/"><u>Navigating Unparalleled Clarity with the Sony XBR49X900F Smart LED TV Review</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/resolving-realtek-alc887-sound-card-problems-on-your-windows-pc/"><u>Resolving Realtek ALC887 Sound Card Problems on Your Windows PC</u></a></li>
 </ul></div>
 

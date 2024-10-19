@@ -1,7 +1,7 @@
 ---
 title: In-Depth Look at the Huawei MediaPad M5's Impressive Display & Sound Quality
-date: 2024-10-06T01:52:48.591Z
-updated: 2024-10-12T19:59:00.351Z
+date: 2024-10-11T23:48:34.137Z
+updated: 2024-10-18T22:40:38.132Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Look at the Huawei MediaPad M5's Impressive Display & Sound Quality
@@ -80,13 +80,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -103,18 +96,24 @@ Lifewire / Andy Zahn
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
 
@@ -124,6 +123,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Autofocus: Blazing fast**
 
  We were shocked by how fast and consistent the autofocus is in the SX70 HS, even in low-light situations. It rarely fails to lock on to your intended subject, and focus tracking works flawlessly.
@@ -131,6 +137,13 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -162,13 +175,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Video Quality: A mixed bag**
 
  The SX70 HS fumbles a bit when it comes to video. It’s no slouch by any means, but the footage is nothing to brag about. You can record up to 4K resolution, but unfortunately, the camera has to crop in to record at this resolution. Also, we found that footage is never especially sharp compared to other cameras.
@@ -183,13 +189,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -200,18 +199,18 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
 
@@ -228,6 +227,13 @@ Lifewire / Andy Zahn
  **A tremendously fun camera that is exceedingly well-rounded if a bit pricey.**
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -269,21 +275,17 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-from-boredom-to-virality-tiktok-videos-shaped-by-mac-edits-for-2024/"><u>[New] From Boredom to Virality TikTok Videos Shaped by Mac Edits for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-your-simple-route-to-youtubes-srt-extraction/"><u>[New] In 2024, Your Simple Route to YouTube's SRT Extraction</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-decoding-instagram-selfies-the-validation-handbook-for-2024/"><u>[Updated] Decoding Instagram Selfies The Validation Handbook for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-mastering-the-art-of-silent-videography-for-2024/"><u>[Updated] Mastering the Art of Silent Videography for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/battle-of-the-ps5-titans-exploring-differences-between-ps5-slim-and-standard-model/"><u>Battle of the PS5 Titans: Exploring Differences Between PS5 Slim and Standard Model</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comparing-iphones-which-one-tops-in-gaming-performance/"><u>Comparing iPhones: Which One Tops in Gaming Performance?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/eight-crucial-aspects-to-assess-prior-to-investing-in-a-new-tablet-device/"><u>Eight Crucial Aspects to Assess Prior to Investing in a New Tablet Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-zmi-powerpack-20000-your-go-to-compact-energy-solution/"><u>Expert Insights on ZMI PowerPack 20000: Your Go-To Compact Energy Solution</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/from-ordinary-to-extraordinary-your-pathway-with-tiktok-templates/"><u>From Ordinary to Extraordinary Your Pathway with TikTok Templates</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/oneplus-cu8t-review-the-lightning-fast-device-with-a-glaring-flaw-in-its-camera-setup/"><u>OnePlus Cu8t Review: The Lightning-Fast Device with a Glaring Flaw in Its Camera Setup</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/photoshop-for-beginners-essential-snapseed-techniques/"><u>Photoshop for Beginners Essential Snapseed Techniques</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-samsung-galaxy-z-flip-5-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Samsung Galaxy Z Flip 5? 7 Ways to Resolve | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/side-by-nside-analysis-of-the-ipad-and-ipad-air-for-tech-enthusiasts/"><u>Side-by-nSide Analysis of the iPad and iPad Air for Tech Enthusiasts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-economic-speedlite-revolution-introducing-the-yn560iv/"><u>The Economic Speedlite Revolution: Introducing the YN560IV</u></a></li>
-<li><a href="https://techidaily.com/this-is-how-you-can-recover-deleted-pictures-from-samsung-galaxy-a25-5g-by-fonelab-android-recover-pictures/"><u>This is how you can recover deleted pictures from Samsung Galaxy A25 5G.</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/unpacking-boses-latest-noise-cancelling-marvel-qc30/"><u>Unpacking Bose's Latest Noise Cancelling Marvel: QC30</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mastering-real-time-broadcasting-step-by-step-guide/"><u>[New] Mastering Real-Time Broadcasting Step by Step Guide</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-understanding-asmrs-health-perks/"><u>[New] Understanding ASMR's Health Perks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-spoofing-success-the-path-to-parody-proficiency/"><u>[Updated] 2024 Approved Spoofing Success The Path to Parody Proficiency</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-ergohead-mats-for-steady-standing-desks-a-users-perspective/"><u>Expert Analysis of ErgoHead Mats for Steady Standing Desks – A User’s Perspective</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-ipad-side-by-side-comparison-for-informed-decision-making/"><u>Expert iPad Side-by-Side Comparison for Informed Decision Making</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-opinion-on-user-experience-with-the-apple-books-platform/"><u>Expert Opinion on User Experience with the Apple Books Platform</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-best-audio-sanctuary-gear-2024/"><u>Exploring the Best Audio Sanctuary Gear 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-versatile-samsung-gear-s3-frontier-your-complete-guide-to-its-extensive-functions/"><u>Exploring the Versatile Samsung Gear S3 Frontier - Your Complete Guide to Its Extensive Functions</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-restore-sound-on-a-malfunctioning-corsair-hs60-microphone/"><u>How to Restore Sound on a Malfunctioning Corsair HS60 Microphone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-frame-rate-selection-made-simple-pros-and-cons-of-30fps-and-60hz/"><u>In 2024, Frame Rate Selection Made Simple Pros and Cons of 30Fps and 60Hz</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-to-realme-c33-2023-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Realme C33 2023 Pattern Lock Screen Everything You Need to Know</u></a></li>
 </ul></div>
 

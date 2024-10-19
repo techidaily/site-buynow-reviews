@@ -1,7 +1,7 @@
 ---
 title: Hands-On With the Arlo Home Security System
-date: 2024-10-08T00:47:20.763Z
-updated: 2024-10-12T23:45:48.464Z
+date: 2024-10-15T23:25:46.649Z
+updated: 2024-10-18T18:31:17.569Z
 categories:
   - BestProducts
 description: This Article Describes Hands-On With the Arlo Home Security System
@@ -77,6 +77,13 @@ Lifewire / Emily Isaacs
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/WPjeQmKmzof_KVFE5_fIwN92cXc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_05-24f7f07146ae45cd86d2c5bdd4791ee5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  Unfortunately, some larger keyboards can trade wrist injuries for shoulder injuries as their users overreach for mice, which brings a whole new set of problems to the table. While it may be a bit of a space hog, and not a terribly sleek or attractive one at that, the Fellowes Microban Split Wired Keyboard has solved both of these issues. What’s more, its ergonomic split design is easy to use and surprisingly comfortable.
@@ -88,10 +95,10 @@ Lifewire / Emily Isaacs
  Unlike competitor models which often use a mix of fabric, plastics, and in some instances, metals, the entirety of this keyboard is plastic—even down to the[wrist pad](https://www.lifewire.com/best-keyboard-wrist-rests-4172684) . While we did wish that the wrist pad was made of a more comfortable material, it wasn’t uncomfortable during use. Plus, a different material would likely impact the keyboard’s longevity, since the Microban antimicrobial coating needs to be put on an acrylic, non-porous surface in order to protect against common bacteria, yeasts, molds, and fungi.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Plug and play**
@@ -100,13 +107,6 @@ Lifewire / Emily Isaacs
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/NycF2nKeSim8iDJ0Yp1gejyIigI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_03-49fdaa8e182941e184cadafc14281a1e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
 ## **Features: Multimedia hotkeys for ease of use**
@@ -114,10 +114,10 @@ Lifewire / Emily Isaacs
  The Fellowes features seven hotkeys for multimedia playback. These keys are located along the top of the keyboard and offer such functionality as mute, volume up, volume down, sleep, email, search, and one-touch internet access. We were disappointed that it didn’t include hotkeys for pausing, skipping forward, or skipping backward in multimedia.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: A wired connection for reliability**
@@ -138,13 +138,6 @@ Lifewire / Emily Isaacs
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/9Ei30bgFst4sw8SynCxgEI_b-9I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_04-eff22d3b32274568890dd291e56daab5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  The Sculpt is also a wireless keyboard. It uses Bluetooth technology to pair to the keyboard to your PC. One drawback to this design, however, is that the dongle used to pair the keyboard to the PC is linked with the keyboard at the time of build. If it’s lost or damaged, there’s simply no replacing it. It also lacks the pronounced divot in the keys that the Fellowes possesses, and the Sculpt doesn’t include Microban technology to prolong the keyboard’s lifespan.
@@ -160,6 +153,13 @@ Lifewire / Emily Isaacs
  **A great keyboard with microbial protection for office workers.**
 
  The Fellowes Microban Split Design Wired Keyboard is a good, albeit bulky, ergonomic keyboard designed to last. Its antimicrobial protection not only keeps germs, fungi, and bacteria at bay, but ensures the keyboard won’t deteriorate over time. While it may not be our first pick for home use, it’s a great choice if you’re on a budget or are an office working facing down cold and flu season.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -188,22 +188,17 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-2023-top-10-trending-videos-on-twitter/"><u>[New] 2024 Approved 2023 | Top 10 Trending Videos on Twitter</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-step-by-step-guide-for-pcmac-movie-recording/"><u>[New] In 2024, Step-by-Step Guide for PC/Mac Movie Recording</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-the-best-budget-camera-stabilizers-for-youtube-stars/"><u>[Updated] 2024 Approved The Best Budget Camera Stabilizers for YouTube Stars</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/affordable-overseas-vr-headsets-china-for-2024/"><u>Affordable Overseas VR Headsets (China) for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/battle-of-the-beams-google-nest-audio-versus-apple-homepod-reviewed/"><u>Battle of the Beams: Google Nest Audio Versus Apple HomePod Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/choosing-superiority-without-compromises-why-the-ipad-air-4-and-galaxy-tab-s7plus-lead-the-pack/"><u>Choosing Superiority Without Compromises – Why the iPad Air 4 and Galaxy Tab S7+ Lead the Pack</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-assessment-of-the-google-pixel-4a-the-ideal-compact-device-for-everyday-use/"><u>Comprehensive Assessment of the Google Pixel 4A: The Ideal Compact Device for Everyday Use</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-oneplus-9-when-calculations-dont-add-up/"><u>Evaluating OnePlus 9: When Calculations Don't Add Up</u></a></li>
-<li><a href="https://win-able.techidaily.com/expert-advice-on-addressing-and-preventing-sea-of-thieves-software-bugs/"><u>Expert Advice on Addressing and Preventing Sea of Thieves Software Bugs</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-your-apple-iphone-xr-passcode-4-easy-methods-with-or-without-itunes-by-drfone-ios/"><u>In 2024, How to Unlock Your Apple iPhone XR Passcode 4 Easy Methods (With or Without iTunes)</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Honor Magic 5? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-netgear-routers-to-look-out-for/"><u>Leading Netgear Routers to Look Out For</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-the-small-marvel-the-3rd-gen-echo-dot-and-its-complete-range-of-alexa-functions-reviewed/"><u>Mastering the Small Marvel: The 3Rd Gen Echo Dot and Its Complete Range of Alexa Functions - Reviewed</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/reactivating-a-dormant-snapchat-profile-a-step-by-step-guide/"><u>Reactivating a Dormant Snapchat Profile: A Step-by-Step Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-of-apc-back-ups-be6-00m1-high-performance-power-continuity-and-usb-charging-capabilities-included/"><u>Review of APC Back-UPS BE6 00M1: High-Performance Power Continuity and USB Charging Capabilities Included</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-breakdown-of-apples-latest-innovation-series-9-smartwatch-review/"><u>The Ultimate Breakdown of Apple's Latest Innovation: Series 9 Smartwatch Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-raspberry-pi-groovy-400-your-portable-desktop-experience-on-a-keyboard/"><u>Unveiling the Raspberry Pi Groovy 400 - Your Portable Desktop Experience on a Keyboard</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-figure-skating-highlights-2022-winter-olympics/"><u>2024 Approved Figure Skating Highlights 2022 Winter Olympics</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-step-by-step-including-in-apples-premium-catalog/"><u>2024 Approved Step-by-Step Including in Apple's Premium Catalog</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-vivo-v27-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Vivo V27? | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-and-remote-opportunities-6-innovative-applications/"><u>ChatGPT & Remote Opportunities: 6 Innovative Applications</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/enhancing-iattained-dll-function-calls-with-custom-actions/"><u>Enhancing IATTAINED DLL Function Calls with Custom Actions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-culinary-combat-of-overcooked-2-reviewed-a-flavorful-adventure/"><u>The Culinary Combat of Overcooked! 2 Reviewed: A Flavorful Adventure</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-picks-for-the-best-and-most-affordable-fossil-sport-watches-on-the-market/"><u>Top Picks for the Best and Most Affordable Fossil Sport Watches on The Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranking-home-theater-systems-in-2and30222024/"><u>Top-Ranking Home Theater Systems in 2^&3022;2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-comfortable-keyboards-the-ultimate-list/"><u>Top-Rated Comfortable Keyboards : The Ultimate List</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-potential-with-windows-11-installation-guide/"><u>Unlock Potential with Windows 11 Installation Guide</u></a></li>
+<li><a href="https://win-answers.techidaily.com/unveiling-the-truth-how-season-8-changes-impact-fortnites-frame-rate-performance/"><u>Unveiling the Truth: How Season 8 Changes Impact Fortnite's Frame Rate Performance</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-add-magic-to-your-phone-videos-best-animated-text-apps/"><u>Updated Add Magic to Your Phone Videos Best Animated Text Apps</u></a></li>
 </ul></div>
 

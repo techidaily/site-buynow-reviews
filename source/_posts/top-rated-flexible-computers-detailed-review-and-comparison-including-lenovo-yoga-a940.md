@@ -1,7 +1,7 @@
 ---
 title: "Top-Rated Flexible Computers: Detailed Review and Comparison Including Lenovo Yoga A940"
-date: 2024-09-14T05:57:17.924Z
-updated: 2024-09-15T11:37:08.297Z
+date: 2024-10-17T16:01:54.168Z
+updated: 2024-10-18T21:02:22.373Z
 categories:
   - BestProducts
 description: "This Article Describes Top-Rated Flexible Computers: Detailed Review and Comparison Including Lenovo Yoga A940"
@@ -40,6 +40,13 @@ Lifewire / Jeremy Laukkonen
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Omni 20+ Wireless Power Bank
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/_EV0MTLRfFPHdqFJ2gKyMJff5YY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-HERO-SQ-e459d44e1a2c432f80fec058b858ccfe.jpg)
@@ -73,6 +80,13 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Slick all-black appearance that’s dulled a bit by soft-touch rubber**
 
  The Omni 20+ is a great looking device, with an all-black case and gem-cut edges that fit in nicely when used alongside my[HP Spectre x360](https://www.lifewire.com/hp-spectre-x360-15t-touch-laptop-review-4773540) . The top and bottom are completely bereft of any markings, hiding the presence of a Qi wireless charger hidden in the top, and the labels that it does have for inputs and outputs are understated.
@@ -101,13 +115,20 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/QOfV3Sc5THi3Z0gKZq0e-ciPUEE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-5-000854ae3c4347b7adc13130dcb9d1b9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Display: Crisp and easy to read, but confusing**
@@ -115,13 +136,6 @@ Lifewire / Jeremy Laukkonen
  The display is small, but it’s quite bright and easy to read. The only issue is that it isn’t particularly easy to figure out what the individual icons mean, or how to use the display to change input and output settings, without referring to an instruction manual that isn’t included in the box.
 
  I’ve already covered the issue with the manual in the previous section, so suffice it to say I recommend avoiding frustration and just downloading the manual from the Omnicharge website rather than trying to figure out the display and controls on your own.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Sockets and Ports: Excellent array, including wireless**
 
@@ -154,10 +168,10 @@ Lifewire / Jeremy Laukkonen
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/aZDfINCcUg9uIHRuhVr2k3wmX94=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-1-815fe3c777eb4f46a77cb00127bd88c2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
@@ -175,19 +189,6 @@ Lifewire / Jeremy Laukkonen
  By plugging the Omni 20+ into power when available, I found it to be a fantastic replacement for an otherwise bulky assortment of power adapters for my laptop, phone, and other devices.
 
  The built-in Qi charger is capable of putting out 10 watts, and I found it to work just as well as other 10 watt Qi chargers I’ve used. It is a bit touchy in terms of positioning, but I was able to get the hang of it pretty fast.
-
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: High end**
 
@@ -233,5 +234,26 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-enhancing-watchability-adding-time-stamps-to-youtube-videos/"><u>[New] In 2024, Enhancing Watchability Adding Time Stamps to YouTube Videos</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-ultimate-tutorial-customizing-the-final-frame-of-a-vimeo-video/"><u>[Updated] In 2024, Ultimate Tutorial Customizing the Final Frame of a Vimeo Video</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-simplified-guide-to-structuring-ad-copy-on-social-media/"><u>[Updated] Simplified Guide to Structuring Ad Copy on Social Media</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-golden-threshold-of-youtubes-monetization-for-2024/"><u>[Updated] The Golden Threshold of YouTube's Monetization for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/analyzing-the-samsung-cf591-a-potent-choice-for-gamers-today/"><u>Analyzing the Samsung CF591: A Potent Choice for Gamers Today</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-vivo-v27-pro-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Vivo V27 Pro?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/connecting-airpods-to-macbook-air-a-detailed-walkthrough/"><u>Connecting AirPods to MacBook Air - A Detailed Walkthrough</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/decoding-the-cost-benefit-ratio-on-linkedin-premium-plan/"><u>Decoding the Cost-Benefit Ratio on LinkedIn Premium Plan</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-capabilities-of-dreame-bot-l1-0-pro-the-ultimate-mopping-and-vacuuming-automaton-with-precision-lidar-guidance/"><u>Discover the Capabilities of Dreame Bot L1 0 Pro - The Ultimate Mopping & Vacuuming Automaton with Precision LiDAR Guidance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-most-advanced-smartwatches-on-the-market-this-year/"><u>Discover the Most Advanced Smartwatches on the Market This Year</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/economical-pet-gazing-gadgets-breakdown/"><u>Economical Pet Gazing Gadgets Breakdown</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/enhancing-photos-with-picarts-background-elimination/"><u>Enhancing Photos with PicArt's Background Elimination</u></a></li>
+<li><a href="https://games-able.techidaily.com/expanding-horizons-different-switch-regions/"><u>Expanding Horizons: Different Switch Regions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/future-forward-designs-exploring-leading-vertical-mouse-innovations-for-2er-2024/"><u>Future-Forward Designs: Exploring Leading Vertical Mouse Innovations for 2Er 2024</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/hide-location-on-apple-iphone-se-and-android-without-others-knowing-drfone-by-drfone-virtual-ios/"><u>Hide location on Apple iPhone SE and Android without others knowing | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/master-the-art-of-livestreaming-three-key-approaches-subscriber-less-style-for-2024/"><u>Master the Art of Livestreaming Three Key Approaches, Subscriber-Less Style for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-fitness-with-garmin-venu-a-detailed-review-of-the-247-personal-health-guardian/"><u>Mastering Fitness with Garmin Venu: A Detailed Review of the 24/7 Personal Health Guardian</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/simplify-your-network-with-google-wifi-a-user-friendly-review-on-wireless-mesh-technology/"><u>Simplify Your Network with Google WiFi: A User-Friendly Review on Wireless Mesh Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-evolution-of-watch-dogs-series-a-comprehensive-review-of-legion/"><u>The Evolution of Watch Dogs Series: A Comprehensive Review of 'Legion'</u></a></li>
+</ul></div>
 

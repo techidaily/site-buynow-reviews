@@ -1,7 +1,7 @@
 ---
 title: Fellowes Microban Wired Keyboard Unveiled - Top Value Pick for Budget Buyers!
-date: 2024-10-05T19:47:42.110Z
-updated: 2024-10-13T00:54:45.660Z
+date: 2024-10-16T23:54:34.060Z
+updated: 2024-10-18T22:39:02.332Z
 categories:
   - BestProducts
 description: This Article Describes Fellowes Microban Wired Keyboard Unveiled - Top Value Pick for Budget Buyers!
@@ -46,6 +46,13 @@ Lifewire / Todd Braylor
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Todd Braylor
 
 [View On Amazon $280](https://www.amazon.com/dp/B019HF60EI/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7CB019HF60EI) [View On Walmart $140](https://www.walmart.com/ip/Escort-Passport-S55-High-Performance-Pro-Radar-and-Laser-Detector-w-DSP/49140972)
@@ -67,13 +74,6 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -83,13 +83,6 @@ Lifewire / Todd Braylor
  The speaker on this radar detector is very small, about a quarter-inch square, but the audio alerts are high volume. You can select between standard and loud tones. The SmartCord power cable for the S55 has a handy mute button on it so you don't have to reach over the dash.
 
  Lifewire / Todd Braylor
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Easy installation**
 
@@ -104,16 +97,10 @@ Lifewire / Todd Braylor
  It reliably delivers on its promise of long-distance sensitivity.
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
@@ -125,10 +112,10 @@ Lifewire / Todd Braylor
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: You get what you pay for**
@@ -148,6 +135,13 @@ Lifewire / Todd Braylor
  **A basic radar detector that's ideal for beginners or anyone on a budget.**
 
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -178,14 +172,22 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-art-of-thumbnail-and-banner-design-for-videos/"><u>[New] In 2024, The Art of Thumbnail and Banner Design for Videos</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-tech-insight-saving-meetings-on-devices-for-2024/"><u>[Updated] Tech Insight Saving Meetings on Devices for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-the-journey-of-personalized-instagram-notification-creation-for-2024/"><u>[Updated] The Journey of Personalized Instagram Notification Creation for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-acer-chromebook-15-impressive-features-for-a-spacious-screen/"><u>Evaluating the Acer Chromebook 15: Impressive Features for a Spacious Screen</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/fixing-cannot-find-gpeditmsc-in-windows-with-ease/"><u>Fixing Cannot Find Gpedit.msc in Windows with Ease</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-oppo-a56s-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Oppo A56s 5G For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-apple-iphone-12-pro-max-is-going-larger-a-game-changer/"><u>In-Depth Analysis of the Apple iPhone 12 Pro Max - Is Going Larger a Game Changer?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/showdown-which-is-better-apple-watch-s9-or-fitbits-charge-nventure/"><u>Showdown: Which Is Better? Apple Watch S9 or Fitbit's Charge nVenture</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-linkedin-pro-might-be-your-most-valuable-career-tool/"><u>Why LinkedIn Pro Might Be Your Most Valuable Career Tool</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-hip-hop-frenzy-top-tiktok-rap-videos-of-today/"><u>[New] Hip-Hop Frenzy Top TikTok Rap Videos of Today</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-choreographing-narrative-news-wrappers/"><u>[New] In 2024, Choreographing Narrative News Wrappers</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-straightforward-steps-simplified-laptop-screening-on-dell-for-2024/"><u>[New] Straightforward Steps Simplified Laptop Screening on Dell for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-stream-wars-evaluating-streamers-top-contenders-obs-and-wirecast-for-2024/"><u>[New] Stream Wars Evaluating Streamers' Top Contenders, OBS & Wirecast for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-the-acer-chromebook-r-11-combining-trendy-aesthetics-with-lightweight-performance/"><u>A Closer Look at the Acer Chromebook R 11 – Combining Trendy Aesthetics with Lightweight Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/battery-powered-wireless-nest-doorbell-a-comprehensive-review/"><u>Battery-Powered Wireless Nest Doorbell: A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-brilliance-unboxing-and-testing-the-hisense-40h5590f-smart-led-tv-setup/"><u>Budget-Friendly Brilliance: Unboxing and Testing the Hisense 40H5590F Smart LED TV Setup</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-gimp-evaluation-the-ultimate-open-source-multimedia-tool/"><u>Comprehensive GIMP Evaluation: The Ultimate Open-Source Multimedia Tool</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-dreame-bot-l10-pro-next-level-cleaning-with-advanced-lidar-technology/"><u>Comprehensive Guide to Dreame Bot L10 Pro: Next-Level Cleaning with Advanced LiDAR Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/culinary-carnage-explored-a-review-of-overcooked-2/"><u>Culinary Carnage Explored – A Review of Overcooked! 2</u></a></li>
+<li><a href="https://media-tips.techidaily.com/1723620217168-discover-the-ultimate-convertor-for-avi-and-3g2-files-your-go-to-solution/"><u>Discover the Ultimate Convertor for AVI and 3G2 Files: Your Go-To Solution</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Realme C67 5G? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Oppo Reno 11 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-revenue-on-youtube-shorts-for-2024/"><u>Mastering Revenue on YouTube Shorts for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/turning-off-two-factor-authentication-from-apple-iphone-6s-5-tips-you-must-know-by-drfone-ios/"><u>Turning Off Two Factor Authentication From Apple iPhone 6s? 5 Tips You Must Know</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-secrets-of-the-best-features-on-the-newly-reviewed-samsung-galaxy-tab-s5e/"><u>Unlocking the Secrets of the Best Features on the Newly Reviewed Samsung Galaxy Tab S5e</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-outdoor-wi-fi-with-netgears-orbi-rbs50y-a-detailed-analysis/"><u>Unveiling the Power of Outdoor Wi-Fi with Netgear's Orbi RBS50Y: A Detailed Analysis</u></a></li>
 </ul></div>
 

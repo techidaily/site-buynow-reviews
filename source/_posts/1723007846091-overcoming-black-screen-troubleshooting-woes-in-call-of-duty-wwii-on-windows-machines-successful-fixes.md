@@ -1,7 +1,7 @@
 ---
 title: "Overcoming Black Screen Troubleshooting Woes in Call of Duty: WWII on Windows Machines – Successful Fixes!"
-date: 2024-10-09T00:24:43.010Z
-updated: 2024-10-12T21:01:56.835Z
+date: 2024-10-14T02:15:46.010Z
+updated: 2024-10-18T20:22:18.539Z
 tags:
   - win11
   - win10
@@ -37,10 +37,16 @@ There is nothing more frustrating than buying a video game and not being able to
 7. **[Reinstall the game](https://tools.techidaily.com/drivereasy/download/)**
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 1: Run the game as an administrator
@@ -54,13 +60,6 @@ There is nothing more frustrating than buying a video game and not being able to
 **2)**  Click the **Compatibility tab** and check the box next to **Run this program as an administrator** . Then, click **OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-05_14-33-04.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **3)**  Relaunch_BO4_ from the Blizzard.net app to test your issue.
 
@@ -87,6 +86,13 @@ If your issue persists, don’t fret. Move on to the next fix below.
 **3)** Double-click **Display adapters** . Then, right-click **your graphics card** and select **Properties** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-05_14-58-50.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **4)** Click **Roll Back Driver** .
 
@@ -157,6 +163,13 @@ If your issue persists, don’t fret. Move on to the next fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-701.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **3)** On your keyboard, press the **Windows logo Key and R**  st the same time to open the Run dialog.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-705.png)
@@ -165,13 +178,6 @@ If your issue persists, don’t fret. Move on to the next fix below.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-04_12-31-14.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **5)**  Highlight and delete the **Blizzard Entertainment**  and **Battle.net folder** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/image-505.png)
@@ -179,13 +185,6 @@ If your issue persists, don’t fret. Move on to the next fix below.
 **4)** Relaunch your game to test the issue.
 
  If_BO4_ still won’t launch, don’t fret. There are still 2 more fixes to try.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 5: Check for software conflicts
 
@@ -211,10 +210,10 @@ Here is how:
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-05_14-33-24.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **3)** Relaunch your game to test your issue.
@@ -230,19 +229,6 @@ If your issue continues to occur, try performing a clean boot on your PC.
 **1)**  On your keyboard, press the **Windows logo key** and **R** at the same time to open the Run dialog box.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-05_14-33-36.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **2)**  Type **msconfig** . Then, on your keyboard, press the **Enter, Shift**  and **Ctrl**  keys at the same time to run System configuration as administrator.
 
@@ -260,6 +246,13 @@ If your issue continues to occur, try performing a clean boot on your PC.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-05_14-34-01.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **6)** Click **Apply** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-05_14-34-10.jpg)
@@ -273,13 +266,6 @@ If your issue continues to occur, try performing a clean boot on your PC.
  Only disable programs that you know that you don’t need to launch automatically at startup. You should keep your antivirus launching automatically for safety.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-05_14-34-36.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **9)** Click **Restart** and wait for your computer to restart.
 
@@ -311,6 +297,13 @@ If your issue continues to occur, try performing a clean boot on your PC.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-05_14-37-21.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **4)**  Click the **Services tab** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-05_14-38-25.jpg)
@@ -326,10 +319,10 @@ If your issue continues to occur, try performing a clean boot on your PC.
 If your game still won’t launch, move on to the next fix.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 6: Update Windows components
@@ -339,6 +332,13 @@ If your game still won’t launch, move on to the next fix.
 **1)**  On your keyboard, press the **Windows logo**  key. Then, type **windows update** and select **Windows Update settings** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-18_15-31-02.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **2)**  Click **Check for updates,**  and then wait for Windows to download and install the updates automatically.
 
@@ -374,22 +374,22 @@ If the issue persists, try the fix, below.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/updated-the-imagination-drought-hindering-vr-development/"><u>[Updated] The Imagination Drought Hindering VR Development</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-2023-fb-video-downloader-app-windows-macos-android/"><u>2024 Approved 2023 FB Video Downloader App - Windows, macOS, Android</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-magic-6-pro-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Magic 6 Pro.</u></a></li>
-<li><a href="https://extra-information.techidaily.com/break-boundaries-get-free-vob-handling-toolset-pc-and-mac/"><u>Break Boundaries Get Free VOB Handling Toolset (PC & Mac)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-pioneer-bdr-xs06-external-blu-ray-burner-a-focus-on-mobility-and-efficiency/"><u>Comprehensive Analysis of the Pioneer BDR-XS06 External Blu-Ray Burner: A Focus on Mobility & Efficiency</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-anker-30-speedy-hub-evaluation-unleash-your-devices-full-potential/"><u>Comprehensive Anker 3.0 Speedy Hub Evaluation: Unleash Your Device's Full Potential</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-compact-and-reliable-audew-portable-air-pump-functionality-unmatched/"><u>Comprehensive Review of the Compact and Reliable AUDEW Portable Air Pump - Functionality Unmatched!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-innovative-amazon-halo-your-unconventebly-intimate-guide-to-fitness-and-vitality-enhancement/"><u>Discover the Innovative Amazon Halo – Your Unconventebly Intimate Guide to Fitness and Vitality Enhancement</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-romers-rechargeable-illuminator-an-authoritative-guide-to-the-strongest-outdoor-lighting-gear-on-the-market/"><u>Evaluating Romer's Rechargeable Illuminator: An Authoritative Guide to the Strongest Outdoor Lighting Gear on the Market</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-the-xbox-one-elite-series-2-controller-definitive-best-in-class-gaming-experience/"><u>Expert Insights on the Xbox One Elite Series 2 Controller: Definitive Best-In-Class Gaming Experience</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-smartphone-as-your-gateway-to-immersive-virtual-reality/"><u>In 2024, Smartphone as Your Gateway to Immersive Virtual Reality</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/navigating-through-artificastern-intelligence-unraveling-its-potential-dangers/"><u>Navigating Through Artificastern Intelligence: Unraveling Its Potential Dangers</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-this-article-lists-10-cool-plugins-for-final-cut-pro-they-range-in-price-but-each-creates-effects-you-just-cant-get-any-other-way/"><u>New In 2024, This Article Lists 10 Cool Plugins for Final Cut Pro. They Range in Price, but Each Creates Effects You Just Cant Get Any Other Way</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-newly-reviewed-kobo-forma-where-reading-is-not-just-leisure-but-a-priority/"><u>The Ultimate Guide to the Newly Reviewed Kobo Forma – Where Reading Is Not Just Leisure, But a Priority</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-pick-for-security-a-thorough-review-of-eufys-no-subscription-video-doorbell-model-t8200/"><u>Top Pick for Security: A Thorough Review of Eufy's No-Subscription Video Doorbell - Model T8200</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/understanding-the-positives-and-negatives-of-implementing-webex-in-your-business-communications/"><u>Understanding the Positives & Negatives of Implementing WebEx in Your Business Communications</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/unlock-enhanced-audio-visual-sync-subtitle-addition-to-wmp-for-2024/"><u>Unlock Enhanced Audio-Visual Sync Subtitle Addition to WMP for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-insider-tips-for-facebook-cover-video-mastery/"><u>[New] 2024 Approved Insider Tips for Facebook Cover Video Mastery</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-power-of-words-in-transforming-realities-to-documentaries-for-2024/"><u>[Updated] The Power of Words in Transforming Realities to Documentaries for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/15-low-priced-ssl-options-security-or-spending/"><u>15 Low-Priced SSL Options: Security or Spending?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-empowering-your-wit-crafting-humor-with-gifs-step-by-step/"><u>2024 Approved Empowering Your Wit Crafting Humor with GIFs Step by Step</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-from-photos-to-feeds-selecting-the-best-9-gear-upgrades/"><u>2024 Approved From Photos to Feeds Selecting the Best 9 Gear Upgrades</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/advanced-aluminum-befree-tripod-professional-quality/"><u>Advanced Aluminum BeFree Tripod: Professional Quality</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unlocking-the-purpose-and-function-of-facebooks-status-emoji/"><u>In 2024, Unlocking the Purpose and Function of Facebook's Status Emoji</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/quick-guide-diagnosing-and-repairing-a-502-bad-gateway-issue/"><u>Quick Guide: Diagnosing & Repairing a 502 Bad Gateway Issue</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-10-cheap-ssl-certificates-explored/"><u>Top 10 Cheap SSL Certificates Explored</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tropico-6-review-commanding-power-on-a-dreamy-island-nation/"><u>Tropico 6 Review - Commanding Power on a Dreamy Island Nation</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-miracast-issues-with-non-compatible-graphics-drivers/"><u>Troubleshooting Miracast Issues with Non-Compatible Graphics Drivers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-amazons-fire-hd-n-ideal-for-family-fun-and-media-consumption/"><u>Ultimate Guide to Amazon's Fire HD N: Ideal for Family Fun and Media Consumption</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlocking-truths-why-the-iphone-16-may-not-be-worth-your-money-for-apple-enthusiasts-expert-analysis-by-zdnet/"><u>Unlocking Truths: Why the iPhone 16 May Not Be Worth Your Money for Apple Enthusiasts | Expert Analysis by ZDNET</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-corsair-one-pro-revolutionizing-creativity-in-gaming-with-top-notch-efficiency/"><u>Unveiling the Corsair One Pro: Revolutionizing Creativity in Gaming with Top-Notch Efficiency</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-powerhouse-corsair-one-pro-your-dream-gaming-machine/"><u>Unveiling the Powerhouse - Corsair ONE PRO, Your Dream Gaming Machine</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-locating-hilarious-audio-effects-online/"><u>Updated Locating Hilarious Audio Effects Online</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/yokus-island-express-game-review-unexpectedly-epic-journeys-await/"><u>Yoku’s Island Express Game Review: Unexpectedly Epic Journeys Await</u></a></li>
 </ul></div>
 

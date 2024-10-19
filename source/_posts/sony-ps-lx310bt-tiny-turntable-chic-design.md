@@ -1,7 +1,7 @@
 ---
 title: "Sony PS-LX310BT: Tiny Turntable, Chic Design"
-date: 2024-10-09T19:55:07.818Z
-updated: 2024-10-13T01:36:43.630Z
+date: 2024-10-12T18:58:19.442Z
+updated: 2024-10-18T19:05:57.006Z
 categories:
   - BestProducts
 description: "This Article Describes Sony PS-LX310BT: Tiny Turntable, Chic Design"
@@ -41,13 +41,6 @@ Lifewire / Kelsey Simon
 
 3.8
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/8XGs9qzQ6hLIBySEKXEvBMfEkq4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
@@ -80,7 +73,27 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/uXDVHaBrdIlv5tI-qRgiPK0Iig4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460721-e6a53664e7eb4e65a75bf5cceb928e28.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Plot: A huge world with loads to explore**
 
@@ -100,13 +113,20 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/1fxH7ty_kqxpugJDk2tIQndKvI0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546078-6bdc67e56311473f9c1edeab00d2caa5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Gameplay: Not as smooth as on other platforms**
@@ -127,21 +147,7 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/2Fk-UTwglmoCdE7IXrXqlnXs9do=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460712-6cec58625d13430db671be3144451cbc.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Graphics: A bit outdated**
 
@@ -162,16 +168,16 @@ Lifewire / Kelsey Simon
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A tad expensive**
@@ -179,13 +185,6 @@ Lifewire / Kelsey Simon
  The Elder Scrolls V: Skyrim costs roughly $60 dollars for the Switch (MSRP). You might be able to find it on sale on Amazon for less, but it’s still on the more expensive side like other popular Switch games. This is disappointing since you can find Skyrim on other platforms for a fraction of the cost, even snatching it up for sale on Steam for $25 or less on PC. Considering the cost difference, the PC version of the game is the better deal, especially since the gameplay is better looking. But if you’re looking to take Skyrim on the go, or a Switch is your preferred gaming system, the price isn’t unreasonable.
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -204,6 +203,13 @@ Lifewire / Kelsey Simon
 * [The Legend of Zelda: Breath of the Wild](https://www.lifewire.com/the-legend-of-zelda-breath-of-the-wild-review-4685759)
 * [Mario Kart 8 Deluxe](https://www.lifewire.com/mario-kart-8-deluxe-review-4688951)
 * [Splatoon 2](https://www.lifewire.com/splatoon-2-review-4688940)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -227,16 +233,21 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/efficient-chromebook-screen-logger/"><u>Efficient Chromebook Screen Logger</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-picks-for-the-ultimate-mesh-wireless-systems-of-2024/"><u>Expert Picks for the Ultimate Mesh Wireless Systems of 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-realme-narzo-n55-is-unlocked-by-drfone-android/"><u>How To Check if Your Realme Narzo N55 Is Unlocked</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722972835800-intermittent-claudication-is-a-symptom-of-peripheral-arterial-disease-pad-and-indicates-reduced-blood-flow-to-the-lower-extremities-during-exercise/"><u>Intermittent Claudication Is a Symptom of Peripheral Arterial Disease (PAD) and Indicates Reduced Blood Flow to the Lower Extremities During Exercise</u></a></li>
-<li><a href="https://win11.techidaily.com/invisible-toolbar-enhancements-for-efficient-usage/"><u>Invisible Toolbar Enhancements for Efficient Usage</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-your-tablet-experience-the-pros-and-cons-of-samsung-galaxy-tab-s6-including-s-pen-and-dex-functionality/"><u>Mastering Your Tablet Experience: The Pros and Cons of Samsung Galaxy Tab S6, Including S Pen & DeX Functionality</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-record-and-edit-an-animoji-or-memoji-karaoke-music-video/"><u>New 2024 Approved How to Record and Edit an Animoji or Memoji Karaoke Music Video?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/open-source-triumphs-a-detailed-look-at-the-linksys-wrt1900acs-router-capabilities/"><u>Open Source Triumphs: A Detailed Look at the Linksys WRT1900ACS Router Capabilities</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/performance-vs-price-an-in-depth-look-at-the-logitech-c615-video-camera/"><u>Performance vs Price: An In-Depth Look at the Logitech C615 Video Camera</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-swift-italian-ban-on-chatgpt-a-closer-look/"><u>The Swift Italian Ban on ChatGPT: A Closer Look</u></a></li>
-<li><a href="https://howto.techidaily.com/vivo-v30-lite-5g-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo V30 Lite 5G Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-psychology-of-persuasion-in-subscription-growth/"><u>[New] In 2024, The Psychology of Persuasion in Subscription Growth</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-essential-guide-to-selecting-the-best-8-open-source-calls/"><u>[Updated] 2024 Approved Essential Guide to Selecting the Best 8 Open Source Calls</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-bypassing-identification-to-explore-instagram-stories-desktop-android-ios/"><u>2024 Approved Bypassing Identification to Explore Instagram Stories [Desktop, Android, iOS]</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fixing-updater-problem-code-0x8019-on-pc/"><u>Fixing Updater Problem - Code 0X8019 on PC</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-itel-p40plus-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Itel P40+ | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-honor-magic-5-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Honor Magic 5 Pro to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/navigating-the-world-of-fpv-drone-propellers/"><u>Navigating the World of FPV Drone Propellers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/premier-streamers-ultimate-concert-selection/"><u>Premier Streamers Ultimate Concert Selection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-verdict-on-cyberpower-cp685avrg-efficient-baseline-uninterruptible-power-supply-tested-and-reviewed/"><u>The Verdict on Cyberpower CP685AVRG – Efficient Baseline Uninterruptible Power Supply Tested and Reviewed</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-vivo-s18e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Vivo S18e | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-8-leading-pc-manufacturers-dominating-the-market/"><u>Top 8 Leading PC Manufacturers Dominating the Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-budget-routers-evaluated-the-comprehensive-tp-link-archer-c9-review/"><u>Top Budget Routers Evaluated: The Comprehensive TP-Link Archer C9 Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-lenovo-convertible-reviewed-discover-the-power-of-the-yoga-a94n/"><u>Top Lenovo Convertible Reviewed: Discover the Power of the Yoga A94n</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-notch-analysis-of-kooteks-cooling-solution-for-computers-a-versatile-and-reliable-pick/"><u>Top-Notch Analysis of Kootek's Cooling Solution for Computers - A Versatile and Reliable Pick</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-linkedin-learning-classes/"><u>Top-Rated LinkedIn Learning Classes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-the-secrets-to-building-utopian-metropolises-with-cities-skylines-reviewed/"><u>Unlock the Secrets to Building Utopian Metropolises with Cities: Skylines Reviewed</u></a></li>
 </ul></div>
 

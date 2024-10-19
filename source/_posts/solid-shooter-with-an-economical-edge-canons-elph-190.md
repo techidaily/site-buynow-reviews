@@ -1,7 +1,7 @@
 ---
 title: Solid Shooter with an Economical Edge – Canon's ELPH 190
-date: 2024-10-08T20:26:23.421Z
-updated: 2024-10-13T01:18:53.991Z
+date: 2024-10-12T02:00:33.564Z
+updated: 2024-10-18T19:42:09.542Z
 categories:
   - BestProducts
 description: This Article Describes Solid Shooter with an Economical Edge – Canon's ELPH 190
@@ -44,15 +44,22 @@ Lifewire / Nick Jaynes
 4.5
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/kUpys0K04ePH0SuEfAENz--MXSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
 
@@ -76,10 +83,10 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: All-plastic, but sturdy and subtle**
@@ -104,13 +111,6 @@ Lifewire / Nick Jaynes
 
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Middle of the pack**
 
  The list price of $14.99 is positioned in the mid-range of the USB charger market, which ranges from just a few dollars to upwards of $50 for some fancier chargers. However, Anker PowerDrive 2 can be had for a discounted price on some websites. Considering the fact that the Anker PowerDrive 2 includes both the fast-charger and a 3-foot micro USB cable, it is well priced for the marketplace.
@@ -118,10 +118,10 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: A handful of rivals**
@@ -164,16 +164,22 @@ Lifewire / Nick Jaynes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-photos-and-instagram-effortless-integration/"><u>[New] Photos & Instagram Effortless Integration</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-simplified-social-syncing-from-instagram-to-facebook/"><u>[Updated] Simplified Social Syncing From Instagram To Facebook</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ancs-marshall-update-modern-look-dynamic-soundscapes/"><u>ANC's Marshall Update: Modern Look, Dynamic Soundscapes</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/eliminate-your-websites-401-unauthorized-fault-with-easy-fixes/"><u>Eliminate Your Website's 401 Unauthorized Fault with Easy Fixes</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/hoe-omgaan-met-de-herstelling-van-grootte-verwijderde-permanente-archieven/"><u>Hoe Omgaan Met De Herstelling Van Grootte Verwijderde Permanente Archieven?</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-the-best-methods-to-unlock-the-iphone-locked-to-owner-for-iphone-14-pro-max-drfone-by-drfone-ios/"><u>In 2024, The Best Methods to Unlock the iPhone Locked to Owner for iPhone 14 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-guide-to-improving-chromebook-tone-with-top-voice-extensions/"><u>In 2024, The Ultimate Guide to Improving Chromebook Tone with Top Voice Extensions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/masterclass-review-how-the-havit-5-airflow-laptop-stand-keeps-overheating-at-bay/"><u>Masterclass Review: How The HAVIT 5 Airflow Laptop Stand Keeps Overheating at Bay🎮❄️</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximize-content-experience-why-you-should-join-netflix/"><u>Maximize Content Experience: Why You Should Join Netflix</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-halo-bolt-jump-starter-and-portable-charger-expert-review/"><u>Top Rated Halo Bolt Jump Starter & Portable Charger - Expert Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlocking-efficiency-with-the-new-ipad-102-inch-7th-gen-and-its-productive-transformation-by-ipados/"><u>Unlocking Efficiency with the New iPad 10.2-Inch (7Th Gen) & Its Productive Transformation by IPadOS</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-properly-merging-webcam-feed-with-desktop-screen/"><u>[New] 2024 Approved Properly Merging Webcam Feed with Desktop Screen</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-insights-into-instagram-follower-exits/"><u>[Updated] 2024 Approved Insights Into Instagram Follower Exits</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-adhering-to-twitters-video-dimension-standards/"><u>2024 Approved Adhering to Twitter's Video Dimension Standards</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-saga-storytellers-syndicate-quintessential-quartet/"><u>2024 Approved Saga Storytellers Syndicate - Quintessential Quartet</u></a></li>
+<li><a href="https://windows11.techidaily.com/dealing-with-filehistoryfaults-in-windows-os/"><u>Dealing with FileHistoryFaults in Windows OS</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-infinix-note-30-5g-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Infinix Note 30 5G Phones with/without a PC</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-vivo-y27-5g-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Vivo Y27 5G Phone Pattern Lock</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-wifi-with-the-linksys-ea9500-an-in-depth-review-of-cutting-edge-tech/"><u>Mastering WiFi with the Linksys EA9500 - An In-Depth Review of Cutting-Edge Tech</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/portable-sonos-hits-top-tier-audio-quality-nomad/"><u>Portable Sonos Hits: Top-Tier Audio Quality Nomad</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/raspberry-pi-400-comprehensive-analysis-the-ultimate-hybrid-keyboard-computer/"><u>Raspberry Pi 400 Comprehensive Analysis: The Ultimate Hybrid Keyboard-Computer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-extollo-lansocket-1500-ultra-fast-performance-with-minimal-delay-and-built-in-power-sharing/"><u>Review of Extollo LANSocket 1500: Ultra-Fast Performance with Minimal Delay & Built-In Power Sharing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-ergodriven-topo-anti-fatigue-desk-mat-a-game-changer-for-standing-stations/"><u>Review of the Ergodriven Topo Anti-Fatigue Desk Mat: A Game Changer for Standing Stations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsungs-highly-priced-un65nu8000fxza-an-in-depth-review-of-its-features-and-value/"><u>Samsung's Highly Priced UN6^5NU8000FXZA - An In-Depth Review of Its Features and Value</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/secure-and-stable-expert-reviews-on-the-most-robust-apc-backup-systems-for-gamers/"><u>Secure and Stable: Expert Reviews on the Most Robust APC Backup Systems for Gamers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/small-size-big-performance-navigate-fundamental-tasks-effortlessly-using-the-hp-stream-11/"><u>Small Size, Big Performance: Navigate Fundamental Tasks Effortlessly Using the HP Stream 11</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-step-by-step-tutorial-on-building-a-dorm-wireless-theatrical-experience/"><u>The Ultimate Step-by-Step Tutorial on Building a Dorm Wireless Theatrical Experience</u></a></li>
+<li><a href="https://some-tips.techidaily.com/unveiling-top-9-webcam-filters-for-professional-streamers-for-2024/"><u>Unveiling Top 9 Webcam Filters for Professional Streamers for 2024</u></a></li>
 </ul></div>
 

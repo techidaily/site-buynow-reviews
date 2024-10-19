@@ -1,7 +1,7 @@
 ---
 title: Travel in Style & Capture Moments – PowerShot G9X II Reviewed by an Expert
-date: 2024-10-11T03:44:25.078Z
-updated: 2024-10-13T03:41:46.350Z
+date: 2024-10-16T17:27:47.101Z
+updated: 2024-10-19T02:43:37.804Z
 categories:
   - BestProducts
 description: This Article Describes Travel in Style & Capture Moments – PowerShot G9X II Reviewed by an Expert
@@ -71,13 +71,6 @@ Lifewire / Andrew Hayward
 
  Available on its own for $49 or with a battery pack and carrying case for $129, the Elite Strap is a major improvement and worthwhile pickup for anyone who doesn’t love the original fit. I tested the latter configuration with the integrated battery pack and included case.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design: A more supportive strap
 
  While the standard Oculus Quest 2 strap is simply made up of fabric bands—one around the back of your head and the other over the top—the Elite Strap is mostly plastic and significantly more supportive. That’s because it helps offset the weight of the visor itself by using the back of your head to securely keep the entire headset in place, thus minimizing its ability to sag or feel heavy on your face.
@@ -87,10 +80,10 @@ Lifewire / Andrew Hayward
 ![Oculus Quest 2 Elite Strap With Battery and Carrying Case](https://www.lifewire.com/thmb/g-QXyXCZitYdlr7F5TWDuzllhuY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus_Quest_2_Elite_Strap_02-83833091dfde4b3b9e2253177901bb66.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
@@ -105,18 +98,18 @@ Lifewire / Andrew Hayward
 
  Meanwhile, the included carrying case in this bundle is large enough to fit the entire headset with the Elite Strap, as well as the two Oculus Touch controllers and the charger. The large pill-shaped design is non-traditional for a gadget case, looking like light grey sweatpants and with a wool-like felt texture. The case can be a little awkward to unzip, but it’s functional and roomy enough to hold everything, even if it doesn’t look nearly as cool as what it holds.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Setup Process: Snap it on
 
  Oculus built in a clever strap support system with the Quest 2 that lets you securely and seamlessly attach different kinds of straps. When you remove the standard strap, you’ll be left with these plastic “wings” on either side of the visor, and those snap right into the Elite Strap’s plastic bands to firmly attach it to the visor.
 
 ![Oculus Quest 2 Elite Strap With Battery and Carrying Case](https://www.lifewire.com/thmb/kePEj93uGIlmO7iyZMsHMaUpHEE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus_Quest_2_Elite_Strap_03-4d5ab74d783144e0aee262248d5cdb89.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -133,6 +126,19 @@ Lifewire / Andrew Hayward
 ![Oculus Quest 2 Elite Strap With Battery and Carrying Case](https://www.lifewire.com/thmb/v5qFVd_vGEfVkRoTgyxHCnpNO7Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus_Quest_2_Elite_Strap_04-6b671f2308db4225b4f355d0abd12f2d.jpg)
 
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Battery: Double the uptime
 
@@ -159,10 +165,10 @@ Lifewire / Andrew Hayward
  The case is nice to have, and given that the original official Oculus Quest case sold for $40 on its own, this bundle doesn’t feel overpriced by comparison. Buying the Oculus Quest 2 headset plus this bundle comes out to nearly the same price as buying the original Quest headset ($399) plus its carrying case back when, but now you get double the battery life along with the myriad enhancements of the core Quest 2 hardware.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Oculus Quest 2 Elite Strap vs. Orzero Adjustable Headband for Quest 2
@@ -182,16 +188,10 @@ Lifewire / Andrew Hayward
 * [Oculus Go Standalone VR Headset](https://www.lifewire.com/oculus-go-vr-headset-review-4690298)
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -222,16 +222,19 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-8-pioneering-open-source-platforms-revolutionizing-business-calls/"><u>[New] In 2024, 8 Pioneering Open-Source Platforms Revolutionizing Business Calls</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-master-the-art-of-gameye-and-webcam-recordings/"><u>[Updated] Master the Art of GamEye and WebCam Recordings</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-instant-tactics-to-unpredictably-organize-youtube-songs/"><u>2024 Approved Instant Tactics to Unpredictably Organize YouTube Songs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/audience-appeal-the-ultimate-guide-to-youtube-video-formats-for-2024/"><u>Audience Appeal The Ultimate Guide to YouTube Video Formats for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-pioneer-bdr-xs06-blu-ray-writer-evaluation-balancing-mobility-with-functionality/"><u>Comprehensive Pioneer BDR-XS06 Blu-Ray Writer Evaluation: Balancing Mobility with Functionality</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/conveniently-record-your-favorite-streams-top-5-grabber-apps/"><u>Conveniently Record Your Favorite Streams Top 5 Grabber Apps</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-financially-friendly-world-of-portable-players/"><u>Exploring the Financially Friendly World of Portable Players</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/to-buy-or-not-to-buy-evaluating-blu-ray-player-options-today/"><u>To Buy or Not to Buy: Evaluating Blu-Ray Player Options Today</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-dji-mavic-air-2s-analysis-a-comprehensive-guide/"><u>Top DJI Mavic Air 2S Analysis: A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleash-high-speed-internet-with-ourlinks-u631-usb-wi-fi-adaptor-miniature-design-meets-robust-performance/"><u>Unleash High-Speed Internet with Ourlink's U631 USB Wi-Fi Adaptor: Miniature Design Meets Robust Performance</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unpacking-ai-limitations-and-why-it-cant-be-a-complete-writer-replacement/"><u>Unpacking AI Limitations and Why It Can't Be a Complete Writer Replacement</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-elevating-your-iphone-with-custom-ringtones/"><u>[New] 2024 Approved Elevating Your iPhone with Custom Ringtones</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-premier-networks-global-gems-with-local-spectacles-2024/"><u>[Updated] Premier Networks Global Gems with Local Spectacles, 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/acer-xfa240-analysis-where-utility-outshines-aesthetics/"><u>Acer XFA240 Analysis: Where Utility Outshines Aesthetics</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-apeman-c450-comprehensive-budget-dashcam-evaluation/"><u>Affordable Apeman C450: Comprehensive Budget Dashcam Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/are-affordable-ssl-options-valid-choices/"><u>Are Affordable SSL Options Valid Choices?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bluetooth-enabled-moko-collapsible-keyboard-for-on-the-go-typists/"><u>Bluetooth-Enabled MoKo Collapsible Keyboard for On-the-Go Typists</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-netgear-nighthawk-c7000-top-rated-wireless-modem-unveiled/"><u>Comprehensive Analysis of the Netgear Nighthawk C7000 - Top Rated Wireless Modem Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-assessment-of-the-anker-super-bright-outdoor-flashlight-ideal-for-harsh-conditions/"><u>Comprehensive Assessment of the Anker Super Bright Outdoor Flashlight – Ideal for Harsh Conditions</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-how-to-download-youtube-thumbnail-in-3-ways-onlinewinmac/"><u>In 2024, How to Download YouTube Thumbnail in 3 Ways [Online/Win/Mac]</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/troubleshooting-get-dvd-shrink-functional-again-on-modern-windows-systems-10-and-11/"><u>Troubleshooting: Get DVD Shrink Functional Again on Modern Windows Systems (10 & 11)</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-list-of-free-film-streamers-top-12-picks/"><u>Ultimate List of Free Film Streamers: Top 12 Picks</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-zte-nubia-z60-ultra-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock ZTE Nubia Z60 Ultra Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-vestments-the-15-most-informative-financial-videos/"><u>Viral Vestments The 15 Most Informative Financial Videos</u></a></li>
 </ul></div>
 

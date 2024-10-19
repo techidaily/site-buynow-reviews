@@ -1,7 +1,7 @@
 ---
 title: "Light on Cost, Heavy on Hassle: The Nikon A10 Tale"
-date: 2024-10-07T03:23:20.722Z
-updated: 2024-10-12T16:40:40.207Z
+date: 2024-10-15T18:04:50.121Z
+updated: 2024-10-18T20:19:51.443Z
 categories:
   - BestProducts
 description: "This Article Describes Light on Cost, Heavy on Hassle: The Nikon A10 Tale"
@@ -44,19 +44,6 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/_gP-SgRbIGXPYdlmqqhNJSxhmSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_HeroSquare-61fda9713bb44c89bf3c2f1f74386bee.jpg)
@@ -96,10 +83,10 @@ Lifewire / Erika Rawes
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/fw0FJuD9bAOkQEHuAZ9OFq5toXk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_05-2a03227466354aad82fe55b884b76ac6-4d18f476974a44b081aafc943a8e56b1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -122,13 +109,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Network performance: Stellar**
 
  The Nighthawk RAX120 indicates top speeds of 1,200 Mbps on the 2.4Ghz band and 4,800 Mbps on the 5Ghz band. My Internet speed maxes out at 500 Mbps. I have about 50 connected devices, more than half of which are smart home devices like smart light switches, smart appliances, security cameras, and smart speakers and displays. The RAX120 had no problem managing my numerous smart devices, nor did I experience any lag or connectivity issues on streaming and gaming devices. I simultaneously ran a gaming computer, two playstations, and two FireTVs without the connection missing a beat.
@@ -140,6 +120,13 @@ Lifewire / Erika Rawes
  Final Verdict
 
  The RAX120 is backward compatible with 802.11a/b/g/n/ac as well, so it’ll work with virtually all of your devices, Wi-Fi 6 or not.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Key Features: Quality hardware, lacks antivirus**
 
@@ -154,10 +141,10 @@ Lifewire / Erika Rawes
  The router has two USB 3.0 storage ports on the back for connecting an external hard drive.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Nighthawk App**
@@ -168,15 +155,22 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Expensive**
 
  The Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router will cost you a pretty penny—it sells for $400, which is $100 lower than its original retail price of $500\. But it’s still on the higher end of the price spectrum, especially considering it doesn’t include any sort of mesh points, and you only get the router, power supply, and an Ethernet cable.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Netgear Nighthawk RAX120 vs. TP-Link Archer AX6000**
@@ -227,22 +221,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-tailoring-image-sizes-in-photos-for-ios-devices/"><u>[New] In 2024, Tailoring Image Sizes in Photos for iOS Devices</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/7-top-ways-to-resolve-apple-id-not-active-issue-for-apple-iphone-6-by-drfone-ios/"><u>7 Top Ways To Resolve Apple ID Not Active Issue For Apple iPhone 6</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/advanced-dialogue-geminis-challenge-to-plus-chatgpt/"><u>Advanced Dialogue: Gemini's Challenge to Plus-ChatGPT</u></a></li>
-<li><a href="https://techtrends.techidaily.com/building-the-ultimate-wireless-movie-lounge-right-inside-your-student-dorm/"><u>Building the Ultimate Wireless Movie Lounge Right Inside Your Student Dorm</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/cost-effective-tp-link-re200-wifi-range-amplifier-assessment-the-balance-of-quality-and-price/"><u>Cost-Effective TP-Link RE200 WiFi Range Amplifier Assessment - The Balance of Quality and Price</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/edit-photos-like-a-pro-using-the-no-cost-lightzone-app-on-windows-macos-or-linux-systems/"><u>Edit Photos Like a Pro Using the No-Cost LightZone App on Windows, macOS, or Linux Systems</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/1723808081603-effortlessly-update-your-gmail-passkey-in-just-a-few-clicks/"><u>Effortlessly Update Your Gmail Passkey in Just a Few Clicks!</u></a></li>
-<li><a href="https://win-able.techidaily.com/expert-tips-for-optimizing-your-computer-to-stop-valheim-from-hiccupping-on-pc/"><u>Expert Tips for Optimizing Your Computer to Stop Valheim From Hiccupping on PC</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experts-rate-the-new-iphone-13-innovative-tech-meets-design-excellence/"><u>Experts Rate the New iPhone 13: Innovative Tech Meets Design Excellence</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ipad-air-4-versus-galaxy-tab-s7plus-the-ultimate-showdown-of-elite-tablet-technology/"><u>IPad Air 4 versus Galaxy Tab S7+: The Ultimate Showdown of Elite Tablet Technology</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/next-gen-mobile-mastery-samsungs-galaxy-note20-ultra-with-superfast-5g-connectivity-reviewed/"><u>Next-Gen Mobile Mastery: Samsung's Galaxy Note20 Ultra with Superfast 5G Connectivity Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/questionable-decisions-illuminated-in-sonys-nw-ws623/"><u>Questionable Decisions Illuminated in Sony's NW-WS623</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sonys-cat-s42-toughphone-unveiled-robust-construction-yet-limited-in-velocity/"><u>Sony's CAT S42 Toughphone Unveiled: Robust Construction, Yet Limited in Velocity</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/start-making-money-today-top-13-easy-methods-for-newbies-for-2024/"><u>Start Making Money Today! Top 13 Easy Methods for Newbies for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-diverse-origins-behind-common-english-terms/"><u>The Diverse Origins Behind Common English Terms</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-understanding-the-new-iphone-13-specifications/"><u>The Ultimate Guide to Understanding the New iPhone 13 Specifications</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/wonderfox-dvd-ripper-professional/"><u>WonderFox DVD Ripper Professional:スムーズなダウンロードと使い始め方のガイド</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-optimizing-your-youtube-stream-with-wirecast/"><u>[New] Optimizing Your YouTube Stream with WireCast</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-step-by-step-tutorial-crafting-photo-videos-in-pixiz/"><u>[New] Step-by-Step Tutorial Crafting Photo Videos in Pixiz</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-iphones-role-in-creating-immersive-vr-content/"><u>[Updated] IPhone's Role in Creating Immersive VR Content</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-buyers-guide-to-premium-document-and-image-scanners-top-picks-for-2e-2024/"><u>A Buyer's Guide to Premium Document & Image Scanners: Top Picks for 2E 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-microsoft-surface-go-critique-navigating-its-mystifying-market-position/"><u>Affordable Microsoft Surface Go Critique - Navigating Its Mystifying Market Position</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-m4-chip-news-release-date-and-specs/"><u>Apple M4 Chip: News, Release Date, and Specs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assessment-of-oneplus-9-performance-quantitative-letdown/"><u>Assessment of OnePlus 9 Performance: Quantitative Letdown</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/before-you-invest-in-a-fitness-tracker-consider-these-important-5-aspects/"><u>Before You Invest in a Fitness Tracker, Consider These Important 5 Aspects</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-infinix-note-30-vip-racing-edition-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Infinix Note 30 VIP Racing Edition.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-bluetooth-headset-review-satisfying-truckers-sound-needs/"><u>Budget Bluetooth Headset Review: Satisfying Truckers’ Sound Needs</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-samsung-galaxy-xcover-7-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Samsung Galaxy XCover 7 FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/exclusive-list-of-budget-friendly-video-conferencing-tools-for-2024/"><u>Exclusive List of Budget-Friendly Video Conferencing Tools for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-paint-your-paradigm-the-8-essential-drawing-apps-for-iphone-users/"><u>In 2024, Paint Your Paradigm The 8 Essential Drawing Apps for iPhone Users</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/mastering-your-iphone-the-secrets-to-hdr-image-magic-for-2024/"><u>Mastering Your iPhone The Secrets to HDR Image Magic for 2024</u></a></li>
 </ul></div>
 

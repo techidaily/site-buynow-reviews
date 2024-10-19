@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Review of the Kobo Libra H2O – Your Go-To Guide for Waterproof Ereaders
-date: 2024-10-11T22:29:52.318Z
-updated: 2024-10-12T19:54:48.844Z
+date: 2024-10-17T18:12:26.020Z
+updated: 2024-10-19T03:18:22.176Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Review of the Kobo Libra H2O – Your Go-To Guide for Waterproof Ereaders
@@ -43,23 +43,9 @@ Lifewire / James Huenink
 
 1.4
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Docooler USB 2.0 12 Megapixel
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/23qFdg2CyjsEX1uFEK5ESBb8kO0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_HERO_1LW4065141_7_Final_Square-bd507bc5d1d646f9a0d8d7466601f569.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / James Huenink
 
@@ -84,19 +70,6 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/YIcu00ga1PIrZWJzNk-mS5C4z-A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_5_Final_Horiz-23ef27f359f24e919ebb2f47f9089957.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / James Huenink
 
 ## **Design: Flimsy and difficult to use**
@@ -108,10 +81,10 @@ Lifewire / James Huenink
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/a_8Gd66JN0RtfWzKKcRq95S8EmY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_6_Final_Horiz-1dd3a45479614483b0f4f5883f27094a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / James Huenink
@@ -121,6 +94,13 @@ Lifewire / James Huenink
  It takes almost no time to get the Docooler USB 2.0 12 Megapixel up and running. We just plugged the USB cord into the computer and it worked.
 
  It was easy to set up when we clipped it to a laptop, but terrible when we tried to put it on our HD TV. Every time we moved the computer or the USB cable, the camera slid, twisted, or fell off the TV. The ball joint, which connects the camera to the base, didn’t move smoothly, so we struggled to point the Docooler USB 2.0 12 Megapixel in the right direction, and we were too worried about breaking the plastic to try and force it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Camera Quality: Not even close to advertised**
 
@@ -146,6 +126,13 @@ Lifewire / James Huenink
 
  The audio performance of the Docooler USB 2.0 12 Megapixel was also lackluster. The built-in microphone produced poor quality sound, and when we tested it on Skype, voices were both muffled and echoey. People on the other end could understand what we were saying, but it was an unpleasant experience.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Cheap price, even cheaper webcam**
 
  The Docooler USB 2.0 12 Megapixel is the most inexpensive webcam you can buy, ranging from $8 up to around $15, but there’s a reason it’s priced so low. The image and audio quality are both terrible, and the camera is difficult to use.
@@ -163,6 +150,13 @@ Lifewire / James Huenink
 **Impossible to recommend.**
 
  The Docooler USB 2.0 12 Megapixel is one of the most inexpensive cameras on the market for a reason. This camera doesn’t come close to delivering what it promises, meaning it's not worth even the trifle you'd pay for it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -196,20 +190,22 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-mastering-the-art-of-crafting-compelling-content-in-60-second-videos/"><u>[New] 2024 Approved Mastering the Art of Crafting Compelling Content in 60-Second Videos</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-testing-the-strength-of-apples-m1-in-professional-video-editing/"><u>[New] In 2024, Testing the Strength of Apple's M1 in Professional Video Editing</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-clarity-overcoming-gopro-haze-challenges/"><u>2024 Approved Unveiling Clarity Overcoming GoPro Haze Challenges</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehveiw-the-superior-comfort-and-quality-of-the-microsoft-ergonomic-keypad/"><u>Comprehveiw: The Superior Comfort and Quality of the Microsoft Ergonomic Keypad</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722974450784-effortless-download-of-elgato-drivers-do-it-swiftly-now/"><u>Effortless Download of Elgato Drivers - Do It Swiftly Now!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experts-test-drive-the-best-bluetooth-fm-transmitter-meet-the-aphaca-bt69-compact-unit/"><u>Experts Test Drive the Best Bluetooth FM Transmitter: Meet the Aphaca BT69 Compact Unit</u></a></li>
-<li><a href="https://driver-install.techidaily.com/fixing-hp-printer-setbacks-on-version-10-pc/"><u>Fixing HP Printer Setbacks on Version 10 PC</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/get-the-perfect-michael-jackson-music-experience-how-to-find-and-download-his-best-songs-in-hd-audio-free/"><u>Get the Perfect Michael Jackson Music Experience: How to Find & Download His Best Songs in HD Audio FREE!</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-touch-screen-on-infinix-smart-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Infinix Smart 7 | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On ZTE Nubia Flip 5G | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-through-the-lenovo-thinkpad-x1-folds-features-and-shortcomings/"><u>Navigating Through the Lenovo ThinkPad X1 Fold's Features and Shortcomings</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-face-off-benefits-and-drawbacks-of-apple-watch-series-n-vs-fitbit-charge-6/"><u>The Ultimate Face-Off: Benefits and Drawbacks of Apple Watch Series N vs Fitbit Charge 6</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-performance-evaluation-of-the-netgear-nighthawk-x10-ad7200-your-key-to-lightning-speeds/"><u>Top Performance Evaluation of the Netgear Nighthawk X10 AD7200 - Your Key to Lightning Speeds</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-performance-of-oneplus-9-are-the-calculations-wrong/"><u>Unpacking the Performance of OnePlus 9 - Are the Calculations Wrong?</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-beyondbasics-the-futurepost-mycam-cameras/"><u>[Updated] 2024 Approved BeyondBasics The FuturePost-MyCam Cameras</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-easy-to-use-apps-for-idevice-screen-capturing/"><u>[Updated] In 2024, Easy-to-Use Apps for iDevice Screen Capturing</u></a></li>
+<li><a href="https://techidaily.com/best-fixes-for-poco-x5-pro-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Poco X5 Pro Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-your-google-pixel-8-pro-lock-screen-password-by-drfone-android/"><u>How to Reset your Google Pixel 8 Pro Lock Screen Password</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/minecraft-crash-fixes-overcoming-and-preventing-error-ncode-5-mishaps/"><u>Minecraft Crash Fixes: Overcoming and Preventing Error nCode 5 Mishaps</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/oneplus-nord-n10-5g-review-dont-ignore-this-nord/"><u>OnePlus Nord N10 5G Review: Don’t Ignore This Nord</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pocketlux-studiokit-lighting-on-a-dime/"><u>PocketLux StudioKit: Lighting on a Dime</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionary-gaming-on-amazon-luna-a-comprehensive-review-of-its-streamlined-interface-and-playability/"><u>Revolutionary Gaming on Amazon Luna? A Comprehensive Review of Its Streamlined Interface and Playability</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/roku-upgrades-perfect-synchronization-of-audio-and-video/"><u>Roku Upgrades: Perfect Synchronization of Audio & Video</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stay-ahead-with-these-top-microsoft-office-alternative-solutions/"><u>Stay Ahead with These Top Microsoft Office Alternative Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/superior-sound-quality-in-wm-a35/"><u>Superior Sound Quality in WM-A35</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-rankings-why-ring-video-doorbell-2-leads-the-pack-in-reviews/"><u>The Definitive Rankings: Why Ring Video Doorbell ^2 Leads the Pack in Reviews</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-asus-ax6000-rt-ax88u-your-new-smart-wi-fi-6-powerhouse/"><u>The Ultimate Guide to the Asus AX6000 RT-AX88U - Your New Smart Wi-Fi 6 Powerhouse!</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-discover-the-ultimate-video-editing-solution-for-windows-8-users/"><u>Updated 2024 Approved Discover the Ultimate Video Editing Solution for Windows 8 Users</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-online-movie-trailer-design-studios/"><u>Updated Online Movie Trailer Design Studios</u></a></li>
+<li><a href="https://techidaily.com/vivo-data-recovery-recover-lost-data-from-vivo-t2-pro-5g-by-fonelab-android-recover-data/"><u>Vivo Data Recovery – recover lost data from Vivo T2 Pro 5G</u></a></li>
 </ul></div>
 

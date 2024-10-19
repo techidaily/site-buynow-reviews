@@ -1,7 +1,7 @@
 ---
 title: Ultimate Selection of Vertical Computer Mice for Optimal Hand Health, 2Er 2024 Edition
-date: 2024-09-09T07:55:45.952Z
-updated: 2024-09-10T07:55:45.952Z
+date: 2024-10-16T18:31:31.580Z
+updated: 2024-10-18T17:08:34.866Z
 categories:
   - BestProducts
 description: This Article Describes Ultimate Selection of Vertical Computer Mice for Optimal Hand Health, 2Er 2024 Edition
@@ -13,12 +13,6 @@ thumbnail: https://www.lifewire.com/thmb/ioL8F-cFZKDYYRvWMdxK3t9HP5I=/400x300/fi
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## X-Chair X4 Executive Office Chair
 
 ![X-Chair X4 Executive Chair](https://www.lifewire.com/thmb/T4csAgbes4abqRjwN08dKTMWq44=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/X4_Chair_HeroSquare-19c2733ecb4b44e09b379888a662d20a.jpg)
@@ -42,28 +36,10 @@ Lifewire / Rebecca Isaacs
 
 4.5
 
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## X-Chair X4 Executive Office Chair
 
 ![X-Chair X4 Executive Chair](https://www.lifewire.com/thmb/o2ogYPC53g0q9kKJdfN9mKC0tjs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/X4_Chair_HeroSquare-19c2733ecb4b44e09b379888a662d20a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Rebecca Isaacs
 
 [View On Amazon $1,199](https://www.amazon.com/dp/B01HTYUPXQ/?tag=lifewire-onsite-prod-20&ascsubtag=5183962%7Cn7d2364de7eef4418ad74782da088991f17%7CB01HTYUPXQ) [View On Xchair.com](https://www.xchair.com/buildx4.html) [View On Relaxtheback.com](https://relaxtheback.com/products/x-chair-x4-leather-executive-chair?variant=19346801262646)
@@ -86,28 +62,29 @@ Lifewire / Rebecca Isaacs
 
  Admittedly, this was one of my biggest follies as I began to work from home. I naively believed that just grabbing a dining room chair was the most reasonable option. Thankfully, the X4 chair by X-Chair came into my life. With leather cushioned seats and lumbar support, I was enamored with this office chair.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Design: Fancy looks
 
  The X4 Executive Chair comes in up to eight different colors, with each color offering a different option—and a varying price tag. I chose the model with a red premium leather finish. For an executive office chair, the bright red leather gave it a fun pop of color that complimented my standing desk. At 54 x 25 x 21.5 inches (LWD), the chair offers a variety of customization options, including a headrest and higher-quality wheels.
 
 ![X-Chair X4 Executive Chair](https://www.lifewire.com/thmb/o55ics7vj1qGpay04wIyYThTOjQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/X4_Chair_02-c2153c140aa841cb92509051d8aa53da.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
 
  While the frame is made of metal, the armrests appear to be made of soft-touch polycarbonate with a slight slope for a comfortable feel. The armrests’ build material didn’t quite fit the quality of the rest of the chair, however, they’re likely going get dinged the most by the desk, so it makes sense since polycarbonate is durable and withstands bumps well. And, either way, the chair still looks very sleek and stylish for any office setup.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Comfort: It’s all in the ergonomics
 
  The X4 hypes up all of its ergonomic settings. In fact, it boasts that it’s completely adjustable, from the comfort of its lumbar support to the height and angle of the headrest. At first, I struggled to get some of the pieces to shift, particularly the aforementioned headrest. It took me and one other person five minutes to get it to budge an inch. This did not particularly fill me with hope as I set about adjusting the rest of the chair.
@@ -121,11 +98,12 @@ Lifewire / Rebecca Isaacs
 Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Performance and Usage: Amazing experience
 
  When you find that sweet spot for this chair, holy moly. Most of my day, I’m hunched over[laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) for work. The X4 makes sure that you don’t slouch, and are kept in a comfortable position. In the entire week of testing this chair, my body seemed less irked when I would stand up to stretch.
@@ -143,17 +121,12 @@ Lifewire / Rebecca Isaacs
  One of the largest features of this chair is “SciFloat Infinite Recline”, allowing you to recline and keep working throughout the day. It’s an easy way to adjust your back if you’re stuck at the desk all day. In my testing, it was nice to have this feature since I could unlock the back of the chair and relax when my back ached. At first, I preferred my chair to be locked into place. By the end of the week, I was leaving the lock off and leaning back.
 
 <!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Price: It’ll cost you
 
  With all of the extra features, it came as no surprise to me that the X4 chair runs from around $1,249 on up. I personally gaped at that price tag.
@@ -166,12 +139,6 @@ Lifewire / Rebecca Isaacs
 
 Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## X4 Executive Chair vs. Mavix M9 Gaming Chair
 
  The X4 chair is the latest model in a series of executive office chairs by X-Chair. The other models of this chair, the X1, X2, and X3 are only differentiated by the fabric used in them, and whether or not they use mesh.
@@ -188,11 +155,31 @@ Lifewire / Rebecca Isaacs
 
  Sometimes, a large splurge is worthwhile. When it comes to the X4 Executive Chair, the adjustability combined with the SciFloat technology makes it a great, comfortable, and stylish chair for any office.
 
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [FicMax Ergonomic Gaming Chair](https://www.lifewire.com/ficmax-ergonomic-gaming-chair-review-4771068)
 * [X Rocker 51396 Pro Series Pedestal 2.1 Gaming Chair](https://www.lifewire.com/x-rocker-51396-pro-series-pedestal-2-1-gaming-chair-review-4771021)
 * [Homall Executive Swivel Chair](https://www.lifewire.com/homall-executive-swivel-chair-review-4589356)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -206,14 +193,11 @@ Lifewire / Rebecca Isaacs
 * Color  Black, Brown, Cognac, Red, and White Leather; Black, Brown, and Rose Brisa
 * Price  $1,249 for most basic model
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -222,4 +206,18 @@ Lifewire / Rebecca Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-blueprint-of-film-narrative/"><u>[Updated] 2024 Approved The Blueprint of Film Narrative</u></a></li>
+<li><a href="https://win11.techidaily.com/fundamental-insights-into-windows-snoozer-functionality/"><u>Fundamental Insights Into Window's Snoozer Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/future-proof-picks-top-consoles-to-game-on-in-2e-2024-unveiled/"><u>Future-Proof Picks: Top Consoles to Game On in 2E 2024 Unveiled</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-infinix-note-30-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Infinix Note 30 Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-oppo-reno-10-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Oppo Reno 10 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/step-by-step-tutorial-on-transferring-entire-hdd-contents-to-an-ssd-with-acronis-true-image-clone-feature/"><u>Step-by-Step Tutorial on Transferring Entire HDD Contents to an SSD with Acronis True Image Clone Feature</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-ranked-childrens-movies-of-2016-a-comprehensive-list/"><u>Top-Ranked Children's Movies of 2016 - A Comprehensive List</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tp-link-archer-c50-reviewed-top-value-and-reliability-for-budget-shoppers/"><u>TP-Link Archer C50 Reviewed: Top Value and Reliability for Budget Shoppers</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-infinix-smart-8-hd-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Infinix Smart 8 HD Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-premium-byb-e430s-features-an-insightful-review-of-its-ergonomic-led-light/"><u>Unveiling the Premium BYB E430's Features – An Insightful Review of Its Ergonomic LED Light</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/wet-curing-methods-involve-maintaining-moisture-through-water-or-wet-coverings/"><u>Wet Curing Methods Involve Maintaining Moisture Through Water or Wet Coverings.</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Showcasing the Potential of Small Phones - In-Depth Analysis of Apple's iPhone 12 Mini
-date: 2024-10-11T23:30:05.704Z
-updated: 2024-10-12T20:38:08.243Z
+date: 2024-10-12T23:02:56.610Z
+updated: 2024-10-18T18:59:00.178Z
 categories:
   - BestProducts
 description: This Article Describes Showcasing the Potential of Small Phones - In-Depth Analysis of Apple's iPhone 12 Mini
@@ -43,15 +43,22 @@ Lifewire / Gannon Burgett
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
 ![Max Oak](https://www.lifewire.com/thmb/0sYGw-7sF6j5aqPA13sWjU-Y2b4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -75,6 +82,13 @@ Lifewire / Gannon Burgett
 
  While there's no shortage of options on the market, there aren’t many that can keep you going for days. That’s not the case with the MaxOak 50000mAh, an absolutely massive and robust charger that attempts to be the jack of all when it comes to charging gadgets on the go. It’s power comes at the cost of massive size and the charging ports aren’t too fast, but if you need tons of power, this is the battery pack to get.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Bulky for travelers**
 
  First and foremost, this thing is a tank. At 2.77 pounds, it weighs many times more than most smartphones and nearly as much as most compact laptops. It also measures in at 8.1 x 5.3 x 1.3 inches (HWD), making it quite the behemoth to lug around. A small detail regarding the weight of the MaxOak is that it isn't balanced. The side without the ports holds a fair bit more weight than the side with the various ports. It's not a significant detail, but one you might notice with time.
@@ -91,13 +105,6 @@ Lifewire / Gannon Burgett
 
  Charging the device is done via a small 16.8-volt 2.5A plug-in style port on the opposite side of the power button. Overall, the design is roughly what you'd expect from a 50000mAh laptop battery charger. Yes, it's heavy, yes it's quite beefy in size, but it comes with the territory.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Simple to start, but yet another adapter to carry around**
 
  Setting up the MaxOak laptop battery charger is as simple as it gets. After removing it from its unbranded cardboard box, it's simply a matter of plugging it in and getting it charged up completely. Our device came charged at roughly 50% based on the onboard[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) battery indicator, but to complete our tests we wanted it charged entirely, which leads us to our biggest complaint about this charger.
@@ -109,13 +116,6 @@ Lifewire / Gannon Burgett
  The MaxOak 50000mAh manages to charge at a decent rate considering its capacity, but we would’ve liked to see more high-powered ports for speedier charging. We charged and fully drained the MaxOak power bank five times and charging took roughly six to eight hours per recharge with an average of seven hours and fifteen minutes.
 
 ![Max Oak](https://www.lifewire.com/thmb/FlP4JZUVLoJ3DjKoSRUIFuf1peY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_6Web-5c8ff3e6c9e77c0001a926ff.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -133,6 +133,13 @@ Lifewire / Gannon Burgett
 
  The MaxOak 50000mAh power bank comes in at $135.99 at the time of this review. This is a reasonable price when taking into consideration how much battery capacity you're getting with it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Competition: One in the same**
 
  In terms of pure capacity, the MaxOak doesn't have much competition. There are only two other 50000mAh power banks on Amazon: the Crave PowerPack and the[Renogy power bank](https://www.amazon.com/Renogy-50000mAh-Portable-Generator-External/dp/B07CQCMZ4Q/?tag=lifewire-onsite-prod-20&ascsubtag=4589398%7Cn970af9c77c9d48e5afeadf350862a65723%7C) and all of them use the_exact_ same design, just with different branding.
@@ -148,13 +155,6 @@ Lifewire / Gannon Burgett
 **Plenty of power, but output is lacking.**
 
  Overall, the MaxOak 50000mAh is a decent power bank with massive capacity. However, it isn't designed with newer computers and devices in mind. If you have an older laptop on hand that isn't a MacBook (the MaxOak doesn't support any MagSafe connectors) or doesn't use USB Type-C for charging, it'll get the job done. But if your smartphone or laptop is newer and relies on more recent and powerful connections, you're going to want to look elsewhere.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -192,17 +192,21 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-elevate-meta-descriptions-top-template-strategies/"><u>[New] 2024 Approved Elevate Meta Descriptions Top Template Strategies</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-navigating-the-art-of-3d-text-rendering-in-ps/"><u>[New] Navigating the Art of 3D Text Rendering in PS</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-experts-to-follow-on-igtv/"><u>[Updated] Experts to Follow on IGTV</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-captivating-intros-on-mobile-platforms/"><u>[Updated] In 2024, Crafting Captivating Intros on Mobile Platforms</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ausdom-m06-wireless-headphones-review/"><u>Ausdom M06 Wireless Headphones Review</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/diagnose-and-fix-unpredictable-microphonespeaker-dropouts-on-windows-11-devices/"><u>Diagnose and Fix Unpredictable Microphone/Speaker Dropouts on Windows 11 Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-the-power-of-editing-with-anthropics-smart-photo-editor-app/"><u>Expert Analysis: The Power of Editing with Anthropics' Smart Photo Editor App</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-tecno-pop-8-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Tecno Pop 8 Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-microsofts-top-tier-ergonomic-keyboard-for-surface-users/"><u>In-Depth Analysis of Microsoft's Top-Tier Ergonomic Keyboard for Surface Users</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/inside-yokus-island-express-an-unforgettable-journey-through-gaming-excellence/"><u>Inside Yoku's Island Express: An Unforgettable Journey Through Gaming Excellence</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/is-revenue-derived-from-evaluating-products-in-2024/"><u>Is Revenue Derived From Evaluating Products, In 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-definitive-guide-to-choosing-an-android-phone-spotlight-on-samsung-galaxy-s21-ultra/"><u>The Definitive Guide to Choosing an Android Phone: Spotlight on Samsung Galaxy S21 Ultra</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-youtubes-feature-switch-between-commenting-states/"><u>[New] Mastering YouTube's Feature Switch Between Commenting States</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/1728480607495-word/"><u>「【完全ガイド】Wordファイル消滅から奇跡的な復活へ：手順とヒント」</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-cutting-edge-video-recording-techniques-on-modern-win-11-devices/"><u>2024 Approved Cutting-Edge Video Recording Techniques on Modern Win 11 Devices</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/award-winning-cost-free-applications-for-seamless-video-conversion-on-windows-phones/"><u>Award-Winning, Cost-Free Applications for Seamless Video Conversion on Windows Phones</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/cookiebot-propulsion-harnessing-next-gen-tech-for-superior-seo-solutions/"><u>Cookiebot Propulsion: Harnessing Next-Gen Tech for Superior SEO Solutions</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Lava Blaze 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-launch-your-content-with-free-intros/"><u>In 2024, Launch Your Content with Free Intros</u></a></li>
+<li><a href="https://howto.techidaily.com/restore-missing-app-icon-on-lava-agni-2-5g-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Lava Agni 2 5G Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/step-by-step-tutorial-mastering-dvd-recovery-on-windows-earn-with-leading-dvd-duplication-software-solutions/"><u>Step-by-Step Tutorial: Mastering DVD Recovery on Windows #earn with Leading DVD Duplication Software Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-10-must-play-titles-on-your-steam-deck/"><u>Top 10 Must-Play Titles on Your Steam Deck</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-performing-alienware-aurora-r11-gaming-desktop-expert-review/"><u>Top-Performing Alienware Aurora R11 Gaming Desktop - Expert Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/torment-navigating-the-tides-of-numenera-a-deep-dive-into-its-rich-worldbuilding-and-rpg-mechanics/"><u>Torment: Navigating the Tides of Numenera - A Deep Dive Into Its Rich Worldbuilding and RPG Mechanics</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tp67-thermometer-by-thermopro-a-budget-friendly-choice-with-durability-concerns/"><u>TP67 Thermometer by ThermoPro - A Budget-Friendly Choice with Durability Concerns</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-collection-leading-usb-thumb-drives-2024-edition/"><u>Ultimate Collection: Leading USB Thumb Drives 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-list-of-places-to-find-movie-teasers-online/"><u>Ultimate List of Places to Find Movie Teasers Online</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-potential-comprehensive-review-of-playstation-er-4-pros-4k-visual-fidelity/"><u>Unlocking the Potential: Comprehensive Review of PlayStation Er 4 Pro's 4K Visual Fidelity</u></a></li>
 </ul></div>
 

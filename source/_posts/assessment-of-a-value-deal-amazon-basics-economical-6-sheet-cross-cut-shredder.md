@@ -1,7 +1,7 @@
 ---
 title: "Assessment of a Value Deal: Amazon Basics' Economical 6-Sheet Cross Cut Shredder"
-date: 2024-10-08T19:04:36.822Z
-updated: 2024-10-12T16:01:15.787Z
+date: 2024-10-16T19:10:33.025Z
+updated: 2024-10-19T00:30:55.538Z
 categories:
   - BestProducts
 description: "This Article Describes Assessment of a Value Deal: Amazon Basics' Economical 6-Sheet Cross Cut Shredder"
@@ -42,16 +42,16 @@ Lifewire / Danny Chadwick
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Apeman C450 Dash Cam
 
 ![Apeman C450 Dashcam](https://www.lifewire.com/thmb/qtPoWkWW4veIi00rgbPVt6Q4pu8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_HeroSquare2-c752b8527e31471e9018279dea42a8ca.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
 
@@ -77,10 +77,10 @@ Lifewire / Danny Chadwick
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/wyf8r7L4gDINa5Etodv7VR7ogds=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_03-3a8b995526fe491b9634a885db40804a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
@@ -100,6 +100,13 @@ Lifewire / Danny Chadwick
  This car camera stores video on a[MicroSD card](https://www.lifewire.com/move-apps-to-sd-card-on-android-4178982) . There isn’t one included, so you’ll have to buy one. And while Apeman claims that the maximum size is 32GB, we tried out a 64GB card and it worked just fine—we filled it up to capacity and didn’t notice any problems with the device or the footage.
 
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/A63ztrIxThbZlrb_lHJH3YL7778=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_02-6ef4e204d0bd452b9601ec468e5358bf.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
 
@@ -128,10 +135,10 @@ Lifewire / Danny Chadwick
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Travels as well as the rest of them**
@@ -154,13 +161,6 @@ Lifewire / Danny Chadwick
 
  One thing to note about this car dashboard camera is that the battery life is quite short. When we tested the Apeman C450, it powered down 28 minutes after we unplugged it. If you want continuous recording, it must be connected to power at all times.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Affordable even on a budget**
 
  The defects of this dashcam can be forgiven pretty easily considering that it costs less than $50\. If you’re looking for a very inexpensive device, the Apeman C450 is a decent if somewhat flawed solution—it’s definitely not built as solidly and lacks the high resolution of its more expensive competitors, but if you are comfortable working around those shortcomings, this dashcam performs pretty well for the price.
@@ -179,18 +179,24 @@ Lifewire / Danny Chadwick
 
  Despite a poor-quality build and some design quirks, the Apeman C450 does its job as a dashcam. It has a discreet design, captures pretty good-quality video, and has important extra features like collision detection and a surveillance mode. If you can get past some of its foibles, it's definitely worth the price tag.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [DDpai mini3](https://www.lifewire.com/ddpai-mini3-review-4770579)
 * [Rexing V1 DashCam](https://www.lifewire.com/rexing-v1-dashcam-review-4770571)
 * [Anker Roav DashCam C1](https://www.lifewire.com/anker-roav-dashcam-c1-review-4773139)
+
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -223,21 +229,22 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-renaming-your-podcast-leading-ai-generators-explored/"><u>[New] In 2024, Renaming Your Podcast Leading AI Generators Explored</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-reducing-excessive-encoding-obs-broadcast-for-2024/"><u>[New] Reducing Excessive Encoding (OBS Broadcast) for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-easy-voice-adjustment-for-ps5-and-ps4/"><u>2024 Approved Easy Voice Adjustment for PS5 & PS4</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-engaging-audiences-through-text-a-comprehensive-video-guide/"><u>2024 Approved Engaging Audiences Through Text A Comprehensive Video Guide</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-screen-time-treasure-summers-top-10-gems/"><u>2024 Approved The Ultimate Screen Time Treasure Summer’s Top 10 Gems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-strengths-of-the-apc-back-ups-be600m1-built-in-usb-charger-meets-high-performance-battery-protection/"><u>Discover the Strengths of the APC Back-UPS Be600m1: Built-In USB Charger Meets High-Performance Battery Protection</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/immerse-yourself-in-high-definition-the-sunbritetv-55/"><u>Immerse Yourself In High Definition - The SunBriteTV 55</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-8-plus-apples-new-iphone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 8 Plus, Apples New iPhone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/in-2024-moving-on-from-virtualdub-discover-the-top-video-editing-software-alternatives/"><u>In 2024, Moving On From Virtualdub Discover the Top Video Editing Software Alternatives</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/shooter-space-odyssey-or-both-unveiling-the-fun-side-of-the-outer-worlds-a-review/"><u>Shooter, Space Odyssey, or Both? Unveiling the Fun Side of 'The Outer Worlds': A Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/status-bt-breakdown-affordability-meets-minor-mishaps/"><u>Status BT Breakdown: Affordability Meets Minor Mishaps</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ltimate-guide-to-freely-download-youtube-series-on-mobile/"><u>The Ultimate Guide to Freely Download YouTube Series on Mobile</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-buying-guide-for-documentphoto-scanners-2024s-must-have-models/"><u>Ultimate Buying Guide for Document/Photo Scanners: 2024'S Must-Have Models</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-evaluation-xp-pen-artist-16-pro-graphic-tablet-assessment/"><u>Ultimate Evaluation: XP-Pen Artist 16 Pro Graphic Tablet Assessment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potential-of-the-zte-blade-a3y-reliable-functionality-in-a-low-cost-device/"><u>Unveiling the Potential of the ZTE Blade A3Y: Reliable Functionality in a Low-Cost Device</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-expert-tips-to-enrich-virtual-meetings-with-screen-sharing-for-2024/"><u>[New] Expert Tips to Enrich Virtual Meetings with Screen Sharing for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-no-money-no-problem-heres-your-list-of-vfx-pages/"><u>[New] In 2024, No Money, No Problem! Here's Your List of VFX Pages</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-top-considerations-for-enhancing-your-4k-cinematic-quality/"><u>[New] In 2024, Top Considerations for Enhancing Your 4K Cinematic Quality</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-pinnacle-software-choices-for-tweeting-vids/"><u>2024 Approved Pinnacle Software Choices for Tweeting Vids</u></a></li>
+<li><a href="https://win11.techidaily.com/a-comprehensible-guide-to-accessing-windows-fix/"><u>A Comprehensible Guide to Accessing Windows Fix</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/google-pixel-4a-review/"><u>Google Pixel 4a Review</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-do-i-sim-unlock-my-apple-iphone-12-pro-max-by-drfone-ios/"><u>How Do I SIM Unlock My Apple iPhone 12 Pro Max?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-effective-is-the-petsafe-smart-feeder-in-maintaining-your-pets-healthy-weight/"><u>How Effective Is the PetSafe Smart Feeder in Maintaining Your Pet's Healthy Weight?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-the-nokia-72-exceeds-and-innovates-within-the-affordable-smartphone-segment/"><u>How the Nokia 7.2 Exceeds and Innovates Within the Affordable Smartphone Segment</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-combat-frozen-wireless-mice-on-windows-desktops/"><u>How to Combat Frozen Wireless Mice on Windows Desktops</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-13-mini-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone 13 mini Without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Nokia C12 Plus? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/important-factors-to-keep-in-mind-for-the-perfect-fitness-tracker-purchase/"><u>Important Factors To Keep In Mind For The Perfect Fitness Tracker Purchase</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-acer-chromebook-cb3-15-review-enhancing-your-workflow-on-the-large-display/"><u>In-Depth Acer Chromebook CB3-15 Review - Enhancing Your Workflow on the Large Display</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-premier-dji-air-2s-quadcopter/"><u>In-Depth Analysis of the Premier DJI Air 2S Quadcopter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-dell-g5-5090-assessment-exceptional-performance-and-versatility-at-an-affordable-price/"><u>In-Depth Dell G5 5090 Assessment: Exceptional Performance and Versatility at an Affordable Price</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-lg-k51-attractive-aesthetics-weighed-down-by-sluggish-performance/"><u>In-Depth Look at the LG K51: Attractive Aesthetics Weighed Down by Sluggish Performance</u></a></li>
 </ul></div>
 

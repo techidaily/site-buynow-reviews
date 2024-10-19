@@ -1,7 +1,7 @@
 ---
 title: "Expert Review of the Lenovo ThinkPad X1 Titanium Yoga: Bridging Tradition and Innovation for Avid ThinkPad Enthusiasts"
-date: 2024-10-09T20:41:23.147Z
-updated: 2024-10-12T23:36:07.541Z
+date: 2024-10-13T19:09:20.448Z
+updated: 2024-10-19T02:19:55.659Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Review of the Lenovo ThinkPad X1 Titanium Yoga: Bridging Tradition and Innovation for Avid ThinkPad Enthusiasts"
@@ -42,9 +42,23 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -79,19 +93,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: Easier than most**
 
  Setting up the antenna is relatively intuitive. You just connect the antenna to the coaxial/antenna-in connection on your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) . The antenna has an easy-push connector, instead of a connector you have to twist onto the threading. This makes for easier setup because you don’t have to struggle behind your TV with trying to screw on the[coaxial cable](https://www.lifewire.com/coaxial-vs-optical-digital-cable-3134605) .
@@ -101,16 +102,16 @@ Lifewire / Erika Rawes
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
 <!-- affiliate ads begin -->
-<span id="1977032">
+<span id="1993654">
 					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels**
@@ -123,13 +124,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Range: Could be better**
 
  My test home is in a rural area, and there’s a lot of tree cover on the property. The omnidirectional Antop AT-127 has a 40-mile range, which was enough to pick up local channels from neighboring cities.
@@ -137,6 +131,13 @@ Lifewire / Erika Rawes
  On my first attempt, I used the included stand, and the auto-programming only picked up four channels. When I placed the antenna on a window facing the TV transmitter tower, however, the omnidirectional HD antenna picked up 23 channels, which is a good amount considering the area.
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Mid-range**
 
@@ -155,19 +156,6 @@ Lifewire / Erika Rawes
 **Works great & looks even better.**
 
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
-
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -200,20 +188,17 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-top-tier-mac-recorder-feature-visuals-and-voices/"><u>[New] Top-Tier Mac Recorder Feature Visuals & Voices</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-direct-conversion-of-spotify-music-5-tools-for-youtube-streaming/"><u>[Updated] 2024 Approved Direct Conversion of Spotify Music 5 Tools for YouTube Streaming</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-easy-ways-to-add-music-to-imovie-from-youtube/"><u>[Updated] 2024 Approved Easy Ways to Add Music to iMovie From YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-instantly-connect-with-viewers-uploading-short-films-online-for-2024/"><u>[Updated] Instantly Connect with Viewers Uploading Short Films Online for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-premier-zombie-apocalypse-battles-ranking-top-titles-for-2024/"><u>[Updated] Premier Zombie Apocalypse Battles Ranking Top Titles for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Samsung Galaxy S23 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exceptional-energy-solutions-assessed-thorough-examination-of-the-halo-bolt-power-bank-and-jump-starter/"><u>Exceptional Energy Solutions Assessed: Thorough Examination of the Halo Bolt Power Bank and Jump Starter</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-elegance-and-mobility-with-the-latest-review-on-acers-stylish-chromebook-r-11/"><u>Experience Elegance & Mobility with the Latest Review on Acer's Stylish Chromebook R 11</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-picks-for-superior-signal-reach-routers-in-2eplustplusy/"><u>Expert Picks for Superior Signal Reach Routers in 2E+t+y</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-poco-c50-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Poco C50 and Browser | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-on-the-go-charging-with-the-mighty-chargetech-27000mah-battery-pack-a-thorough-evaluation/"><u>Revolutionize Your On-the-Go Charging with the Mighty ChargeTech 27000mAh Battery Pack: A Thorough Evaluation</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/seamless-sync-link-insta-and-tiktok-with-ease-for-2024/"><u>Seamless Sync Link Insta & TikTok with Ease for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-like-a-pro-unlocking-squid-game-dialogues-in-korean/"><u>Speak Like a Pro: Unlocking Squid Game Dialogues in Korean</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-verdict-on-hps-budget-notebook-can-its-cost-effective-amd-engine-handle-your-tasks-smoothly/"><u>The Verdict on HP's Budget Notebook: Can Its Cost-Effective AMD Engine Handle Your Tasks Smoothly?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-performance-in-depth-analysis-of-the-netgear-ex3700-wifi-range-expander-ac750/"><u>Unveiling the Performance: In-Depth Analysis of the Netgear EX3700 WiFi Range Expander (AC750)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-crack-the-code-of-content-top-6-youtuber-personality-tests-revealed/"><u>[New] Crack the Code of Content Top 6 YouTuber Personality Tests Revealed</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-2023s-ios-leading-psp-emulators-ranked-the-creme-de-la-creme/"><u>[New] In 2024, 2023'S iOS Leading PSP Emulators Ranked The Crème De La Crème</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-request-info-on-obtaining-full-shared-content-on-messengers/"><u>[Updated] 2024 Approved Request Info on Obtaining Full Shared Content on Messengers</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/1716069189711-updated-2024-approved-top-offline-mobile-world-choose-the-ultimate-game-for-fun/"><u>[Updated] 2024 Approved Top Offline Mobile World - Choose the Ultimate Game for Fun!</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-complete-screencast-process-methodical-instructional-video-for-2024/"><u>[Updated] Complete Screencast Process Methodical Instructional Video for 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/5-ways-to-send-ringtones-from-apple-iphone-11-pro-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>5 Ways to Send Ringtones from Apple iPhone 11 Pro to iPhone Including iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/cambiar-musica-opus-a-formato-wma-sin-costo-usando-el-convertidor-en-linea-de-movavi-guia-paso-a-paso/"><u>Cambiar Música OPUS a Formato WMA Sin Costo Usando El Convertidor en Línea De Movavi: Guía Paso a Paso</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solve-pc-based-microphone-problems-in-rec-room-your-ultimate-fix-guide-updated/"><u>Solve PC-Based Microphone Problems in Rec Room: Your Ultimate Fix Guide, Updated !</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-professional-photography-skills-using-darktables-open-source-raw-converter-on-os-x-and-linux/"><u>Unlock Professional Photography Skills Using Darktable's Open Source RAW Converter on OS X and Linux</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-sonys-xbr49x900f-the-ultimate-guide-to-its-4k-and-smart-features-on-a-49-inch-screen/"><u>Unveiling Sony's XBR49X900F: The Ultimate Guide to Its 4K and Smart Features on a 49-Inch Screen</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-most-sought-after-17-laptops-on-the-market-2024-edition/"><u>Unveiling the Most Sought-After 17 Laptops on the Market - 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/wonderful-discoveries-await-the-wonder-workshop-dash-your-childs-next-connected-companer-for-exciting-adventures/"><u>Wonderful Discoveries Await: The Wonder Workshop Dash – Your Child's Next Connected Companer for Exciting Adventures!</u></a></li>
 </ul></div>
 

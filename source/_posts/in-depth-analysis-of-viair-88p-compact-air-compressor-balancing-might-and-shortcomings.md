@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of Viair #88P Compact Air Compressor - Balancing Might & Shortcomings
-date: 2024-10-11T00:49:44.299Z
-updated: 2024-10-12T18:10:56.461Z
+date: 2024-10-11T18:10:47.082Z
+updated: 2024-10-19T01:53:58.258Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of Viair #88P Compact Air Compressor - Balancing Might & Shortcomings
@@ -46,13 +46,6 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/YWkGikwP23JK119N4M7J22dAPJY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Kelsey Simon
 
 [View On Amazon](https://www.amazon.com/dp/B00D2ZK1IG/?tag=lifewire-onsite-prod-20&ascsubtag=4778324%7Cn8b17d62e028148938085d16c4455799211%7CB00D2ZK1IG) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/dying-light/10111372.html)
@@ -76,14 +69,14 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Setup Process: Straight into the action**
 
@@ -92,6 +85,13 @@ Lifewire / Kelsey Simon
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Plot: A character torn between obligation and friendship**
 
@@ -105,27 +105,7 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Gameplay: Parkour and zombies galore**
 
@@ -151,18 +131,25 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Worth the cost, especially with a friend**
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Other zombie and parkour games**
 
@@ -175,6 +162,13 @@ Harran is a whole different city at night.
 **An original in the zombie survival genre.**
 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -197,22 +191,24 @@ Harran is a whole different city at night.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-snapchat-to-device-the-step-by-step-process-explained/"><u>[New] In 2024, Snapchat to Device - The Step by Step Process Explained</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-srt-fundamentals-explored-in-detail-and-clarity/"><u>[New] SRT Fundamentals Explored in Detail and Clarity</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-ultimate-app-review-for-crafting-unique-reels-for-2024/"><u>[New] The Ultimate App Review for Crafting Unique Reels for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-best-channel-discoveries-in-asmr/"><u>[Updated] In 2024, Best Channel Discoveries in ASMR</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-elevate-your-igtv-presence-secrets-to-skyrocketing-subscribers/"><u>[Updated] In 2024, Elevate Your IGTV Presence Secrets to Skyrocketing Subscribers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/choosing-your-next-smartphone-iphone-or-samsung-making-the-right-decision/"><u>Choosing Your Next Smartphone: IPhone or Samsung - Making the Right Decision</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/conquer-dragons-and-dungeons-with-the-elder-scrolls-v-skyrim-for-the-switch-a-review/"><u>Conquer Dragons and Dungeons with The Elder Scrolls V: Skyrim for the Switch - A Review</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/digital-frontiers-how-vr-transforms-leisure-for-2024/"><u>Digital Frontiers How VR Transforms Leisure for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-the-tiny-behemoth-g7x-ii/"><u>Discovering the Tiny Behemoth: G7X II</u></a></li>
-<li><a href="https://win-answers.techidaily.com/ensuring-a-smooth-gaming-experience-with-snowrunner-fixes-for-common-desktop-issues/"><u>Ensuring a Smooth Gaming Experience with SnowRunner - Fixes for Common Desktop Issues</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-to-choose-the-right-antivirus-app-the-6-most-reliable-protectors-for-iphone-users/"><u>How to Choose the Right Antivirus App: The 6 Most Reliable Protectors for iPhone Users</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/innovative-video-strategies-navigating-the-top-20-fb-marketing-tactics-for-2024/"><u>Innovative Video Strategies Navigating the Top 20 FB Marketing Tactics for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-retaining-or-refreshing-your-phone-better/"><u>Is Retaining or Refreshing Your Phone Better?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-fongos-call-options-a-detailed-assessment-of-canadas-best-in-class-voip-service/"><u>Navigating Fongo's Call Options - A Detailed Assessment of Canadas Best-in-Class VoIP Service</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-looking-beyond-virtualdub-the-best-video-editing-software-for-your-needs/"><u>New In 2024, Looking Beyond Virtualdub The Best Video Editing Software for Your Needs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ospreys-ambient-ws-2902a-unlocking-advanced-weather-features-without-breaking-the-bank-reviewed-here/"><u>Osprey's Ambient WS-2902A: Unlocking Advanced Weather Features without Breaking the Bank – Reviewed Here!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-2024-police-radios-uncovered/"><u>Top 2024 Police Radios Uncovered</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-best-online-youtube-tag-extractors/"><u>[New] 7 Best Online YouTube Tag Extractors</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-nights-tale-videos-critical-take/"><u>[New] Night's Tale Videos Critical Take</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-digital-imagery-with-musical-twist-for-2024/"><u>[Updated] Digital Imagery with Musical Twist for 2024</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/5zub5asn5a625bi45oml5q6177ya6yen54plusplus56gs56kf5lik5rai5asx5qqu5qgi77yi5ywn6lk757ea5lik5lil6lyj77yj/"><u>四大家常手段：重現硬碟上消失檔案（免費線上下載）</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ace-your-energy-conversion-with-top-power-inverters-of-the-year/"><u>Ace Your Energy Conversion with Top Power Inverters of the Year</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-and-lightweight-microsoft-surface-laptop-go-a-detailed-product-assessment/"><u>Affordable & Lightweight Microsoft Surface Laptop Go - A Detailed Product Assessment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-and-durable-omoton-t1-tablet-stand-gets-expert-reviews/"><u>Affordable and Durable: Omoton T1 Tablet Stand Gets Expert Reviews</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-top-quality-fellowes-keyboards-with-microban-technology-in-depth-review/"><u>Affordable Top-Quality Fellowes Keyboards with Microban Technology - In Depth Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722569405223-analyzing-the-strengths-and-weaknesses-of-pidgin-chat-application/"><u>Analyzing the Strengths & Weaknesses of Pidgin Chat Application</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assessment-highlights-sony-w800s-robustness-and-attractive-cost-structure/"><u>Assessment Highlights: Sony W800's Robustness & Attractive Cost Structure</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/authentic-basketball-action-awaits-in-nba-2k19/"><u>Authentic Basketball Action Awaits in NBA 2K19</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/breaking-down-the-features-and-performance-of-asus-zenwifi-6e-xt8-ax6600-mesh-wi-fi-system-reviewed/"><u>Breaking Down the Features and Performance of Asus ZenWiFi 6E (XT8) AX6600 Mesh Wi-Fi System Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cutting-edge-cat-entertainment-discover-the-premier-electronic-toy-picks-for-your-pet-in-2-techcattoys2023/"><u>Cutting-Edge Cat Entertainment: Discover the Premier Electronic Toy Picks for Your Pet in 2# Tech_CatToys_2023</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-vivo-s18-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Vivo S18</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-effective-utilization-of-whiteboards-on-mobile-and-desktop-for-online-learning/"><u>In 2024, Effective Utilization of Whiteboards on Mobile and Desktop for Online Learning</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Vivo Y200 | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/navigating-through-excellent-alternatives-to-gopro-cams/"><u>Navigating Through Excellent Alternatives to GoPro Cams</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/tesla-robot-news-rumors-and-estimated-price-release-date-and-specs/"><u>Tesla Robot: News, Rumors, and Estimated Price, Release Date, and Specs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/zmi-powerpack-20000-review/"><u>ZMI PowerPack 20000 Review</u></a></li>
 </ul></div>
 

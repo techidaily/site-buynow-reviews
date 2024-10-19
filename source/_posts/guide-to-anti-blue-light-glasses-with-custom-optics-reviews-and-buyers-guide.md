@@ -1,7 +1,7 @@
 ---
 title: "Guide to Anti-Blue Light Glasses with Custom Optics: Reviews & Buyer's Guide"
-date: 2024-10-11T17:37:25.886Z
-updated: 2024-10-12T17:37:24.566Z
+date: 2024-10-13T16:46:24.897Z
+updated: 2024-10-19T03:16:18.816Z
 categories:
   - BestProducts
 description: "This Article Describes Guide to Anti-Blue Light Glasses with Custom Optics: Reviews & Buyer's Guide"
@@ -43,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 
 3
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
@@ -67,10 +74,10 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Plot: Lots of options**
@@ -81,14 +88,14 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Humans have never been so annoying**
 
@@ -122,27 +129,20 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
- Lifewire / Rebecca Isaacs
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Rebecca Isaacs
 
 ## **Competition: Other city-building games**
 
@@ -183,22 +183,24 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-unveiling-the-art-of-screencasting-orderly-tutorial-series-for-2024/"><u>[New] Unveiling the Art of Screencasting Orderly Tutorial Series for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-top-10-hilarious-song-mock-ups-laughter-unleashed/"><u>[Updated] In 2024, Top 10 Hilarious Song Mock-Ups Laughter Unleashed</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-chromeos-top-free-screen-capture-software/"><u>2024 Approved ChromeOS Top Free Screen Capture Software</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-unveiling-the-purpose-behind-facebooks-blue-emoji/"><u>2024 Approved Unveiling the Purpose Behind Facebook's Blue Emoji</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/asus-zenbook-pro-duos-close-look-balancing-power-and-portability/"><u>Asus ZenBook Pro Duo's Close Look: Balancing Power and Portability</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-economical-and-competent-fitbit-versa-watch/"><u>Comprehensive Analysis of the Economical and Competent Fitbit Versa Watch</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/cost-vs-security-in-low-cost-ssls-review/"><u>Cost vs Security in Low-Cost SSLs Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dark-souls-evocative-sibling-a-detailed-look-at-bloodborne/"><u>Dark Souls' Evocative Sibling - A Detailed Look at Bloodborne</u></a></li>
-<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-nokia-g310-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Nokia G310 | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/harnessing-lightrooms-power-for-spectacular-hdr-results-for-2024/"><u>Harnessing Lightroom's Power for Spectacular HDR Results for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/helmet-up-surroundings-down-a-bikers-review-of-days-gone-during-a-global-infection-scare/"><u>Helmet Up, Surroundings Down: A Biker's Review of Days Gone During a Global Infection Scare</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-nubia-z50-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Nubia Z50 Ultra | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-linksys-ea8300-smart-router-seamless-multi-device-connectivity/"><u>In-Depth Analysis of Linksys EA8300 Smart Router: Seamless Multi-Device Connectivity</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-your-complete-guide-to-truecaller/"><u>In-Depth Evaluation: Your Complete Guide to TrueCaller</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-residential-weather-instruments-2024s-choices/"><u>Leading Residential Weather Instruments - 2024'S Choices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-of-propella-7s-40-an-easy-to-use-and-budget-friendly-option/"><u>Review of Propella 7S 4.0: An Easy-to-Use & Budget-Friendly Option</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/unlock-funimates-downloading-magic/"><u>Unlock Funimate's Downloading Magic</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-cut-to-the-chase-techniques-for-tightening-youtube-content-for-2024/"><u>[New] Cut to the Chase Techniques for Tightening YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-how-to-create-engaging-visual-hooks-a-guide-to-video-thumbnail-making/"><u>[Updated] In 2024, How to Create Engaging Visual Hooks A Guide to Video Thumbnail Making</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-streamlining-media-transfer-fb-video-to-whatsapp/"><u>[Updated] In 2024, Streamlining Media Transfer FB Video to WhatsApp</u></a></li>
+<li><a href="https://techtrends.techidaily.com/convertisseur-gratuit-de-fichier-mp3-en-flac-en-ligne-movavi/"><u>Convertisseur Gratuit De Fichier MP3 en FLAC en Ligne - Movavi</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-pure-browsing-our-selections-of-7-top-android-adblockers-for-2024/"><u>Enjoy Pure Browsing Our Selections of 7 Top Android AdBlockers for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expand-your-nes-collection-a-comprehensive-guide-to-including-additional-titles/"><u>Expand Your NES Collection: A Comprehensive Guide to Including Additional Titles</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-the-petsafe-healthy-pet-feeder-aids-in-controlling-weight-and-promoting-wellness/"><u>How the PetSafe Healthy Pet Feeder Aids in Controlling Weight and Promoting Wellness</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-oneplus-nord-n30-5gs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your OnePlus Nord N30 5Gs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-making-sense-of-the-affordable-apple-watch-se/"><u>In-Depth Review: Making Sense of the Affordable Apple Watch SE</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-look-at-the-elite-features-that-make-the-samsung-galaxy-s10-top-tier-tech/"><u>Inside Look at the Elite Features That Make the Samsung Galaxy S10 Top-Tier Tech</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/michael-kors-access-gen-5e-mkgo-unveiled-the-perfect-blend-of-sophistication-and-utility/"><u>Michael Kors Access Gen 5E MKGO Unveiled - The Perfect Blend of Sophistication and Utility</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-email-services-a-comprehensive-review-of-outlookcom-and-gmail/"><u>Navigating Email Services: A Comprehensive Review of Outlook.com and Gmail</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-from-lol-to-omg-the-best-meme-creator-apps-for-android-and-ios/"><u>New From LOL to OMG The Best Meme Creator Apps for Android & iOS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionary-elegance-discovering-how-samsung-galaxy-watch3-marries-classic-appeal-with-modern-innovations/"><u>Revolutionary Elegance: Discovering How Samsung Galaxy Watch3 Marries Classic Appeal with Modern Innovations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/rexing-v1-dashcam-reviewed-hidden-camera-with-solid-performance-at-a-great-price/"><u>Rexing V1 DashCam Reviewed: Hidden Camera with Solid Performance at a Great Price</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/settling-into-a-virtual-firepit-a-comprehensive-evaluation-of-the-minecraft-campfire-tales-edition/"><u>Settling Into a Virtual Firepit: A Comprehensive Evaluation of the Minecraft Campfire Tales Edition</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solved-directx-device-creation-failed/"><u>SOLVED: DirectX Device Creation Failed</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-vivo-y100i-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Vivo Y100i Bricked Devices | Dr.fone</u></a></li>
 </ul></div>
 

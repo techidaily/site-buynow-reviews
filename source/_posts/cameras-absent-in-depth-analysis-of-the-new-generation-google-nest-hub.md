@@ -1,7 +1,7 @@
 ---
 title: "Cameras Absent: In-Depth Analysis of the New Generation Google Nest Hub"
-date: 2024-09-10T08:56:06.159Z
-updated: 2024-09-15T14:04:02.674Z
+date: 2024-10-15T00:50:19.231Z
+updated: 2024-10-18T18:52:54.899Z
 categories:
   - BestProducts
 description: "This Article Describes Cameras Absent: In-Depth Analysis of the New Generation Google Nest Hub"
@@ -68,6 +68,13 @@ Lifewire / Emily Isaacs
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/Ky7KFEDgeAy-u_D_Tv7zaOPYQMI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_03-f111424cfd584bfeac329fa2932278ca.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
 ## **Design: Smart and sleek**
@@ -98,6 +105,19 @@ Lifewire / Emily Isaacs
 
  Once the TV has been installed, LG’s WebOS guides the first-time setup process by prompting inputs for settings ranging from time zone and language up to and including any necessary user agreements. The LG C9 will complete a scan in order to identify the devices and then you’re free to customize the TV’s settings by pressing the gear button on the LG Magic Remote. The first setting we changed was the Auto Power Saving (APS) picture mode, which reduces power use by dimming the brightness of the TV. The other important setting to disable is TruMotion, which smooths motion in TV shows and movies by altering the frame rate of the programming. If your LG’s picture looks a bit too much like a soap opera, chances are you need to disable this setting.
 
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Image Quality: Stunning picture**
 
  The image quality on the LG C9 is, frankly, stunning thanks in large part to its excellent contrast and wide range of colors, combined with the OLED panel’s ability to turn individual pixels on and off. Even from wide viewing angles, the 4K picture maintains its excellence, with limited washing out and color loss.
@@ -108,6 +128,13 @@ Lifewire / Emily Isaacs
 
  These pictures are further enhanced with LG’s α9 Gen 2 intelligent processor, new to 2019’s model. It excels at drawing out detail and correcting quality discrepancies within the picture, such as banding which creates textures and strips in areas of the screen that would otherwise be smooth. This is particularly important given the large screen size and high resolution. While it’s not as bright as an LED TV since it lacks backlighting, it doesn’t need it as the TV already possesses excellent color, a change here would risk washing out the inky blacks on the screen.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Audio: Better than expected**
 
  While OLED TVs aren’t generally known for their great sound quality, the LG C9 has a surprisingly good sound system all things considered—but a soundbar would still be recommended. Audio in TV or movies is generally good, but it struggles to regulate loud and soft noises in a scene. Streaming Lizzo’s_Cuz I Love You_ on Spotify produces a surprising depth of sound, but it’s simply not comparable to a more robust system that a soundbar or home theater system would provide.
@@ -115,26 +142,13 @@ Lifewire / Emily Isaacs
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/SZUaFESJi6OZubIeLdK1e9L9FEM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_04-c559e4cc6de64f0c8baf4470f883dd9e-4844a7694fb74eb2904f1128ba93f760.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
-
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Smooth and easy to use**
 
@@ -144,18 +158,18 @@ Lifewire / Emily Isaacs
 
  In addition to the WebOS software, the LG C9 also comes with Google Assistant as well as Amazon’s Alexa. It makes it easy to search content, switch between apps and features, or check the weather, among other things.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: A premium price for a premium TV**
 
  65-inch 4K TV’s generally retail for between $800-$5,000, and this cost jumps further as screen size increases. The LG C9 is a premium 4K TV that sits at the top of this curve, offering integrated smart technologies and excellent picture with an intuitive, easy-to-use interface. As such, it comes at a premium price of $2,500 (Amazon) that exceeds the cost of many competitor models, but with so many additional features it’s worth the high price—even if it’s difficult to swallow.
 
 [How to Buy a TV For Your Home in 2024](https://www.lifewire.com/best-60-inch-tvs-4580159)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **LG OLED C9 65-inch vs. Samsung 65-inch Class Q60R**
 
@@ -216,5 +230,24 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-best-beams-microphones-for-education/"><u>[New] 2024 Approved Best Beams Microphones for Education</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-perfecting-instagrams-audio-emoji-placement-for-2024/"><u>[New] Perfecting Instagram's Audio Emoji Placement for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-debut-video-capture-review-for-2024/"><u>[Updated] Debut Video Capture Review for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-into-virtual-realms-assessing-current-progress-future-hurdles/"><u>2024 Approved Into Virtual Realms Assessing Current Progress, Future Hurdles</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apples-iphone-versus-samsung-galaxy-a-comprehensive-side-by-side-review-for-consumers/"><u>Apple's iPhone versus Samsung Galaxy: A Comprehensive Side-by-Side Review for Consumers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-upgrade-manual-enhancing-your-intel-imac/"><u>Comprehensive Upgrade Manual: Enhancing Your Intel iMac</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/demystifying-spotifys-elite-membership-benefits/"><u>Demystifying Spotify's Elite Membership Benefits</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-powerhouse-within-in-depth-zmi-powerpack-20000-portable-charger-review/"><u>Discover the Powerhouse Within: In-Depth ZMI PowerPack 20000 Portable Charger Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-samsungs-un65nu8000fxza-a-disappointing-smart-tv-worth-its-hefty-tag/"><u>Evaluating Samsung's UN65NU8000FXZA - A Disappointing Smart TV Worth Its Hefty Tag?</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixed-how-to-stop-beat-saber-from-frequently-crashing/"><u>Fixed! How To Stop Beat Saber From Frequently Crashing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-teamwork-and-agility-in-the-thrilling-dying-light-gameplay/"><u>In-Depth Review: Teamwork and Agility in the Thrilling Dying Light Gameplay</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/sketch-it-right-top-8-proficient-drawing-apps-for-iphone-users/"><u>Sketch It Right Top 8 Proficient Drawing Apps for iPhone Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/swapping-for-success-apples-iphone-trade-in-strategy/"><u>Swapping for Success: Apple’s iPhone Trade-In Strategy</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-processor-based-rankings-how-to-evaluate-best-tablet-computers/"><u>Top Processor-Based Rankings: How to Evaluate Best Tablet Computers</u></a></li>
+<li><a href="https://os-tips.techidaily.com/unlocking-solutions-a-step-by-step-guide-on-performing-a-softhard-reset-on-your-huawei-device/"><u>Unlocking Solutions: A Step-by-Step Guide on Performing a Soft/Hard Reset on Your Huawei Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-pay-up-for-ps5-uncover-these-4-persuasive-points/"><u>Why Pay Up for PS5? Uncover These 4 Persuasive Points</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/wonderfox/"><u>WonderFox ウェブサイトでの購入が安全でしょうか?</u></a></li>
+</ul></div>
 

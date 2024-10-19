@@ -1,7 +1,7 @@
 ---
 title: Lenovo IdeaPad 130S Assessment - Impressive Functionality with Restricted Performance
-date: 2024-10-08T17:37:29.661Z
-updated: 2024-10-12T22:57:44.487Z
+date: 2024-10-17T21:28:51.007Z
+updated: 2024-10-19T03:09:11.155Z
 categories:
   - BestProducts
 description: This Article Describes Lenovo IdeaPad 130S Assessment - Impressive Functionality with Restricted Performance
@@ -104,10 +104,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 **TL;DR:** Sleek and stylish, the Samsung Galaxy Watch 6 has some great features provided you’re an Android phone owner. Its body composition tool is a particular highlight.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Why We Recommend This
@@ -141,10 +141,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **What do buyers think?** The Samsung Galaxy Watch 6 has over 3,900 ratings on Amazon, with 88% of those rating the watch either five or four stars. The overall average rating is 4.5 out of 5.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Easiest on the Budget
@@ -158,6 +158,19 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 [$267 at Amazon](https://www.amazon.com/Garmin-v%C3%ADvoactive-Fitness-Smartwatch-Display/dp/B0CG6NR413?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CG6NR413)
 
 **TL;DR:** More affordable than most Garmin watches, the Garmin Vivoactive 5 offers all the key features while not looking too sporty.
+
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Why We Recommend This
 
@@ -192,10 +205,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **What do buyers think?** The Garmin Vivoactive 5 has over 1,800 ratings on Amazon, with 76% of them rating it five or four stars. Its average rating is 4.4 out of 5.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How We Test
@@ -211,13 +224,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
  I purchased the Apple Watch Series 9 and Garmin Vivoactive 5, while I borrowed the Google Pixel Watch 2 from a friend. The Amazfit Balance, and Samsung Galaxy Watch 6 were loaned to me by the respective companies.
 
  I used all the devices for several weeks, with some smartwatches used for months. I wore them daily while working, exercising, relaxing, and asleep.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What to Look For
 
@@ -266,16 +272,21 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-balance-of-serene-visuals/"><u>[New] 2024 Approved The Balance of Serene Visuals</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-unlocking-the-full-spectrum-of-editing-power-in-polarr-for-2024/"><u>[Updated] Unlocking the Full Spectrum of Editing Power in Polarr for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/affordable-action-cam-top-picks/"><u>Affordable Action Cam Top Picks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/chatgpt-plus-is-it-a-must-have-top-5-benefits-of-joining-now/"><u>ChatGPT Plus: Is It a Must-Have? Top 5 Benefits of Joining Now</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-samsung-galaxy-s10-a-true-symbol-of-elegance-and-innovation-in-mobile-phones/"><u>Comprehensive Review of the Samsung Galaxy S10: A True Symbol of Elegance and Innovation in Mobile Phones</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expertly-curated-2024s-elite-professional-development-on-linkedin/"><u>Expertly Curated 2024'S Elite Professional Development on LinkedIn</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fire-tv-with-insignia-ns-43df710na19-alexa-voice-control-and-stunning-4k-experience-at-great-value/"><u>Fire TV with Insignia NS-43DF710NA19: Alexa Voice Control & Stunning 4K Experience at Great Value.</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-crafting-self-narratives-100-unique-instagram-captions/"><u>In 2024, Crafting Self-Narratives - 100 Unique Instagram Captions</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/resolving-sound-disturbances-in-apple-tv/"><u>Resolving Sound Disturbances in Apple TV</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-essential-iphone-gadgets-must-have-accessories-for-optimal-use/"><u>Top Essential iPhone Gadgets: Must-Have Accessories for Optimal Use</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-reviews-of-the-tp-link-archer-c9-smart-savings-on-your-network/"><u>Top Reviews of the TP-Link Archer C9 - Smart Savings on Your Network</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-depth-review-tunefabs-latest-in-screen-capture-tech-for-2024/"><u>[Updated] In-Depth Review Tunefab's Latest in Screen Capture Tech for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/4-ways-to-mirror-apple-iphone-se-2020-to-laptop-via-usb-or-wi-fi-drfone-by-drfone-ios/"><u>4 Ways to Mirror Apple iPhone SE (2020) to Laptop via USB or Wi-Fi | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/boosting-visibility-using-cookiebot/"><u>Boosting Visibility Using Cookiebot</u></a></li>
+<li><a href="https://win-forum.techidaily.com/connecting-audiences-across-platforms-leveraging-facebook-twitter-instagram-and-youtube-for-brand-growth/"><u>Connecting Audiences Across Platforms: Leveraging Facebook, Twitter, Instagram, and YouTube for Brand Growth</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-why-rayman-legends-stands-out-as-a-premier-2d-adventure-game/"><u>Expert Analysis: Why Rayman Legends Stands Out as a Premier 2D Adventure Game</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-evaluation-of-the-thermaltake-massive-is-it-worth-the-expense/"><u>Expert Evaluation of the Thermaltake Massive - Is It Worth The Expense?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insights-into-gimp-an-affordable-and-versatile-option-for-multi-platform-photo-editing/"><u>Expert Insights Into GIMP: An Affordable and Versatile Option for Multi-Platform Photo Editing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-viber-out-functionality-a-detailed-performance-review/"><u>Exploring Viber Out Functionality: A Detailed Performance Review</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-samsung-galaxy-z-fold-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/from-classic-to-convertible-an-in-depth-look-at-the-lenovo-thinkpad-x1-titanium-yogas-appeal-to-die-hard-thinkpad-admirers/"><u>From Classic to Convertible: An In-Depth Look at the Lenovo ThinkPad X1 Titanium Yoga's Appeal to Die-Hard ThinkPad Admirers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/google-nest-audio-and-apple-homepod-face-off-an-in-depth-analysis/"><u>Google Nest Audio and Apple HomePod Face-Off: An In-Depth Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-apples-latest-offering-shatters-expectations-a-comprehensive-review-of-their-best-value-10cu-display-ipad-now-in-its-eighth-generation/"><u>How Apple's Latest Offering Shatters Expectations: A Comprehensive Review of Their Best Value 10.cu Display iPad, Now in Its Eighth Generation</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-sign-out-of-apple-id-from-apple-iphone-12-pro-without-password-by-drfone-ios/"><u>How to Sign Out of Apple ID From Apple iPhone 12 Pro without Password?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-insta-growth-the-10-most-important-hashtags-now/"><u>In 2024, Insta Growth The 10 Most Important Hashtags Now</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-imessages-on-pc-the-ultimate-step-by-step-tutorial-with-windows-compatibility/"><u>Mastering iMessages on PC: The Ultimate Step-by-Step Tutorial with Windows Compatibility</u></a></li>
+<li><a href="https://win-forum.techidaily.com/social-networking-heavyweights-understanding-the-impact-of-facebook-twitter-instagram-and-youtube/"><u>Social Networking Heavyweights: Understanding the Impact of Facebook, Twitter, Instagram, and YouTube</u></a></li>
 </ul></div>
 

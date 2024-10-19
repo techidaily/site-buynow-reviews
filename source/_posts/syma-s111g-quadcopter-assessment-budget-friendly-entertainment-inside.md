@@ -1,7 +1,7 @@
 ---
 title: "Syma S111G Quadcopter Assessment: Budget-Friendly Entertainment Inside"
-date: 2024-10-06T16:19:52.755Z
-updated: 2024-10-12T19:09:43.427Z
+date: 2024-10-12T20:36:57.750Z
+updated: 2024-10-19T00:40:44.458Z
 categories:
   - BestProducts
 description: "This Article Describes Syma S111G Quadcopter Assessment: Budget-Friendly Entertainment Inside"
@@ -68,10 +68,10 @@ Lifewire / Erika Rawes
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: It’s all in the name (basic)**
@@ -81,6 +81,13 @@ Lifewire / Erika Rawes
  It doesn’t come with a stand, but it does include 3M double-sided adhesives you can use to attach the antenna to walls or other surfaces. It also comes with a 10-foot long coax cable, which is removable. The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup: Relatively easy**
 
@@ -103,10 +110,10 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: 35 miles**
@@ -123,20 +130,14 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
@@ -147,13 +148,6 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -186,19 +180,18 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-cracking-the-code-of-true-instagram-photos-for-2024/"><u>[New] Cracking the Code of True Instagram Photos for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-turning-twitter-video-into-engaging-customizable-gifs/"><u>[New] In 2024, Turning Twitter Video Into Engaging Customizable GIFs</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-premier-pros-pathway-to-perfect-sound-cutting/"><u>[New] Premier Pro's Pathway to Perfect Sound Cutting</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-step-by-step-emojis-in-youtube-comments/"><u>[Updated] In 2024, Step-by-Step Emojis in YouTube Comments</u></a></li>
-<li><a href="https://extra-information.techidaily.com/asus-proarts-pa-329q-a-comprehensive-examination-of-high-end-monitoring/"><u>Asus ProArt's PA 329Q A Comprehensive Examination of High-End Monitoring</u></a></li>
-<li><a href="https://fox-that.techidaily.com/correctly-identifying-individuals-a-guide-to-managing-tag-mistakes-in-apple-photos/"><u>Correctly Identifying Individuals: A Guide to Managing Tag Mistakes in Apple Photos</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/from-sizzle-to-burnout-a-comprehensive-review-of-the-chaos-in-overcooked/"><u>From Sizzle to Burnout: A Comprehensive Review of the Chaos in Overcooked!</u></a></li>
-<li><a href="https://video-capture.techidaily.com/how-to-create-high-impact-educational-videotutorials/"><u>How to Create High-Impact Educational Videotutorials</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/igniting-virality-with-captivating-fb-giveaway-campaigns-for-2024/"><u>Igniting Virality with Captivating FB Giveaway Campaigns for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-madden-19-superior-aspects-but-feeling-a-bit-stale/"><u>In-Depth Look at Madden 19: Superior Aspects But Feeling a Bit Stale</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolving-minecraft-crashes-due-to-faulty-graphics-driver-software-in-windows/"><u>Resolving Minecraft Crashes Due to Faulty Graphics Driver Software in Windows</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sonys-sonic-revolution-hearing-3d/"><u>Sony's Sonic Revolution: Hearing 3D</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/starlinks-satellite-symphony-an-orchestra-of-connectivity-advantages/"><u>Starlink’s Satellite Symphony: An Orchestra of Connectivity Advantages</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-go-anywhere-tp-link-travel-router-stylish-and-powerful-wi-fi-companion/"><u>The Go-Anywhere TP-Link Travel Router: Stylish and Powerful Wi-Fi Companion</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-how-to-save-powerpoint-presentation-as-video-on-windows-and-mac-os/"><u>[New] 2024 Approved How to Save PowerPoint Presentation as Video on Windows and Mac OS</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ows-the-time-top-ten-hourly-viewers-picks-for-2024/"><u>[New] Now's the Time Top Ten Hourly Viewers' Picks for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-mechanics-behind-youtube-once-a-video-goes-live-for-2024/"><u>[Updated] The Mechanics Behind YouTube Once a Video Goes Live for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-the-petsafe-automatic-feeder-and-its-impact-on-your-pets-weight-control/"><u>Comprehensive Analysis: The PetSafe Automatic Feeder and Its Impact on Your Pet's Weight Control</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/obs-studio-and-skype-a-perfect-duo-explained-for-2024/"><u>OBS Studio & Skype A Perfect Duo Explained for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/proven-youtube-seo-methods-for-video-rankings/"><u>Proven YouTube SEO Methods for Video Rankings</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-pc-audio-issues-fixing-low-volume-on-windows-11/"><u>Troubleshooting PC Audio Issues: Fixing Low Volume on Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-potential-in-depth-review-of-the-user-friendly-clearstream-eclipse-antenna/"><u>Unleashing Potential: In-Depth Review of the User-Friendly ClearStream Eclipse Antenna</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unraveling-the-secrets-of-garmin-vivosmart-4-precision-in-measuring-body-battery-and-managing-stress-levels/"><u>Unraveling the Secrets of Garmin Vivosmart 4 - Precision in Measuring Body Battery and Managing Stress Levels</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-benefits-an-exclusive-look-at-freestyle2s-blue-version-for-apple-product-users/"><u>Unveiling the Benefits: An Exclusive Look at Freestyle2's Blue Version for Apple Product Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-moto-g-powers-strengths-exceptional-durability-meets-remarkable-endurance/"><u>Unveiling the Moto G Power's Strengths: Exceptional Durability Meets Remarkable Endurance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-skagen-falster-3-timeless-design-amidst-cutting-edge-smartwatch-innovations/"><u>Unveiling the Skagen Falster 3: Timeless Design Amidst Cutting-Edge Smartwatch Innovations</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/1728495351221-windows-115/"><u>Windows 11で共有フォルダへのアクセス障害を解消するための5つのコツ</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Assessing the Great Outdoors RC Experience: The BLH4100 Blade 120 S Ready To Fly Helicopter"
-date: 2024-10-07T01:21:15.128Z
-updated: 2024-10-12T16:01:32.002Z
+date: 2024-10-12T00:36:51.148Z
+updated: 2024-10-18T21:55:22.525Z
 categories:
   - BestProducts
 description: "This Article Describes Assessing the Great Outdoors RC Experience: The BLH4100 Blade 120 S Ready To Fly Helicopter"
@@ -42,10 +42,10 @@ Lifewire / Jonno Hill
 4.4
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Clearstream ECLIPSE
@@ -76,13 +76,20 @@ Lifewire / Jonno Hill
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/AbdriPZwiRfd8iHxT9N5E6Ae2hk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_03-d434cf7b4c5f4f73b08c8c220fd0d43e.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Inoffensive but unexceptional**
 
@@ -108,23 +115,9 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
@@ -135,6 +128,13 @@ Lifewire / Jonno Hill
 **The best unpowered indoor antenna.**
 
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -163,22 +163,20 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-unveiling-techniques-for-more-extended-instagram-video-posts/"><u>[New] In 2024, Unveiling Techniques for More Extended Instagram Video Posts</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-insightful-cloud-costs-price-comparison-and-recommendations/"><u>[New] Insightful Cloud Costs Price, Comparison & Recommendations</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-step-by-step-guide-to-smooth-facetime-calls-on-mobile-for-2024/"><u>[New] Step-by-Step Guide to Smooth FaceTime Calls on Mobile for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-quick-fixes-for-windows-11-photo-app-freezes/"><u>[Updated] 2024 Approved Quick Fixes for Windows 11 Photo App Freezes</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-a-comprehensive-look-at-youtube-to-facebook-file-transfers/"><u>2024 Approved A Comprehensive Look at YouTube-to-Facebook File Transfers</u></a></li>
-<li><a href="https://apple-account.techidaily.com/3-ways-of-how-to-get-someones-apple-id-off-apple-iphone-14-plus-without-password-by-drfone-ios/"><u>3 Ways of How to Get Someones Apple ID Off Apple iPhone 14 Plus without Password</u></a></li>
-<li><a href="https://article-tips.techidaily.com/5-exceptional-4k-gaming-screens/"><u>5 Exceptional 4K Gaming Screens</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/choosing-your-mobile-sidekick-iphone-or-android-find-the-perfect-fit/"><u>Choosing Your Mobile Sidekick: IPhone or Android - Find the Perfect Fit</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-affordability-and-features-in-the-samsung-un65nu8000fxza-review-is-this-smart-tvs-cost-justified/"><u>Exploring Affordability and Features in the Samsung UN65NU8000FXZA Review: Is This Smart TV's Cost Justified?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/first-impressions-unpacking-the-capabilities-of-the-ampage-andes-1500-portable-power-unit/"><u>First Impressions: Unpacking the Capabilities of the Ampage Andes 1500 Portable Power Unit</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/functionality-first-with-acer-xfa240-a-detailed-review/"><u>Functionality First with Acer XFA240 - A Detailed Review</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-play-8t-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor Play 8T to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/masterclass-review-the-mavix-m9-your-key-to-effortless-hours-of-gaming-comfort/"><u>Masterclass Review: The Mavix M9 - Your Key to Effortless Hours of Gaming Comfort</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/oneplus-nord-n10-5g-smartphone-assessment-a-must-consider-contender/"><u>OnePlus Nord N10 5G Smartphone Assessment: A Must-Consider Contender</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/smart-shopping-for-gamers-5-paramount-points-to-mull-over-when-buying-consoles/"><u>Smart Shopping for Gamers: 5 Paramount Points to Mull Over When Buying Consoles</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-apeman-c450-on-a-budget-evaluating-the-performance-of-an-entry-level-dashcam/"><u>The Apeman C450 on a Budget: Evaluating the Performance of an Entry-Level Dashcam</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-power-of-compact-tech-an-in-depth-analysis-of-apples-iphone-12-mini/"><u>Unboxing the Power of Compact Tech: An In-Depth Analysis of Apple's iPhone 12 Mini</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-transform-youtube-soundtracks-on-iphone-with-these-6-choices/"><u>[New] 2024 Approved Transform YouTube Soundtracks on iPhone with These 6 Choices</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-endless-preservation-of-instagrams-free-and-easy/"><u>[New] Endless Preservation of Instagrams, Free & Easy</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-excellent-envoys-top-laptops-to-edit-videos-in-4k/"><u>[New] In 2024, Excellent Envoys Top Laptops to Edit Videos in 4K</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-launchpad-for-newcomers-creating-a-successful-product-evaluation-vlog/"><u>[Updated] Launchpad for Newcomers Creating a Successful Product Evaluation Vlog</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/1-fix-vlc-player-troubleshooting-mp4-file-playback-problems/"><u>1. Fix VLC Player: Troubleshooting MP4 File Playback Problems</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-airborne-cameras-clash-dji-inspire-vs-gopro-max/"><u>In 2024, Airborne Cameras Clash DJI Inspire vs GoPro MAX</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/oneplus-ace-2v-support-forgotten-screen-lock-by-drfone-android-unlock-android-unlock/"><u>OnePlus Ace 2V support - Forgotten screen lock.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revealing-the-sonic-superiority-of-sony-wh-1000xm4-headphones/"><u>Revealing the Sonic Superiority of Sony WH-1000XM4 Headphones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/skagen-falster-2-assessment-an-elegant-competitor-for-the-iconic-apple-device/"><u>Skagen Falster 2 Assessment: An Elegant Competitor for the Iconic Apple Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/steam-deck-is-it-a-must-have-portable-game-hub/"><u>Steam Deck: Is It a Must-Have Portable Game Hub?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-balance-of-quality-and-value-in-sonys-dsc-w800-review/"><u>The Balance of Quality & Value in Sony’s DSC-W800 Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-cheapest-yet-effective-vuebell-video-doorbells-in-depth-review-and-comparison/"><u>The Cheapest Yet Effective VueBell Video Doorbells – In-Depth Review and Comparison</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-guide-to-the-jaco-smartpro-digital-tire-inflator-an-informed-review-of-efficiency-and-compact-design/"><u>The Definitive Guide to the Jaco SmartPro Digital Tire Inflator - An Informed Review of Efficiency and Compact Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-netgear-nighthawk-c7000-unveiled-a-detailed-review-of-this-high-flying-wireless-networking-marvel/"><u>The Netgear Nighthawk C7000 Unveiled: A Detailed Review of This High-Flying Wireless Networking Marvel</u></a></li>
 </ul></div>
 

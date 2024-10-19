@@ -1,7 +1,7 @@
 ---
 title: TP-Link RE505X Wi-Fi Extender Review
-date: 2024-10-09T03:09:23.840Z
-updated: 2024-10-12T23:08:01.899Z
+date: 2024-10-14T21:07:17.757Z
+updated: 2024-10-18T18:40:08.847Z
 categories:
   - BestProducts
 description: This Article Describes TP-Link RE505X Wi-Fi Extender Review
@@ -45,15 +45,22 @@ Lifewire / Jeff Dojillo
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## GoPro HERO7 Black
 
 ![GoPro HERO7 Black](https://www.lifewire.com/thmb/GYZOA14ZRWOM3tJzi8ZbmTTASe8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4158963-1-2553e26bad2246dea19f86f8fb2c3714.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jeff Dojillo
@@ -87,13 +94,6 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Classic action camera design**
 
  The GoPro HERO7 Black measures in at 2.4 x 1.3 x 1.8 inches, so it’s super compact and almost a cube. The device is all black with a very nice rubber casing around the unit that makes it feel soft to the touch.
@@ -110,6 +110,19 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup: Updates out of the box**
 
  The GoPro HERO7 Black did not have much battery life out of the box. Once we powered it on, we set the date, time, and location. It then prompted us to update the software, which required a blank memory card and fully-charged battery to complete.
@@ -125,13 +138,6 @@ Lifewire / Jeff Dojillo
  We took the GoPro out and recorded some handheld video as we walked around, which would normally have some shake to it. The footage from the HERO7 Black was smooth and it did not contain any camera shake, almost as if we’d been using a gimbal.
 
  It makes your footage impressively stable even when filming handheld or while riding on rough terrain.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Lens: Great for video**
 
@@ -172,10 +178,10 @@ Lifewire / Jeff Dojillo
  Lifewire / Jeff Dojillo
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: Speedy Wi-Fi and Bluetooth pairing**
@@ -183,13 +189,6 @@ Lifewire / Jeff Dojillo
  Wifi and Bluetooth connectivity is a breeze with the GoPro HERO7 Black. Once we installed the GoPro app on our smartphone, the camera connected instantly. The app also gave us a much larger and easier-to-read interface, plus a live view function that allowed us to use our phone to frame and compose videos and remotely control the camera.
 
  Inside the app, there are also options to edit mode settings, change the original set up, review camera info, changed Wi-Fi remotes, as well as monitor the battery level and[SD card](https://www.lifewire.com/how-to-format-sd-card-camera-4587017) capacity. It also makes it easier to review footage and images that the camera captures.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Battery Life: High-res video drains it quickly**
 
@@ -204,6 +203,13 @@ Lifewire / Jeff Dojillo
  Perfect for adventurers, filmmakers, and vloggers that need a rugged and compact camera to create content on the go.
 
  The portability of the GoPro HERO7 Black is perfect for adventurers, filmmakers, and vloggers that need a rugged and compact camera to create content on the go.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Less rugged, but better with still photography**
 
@@ -227,18 +233,18 @@ Lifewire / Jeff Dojillo
 
  Between the amazing video quality and the enhanced HyperSmooth electronic image stabilization, the GoPro HERO7 Black is perfect for adventurers who want to record or even live-stream their most rugged expeditions. It produces beautiful videos with enhanced color and sharpness and is small enough to wear or mount somewhere without it getting in the way.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [AKASO EK7000 Pro 4K Action Camera](https://www.lifewire.com/akaso-ek7000-pro-4k-action-camera-review-4770265)
 * [Canon PowerShot G7 X Mark II](https://www.lifewire.com/canon-powershot-g7-x-mark-ii-review-4706895)
 * [Sony DSC-W800](https://www.lifewire.com/sony-dsc-w800-review-4589510)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -271,19 +277,20 @@ Lifewire / Jeff Dojillo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-a-step-by-step-strategy-to-design-engaging-youtube-teasers/"><u>[New] 2024 Approved A Step-by-Step Strategy to Design Engaging YouTube Teasers</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-vivo-y02t-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Vivo Y02T | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/apple-watch-series-6-reviewed-small-steps-forward-yet-secures-its-throne-as-the-premier-timepiece/"><u>Apple Watch Series 6 Reviewed: Small Steps Forward Yet Secures Its Throne as The Premier Timepiece</u></a></li>
-<li><a href="https://win11.techidaily.com/command-prompt-secrets-5-entertaining-hacks/"><u>Command Prompt Secrets: 5 Entertaining Hacks</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Motorola Edge 40 Neo | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-pexels-a-photographers-toolkit/"><u>In 2024, Mastering Pexels A Photographer's Toolkit</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-htc-u23-pro-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For HTC U23 Pro Phones</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-the-lenovo-ideapad-flex-5-a-closer-yoga-a940-assessment/"><u>In-Depth Look: The Lenovo IdeaPad Flex 5 – A Closer Yoga A940 Assessment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/kensun-portable-air-compressor-evaluation-compact-design-delivers-durability-and-dependability/"><u>Kensun Portable Air Compressor Evaluation: Compact Design Delivers Durability & Dependability</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-long-range-router-options-for-enhanced-connectivity-2024-edition/"><u>Leading Long-Range Router Options for Enhanced Connectivity - 2024 Edition</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-create-stunning-videos-without-spending-a-dime-2024s-top-free-options/"><u>New Create Stunning Videos Without Spending a Dime 2024S Top Free Options</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/reliability-meets-portability-in-our-comprehensive-kensun-tire-inflator-analysis/"><u>Reliability Meets Portability in Our Comprehensive Kensun Tire Inflator Analysis</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/retrospective-on-demons-souls-brilliant-makeover-without-losing-soul/"><u>Retrospective on Demon's Souls: Brilliant Makeover Without Losing Soul</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On ZTE Nubia Flip 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-ultimate-gag-reel-collection-comical-cells-and-cell-blocks-on-facebook/"><u>[New] The Ultimate Gag Reel Collection Comical Cells and Cell Blocks on Facebook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-crafting-emotional-impact-in-personal-youtube-content/"><u>[Updated] In 2024, Crafting Emotional Impact in Personal YouTube Content</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-navigating-cloud-prices-your-guide-to-cheapest/"><u>[Updated] In 2024, Navigating Cloud Prices - Your Guide to Cheapest</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-into-the-world-of-youtube-stellar-intros-in-imovie-for-2024/"><u>Breaking Into the World of YouTube Stellar Intros in iMovie for 2024</u></a></li>
+<li><a href="https://discover-great.techidaily.com/come-impostare-un-copia-di-sicurezza-con-rsync-tra-due-server-windows/"><u>Come Impostare Un Copia Di Sicurezza Con Rsync Tra Due Server Windows</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/improve-pc-functionality-comprehchekin-guide-for-driver-updates-on-a-dell-xps-15/"><u>Improve PC Functionality - Comprehchekin Guide for Driver Updates on a Dell XPS 15</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-compressor-essentials-optimizing-video-files-in-final-cut-pro-x-for-2024/"><u>New Compressor Essentials Optimizing Video Files in Final Cut Pro X for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-meteorology-a-comprehensive-review-of-netatmos-sleek-and-intuitive-weather-gadget/"><u>Revolutionizing Meteorology: A Comprehensive Review of Netatmo's Sleek and Intuitive Weather Gadget</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/rotibox-bluetooth-earwarmers-top-notch-headgear-with-superior-sound-quality/"><u>Rotibox Bluetooth Earwarmers: Top-Notch Headgear with Superior Sound Quality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/staying-ahead-of-the-heat-game-thermaltakes-luxurious-yet-expensive-massive-tm-laptop-cooling-pad-an-in-depth-review/"><u>Staying Ahead of the Heat Game - Thermaltake's Luxurious Yet Expensive Massive TM Laptop Cooling Pad: An In-Depth Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-radio-gear-for-police-in-24/"><u>The Best Radio Gear for Police in '24</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-outer-worlds-gaming-experience-an-exciting-mix-of-sci-fi-action-and-story/"><u>The Outer Worlds Gaming Experience – An Exciting Mix of Sci-Fi, Action and Story</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-auto-enthusiast-reader-all-the-must-read-book-listings-on-automotive-innovations-for-fans-edition/"><u>The Ultimate Auto Enthusiast Reader – All the Must-Read Book Listings on Automotive Innovations for Fans Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-barnes-and-noble-nook-glowlight-cuhrtine-edition-review-why-it-shines-at-night/"><u>The Ultimate Barnes & Noble Nook GlowLight Cuhrtine Edition Review - Why It Shines at Night!</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unlocking-chatgpts-potential-with-jailbreak-tools-pros-and-cons/"><u>Unlocking ChatGPT's Potential with Jailbreak Tools: Pros and Cons</u></a></li>
 </ul></div>
 

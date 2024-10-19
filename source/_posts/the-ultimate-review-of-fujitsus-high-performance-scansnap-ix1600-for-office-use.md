@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Review of Fujitsu's High-Performance ScanSnap iX1600 for Office Use
-date: 2024-09-13T02:30:52.806Z
-updated: 2024-09-15T10:02:07.838Z
+date: 2024-10-11T16:45:53.776Z
+updated: 2024-10-18T21:30:55.894Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Review of Fujitsu's High-Performance ScanSnap iX1600 for Office Use
@@ -64,6 +64,13 @@ Lifewire / Jonno Hill
 
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
@@ -80,15 +87,22 @@ Lifewire / Jonno Hill
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Range: Fairly limited**
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Excellent for the performance**
@@ -96,6 +110,13 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
 
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
 
@@ -105,13 +126,6 @@ Lifewire / Jonno Hill
 
 **No fuss, good value.**
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -138,5 +152,20 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-art-of-choosing-between-independent-or-mnc-status/"><u>[Updated] 2024 Approved The Art of Choosing Between Independent or MNC Status</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-retrieving-your-liked-videos-from-facebook-for-2024/"><u>[Updated] Retrieving Your Liked Videos From Facebook for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ex6200-unit-analysis-comprehensive-review-of-the-netgear-ac1200-wi-fi-range-extender/"><u>EX6200 Unit Analysis: Comprehensive Review of the Netgear AC1200 Wi-Fi Range Extender</u></a></li>
+<li><a href="https://discover-data.techidaily.com/gratis-anleitung-zum-deformatariseren-einer-harten-scheibe-und-ihrer-daten-auf-windows-1011/"><u>Gratis Anleitung Zum Deformatariseren Einer Harten Scheibe Und Ihrer Daten Auf Windows 10/11</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-realme-v30-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Realme V30 to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-the-ergohead-anti-fatigue-standing-desk-pad-expert-insights/"><u>In-Depth Evaluation of the Ergohead Anti-Fatigue Standing Desk Pad - Expert Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/m-moock-1000a-peak-18000mah-car-jump-starter-review-top-choice/"><u>M MOOCK 1000A Peak 18000mAh Car Jump Starter Review: Top Choice</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/requesting-a-silent-interlude-from-spotify-exploring-song-hiatus-options/"><u>Requesting a Silent Interlude From Spotify: Exploring Song Hiatus Options</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/sparkling-access-methods-for-new-users-for-2024/"><u>Sparkling Access Methods for New Users for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-anker-usb-30-portable-charger-a-revealing-review/"><u>Ultimate Guide to the Anker USB 3.0 Portable Charger: A Revealing Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-newly-released-samsung-galaxy-chromebook-2-a-perfect-blend-of-mobility-and-productivity/"><u>Ultimate Guide to the Newly Released Samsung Galaxy Chromebook 2: A Perfect Blend of Mobility & Productivity</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-create-stunning-videos-with-music-best-mobile-apps/"><u>Updated In 2024, Create Stunning Videos with Music Best Mobile Apps</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/verscholen-files-usb-opslaan-met-command-prompt-een-handleiding/"><u>Verscholen Files USB Opslaan Met Command Prompt - Een Handleiding</u></a></li>
+</ul></div>
 
