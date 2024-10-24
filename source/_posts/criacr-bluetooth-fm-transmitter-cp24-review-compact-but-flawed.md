@@ -1,7 +1,7 @@
 ---
 title: "Criacr Bluetooth FM Transmitter CP24 Review: Compact but Flawed"
-date: 2024-09-09T07:55:51.619Z
-updated: 2024-09-10T07:55:51.620Z
+date: 2024-10-17T19:26:14.951Z
+updated: 2024-10-24T16:12:20.289Z
 categories:
   - BestProducts
 description: "This Article Describes Criacr Bluetooth FM Transmitter CP24 Review: Compact but Flawed"
@@ -17,18 +17,6 @@ thumbnail: https://thmb.techidaily.com/33c48593ec0173b68a8667f248e53142d39bc8c36
 
 ![LIHAN LHFM1039 Wireless Bluetooth FM Transmitter](https://www.lifewire.com/thmb/F3BtUGS_Qy6TmbecYqkyRTw0K1w=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_05LW1999388-1-a0e26e2481c1466eb7c6ba19b61ac1e5.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Benjamin Zeman
 
  What We Like
@@ -49,16 +37,17 @@ Lifewire / Benjamin Zeman
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## LIHAN Bluetooth Handsfree Car Charger FM Transmitter
 
 ![LIHAN LHFM1039 Wireless Bluetooth FM Transmitter](https://www.lifewire.com/thmb/jrMuMzQ7_B29XqIDlBvRsk6IUgA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_05LW1999388-1-a0e26e2481c1466eb7c6ba19b61ac1e5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Benjamin Zeman
 
 [View On Amazon $17](https://www.amazon.com/dp/B01M0SFMIH?tag=lifewire-onsite-prod-20&ascsubtag=4771424%7Cndfe7ff70468a4db9ad66c5247d8aaa5f08%7CB01M0SFMIH)
@@ -81,20 +70,15 @@ Lifewire / Benjamin Zeman
 
 ![LIHAN LHFM1039 Wireless Bluetooth FM Transmitter](https://www.lifewire.com/thmb/mSg2vet114ak7qOuKwbfQVm4tOU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/05LW1999388-2-fec4e7b0197b432aa940131587d54294.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Benjamin Zeman
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design: Simple and average**
 
  We tested this transmitter in a 2018 Toyota RAV4, which has two cigarette lighter inputs under the dash. Having a small form factor mean that the Lihan bluetooth FM transmitter fit well in our vehicle. It measures 5.12 x 1.81 x 2.76 inches and 1.76 ounces, with a face that’s a little larger than we expected; we’ve seen smaller[transmitters](https://www.lifewire.com/best-iphone-fm-transmitters-for-car-1999388) , like the Aphaca BT69.
@@ -121,12 +105,6 @@ Lifewire / Benjamin Zeman
 
  Using audio files on a USB flash drive or MicroSD card is also easy. As long as they are in a supported format, you can insert a USB flash drive or MicroSD card up to 32GB and use the next/last buttons to go to the next song or go back to the last song. This was one of those welcome instances where setup was a breeze, everything made sense, and it all just worked.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Audio Quality: Unusable for us**
 
  Even though the Lihan Bluetooth Car FM Transmitter has a decent design, it falls very short on audio quality. Generally with transmitters of this nature most static/white noise comes from ground loops or wireless interference. We noticed both prominently with this model.
@@ -137,24 +115,19 @@ Every other transmitter we’ve tested outperforms the Lihan.
 
  Streaming music through Bluetooth from a USB stick or MicroSD card sounded good as long as the volume was high enough to overpower the noise level. This transmitter does use Bluetooth version 4.0 which is pretty recent.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Too pricey for the problems**
 
  The Lihan Bluetooth Car FM Transmitter averages between $17 and $20, placing it in the same price range as similar products. The Lihan does little to distinguish itself or stand out from similarly priced competitors. Even the packaging is simple and unappealing, with no indication of what’s inside except some small text on the back.
 
  Lihan’s transmitter is average and generic at best. The amount of noise we got from our unit was just too much for us. It fails to stand up against less noisy transmitters, like the Nulaxy KM18 and Aphaca BT69\. We don’t find the Lihan to be worth it, especially when you can find better options in the same price range.
 
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Lihan LHFM1039 vs. Criacr US-CP24**
 
  The Criacr US-CP24 is another compact Bluetooth FM transmitter that is around the same size as the Lihan and has a similar user interface layout. The Criacr was another rather noisy unit but played some lossless audio formats like WAV and FLAC in addition to MP3 and WMA. The Criacr averages in the same price range and wasn’t as noisy as the Lihan (in fact, Lihan’s transmitter had the most noise issues of any transmitter we tested).
@@ -168,6 +141,13 @@ Every other transmitter we’ve tested outperforms the Lihan.
 **Mediocre design meets poor sound.**
 
  The Lihan Bluetooth Car FM transmitter isn’t going to win any design awards, but its user interface layout looks okay. Where the transmitter completely fails is inferior ground loop and interference noise mitigation. Every other transmitter we’ve tested outperforms the Lihan on the same radio frequencies, using the same mobile phone and USB/MicroSD audio sources.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -184,14 +164,11 @@ Every other transmitter we’ve tested outperforms the Lihan.
 * Color options  Black
 * Price  $17 - $20
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -200,4 +177,24 @@ Every other transmitter we’ve tested outperforms the Lihan.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-camclip-extractor-chatfocused/"><u>[New] CamClip Extractor, ChatFocused</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unveiling-the-art-of-cinematography-basic-shots-explained/"><u>[New] Unveiling the Art of Cinematography Basic Shots Explained</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-make-your-own-youtube-closures-without-spending/"><u>[Updated] 2024 Approved How to Make Your Own YouTube Closures Without Spending</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-numbers-in-focus-yearly-yt-trends-and-trivia-2017/"><u>[Updated] In 2024, Numbers in Focus! Yearly YT Trends & Trivia (2017)</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-prowess-rankings-10-best-free-video-calls-with-screen-sharing/"><u>2024 Approved Prowess Rankings 10 Best Free Video Calls with Screen Sharing</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/a-firsthand-account-keeping-your-entire-home-running-on-ecoflows-portable-generator/"><u>A Firsthand Account: Keeping Your Entire Home Running on EcoFlow's Portable Generator</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparative-analysis-of-the-pioneer-bdr-xs06-burner-for-blu-ray-discs-featuring-ease-of-use-and-high-output-quality/"><u>Comparative Analysis of the Pioneer BDR-XS06 Burner for Blu-Ray Discs: Featuring Ease of Use & High Output Quality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-docooler-usb-20-12mp-camera-analysis-is-it-worth-the-hype/"><u>Comprehensive Docooler USB 2.0 12MP Camera Analysis: Is It Worth the Hype?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/curated-array-of-chat-catalyzing-queries-for-podcasters/"><u>Curated Array of Chat-Catalyzing Queries for Podcasters</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhancing-signal-strength-with-the-netgear-ex3700-a-thorough-ac750-wi-fi-range-extender-evaluation/"><u>Enhancing Signal Strength with the Netgear EX3700: A Thorough AC750 Wi-Fi Range Extender Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-the-art-of-selecting-high-end-gaming-hardware/"><u>Mastering the Art of Selecting High-End Gaming Hardware</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/resurrecting-a-masterpiece-visual-revamp-meets-the-enduring-challenge-of-demonesouls/"><u>Resurrecting a Masterpiece: Visual Revamp Meets the Enduring Challenge of Demon'eSouls</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-onetastic-add-in-for-microsoft-onenote/"><u>Review of the Onetastic Add-In for Microsoft OneNote</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-balance-of-strength-and-substance-the-radpower-radcity-5plus-e-bike-reviewed-for-its-robust-performance-and-significant-weight/"><u>The Balance of Strength and Substance - The RadPower RadCity 5+ E-Bike Reviewed for Its Robust Performance and Significant Weight</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranking-ergonomic-vertical-keyboards/"><u>Top-Ranking Ergonomic Vertical Keyboards</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/understanding-the-impact-of-unwanted-vibrations-on-mobile-phone-cameras-tips-for-iphones-and-androids/"><u>Understanding the Impact of Unwanted Vibrations on Mobile Phone Cameras: Tips for iPhones and Androids</u></a></li>
+</ul></div>
 

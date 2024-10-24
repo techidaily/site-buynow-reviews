@@ -1,7 +1,7 @@
 ---
 title: Barnes & Noble's Nook GlowLight 3 - An Exceptional Evening E-Reader Experience
-date: 2024-10-16T17:00:05.713Z
-updated: 2024-10-19T03:37:30.862Z
+date: 2024-10-22T16:10:20.934Z
+updated: 2024-10-24T20:47:18.994Z
 categories:
   - BestProducts
 description: This Article Describes Barnes & Noble's Nook GlowLight 3 - An Exceptional Evening E-Reader Experience
@@ -44,23 +44,9 @@ Lifewire / Andrew Hayward
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## ASUS Chromebook Flip C302CA-DHM4
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/A6HRRNfYS6KrVqW-2K3fI0NN7EI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_HeroSquare-01d50171ef9c411f82467742bfad1126.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -92,20 +78,13 @@ Lifewire / Andrew Hayward
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/3Q2pRvweVt3Gf6RfBaAwQ15QBag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_bottom_04-1508a99e93e94312a9477c6ec5c15022.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Design and Features: It’s flippin’ nice**
 
@@ -133,11 +112,31 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Display: Small, but strong**
 
  As mentioned, the Chromebook Flip’s 12.5-inch, 1080p screen is a little smaller than you’ll see on some rivals, but that doesn’t take away from its usability. It’s colorful and nicely vibrant, and text and graphics typically look crisp. It’s not one of the brightest screens we’ve seen, with a listed brightness of about 300 nits, but that’s pretty common amongst laptops. It’s a little dimmer than we’d like, admittedly. Visibility is impacted in direct sunlight, but in most situations, it’s hard to complain too much about this screen.
 
  It also acts like an extra-large tablet screen since it’s a touchscreen with 10 points of interaction. It felt just as responsive as any tablet we’ve used.
+
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: It does what it can**
 
@@ -160,22 +159,15 @@ Lifewire / Andrew Hayward
  The tiny speaker grates on the left and right side of the Chromebook Flip don’t look too promising, but the playback quality was better than expected. Music output isn’t big and bold, but it’s pretty clear and it can get loud without getting too muddled. Video playback via YouTube and Netflix was sometimes too quiet at full volume, however.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Network: No complaints here**
 
  The Chromebook Flip has dual-band Wi-Fi that can connect to both 2.4Ghz and 5Ghz networks, and we had no issues with either during our testing. We went online at a home network and a Starbucks Google network alike, and things were routinely speedy. On the home network, we saw speeds of about 33Mbps and upload speeds in excess of 10Mbps—essentially the same as we’ve seen with[other laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) and[smartphones](https://www.lifewire.com/best-smartphones-4043781) .
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Battery: Nearly a day’s worth**
 
@@ -209,6 +201,13 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/NHrMPSrgOWsOuCEYg0M-STQUfsU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Air-v-Surface-Comparison-a255967a27e14762b5c2ad9c442df77f.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 ## **Asus Chromebook Flip C302CA vs. Apple MacBook Air**
@@ -224,6 +223,13 @@ Lifewire / Andrew Hayward
  **It’s an excellent, affordable laptop.**
 
  Just as the recent crop of cheap, strong mid-range phones has made many flagship smartphones seem excessive and unnecessary, the Asus Chromebook Flip C302CA does much the same for laptops. This is a seriously impressive and versatile notebook without any major deficiencies, and it’s priced at just $499—less than half the price of the cheapest Apple laptop right now.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -257,22 +263,22 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-sideways-instagram-videos-an-enigma-or-bug/"><u>[New] Sideways Instagram Videos An Enigma or Bug?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-elevate-your-content-uploading-numerous-photos-and-videos-to-instagram/"><u>[Updated] Elevate Your Content Uploading Numerous Photos and Videos to Instagram</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-minecraft-homes-innovative-and-stylish-designs/"><u>[Updated] Minecraft Homes Innovative & Stylish Designs</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-honor-play-7t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Honor Play 7T | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/cruising-beyond-apple-skagen-falster-2s-sophisticated-smartphone-review/"><u>Cruising Beyond Apple: Skagen Falster 2'S Sophisticated Smartphone Review</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ejecucion-perfecta-de-instalaciones-de-libdvdcss-junto-con-handbrake-para-clonar-dvds-en-los-sistemas-macwindows-10/"><u>Ejecución Perfecta De Instalaciones De Libdvdcss Junto Con HandBrake Para Clonar DVDs en Los Sistemas Mac/Windows 10</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Lava Blaze Curve 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-the-heimvision-sunrise-led-wake-up-clock-with-advanced-light-treatment/"><u>In-Depth Evaluation of the HeimVision Sunrise LED Wake-Up Clock with Advanced Light Treatment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/redefining-power-and-aesthetics-comprehensive-imac-m1-chip-evaluation/"><u>Redefining Power and Aesthetics: Comprehensive iMac M1 Chip Evaluation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-smartphone-longevity-the-moto-g-powers-extraordinary-battery-life-explained-in-our-review/"><u>Revolutionizing Smartphone Longevity: The Moto G Power's Extraordinary Battery Life Explained in Our Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/setting-new-standards-the-benchmark-of-tablets-apple-ipad-pro-11-inch-2018-review/"><u>Setting New Standards: The Benchmark of Tablets, Apple iPad Pro (11-Inch, 2018) Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-definitive-guide-to-choosing-your-next-ebook-reader-kobo-clara-colour-reviewed/"><u>The Definitive Guide to Choosing Your Next Ebook Reader: Kobo Clara Colour Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-aeiusny-portable-solar-generators-pure-sine-wave-inverters-tailored-for-sensitive-equipment/"><u>The Ultimate Guide to Aeiusny Portable Solar Generators - Pure Sine Wave Inverters Tailored for Sensitive Equipment</u></a></li>
-<li><a href="https://win-able.techidaily.com/ultimate-guide-to-solve-your-among-us-game-crashes/"><u>Ultimate Guide to Solve Your 'Among Us' Game Crashes</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/understanding-the-pros-and-cons-of-different-win-video-codes/"><u>Understanding the Pros & Cons of Different Win Video Codes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-secrets-of-the-twelve-south-compass-pros-exceptional-balance-and-durable-engineering-mastery/"><u>Unveiling the Secrets of the Twelve South Compass Pro's Exceptional Balance and Durable Engineering Mastery</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-transform-fb-video-tunes-to-mp3/"><u>[New] 2024 Approved Transform Fb Video Tunes to MP3</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-how-to-enhance-tv-audiences-with-fb-live-content-for-2024/"><u>[Updated] How to Enhance TV Audiences with FB Live Content for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-video-posting-on-twitter-and-tumblr-connection-for-2024/"><u>[Updated] Video Posting on Twitter and Tumblr Connection for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/2024-approved-canine-howl-amalgam-sounds-and-effects-compilation/"><u>2024 Approved Canine Howl Amalgam Sounds & Effects Compilation</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/4-ways-to-fix-the-cannot-find-gpeditmsc-error-in-windows/"><u>4 Ways to Fix the “Cannot Find Gpedit.msc” Error in Windows</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-convenient-power-of-kensuns-rugged-portable-tire-charger/"><u>Discover the Convenient Power of Kensun's Rugged, Portable Tire Charger</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/echo-dot-vs-homepod-mini-showdown-unveiling-their-core-differences/"><u>Echo Dot Vs. HomePod Mini Showdown: Unveiling Their Core Differences</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhancing-your-home-network-experience-in-depth-analysis-of-the-tp-link-deco-p9-wi-fi-solution/"><u>Enhancing Your Home Network Experience: In-Depth Analysis of the TP-Link Deco P9 Wi-Fi Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-zeeedge-z3plus-an-economical-and-user-friendly-dashboard-camera-experience/"><u>Exploring the ZeeEdge Z3+: An Economical and User-Friendly Dashboard Camera Experience</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-add-your-digital-signature-to-a-dotx-file-document-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Add Your Digital Signature to a .dotx file Document</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-nubia-z50s-pro-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Nubia Z50S Pro Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-anker-roav-dashcam-c1-exceptional-all-rounder/"><u>In-Depth Analysis of the Anker Roav DashCam C1: Exceptional All-Rounder</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/master-your-destiny-with-skyrim-the-ultimate-rpg-experience-on-nintendo-switch/"><u>Master Your Destiny with Skyrim - The Ultimate RPG Experience on Nintendo Switch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/owc-mercury-pro-assessment-exceptional-durability-and-superior-speed/"><u>OWC Mercury Pro Assessment: Exceptional Durability and Superior Speed</u></a></li>
+<li><a href="https://win-unique.techidaily.com/step-by-step-tutorial-building-a-flawless-windows-11-virtual-environment/"><u>Step-by-Step Tutorial: Building a Flawless Windows 11 Virtual Environment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/timex-starter-watch-critique-the-ultimate-budget-entry-into-advanced-timekeeping-technology/"><u>TimeX Starter Watch Critique: The Ultimate Budget Entry Into Advanced Timekeeping Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-notch-insights-into-the-newest-generation-of-amazon-kindle-paperwhite-for-book-lovers/"><u>Top-Notch Insights Into the Newest Generation of Amazon Kindle Paperwhite for Book Lovers</u></a></li>
 </ul></div>
 

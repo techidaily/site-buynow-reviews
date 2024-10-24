@@ -1,7 +1,7 @@
 ---
 title: The Economical View on HC-V770's Features
-date: 2024-10-12T02:18:24.680Z
-updated: 2024-10-18T23:39:02.944Z
+date: 2024-10-20T18:24:44.033Z
+updated: 2024-10-24T20:12:47.938Z
 categories:
   - BestProducts
 description: This Article Describes The Economical View on HC-V770's Features
@@ -47,15 +47,22 @@ Lifewire / Emily Isaacs
 4.4
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -91,13 +98,6 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
@@ -105,10 +105,16 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
@@ -143,6 +149,13 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  The Surface is a high-end keyboard, but that quality comes at a higher price. The Surface tends to retail for around $129, much more than the Sculpt which retails for around $80\. That said, it’s an upgrade in almost every way. If you’re on a budget, the Sculpt is a great option, but if you’re able to splurge, the Surface is our top pick for wireless ergonomic keyboards.
@@ -154,13 +167,6 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -192,22 +198,18 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-hearing-the-norths-call-top-spots-to-download-tts-files/"><u>[New] Hearing the North's Call Top Spots to Download TTS Files</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-the-essentials-for-effective-free-timer-utilization/"><u>[New] In 2024, The Essentials for Effective Free Timer Utilization</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-unlock-creative-potential-access-free-sfx/"><u>[New] In 2024, Unlock Creative Potential, Access Free SFX!</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-invisible-glance-at-fb-episodes/"><u>[Updated] Invisible Glance at FB Episodes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-most-effective-non-adobe-tools-to-supercharge-your-upcoming-artistic-endeavors/"><u>Discover the Most Effective Non-Adobe Tools to Supercharge Your Upcoming Artistic Endeavors</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-the-lenovo-ideapad-a-robust-design-for-the-cost-conscious-consumer/"><u>Evaluating the Lenovo Ideapad: A Robust Design for the Cost-Conscious Consumer</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-passionate-fascination-some-gamers-have-with-indie-games/"><u>Exploring the Passionate Fascination Some Gamers Have with Indie Games</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-tailor-your-narrative-crafting-engaging-youtube-descriptions-using-pre-set-templates/"><u>In 2024, Tailor Your Narrative Crafting Engaging YouTube Descriptions Using Pre-Set Templates</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Infinix Hot 40i | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/no-need-for-worry-get-your-beloved-tv-show-episodes-on-dvd/"><u>No Need for Worry: Get Your Beloved TV Show Episodes on DVD!</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-ways-to-recover-deleted-files-from-vivo-y100-5g-by-fonelab-android-recover-data/"><u>Possible ways to recover deleted files from Vivo Y100 5G</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/self-financing-strategies-with-your-3d-printer-unlocking-7-key-benefits/"><u>Self-Financing Strategies with Your 3D Printer: Unlocking 7 Key Benefits</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/slash-prices-for-top-of-the-line-game-monitors-in-time-for-samsungs-epic-gaming-festival-sale/"><u>Slash Prices for Top-of-the-Line Game Monitors in Time for Samsung's Epic Gaming Festival Sale!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/speakers-vs-headphones-in-gaming-why-i-choose-the-room-filling-audio-experience/"><u>Speakers Vs. Headphones in Gaming: Why I Choose the Room-Filling Audio Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-7-compelling-reasons-why-holding-off-on-game-pre-orders-is-wise-a-guide/"><u>Top 7 Compelling Reasons Why Holding Off on Game Pre-Orders Is Wise - A Guide</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/unveiling-the-art-of-itunes-video-capture-for-2024/"><u>Unveiling the Art of iTunes Video Capture for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-i-chose-the-steam-deck-over-the-powerful-rog-ally-x/"><u>Why I Chose the Steam Deck Over the Powerful Rog Ally X</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-photography-and-videography-leading-tech-on-the-market/"><u>[New] Photography & Videography Leading Tech on the Market</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-unleash-the-power-of-obs-for-superior-skype-screen-capture/"><u>[Updated] 2024 Approved Unleash the Power of OBS for Superior Skype Screen Capture</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-free-templates-for-bespoke-video-epilogues/"><u>[Updated] Free Templates for Bespoke Video Epilogues</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-how-the-kobo-forma-revolutionizes-serious-readers-lives/"><u>Comprehensive Guide: How the Kobo Forma Revolutionizes Serious Readers' Lives</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhancing-your-internet-coverage-expert-review-on-tp-links-re505x-range-extender/"><u>Enhancing Your Internet Coverage: Expert Review on TP-Link's RE505X Range Extender</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-intuitive-method-for-adjusting-iphone-screen/"><u>In 2024, Intuitive Method for Adjusting iPhone Screen</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-ultimate-w-insiders-guide-to-top-10-tiktok-editors/"><u>In 2024, Ultimate W Insider's Guide to Top 10 TikTok Editors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/professional-insights-on-using-anthropics-advanced-smart-photo-editing-suite/"><u>Professional Insights on Using Anthropics' Advanced Smart Photo Editing Suite</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/richtlinien-fur-die-speicherung-von-daten-in-der-aomei-cloud-umgebung-ein-leitfaden/"><u>Richtlinien Für Die Speicherung Von Daten in Der AOMEI Cloud Umgebung: Ein Leitfaden</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/saving-display-options-fix-in-win-7-and-10-solved/"><u>Saving Display Options: Fix in Win 7 & 10 [Solved]</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transform-your-workflow-with-the-new-ipad-pro-m1-ultimate-portability-meets-desktop-calibre/"><u>Transform Your Workflow with the New iPad Pro M1 : Ultimate Portability Meets Desktop Calibre</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-speed-test-unveiling-the-netgear-nighthawk-rax1/"><u>Ultimate Speed Test: Unveiling the Netgear Nighthawk RAX1</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-strengths-and-weaknesses-a-detailed-review-of-the-newly-released-kobo-clara-colour/"><u>Unveiling the Strengths and Weaknesses: A Detailed Review of the Newly Released Kobo Clara Colour</u></a></li>
 </ul></div>
 

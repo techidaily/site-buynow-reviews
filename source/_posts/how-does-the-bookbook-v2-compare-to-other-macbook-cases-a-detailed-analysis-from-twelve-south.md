@@ -1,7 +1,7 @@
 ---
 title: How Does the BookBook V2 Compare to Other MacBook Cases? A Detailed Analysis From Twelve South
-date: 2024-10-17T16:02:39.487Z
-updated: 2024-10-18T18:20:29.947Z
+date: 2024-10-17T18:55:14.393Z
+updated: 2024-10-24T19:20:31.098Z
 categories:
   - BestProducts
 description: This Article Describes How Does the BookBook V2 Compare to Other MacBook Cases? A Detailed Analysis From Twelve South
@@ -43,6 +43,13 @@ Lifewire / James Huenink
 
 1.4
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Docooler USB 2.0 12 Megapixel
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/23qFdg2CyjsEX1uFEK5ESBb8kO0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_HERO_1LW4065141_7_Final_Square-bd507bc5d1d646f9a0d8d7466601f569.jpg)
@@ -70,14 +77,14 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/YIcu00ga1PIrZWJzNk-mS5C4z-A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_5_Final_Horiz-23ef27f359f24e919ebb2f47f9089957.jpg)
 
- Lifewire / James Huenink
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / James Huenink
 
 ## **Design: Flimsy and difficult to use**
 
@@ -88,26 +95,26 @@ Lifewire / James Huenink
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/a_8Gd66JN0RtfWzKKcRq95S8EmY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_6_Final_Horiz-1dd3a45479614483b0f4f5883f27094a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / James Huenink
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup process: Awkward to position**
 
  It takes almost no time to get the Docooler USB 2.0 12 Megapixel up and running. We just plugged the USB cord into the computer and it worked.
 
  It was easy to set up when we clipped it to a laptop, but terrible when we tried to put it on our HD TV. Every time we moved the computer or the USB cable, the camera slid, twisted, or fell off the TV. The ball joint, which connects the camera to the base, didn’t move smoothly, so we struggled to point the Docooler USB 2.0 12 Megapixel in the right direction, and we were too worried about breaking the plastic to try and force it.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Camera Quality: Not even close to advertised**
 
@@ -132,19 +139,6 @@ Lifewire / James Huenink
  We had trouble getting the focus right, too. The focus ring was hard to turn, so we had to put our hand over the lense to get a good grip. We turned the ring a little, and then we’d pull away to check the focus. Then we’d repeat until it was ready, a frustrating experience.
 
  The audio performance of the Docooler USB 2.0 12 Megapixel was also lackluster. The built-in microphone produced poor quality sound, and when we tested it on Skype, voices were both muffled and echoey. People on the other end could understand what we were saying, but it was an unpleasant experience.
-
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Cheap price, even cheaper webcam**
 
@@ -196,15 +190,16 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-perfecting-instagram-the-art-of-caption-placement/"><u>[Updated] 2024 Approved Perfecting Instagram The Art of Caption Placement</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-unlock-potential-best-practices-for-logitech-webcam-use/"><u>[Updated] In 2024, Unlock Potential Best Practices for Logitech Webcam Use</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-leading-terraria-adjustments-and-tweaks/"><u>[Updated] Leading Terraria Adjustments and Tweaks</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-exploring-the-dynamics-of-profit-distribution-in-video-shorts/"><u>2024 Approved Exploring the Dynamics of Profit Distribution in Video Shorts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-kobo-nia-appraisal-an-impressive-contender-against-kindle-devices/"><u>Comprehensive Kobo Nia Appraisal: An Impressive Contender Against Kindle Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-the-best-tracking-companer-for-ios-in-depth-look-at-apple-airtag/"><u>Discovering the Best Tracking Companer for iOS: In-Depth Look at Apple AirTag</u></a></li>
-<li><a href="https://win-latest.techidaily.com/expert-tips-on-restoring-lost-data-in-inoperative-external-storage-devices/"><u>Expert Tips on Restoring Lost Data in Inoperative External Storage Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/free-over-the-air-tv-with-amazonbasics-antenna-reviewed-low-budget-solution/"><u>Free Over-the-Air TV with AmazonBasics Antenna Reviewed - Low Budget Solution</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-highlights-the-resilient-and-high-performance-capabilities-of-the-owc-mercure-pro/"><u>Review Highlights: The Resilient and High-Performance Capabilities of the OWC Mercure Pro</u></a></li>
-<li><a href="https://program-issues.techidaily.com/step-by-step-guide-resolving-nwstoreexe-error-quickly-and-efficiently/"><u>Step-by-Step Guide: Resolving NW_StoreExe Error Quickly and Efficiently</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-inside-out-the-100-complete-theta-s-study/"><u>[Updated] 2024 Approved Inside Out The 100% Complete Theta S Study</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-who-are-the-kings-of-tiktok-gameplay-for-2024/"><u>[Updated] Who Are the Kings of TikTok Gameplay for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/clearing-up-camera-app-glitches-on-windows-11s-f429f-issue/"><u>Clearing Up Camera App Glitches on Windows 11'S F429F Issue</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-moto-g-stylus-excellent-performance-and-acceptable-battery-duration-including-a-built-in-stylus/"><u>Comprehensive Review of the Moto G Stylus - Excellent Performance & Acceptable Battery Duration Including a Built-In Stylus</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-pixel-fold-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from Pixel Fold</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-your-online-anonymity-with-these-7-methods-fb/"><u>Enhance Your Online Anonymity with These 7 Methods (FB)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-automating-youtube-playback-in-social-networks-a-focus-on-facebook/"><u>In 2024, Automating Youtube Playback in Social Networks A Focus on Facebook</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-tp-link-ac1200-range-amplifier-model-re305-easy-to-use/"><u>In-Depth Look at the TP-Link AC1200 Range Amplifier, Model RE305 - Easy to Use</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-it-time-to-upgrade-your-fitness-tracker-the-verdict-on-the-fitbit-charge-3/"><u>Is It Time to Upgrade Your Fitness Tracker? The Verdict on the Fitbit Charge 3</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-text-from-speech-software/"><u>Top Rated Text From Speech Software</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/twelve-south-bookbook-v2-macbook-case-a-review-of-style-meets-functionality/"><u>Twelve South BookBook V2 MacBook Case – A Review of Style Meets Functionality</u></a></li>
 </ul></div>
 

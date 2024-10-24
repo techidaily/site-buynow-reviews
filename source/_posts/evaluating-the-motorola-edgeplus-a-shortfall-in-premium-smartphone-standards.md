@@ -1,7 +1,7 @@
 ---
 title: Evaluating the Motorola Edge+ - A Shortfall in Premium Smartphone Standards
-date: 2024-09-09T07:55:50.252Z
-updated: 2024-09-10T07:55:50.252Z
+date: 2024-10-19T18:04:17.586Z
+updated: 2024-10-24T19:47:13.548Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating the Motorola Edge+ - A Shortfall in Premium Smartphone Standards
@@ -13,12 +13,6 @@ thumbnail: https://www.lifewire.com/thmb/445_rQk9HAPUDlhizLznvJuMrp8=/400x300/fi
 
 3
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/AjVVBONBD_MfQeA3voTlfDA2Jrc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
@@ -44,16 +38,17 @@ thumbnail: https://www.lifewire.com/thmb/445_rQk9HAPUDlhizLznvJuMrp8=/400x300/fi
 
 3
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
 [View On Steampowered.com](https://store.steampowered.com/app/464920/Surviving%5FMars/) [View On G2a.com](https://www.g2a.com/en-us/surviving-mars-first-colony-edition-steam-key-global-i10000147752001?)
@@ -74,11 +69,12 @@ thumbnail: https://www.lifewire.com/thmb/445_rQk9HAPUDlhizLznvJuMrp8=/400x300/fi
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -87,13 +83,14 @@ thumbnail: https://www.lifewire.com/thmb/445_rQk9HAPUDlhizLznvJuMrp8=/400x300/fi
 
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Humans have never been so annoying**
 
@@ -133,20 +130,15 @@ thumbnail: https://www.lifewire.com/thmb/445_rQk9HAPUDlhizLznvJuMrp8=/400x300/fi
 
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Competition: Other city-building games**
 
  What makes Surviving Mars unique is that technically it is a city-[building game](https://www.lifewire.com/best-offline-building-games-4580415) , but instead of building bus lines, you have to build oxygen and water lines to ensure colony survival. However, just like city-building games, you are building infrastructure. If you’re solely focused on building up a city, Surviving Mars would be a great addition to your library, but so would[Cities: Skylines](https://store.steampowered.com/app/255710/Cities%5FSkylines/) (view on Steam). Both focus on creating a habitat from scratch—one just happens to be hundreds of thousands of miles away while the other could be in a tropical or a Midwestern climate.
@@ -171,14 +163,11 @@ thumbnail: https://www.lifewire.com/thmb/445_rQk9HAPUDlhizLznvJuMrp8=/400x300/fi
 * Graphics  HD 4600/Geforce 620/Radeon 6450 or equivalent GPUs with 1 GB of video RAM
 * Game Updates  Green Planet, Project Laika, Space Race, Colony Design Set, Marsvision Song Contest
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -187,4 +176,24 @@ thumbnail: https://www.lifewire.com/thmb/445_rQk9HAPUDlhizLznvJuMrp8=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-opening-and-managing-srt-files-seamlessly/"><u>[New] In 2024, Opening and Managing SRT Files Seamlessly</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-youtube-meets-facebook-1080p-live-mastery-guide-for-2024/"><u>[New] YouTube Meets Facebook 1080P Live Mastery Guide for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-a-connoisseurs-guide-to-the-very-best-10-vectors-pix-for-2024/"><u>[Updated] A Connoisseur's Guide to the Very Best 10 Vectors Pix for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-galaxy-ford-f-150-remote-controlled-truck-assessment/"><u>Comprehensive Galaxy Ford F-150 Remote-Controlled Truck Assessment</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/effective-strategies-for-ransomware-decryption-and-data-restoration/"><u>Effective Strategies for Ransomware Decryption & Data Restoration</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/embrace-work-on-the-go-discover-the-power-of-the-msi-pro-mp161-e2-display/"><u>Embrace Work On-the-Go: Discover the Power of the MSI PRO MP161 E2 Display</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-vivo-y200-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Vivo Y200 to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-premium-price-of-the-samsung-un65nu8000fxza-justified-an-in-depth-review-reveals-surprising-findings/"><u>Is the Premium Price of the Samsung UN65NU8000FXZA Justified? An In-Depth Review Reveals Surprising Findings</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/printer-usage-fluctuation-raises-eyebrows/"><u>Printer Usage Fluctuation Raises Eyebrows</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/securing-personal-information-while-fixing-your-pc-a-guide-on-safeguarding-data-during-windows-system-repairs/"><u>Securing Personal Information While Fixing Your PC - A Guide on Safeguarding Data During Windows System Repairs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sleep-elegance-redefined-comprehensive-analysis-of-the-superior-philips-somneo-timepiece/"><u>Sleep Elegance Redefined: Comprehensive Analysis of the Superior Philips Somneo Timepiece</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/stay-safe-with-premium-storm-watcher-software-best-apps-available-in-202email-protected/"><u>Stay Safe with Premium Storm Watcher Software - Best Apps Available in 202([Email Protected])</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-user-manual-for-reading-with-amazons-latest-kindle-paperwhite-model/"><u>The Ultimate User Manual for Reading with Amazon's Latest Kindle Paperwhite Model</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/tips-for-ethically-finding-an-individuals-email-in-the-digital-age/"><u>Tips for Ethically Finding an Individual’s Email in the Digital Age</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-chromecast-with-google-tv-critique-surpassing-firetv/"><u>Top Chromecast with Google TV Critique - Surpassing FireTV?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-sound-selection-best-headphones-for-large-screens/"><u>Ultimate Sound Selection: Best Headphones for Large Screens</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-genius-features-in-the-ring-video-doorbell-pro-review/"><u>Unpacking the Genius Features in the Ring Video Doorbell Pro Review</u></a></li>
+</ul></div>
 

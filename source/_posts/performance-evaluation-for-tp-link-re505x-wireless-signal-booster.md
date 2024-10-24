@@ -1,7 +1,7 @@
 ---
 title: Performance Evaluation for TP-Link RE505X Wireless Signal Booster
-date: 2024-10-15T20:45:29.247Z
-updated: 2024-10-18T16:04:09.590Z
+date: 2024-10-19T17:16:28.271Z
+updated: 2024-10-24T17:47:41.911Z
 categories:
   - BestProducts
 description: This Article Describes Performance Evaluation for TP-Link RE505X Wireless Signal Booster
@@ -69,10 +69,16 @@ Lifewire / Erika Rawes
  The TP-Link Archer A9 is one of the brand’s[more popular routers](https://www.lifewire.com/best-long-range-routers-4122554) because of the features it offers at a low price point. With technologies like[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) compatibility and[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , the Archer A9 should be convenient and project a Wi-Fi signal over a long range. These days, with more and more households containing home offices, multiple streaming devices, and several smart home products, how does the Archer A9 hold up? I tested the TP-Link Archer A9 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Basic, but clever**
@@ -86,10 +92,10 @@ Lifewire / Erika Rawes
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/GZA_WscJ6ZMkjJEY-JNFoGWW54c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_05-f0a147fb3abe4825a663bc12ac51629e.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -110,6 +116,19 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/FTFFrgOH8v5VhGXgjmzgjTUMPNA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_03-ec9553f0029b4f2fba363745ab7b9778.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Network Performance: Not bad**
@@ -124,6 +143,13 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/yosOFzPzSpoghULMfbOuUFI5_E0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_06-94b9a314d8d24a37a7b4c90c7962e8a4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Software: Tether app**
@@ -137,16 +163,10 @@ Lifewire / Erika Rawes
  You can say things like, “Alexa, ask TP-Link to enable guest network” or “Alexa, ask TP-Link to prioritize gaming.”
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Under $100**
@@ -154,13 +174,6 @@ Lifewire / Erika Rawes
  The Archer A9 sells on Amazon for under $100\. For a router with its feature set, this is an exceptional value.
 
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/OshgKkDe7GvQPFAb_AgVDAYTF_4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_04-65a3ae04454e40c3865f1d426bcb36db.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -173,13 +186,6 @@ Lifewire / Erika Rawes
  **A capable long-range router for those with average to moderate networking demands.**
 
  The TP-Link Archer A9 is an ideal router for a household with an average number of devices, but homes full of gamers or home office workers may want something a little more robust.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -216,17 +222,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ustomizing-your-channel-icon-banner-and-thumbnail-ideas-for-2024/"><u>[New] Customizing Your Channel Icon, Banner & Thumbnail Ideas for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-scrutinizing-vsdc-screen-recording-capabilities/"><u>[Updated] In 2024, Scrutinizing VSDC Screen Recording Capabilities</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-revolutionize-your-reacting-skills-with-these-3-pro-level-youtube-tips/"><u>[Updated] Revolutionize Your Reacting Skills with These 3 Pro-Level YouTube Tips</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-hidden-guide-watching-highly-engaged-comments-with-ease-on-youtube/"><u>2024 Approved The Hidden Guide Watching Highly Engaged Comments with Ease on YouTube</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/diy-mounted-smartphone-holder-secure-your-phone-with-this-custom-made-android-auto-project-for-bikers/"><u>DIY Mounted Smartphone Holder: Secure Your Phone with This Custom-Made Android Auto Project for Bikers</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/effortlessly-change-dvds-to-mp4-expert-tips-for-windows-11-macos-and-more/"><u>Effortlessly Change DVDs to MP4: Expert Tips for Windows 11, MacOS & More</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enhance-your-gaming-experience-transform-your-phone-into-an-ultimate-nintendo-switch-alternative-with-just-one-device/"><u>Enhance Your Gaming Experience: Transform Your Phone Into an Ultimate Nintendo Switch Alternative with Just One Device!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enhancing-personalized-playlists-why-spotifys-algorithmic-dj-needs-a-dose-of-current-events/"><u>Enhancing Personalized Playlists: Why Spotify's Algorithmic DJ Needs a Dose of Current Events</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enhancing-privacy-on-apple-music-top-4-strategies-for-personalized-secure-playlists/"><u>Enhancing Privacy on Apple Music: Top 4 Strategies for Personalized, Secure Playlists</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/get-started-in-editing-videos-via-windows-11s-movie-maker-for-2024/"><u>Get Started in Editing Videos via Windows 11'S Movie Maker for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/humor-unleashed-top-meme-creator-for-2024/"><u>Humor Unleashed Top Meme Creator for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-oppo-reno-11f-5g-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Oppo Reno 11F 5G Phone FRP Lock</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-unlock-your-income-potential-youtube-studios-global-reach/"><u>[New] 2024 Approved Unlock Your Income Potential YouTube Studio's Global Reach</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-enhancing-youtube-videos-for-superior-quality/"><u>[New] In 2024, Enhancing YouTube Videos for Superior Quality</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-understanding-your-srt-equipment-like-a-pro/"><u>[Updated] In 2024, Understanding Your SRT Equipment Like a Pro</u></a></li>
+<li><a href="https://win-dash.techidaily.com/a-comprehensive-walkthrough-to-update-and-improve-your-ati-video-cards-compatibility-with-windows/"><u>A Comprehensive Walkthrough to Update and Improve Your ATI Video Card's Compatibility with Windows</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/advancing-your-wellness-game-why-fitbit-sense-is-a-superior-alternative-to-the-apple-watch-for-active-lifestyles/"><u>Advancing Your Wellness Game: Why Fitbit Sense Is a Superior Alternative to the Apple Watch for Active Lifestyles</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dell-xps-13-7390-all-in-one-laptop-evaluation-stunning-versatility-in-a-sleek-package/"><u>Dell XPS 13 7390 All-in-One Laptop Evaluation: Stunning Versatility in a Sleek Package</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/eargasms-ultimate-companion-for-music-lovers/"><u>Eargasm's Ultimate Companion for Music Lovers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/s-of-exploration-your-step-by-step-blueprint-to-becoming-a-travel-vlogger-for-2024/"><u>Echoes of Exploration Your Step-by-Step Blueprint to Becoming a Travel Vlogger for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fashion-meets-functionality-in-swagtron-swagger-e-scooter-a-thorough-review/"><u>Fashion Meets Functionality in Swagtron Swagger E-Scooter - A Thorough Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-does-the-samsung-galaxy-s10plus-stack-up-against-the-latest-s20/"><u>How Does the Samsung Galaxy S10+ Stack up Against the Latest S20?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-vivo-t2-pro-5g-screen-sharing-drfone-by-drfone-android/"><u>How To Do Vivo T2 Pro 5G Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hp-spectre-x360-review-a-stunning-convertible-with-exceptional-specs-and-display/"><u>HP Spectre X360 Review: A Stunning Convertible with Exceptional Specs and Display</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-usb-flash-storage-devices-to-consider/"><u>Leading USB Flash Storage Devices to Consider</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-streaming-the-arrival-of-the-chromecast-with-google-tv-say-goodbye-to-fire-tv/"><u>Revolutionizing Streaming: The Arrival of the Chromecast with Google TV - Say Goodbye to Fire TV!</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-adobe-premiere-vs-after-effects-which-one-should-you-use/"><u>Updated In 2024, Adobe Premiere vs After Effects Which One Should You Use?</u></a></li>
 </ul></div>
 

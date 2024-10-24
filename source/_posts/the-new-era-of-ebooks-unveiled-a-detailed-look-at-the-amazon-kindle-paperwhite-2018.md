@@ -1,7 +1,7 @@
 ---
 title: "The New Era of Ebooks Unveiled: A Detailed Look at the Amazon Kindle Paperwhite (2018)"
-date: 2024-10-16T00:18:29.312Z
-updated: 2024-10-19T00:45:49.460Z
+date: 2024-10-19T18:57:12.375Z
+updated: 2024-10-24T18:30:21.415Z
 categories:
   - BestProducts
 description: "This Article Describes The New Era of Ebooks Unveiled: A Detailed Look at the Amazon Kindle Paperwhite (2018)"
@@ -43,22 +43,15 @@ Lifewire / Fred Meyer
 4
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Netgear AC1200 Wireless WiFi Range Extender (EX6200)
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/ypwoGr7PKp9XOfm_EgF2BsvzZkg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-2LW4043312-1-5c924aa1c9e77c0001e11e41.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Fred Meyer
 
@@ -92,13 +85,6 @@ Lifewire / Fred Meyer
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/lHiNdBeYxT8ClO7fv3LwEZqMjWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-6-5c924b2dc9e77c0001a9278c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Fred Meyer
 
  We also loved the fact that the EX6200 uses a separate AC adapter and cord to supply its power. Other extenders that plug into a socket limit the areas you can deploy them, take up a wall plug, and just are usually an eyesore. On the other hand, the EX6200 is a very attractive piece of equipment that looks sharp sitting on a desk. Also, if you just don't want to show, since it uses a cord you have the freedom to tuck it somewhere out of sight easily.
@@ -106,6 +92,13 @@ Lifewire / Fred Meyer
  One of the best aspects of the EX6200's design and something that sets it apart from the competition is its five[Gigabit Ethernet ports](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) . These are immensely useful for anyone who wants to hardwire game consoles, PCs, smart TVs, set-top boxes and other devices, but don't have the option to run an[Ethernet cord](https://www.lifewire.com/what-is-an-ethernet-cable-817548) to them.
 
  For example, our[router](https://www.lifewire.com/what-is-a-router-2618162) sits in the living room entertainment center against one wall. On the opposite side of the wall sits an entertainment center in our bedroom. Now, we could run an Ethernet cord around the wall, through the bedroom door, and to the entertainment center, which would be around 60 feet or so, or we could drill through the wall and install an Ethernet socket. However, with the EX6200 we didn’t have to do either. Since it's right on the other side of the wall, we can set up the EX6200 and get the full signal to hardwire our TV,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and Xbox One, which gives better speed and reliability than if we used them with WiFi-only.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: A familiar process**
 
@@ -121,6 +114,19 @@ Lifewire / Fred Meyer
 
  If you've followed the above steps and your Wi-Fi connection is strong, you're good-to-go and you can start living your life with the Wi-Fi coverage you always knew you deserved. Otherwise, you'll have to shuffle the extender either closer to the dead zone or closer to the router until you find the sweet spot.
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software: Netgear magic**
 
  The Netgear EX6200 doesn't require any special software installation. If you need to access the interface, you just need to be connected to it in some manner, either through Wi-Fi or Ethernet, and you can open the control panel in a browser. You can access the extender by either using the local address (<www.mywifiext.net>) or via the device's IP.
@@ -132,13 +138,6 @@ Lifewire / Fred Meyer
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/C3GG9BATc7pjzGQZsIXmC4hlBTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-4-5c924c5046e0fb000146ae2c-e8aa858c433c410696d08b615cdee234.jpeg)
 
 Lifewire / Fred Meyer
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Connectivity: Hardwire everything**
 
@@ -158,6 +157,13 @@ Lifewire / Fred Meyer
 
 Lifewire / Fred Meyer
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Network Performance: Adequate but not spectacular**
 
  Again, the EX6200 is a mid-range unit with a great design and a few bonuses, so don't buy it thinking you're going to get high-end performance. We found the unit performed adequately, but didn't exceed expectations. Most of the time, the EX6200 hovered around 500 to 700 Mbps up to the 50 feet mark. By the time we had reached 75 feet that speed had more than halved to 200-250 Mbps. At 85-90 feet the speed had dropped to 50 to 70 Mbps and we started experiencing intermittent disconnects.
@@ -167,10 +173,10 @@ Lifewire / Fred Meyer
  From our testing, we'd say the sweet spot for the EX6200 is 50 feet or less. Your results, of course, may vary depending on how many walls you place between yourself and the device and their composition. One area we did find the EX6200 excelled in is verticality. It seems like a lot of plug-in models have their range dramatically affected by height, but the EX6200 transmitted to the second floor into a room around 40 feet away in a straight line and we saw speeds around 300 to 350 Mbps.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A solid balance**
@@ -231,20 +237,19 @@ Lifewire / Fred Meyer
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-listening-out-loud-deciphering-the-differences-between-podcasts-and-youtube/"><u>[New] 2024 Approved Listening Out Loud Deciphering the Differences Between Podcasts & YouTube</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-splitcam-verdict-unrivaled-camera-quality-or-not/"><u>[Updated] 2024 Approved SplitCam Verdict Unrivaled Camera Quality or Not?</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-inside-track-becoming-an-expert-in-srt-technology/"><u>[Updated] In 2024, Inside Track Becoming an Expert in SRT Technology</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-shadowy-snapshots-skills-for-stunning-night-images/"><u>[Updated] In 2024, Shadowy Snapshots Skills for Stunning Night Images</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/boost-your-productivity-easy-steps-for-dual-monitor-configuration-on-mac-computers/"><u>Boost Your Productivity: Easy Steps for Dual Monitor Configuration on Mac Computers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-truecaller-app-evaluation-features-and-performance/"><u>Comprehensive Truecaller App Evaluation: Features & Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enhancing-your-wireless-network-a-detailed-review-and-guide-to-using-the-netgear-ac750-range-extender-ex37nac/"><u>Enhancing Your Wireless Network: A Detailed Review and Guide to Using the Netgear AC750 Range Extender (EX37nAC)</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-vivo-y27-4g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Vivo Y27 4G Phones with/without a PC</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-to-amplify-notebook-performance-by-upgrading-memory/"><u>How To Amplify Notebook Performance by Upgrading Memory</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/image-ink-best-captioning-apps-for-photo-enthusiasts-iosandroid/"><u>Image Ink Best Captioning Apps for Photo Enthusiasts (iOS/Android)</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Tecno Spark 10 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mind-your-pennies-a-guide-before-tv-recorder-investment/"><u>Mind Your Pennies: A Guide Before TV Recorder Investment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/new-bee-lc-41-review/"><u>New Bee LC-41 Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ratchet-and-clank-reboot-review-a-fresh-perspective-on-an-old-classic/"><u>Ratchet & Clank Reboot Review: A Fresh Perspective on an Old Classic</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-the-samsung-galaxy-s20-fe-is-dominating-as-a-5g-superstar-in-smartphone-reviews/"><u>Why the Samsung Galaxy S20 FE Is Dominating as a 5G Superstar in Smartphone Reviews</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-discover-top-affordable-video-editors-of-2023-today/"><u>[New] 2024 Approved Discover Top Affordable Video Editors of 2023 Today!</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-how-to-choose-the-best-android-and-ios-timers-for-your-dream-wedding/"><u>[New] 2024 Approved How to Choose the Best Android & iOS Timers for Your Dream Wedding</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-top-editing-apps-revolutionize-your-photo-backgrounds/"><u>[New] 2024 Approved Top Editing Apps Revolutionize Your Photo Backgrounds</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-drone-experience-yuneec-q500/"><u>2024 Approved The Ultimate Drone Experience Yuneec Q500</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/essential-criteria-what-to-look-for-in-a-new-fitness-tracker/"><u>Essential Criteria: What To Look For In A New Fitness Tracker</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-add-a-full-battery-charge-notification-to-windows-10-and-11/"><u>How to Add a Full Battery Charge Notification to Windows 10 & 11</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-oppo-find-x7-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Oppo Find X7 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-takes-2022-skating-spectaculars/"><u>In 2024, Top Takes - 2022 Skating Spectaculars</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-connectivity-with-style-a-detailed-review-of-the-mobvoeo-ticwatch-pro-4g-smartwatch/"><u>Navigating Connectivity with Style: A Detailed Review of the Mobvoeo Ticwatch Pro 4G Smartwatch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sony-xbr65x850f-65-inch-4k-tv-review-reasonably-priced/"><u>Sony XBR65X850F 65-Inch 4K TV Review: Reasonably Priced</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-perfect-match-of-might-and-budget-a-comprehensive-review-of-the-ibuypower-gaming-machine/"><u>The Perfect Match of Might & Budget: A Comprehensive Review of the IBuypower Gaming Machine</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-garmin-venu-an-exceptional-round-the-clock-activity-and-health-tracking-device/"><u>Unveiling the Garmin Venu: An Exceptional Round-the-Clock Activity and Health Tracking Device</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-best-free-vob-video-editor-options-ranked-for-2024/"><u>Updated Best Free VOB Video Editor Options Ranked for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/win-1011-error-buster-restore-connection-with-mbs-server-link/"><u>Win 10/11 Error Buster: Restore Connection with MB's Server Link</u></a></li>
 </ul></div>
 

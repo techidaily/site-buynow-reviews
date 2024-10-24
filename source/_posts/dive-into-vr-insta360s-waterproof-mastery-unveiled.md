@@ -1,7 +1,7 @@
 ---
 title: "Dive Into VR: Insta360's Waterproof Mastery Unveiled"
-date: 2024-10-18T01:48:17.949Z
-updated: 2024-10-19T01:24:21.528Z
+date: 2024-10-23T18:13:40.446Z
+updated: 2024-10-24T20:43:09.513Z
 categories:
   - BestProducts
 description: "This Article Describes Dive Into VR: Insta360's Waterproof Mastery Unveiled"
@@ -48,6 +48,13 @@ Lifewire / Andy Zahn
 
 ![Star Wars: Squadron](https://www.lifewire.com/thmb/ymdujoeG8lwdw1L7OD6l0EFi1ug=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Star-Wars-Squadrons-1-daa1e236365f4a4a8831cce59004223a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andy Zahn
 
 [View On Amazon](https://www.amazon.com/Star-Wars-Squadrons-Online-Game/dp/B08B8BZFCC/?tag=lifewire-onsite-prod-20&ascsubtag=5086656%7Cn7a4d5af5c6f040bfb3038a22bcfdeda919%7CB08B8BZFCC) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fstar-wars-squadrons-windows-digital%2F6415793.p%3FskuId%3D6415793)
@@ -70,13 +77,6 @@ Lifewire / Andy Zahn
 * [Specs](https://www.lifewire.com/#toc-full-spec)
 
  Chances are, whether you grew up with Star Wars or discovered the franchise later in life, you’ve considered just how awesome it would be to swing a lightsaber or pilot your very own X-Wing fighter. Star Wars: Squadrons grants you the second of these fantasies to a never before seen degree. This long-overdue follow up to the 1993 classic Star Wars: X-Wing aims to offer the same intense dogfighting, but with the advantages of modern tech. I reviewed the PC version.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup: Some tinkering required**
 
@@ -101,13 +101,6 @@ Star Wars: Squadrons is drop-dead gorgeous.
  The story is passable, if not terribly deep or ambitious, and is basically there to connect the battle sequences and give context to the fight. Voice acting varies from mediocre to passable, and there’s clearly some effort put into establishing likeable characters. However, though the character models are good, there’s definitely a bit of the uncanny valley on display here, and it’s particularly noticeable in the first-person conversations where you stare dumbly on as an NPC spouts exposition at you.
 
 ![Star Wars: Squadrons](https://www.lifewire.com/thmb/_MN0adYtaTCJ1Qhmsivk-M-DkXo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Star-Wars-Squadrons-3-31074635684244d48b1d792540a477e2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -139,33 +132,52 @@ Star Wars: Squadrons is drop-dead gorgeous.
 
 ![Star Wars: Squadrons](https://www.lifewire.com/thmb/a-_aXPmbq5vlMG21Sutf0cIe4BI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Star-Wars-Squadrons-7-dc3679df974e4da793c52f2fb2831eac.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
  The game is less attractive in VR, with muddier textures and blurrier skybox, but the trade-off for added immersion is well worth the sacrifice. Actually moving your head to scan around the glass cockpit for enemy fighters and capital ships (or your own wingmates) and then diving in to engage is some of the most fun you can have in VR.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Audio: Authentic Star Wars**
 
  With the vast majority of video games, your experience is almost as dependent on what you hear as what you see. In this regard, Squadrons is a masterpiece. This game perfectly replicates the epic feel of classic Star Wars space combat from the laser fire, to the roar of your engines, to the exhilarating whoosh of grazing an asteroid. There’s also the unforgettable John Williams soundtrack, which is fully present here and is just as vital to the experience of the game as it is to the films.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Solid on moderately powerful PCs**
 
  I was able to get consistently high frame rates during gameplay with my custom gaming PC running 32 GB of DDR4 RAM, an AMD Ryzen 7 2700X processor, and an Nvidia RTX 2070 GPU. However, I experienced some odd stuttering in the hanger between missions, which seemed more of a graphical bug than an issue with the power of my PC. I also played Squadrons on a laptop with a less powerful processor, 16GB of RAM, and a Nvidia RTX 2060 Max-Q. The game performed well and provided a smooth gameplay experience at maximum graphical settings.
 
  Dogfights are fast, brutal, and thanks to a wide variation in map design, each match feels remarkably fresh and non-repetitive.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Controls: Wide support for different inputs**
 
@@ -186,10 +198,16 @@ Star Wars: Squadrons is drop-dead gorgeous.
  With an MSRP of just $40 Star Wars: Squadrons is a surprisingly reasonably priced game that bucks the trend of modern AAA games uniformly releasing for $60 regardless of what content they are able to offer. It’s not the longest game, and there is a limit to end-game multiplayer content, so $40 is pretty much the exact right price for Squadrons. It’s refreshing to see a distinct lack of any extra monetization in the game, with no annoying microtransactions or loot boxes.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Star Wars: Squadrons vs. Elite Dangerous**
@@ -203,10 +221,10 @@ Star Wars: Squadrons is drop-dead gorgeous.
  Star Wars: Squadrons is a fine successor to classic space combat games, and is an undeniably exciting and realistic experience. It’s best if played with a VR headset, but is worth your time and money on a traditional screen as well. The memory of my first flight at the helm of a TIE Fighter in this game has stuck with me with surprising clarity in a way that few moments in video games do, and it’s something you really have to experience for yourself to understand.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -232,21 +250,22 @@ Star Wars: Squadrons is drop-dead gorgeous.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/updated-access-no-cost-vod-media-player-on-windowsmacos-for-2024/"><u>[Updated] Access No-Cost VOD Media Player on Windows/MacOS for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-banish-blurry-footage-keeping-your-gopro-crisp/"><u>[Updated] Banish Blurry Footage Keeping Your GoPro Crisp</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-expertly-evaluating-webcam-technology-for-professionals/"><u>[Updated] Expertly Evaluating WebCam Technology for Professionals</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-the-ultimate-mac-list-of-non-bandicamp-video-capture-tools-for-2024/"><u>[Updated] The Ultimate Mac List of Non-Bandicamp Video Capture Tools for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/econoumbrellakit-studio-lights-on-a-low-budget/"><u>EconoUmbrellaKit: Studio Lights on a Low Budget</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/elevating-your-stream-with-advanced-screen-capture-tech/"><u>Elevating Your Stream with Advanced Screen Capture Tech</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-the-best-of-both-worlds-with-sealocs-slim-and-sleek-55-4k-outdoor-tv/"><u>Experience the Best of Both Worlds with Sealoc's Slim & Sleek 55 4K Outdoor TV</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-the-benefits-and-features-of-using-an-xp-pen-artist-16-pro/"><u>Expert Review: The Benefits and Features of Using an XP-Pen Artist 16 Pro</u></a></li>
-<li><a href="https://blog-min.techidaily.com/gratis-en-gemakkelijk-wav-naar-m4a-konverteren-online-service-by-movavi/"><u>Gratis en Gemakkelijk Wav Naar M4a Konverteren - Online Service by Movavi</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/macbook-face-off-analyzing-the-benefits-of-air-and-pro-models-side-by-side/"><u>MacBook Face-Off: Analyzing the Benefits of Air and Pro Models Side by Side</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/petcube-bites-2-a-love-letter-for-pet-owners-abroad/"><u>Petcube Bites 2: A Love Letter for Pet Owners Abroad</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-lenovo-ideapad-130s-a-closer-look-at-its-limited-processing-strength-and-surprising-usability/"><u>The Lenovo IdeaPad 130S - A Closer Look at Its Limited Processing Strength and Surprising Usability</u></a></li>
-<li><a href="https://solve-howtos.techidaily.com/top-9-tagliatori-di-video-gratuiti-e-ottimizzati-su-internet/"><u>Top 9 Tagliatori Di Video Gratuiti E Ottimizzati Su Internet</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/1722886473783-understanding-the-502-bad-gateway-error-causes-and-solutions/"><u>Understanding the 502 Bad Gateway Error - Causes & Solutions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-features-of-fujitsu-scansnap-ix1600-the-desktop-scanner-that-elevates-productivity/"><u>Unpacking the Features of Fujitsu ScanSnap iX1600: The Desktop Scanner That Elevates Productivity</u></a></li>
-<li><a href="https://howto.techidaily.com/vivo-y17s-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo Y17s Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-best-writing-ever-seen-across-film-genres/"><u>[Updated] 2024 Approved Best Writing Ever Seen Across Film Genres</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-igtv-essentials-an-in-depth-look-at-content-strategies-for-2024/"><u>[Updated] IGTV Essentials An In-Depth Look at Content Strategies for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-smooth-sailing-with-instagram-fixes-for-frustrations/"><u>[Updated] Smooth Sailing with Instagram Fixes for Frustrations</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-ultimate-hdr-tutorial-for-exceptional-portraits/"><u>[Updated] The Ultimate HDR Tutorial for Exceptional Portraits</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-advanced-techniques-for-dynamic-and-dramatic-ae-heads-ups/"><u>2024 Approved Advanced Techniques for Dynamic and Dramatic AE Heads-Ups</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-explore-the-art-of-vocal-transformation-with-these-cost-free-alternatives/"><u>2024 Approved Explore the Art of Vocal Transformation with These Cost-Free Alternatives</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/balancing-agility-and-cost-in-our-swagboard-t1-assessment-by-swagtron/"><u>Balancing Agility and Cost in Our Swagboard T1 Assessment by Swagtron</u></a></li>
+<li><a href="https://driver-error.techidaily.com/bluetooth-troubles-solve-your-qualcomm-atheros-driver-problems-on-windows-10-today/"><u>Bluetooth Troubles? Solve Your Qualcomm Atheros Driver Problems on Windows 10 Today</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/combat-your-boredom-with-these-10-unmissable-gaming-selections/"><u>Combat Your Boredom with These 10 Unmissable Gaming Selections</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/complete-tutorial-for-image-retrieval-and-storage-using-word-files/"><u>Complete Tutorial for Image Retrieval and Storage Using Word Files</u></a></li>
+<li><a href="https://extra-information.techidaily.com/countdown-to-love-top-10-timing-tools-for-your-big-day/"><u>Countdown to Love Top 10 Timing Tools for Your Big Day</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exclusive-evaluation-of-the-apple-ipad-air-2019-unveiling-a-dynamic-device-for-media-enthusiasts/"><u>Exclusive Evaluation of the Apple iPad Air (2019): Unveiling a Dynamic Device for Media Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-the-best-web-portals-featuring-new-releases-premiere-clips/"><u>Explore the Best Web Portals Featuring New Releases' Premiere Clips</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-can-i-unlock-my-apple-iphone-15-after-forgetting-my-pin-code-drfone-by-drfone-ios/"><u>How Can I Unlock My Apple iPhone 15 After Forgetting my PIN Code? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/insightful-review-enhancing-your-experience-with-the-onetastic-onenote-plugin/"><u>Insightful Review: Enhancing Your Experience with the Onetastic OneNote Plugin</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/roku-vs-amazon-fire-tv-stick-a-comprehensive-guide-to-make-the-right-purchase/"><u>Roku vs Amazon Fire TV Stick: A Comprehensive Guide to Make the Right Purchase</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-htpc-systems-for-ultimate-movie-nights/"><u>Top-Rated HTPC Systems for Ultimate Movie Nights</u></a></li>
 </ul></div>
 

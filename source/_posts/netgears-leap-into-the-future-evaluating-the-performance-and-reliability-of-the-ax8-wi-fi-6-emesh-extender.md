@@ -1,7 +1,7 @@
 ---
 title: "Netgear's Leap Into the Future: Evaluating the Performance and Reliability of the AX8 Wi-Fi 6 eMesh Extender"
-date: 2024-10-14T23:26:27.044Z
-updated: 2024-10-18T16:47:41.544Z
+date: 2024-10-23T18:01:30.236Z
+updated: 2024-10-24T17:48:52.586Z
 categories:
   - BestProducts
 description: "This Article Describes Netgear's Leap Into the Future: Evaluating the Performance and Reliability of the AX8 Wi-Fi 6 eMesh Extender"
@@ -44,10 +44,10 @@ Lifewire / Rebecca Isaacs
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Sabrent Mini Travel USB Optical Mouse
@@ -75,13 +75,6 @@ Lifewire / Rebecca Isaacs
 
  Working on the go can prove difficult on a laptop, especially when you need to work on heavy-hitting projects requiring precision. Travel mice, or portable computer mice that can be packed and unpacked on the go, can alleviate much of the proverbial headache of working on PC-heavy tasks. For those who prefer their mouse have a cable, the Sabrent fits the bill. Using high definition precision technology, the tiny, three-year-old mouse is designed for those who want convenience and extreme precision in their work.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Basic**
 
  The Sabrent was not designed for heavy gaming in mind; its design is so tiny at 3.2 x 1.5 inches (LW) that it fits into the cup of your palm with some room to spare. Unlike gaming mice, which can be complex, with a plethora of buttons/features, the all-black, 1.5-ounce mouse only has three buttons: the left (main) button, the wheel, and the right button. While this might turn off many users, in reality, it turns out to be of huge benefit. Thanks to its simplicity, ambidextrous users will appreciate its ability to swap between dominant hands.
@@ -102,7 +95,27 @@ Lifewire / Rebecca Isaacs
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/mM3uSf3Y2pyayDyWJzP8_5uUya4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_05-04e025144b514674b109e77f79129d74.jpg)
 
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Precise, but mildly problematic**
 
@@ -121,10 +134,10 @@ Lifewire / Rebecca Isaacs
  The cable length left something to be desired in a work PC, however. At 25 inches, it sounds like a dream come true, however, testing it on a standing desk where the PC tower is located further away from the keyboard and mouse we realized there was a problem. The length cable prevented us from shifting our grip on the mouse, and the tugging was a frustrating physical constraint. Laptop users won’t even notice the cable, but PC users may want to look for something a little more wireless.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Comfort: Too small**
@@ -138,13 +151,6 @@ Lifewire / Rebecca Isaacs
 ## **Price: Reasonable**
 
  At around $7, this is a great budget mouse. Essentially, the cost is for basic mouse features, and not for anything heavier or more taxing on a PC. If you’re looking for a travel mouse with more features, then expect to spend more. However, if accomplishing work tasks is solely your task then this is the perfect price point.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Sabrent Mini Travel Mouse vs. VicTsing Wireless Mouse**
 
@@ -161,16 +167,16 @@ Lifewire / Rebecca Isaacs
  While we constantly had to shift our grip on the tiny Sabrent mouse, we really liked its portability and fast, accurate movements. The cable proved to be difficult for desktop use, however, laptop users will enjoy the speeds that accompany the wired cable.
 
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -200,22 +206,17 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-quick-tips-capturing-overwatch-matches/"><u>[New] 2024 Approved Quick Tips Capturing Overwatch Matches</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nhance-visibility-the-most-effective-30-freefire-tags-for-video-marketing-for-2024/"><u>[New] Enhance Visibility The Most Effective 30 FreeFire Tags for Video Marketing for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-photo-and-video-streaming-from-android-to-iphone/"><u>[New] In 2024, Photo & Video Streaming From Android to iPhone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-great-income-clash-dailymovement-vs-youtube-economic-strategies/"><u>[New] The Great Income Clash DailyMovement Vs YouTube Economic Strategies</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-critique-of-the-frolicking-tale-a-videotape-retrospective/"><u>[Updated] In 2024, Critique of 'The Frolicking Tale' A Videotape Retrospective</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/expert-advice-from-tomhardwareexperts-mastering-tech-and-gadget-performance/"><u>Expert Advice From TomHardwareExperts: Mastering Tech and Gadget Performance</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-from-iphone-7-plus-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even From iPhone 7 Plus If Youve Tried Everything</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-guide-for-audio-editors-using-garageband/"><u>In 2024, The Ultimate Guide for Audio Editors Using GarageBand</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-mobile-network-deals-a-comprehensive-guide/"><u>Top Rated Mobile Network Deals : A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-printer-models-dominating-the-market/"><u>Top Rated Printer Models Dominating the Market</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-resistance-bands-ultimate-buyers-guide/"><u>Top Rated Resistance Bands - Ultimate Buyer's Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-smart-lighting-solutions/"><u>Top Rated Smart Lighting Solutions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-qled-televisions-a-comprehensive-guide/"><u>Top-Rated QLED Televisions : A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-optimal-residential-alarm-networks-2023-edition/"><u>Ultimate Guide to Optimal Residential Alarm Networks - 2023 Edition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-choosing-the-perfect-laptop-for-academic-success/"><u>Ultimate Guide: Choosing the Perfect Laptop for Academic Success</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-of-elite-gaming-throne-options-for-the-year-2gamingchairreviews/"><u>Ultimate Selection of Elite Gaming Throne Options for the Year 2#GamingChairReviews</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-thors-quest-battle-for-valhalla/"><u>[New] In 2024, Thor’s Quest Battle for Valhalla</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-laughter-laborer-spooky-cyborgs-for-2024/"><u>[New] Laughter Laborer Spooky Cyborgs for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-color-grading-movies-with-efficient-luts-usage/"><u>[Updated] Color Grading Movies with Efficient Luts Usage</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/analyzing-the-truecaller-application-a-detailed-review/"><u>Analyzing the Truecaller Application: A Detailed Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-how-effective-and-inexpensive-the-philips-hf352er-alarm-clock-really-is-a-comprehensive-review/"><u>Discover How Effective & Inexpensive the Philips HF352er Alarm Clock Really Is: A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/empires-and-profits-an-insightful-review-of-the-offworld-trading-companys-capitalist-strategies/"><u>Empires and Profits - An Insightful Review of the Offworld Trading Company's Capitalist Strategies</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-duet-on-tiktok/"><u>How to Duet on TikTok</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-13-with-a-mask-on-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 13 with a Mask On | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-karaoke-parties-with-singing-machines-plug-and-play-sml385btbk-a-colorful-user-friendly-review/"><u>Revolutionize Your Karaoke Parties with Singing Machine's Plug & Play SML385BTBK - A Colorful, User-Friendly Review!</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-guide-installing-updated-dell-v3ebit-inc-xps-305-all-in-one-printer-driver-for-windows-7-operating-system/"><u>Step-by-Step Guide: Installing Updated Dell V3ebit, Inc. XPS 305 All-in-One Printer Driver for Windows 7 Operating System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-best-value-in-5g-tech-the-samsung-galaxy-a51-5g-experience-reviewed/"><u>Unveiling the Best Value in 5G Tech: The Samsung Galaxy A51 5G Experience Reviewed</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-youtube-sound-library/"><u>Updated YouTube Sound Library</u></a></li>
 </ul></div>
 

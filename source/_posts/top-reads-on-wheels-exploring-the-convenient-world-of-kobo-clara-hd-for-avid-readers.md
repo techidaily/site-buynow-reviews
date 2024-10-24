@@ -1,7 +1,7 @@
 ---
 title: "Top Reads on Wheels: Exploring the Convenient World of Kobo Clara HD for Avid Readers"
-date: 2024-10-15T00:21:10.140Z
-updated: 2024-10-18T23:06:59.564Z
+date: 2024-10-17T19:59:41.943Z
+updated: 2024-10-24T18:49:26.594Z
 categories:
   - BestProducts
 description: "This Article Describes Top Reads on Wheels: Exploring the Convenient World of Kobo Clara HD for Avid Readers"
@@ -41,6 +41,13 @@ Lifewire / Kelsey Simon
 
 3.8
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Days Gone
 
 ![Days Gone](https://www.lifewire.com/thmb/OhLBxtaDQ5jb89rJmIMnan1soS4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Days-Gone-Zombie-Game-PS4-1-ecafdc83e8e0460cbc31b8b0e4976faa.jpg)
@@ -69,10 +76,10 @@ Lifewire / Kelsey Simon
 ![Days Gone](https://www.lifewire.com/thmb/ryi3-WPMYdCrQ8y_6kRDMiMzxZ0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-6-0cbb39a028324cf9a576db1941bce0a4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -84,10 +91,10 @@ Lifewire / Kelsey Simon
 ![Days Gone](https://www.lifewire.com/thmb/HE8j4XoxbKMWIQagUtGCXFf6bKo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-2-3b29272bf1b2423781e104041dc00457.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -107,6 +114,13 @@ As in most zombie fiction, the real monster is man.
 ![Days Gone](https://www.lifewire.com/thmb/XWR-CgFF865KBE1ipv7cwdi-P3w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-5-b1914ac9859b409d9460fea24fc7f251.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Gameplay: Standard zombie action with bikers**
 
@@ -135,20 +149,13 @@ As in most zombie fiction, the real monster is man.
 ![Days Gone](https://www.lifewire.com/thmb/gE-LorHWCGsO4NUFW801LGts5t4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-4-a82aed08ab7a4b29bce78268b729563b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Still expensive as a newer release**
 
@@ -163,13 +170,6 @@ As in most zombie fiction, the real monster is man.
 **Above average, but wait for a sale.**
 
  Days Gone is a game that tried very hard to combine two tropes very much in the entertainment zeitgeist in the past few years—zombies and bikers. It's graphically strong, with great character animations and detailed environments and character models. The clunky controls and some pacing issues may make recommending it at full price difficult, but on sale, it's an easy pickup, especially for zombie fans shopping for an entertaining PS4 game.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -192,24 +192,16 @@ As in most zombie fiction, the real monster is man.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/2024-approved-a-laugh-away-in-time-the-goofy-movie-remastered/"><u>2024 Approved A Laugh Away in Time The 'Goofy Movie' Remastered</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-the-definitive-guide-to-live-streaming-platforms-obs-edition/"><u>2024 Approved The Definitive Guide to Live Streaming Platforms - OBS Edition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-pros-vs-cons-of-pidgin-chat-application/"><u>Comprehensive Analysis: Pros Vs. Cons of Pidgin Chat Application</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/comprehensive-solutions-to-correct-lameencdll-faults-in-audacitys-lame-encoder/"><u>Comprehensive Solutions to Correct lame_enc.dll Faults in Audacity's LAME Encoder</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/dive-into-camtasias-ken-burns-feature-rich-tutorial/"><u>Dive Into Camtasia’s Ken Burns Feature-Rich Tutorial</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-and-update-asus-drivers-the-ultimate-guide-for-windows-systems/"><u>Download & Update Asus Drivers: The Ultimate Guide for Windows Systems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-the-cubefit-terramat-difference-reviews-show-it-boosts-your-activity-level/"><u>Experience the CubeFit TerraMat Difference – Reviews Show It Boosts Your Activity Level!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expertly-reviewed-top-performing-body-cameras/"><u>Expertly Reviewed: Top Performing Body Cameras</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/head-to-head-comparison-ps5-slim-versus-full-size-edition/"><u>Head-to-Head Comparison: PS5 Slim Versus Full Size Edition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-to-save-on-viewing-a-review-of-the-inexpensive-amazonbasics-tv-antenna-option/"><u>How to Save on Viewing: A Review of the Inexpensive AmazonBasics TV Antenna Option</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-nokia-c300-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Nokia C300 Pattern Lock Screen</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ipad-air-4-vs-galaxy-tab-s7plus-the-battle-for-the-top-spot-in-high-end-tablet-territory/"><u>IPad Air 4 vs Galaxy Tab S7+ - The Battle for the Top Spot in High-End Tablet Territory</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Vivo V30 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revved-up-roads-ahead-with-5-headlight-boosters/"><u>Revved-Up Roads Ahead with 5 Headlight Boosters</u></a></li>
-<li><a href="https://games-able.techidaily.com/spreading-happiness-through-steams-digital-treasures/"><u>Spreading Happiness Through Steam's Digital Treasures</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/step-by-step-tutorial-tweaking-mouse-pointer-appearance-in-windows-10-for-personalized-comfort/"><u>Step-by-Step Tutorial: Tweaking Mouse Pointer Appearance in Windows 10 for Personalized Comfort</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ideal-iphone-for-gamers-a-comprehensive-guide/"><u>The Ideal iPhone for Gamers: A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-hp-chromebook-11-ideal-device-for-education-productivity-and-entertainment/"><u>The Ultimate Guide to the HP Chromebook 11: Ideal Device for Education, Productivity, and Entertainment</u></a></li>
-<li><a href="https://extra-information.techidaily.com/yearly-insider-list-the-most-exciting-unboxers-on-youtube/"><u>Yearly Insider List The Most Exciting Unboxers on YouTube</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-synchronized-screenshots-pc-or-cloud-perfection/"><u>[New] Synchronized Screenshots PC or Cloud Perfection</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-tips-and-tricks-mastering-voiceover-on-tiktok/"><u>[Updated] In 2024, Tips and Tricks Mastering Voiceover on TikTok</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-top-8-best-apps-to-get-likes-on-facebook-android-and-iphone/"><u>[Updated] Top 8 Best Apps to Get Likes on Facebook (Android and iPhone)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-the-google-nest-wifi-doorbell-an-in-depth-evaluation/"><u>Experience the Google Nest WiFi Doorbell - An In-Depth Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/get-seamless-internet-with-the-miniature-ourlink-u631-wifi-usb-dongle/"><u>Get Seamless Internet with the Miniature Ourlink U631 WiFi USB Dongle</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-nokia-g42-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Nokia G42 5G to iPod | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/mastering-chromatics-a-practical-approach/"><u>Mastering Chromatics A Practical Approach</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pesticide-action-network-north-america-nd-glyphosate-facts-sheet-retrieved-from-httpswwwpannaorgresearchglyphosate-factsheet/"><u>Pesticide Action Network North America (N.d.). Glyphosate Facts Sheet. Retrieved From https://www.panna.org/research/glyphosate-factsheet</u></a></li>
+<li><a href="https://solve-info.techidaily.com/stream-recording-guide-efficiently-archiving-twitch-broadcasts-from-your-desktop-computer/"><u>Stream Recording Guide: Efficiently Archiving Twitch Broadcasts From Your Desktop Computer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-boosting-signal-with-the-reliable-netgear-nighthawk-x6s-wi-fi-extender/"><u>The Ultimate Guide to Boosting Signal with the Reliable Netgear Nighthawk X6S Wi-Fi Extender</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transform-photos-seamlessly-using-lightzone-exceptional-free-darkroom-suite-across-multiple-oss/"><u>Transform Photos Seamlessly Using Lightzone - Exceptional Free Darkroom Suite Across Multiple OSs</u></a></li>
 </ul></div>
 

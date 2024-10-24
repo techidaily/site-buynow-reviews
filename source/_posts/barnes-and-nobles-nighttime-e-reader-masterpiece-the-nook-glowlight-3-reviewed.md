@@ -1,7 +1,7 @@
 ---
 title: Barnes & Noble's Nighttime E-Reader Masterpiece - The Nook GlowLight ^3 Reviewed!
-date: 2024-10-14T01:23:15.589Z
-updated: 2024-10-18T17:03:28.723Z
+date: 2024-10-21T19:28:44.027Z
+updated: 2024-10-24T17:49:12.868Z
 categories:
   - BestProducts
 description: This Article Describes Barnes & Noble's Nighttime E-Reader Masterpiece - The Nook GlowLight ^3 Reviewed!
@@ -48,13 +48,6 @@ thumbnail: https://www.lifewire.com/thmb/m3GxIESHk0YscVU0ewhWpb46sdM=/400x300/fi
 
 ![Netgear Nighthawk X10 AD7200](https://www.lifewire.com/thmb/0rm8vUox5EoeaGCQJw0E5XQxwck=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_HeroSquare-885945bb208b49a583aca8da1aa09378.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
 [View On Amazon $440](https://www.amazon.com/dp/B01M12RE4A?tag=lifewire-onsite-prod-20&ascsubtag=4846418%7Cnd55a891e250641509ef77229001ead8021%7CB01M12RE4A) [View On Walmart $279](https://www.walmart.com/ip/122396083) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-nighthawk-x10-ad7200-tri-band-wi-fi-router-black%2F5610805.p%3FskuId%3D5610805)
@@ -94,10 +87,10 @@ thumbnail: https://www.lifewire.com/thmb/m3GxIESHk0YscVU0ewhWpb46sdM=/400x300/fi
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/I8vaunCMjxEzWH-oM1U7fsSYe9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_04-abc45a63844e4ebe8f43e4f6facbd601-d54874ec8e984393b51c0bea9803c849.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -112,20 +105,20 @@ Lifewire / Jeremy Laukkonen
 
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/RfTANl22rAcY7Xy986eYa_62r44=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_02-1721b933d315435f98631847bf3ebb0b.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: AD7200 tri-band with MU-MIMO and 10G SFP+**
 
@@ -140,6 +133,19 @@ Lifewire / Jeremy Laukkonen
  In addition to the 60GHz WiGig band, this router also creates simultaneous 5GHz and 2.4GHz networks for your devices that don’t support WiGig, which is likely to be either most or all of them.
 
  For physical connectivity, the Nighthawk X10 features six Ethernet ports, two of which can be used together to create a single 2Gbps connection. You also get two USB 3.0 ports for connecting USB drives and a single 10Gbps SFP+ LAN port. This final port is potentially the most interesting, and also most niche since it allows you to connect a high-speed NAS server, a secondary switch for more Ethernet ports, or other devices that require a bunch of high-speed bandwidth.
+
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network Performance: Fantastic 5GHz performance, WiGig leaves a bit to be desired**
 
@@ -165,13 +171,6 @@ Lifewire / Jeremy Laukkonen
 
  Strangely enough, this 802.11ad router’s strongest selling point might be the impressively robust nature of its 5 GHz network.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software: Netgear’s web interface and web app, plus Plex and more**
 
  Like its other offerings, Netgear gives you the option to manage the Nighthawk X10 using a web interface or a smartphone app. I used the web interface, and I found it fairly easy to understand and navigate if a bit slow.
@@ -187,10 +186,10 @@ Lifewire / Jeremy Laukkonen
  I plugged in one of my media-filled SSD USB drives and had no trouble streaming to any of the Plex clients I have on my network.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Not bad if you really need 802.11ad**
@@ -214,6 +213,19 @@ Lifewire / Jeremy Laukkonen
  **Strong 5GHz performance and Plex Media Center make this a good option if you need an 802.11ad router.**
 
  The Netgear Nighthawk X10 AD7200 is a bit of a mixed bag since its key feature is so niche. If you really need an 802.11ad router, you may want to look for one with a stronger range. However, this router has fantastic performance on the 5GHz band, and the Plex Media Server implementation is also a very strong plus. If short-range 802.11ad support with excellent fallback 5GHz performance sounds good to you, then this is the router you’re looking for.
+
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -251,18 +263,20 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-download-verbatim-excerpt/"><u>[New] In 2024, Download Verbatim Excerpt</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-innovative-tips-for-multisnap-creation-on-snapchat/"><u>[New] Innovative Tips for Multisnap Creation on Snapchat</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/choosing-between-roku-and-fire-tv-stick-expert-picks-and-comparison/"><u>Choosing Between Roku and Fire TV Stick: Expert Picks & Comparison</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/crafting-your-future-a-guide-to-prosperity-in-graphic-designing/"><u>Crafting Your Future A Guide to Prosperity in Graphic Designing</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/1722994795454-directdraw-problems-unraveled-find-quick-fixes-here/"><u>DirectDraw Problems Unraveled – Find Quick Fixes Here!</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-post-with-a-podcast-highlight-moment/"><u>In 2024, Post with a Podcast Highlight Moment</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/overcoming-the-invisible-screen-hurdle-youtube-fixes-for-2024/"><u>Overcoming the Invisible Screen Hurdle YouTube Fixes for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/reimagine-your-visuals-three-effective-techniques-for-backdrop-alteration-on-tiktok/"><u>Reimagine Your Visuals Three Effective Techniques for Backdrop Alteration on TikTok</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/simple-ai-explanation-guide/"><u>Simple AI Explanation Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-cost-effective-marvel-that-is-the-beantech-bitwatch-sn1plus-in-depth-review/"><u>The Cost-Effective Marvel That Is the Beantech Bitwatch Sn1+ - In-Depth Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-perfect-balance-an-in-depth-look-at-the-google-pixel-4a-review/"><u>The Perfect Balance: An In-Depth Look at the Google Pixel 4a Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-pros-and-cons-of-pidgins-instant-messaging-service/"><u>Unveiling the Pros & Cons of Pidgin's Instant Messaging Service</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-nixplay-seed-dominates-the-market-in-photo-frames/"><u>Why Nixplay Seed Dominates the Market in Photo Frames</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-how-to-record-lol-gameplay3-methods/"><u>[New] In 2024, How To Record LOL Gameplay?(3 Methods)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rending-tracks-a-list-of-popular-audio-for-cutting-edge-video-shorts-for-2024/"><u>[New] Trending Tracks A List of Popular Audio for Cutting-Edge Video Shorts for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-mycam-review-a-step-toward-future-proofing-your-videos/"><u>[Updated] In 2024, MyCam Review A Step Toward Future-Proofing Your Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-powerpoint-to-video-best-practices-with-webcams-now-for-2024/"><u>[Updated] PowerPoint to Video Best Practices with Webcams, Now for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-easy-way-to-spot-and-view-trending-youtube-feedback/"><u>2024 Approved The Easy Way to Spot and View Trending YouTube Feedback</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-ultimate-tutorial-for-downloading-wm6/"><u>2024 Approved Ultimate Tutorial for Downloading WM6</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-teaching-aid-top-5-language-learning-mobile-apps/"><u>Best Teaching Aid: Top 5 Language Learning Mobile Apps</u></a></li>
+<li><a href="https://win-data.techidaily.com/cmdwindows-server/"><u>CMDコマンドによるWindows Serverバックアップ作成ガイド：ステップバイステップ</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-unexpected-wonders-of-yokus-island-express-adventure-game/"><u>Exploring the Unexpected Wonders of Yoku's Island Express Adventure Game</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovos-revolutionary-foldable-laptop-the-x1-fold-exploring-its-exceptional-features-and-limitations/"><u>Lenovo's Revolutionary Foldable Laptop - The X1 Fold: Exploring Its Exceptional Features and Limitations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/marvels-avengers-movie-critique-surpassingly-ordinary-or-just-fine/"><u>Marvel's Avengers Movie Critique: Surpassingly Ordinary or Just Fine?</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/master-the-art-of-troubleshooting-tips-for-fixing-clientserver-side-vpn-error-code-800/"><u>Master the Art of Troubleshooting: Tips for Fixing Client/Server-Side VPN Error Code 800</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-elegance-and-intelligence-an-essential-review-of-the-samsung-galaxy-watch/"><u>Mastering Elegance and Intelligence - An Essential Review of the Samsung Galaxy Watch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tablet-vs-e-reader-comparison-ipad-against-kindle-and-nook-devices/"><u>Tablet Vs. E-Reader Comparison: IPad Against Kindle and Nook Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/what-to-consider-with-googles-password-protection/"><u>What to Consider with Google's Password Protection</u></a></li>
 </ul></div>
 

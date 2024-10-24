@@ -1,7 +1,7 @@
 ---
 title: "The Power in Portability: Discovering the Compact Canon SX720HS Zoomer"
-date: 2024-10-16T16:26:12.663Z
-updated: 2024-10-18T18:14:40.499Z
+date: 2024-10-18T16:24:45.602Z
+updated: 2024-10-24T16:44:43.140Z
 categories:
   - BestProducts
 description: "This Article Describes The Power in Portability: Discovering the Compact Canon SX720HS Zoomer"
@@ -46,13 +46,6 @@ thumbnail: https://thmb.techidaily.com/a0246cc894d7a615224c9cfafbf735d7ae91af748
 
 ![Watch Dogs: Legion](https://www.lifewire.com/thmb/Qr_SiCRONOchw7xBWly6nRwi4qM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Watch-Dogs-Legion-PC-1-4cb0288b78324a52bf9ccce096ab5218.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 [View On Amazon $53](https://www.amazon.com/Watch-Dogs-Legion-Standard-Digital/dp/B07SR1FMMC/?tag=lifewire-onsite-prod-20&ascsubtag=5085469%7Cn3b401040a24e4adbb87768f638d99c1a06%7CB07SR1FMMC) [View On Walmart $9](https://www.walmart.com/ip/Watch-Dogs-Legion-PlayStation-4-PlayStation-5/210835769?slfpid=3) [View On Best Buy $15](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fwatch-dogs-legion-standard-edition-playstation-4-playstation-5%2F6350606.p%3FskuId%3D6350606)
@@ -87,6 +80,13 @@ thumbnail: https://thmb.techidaily.com/a0246cc894d7a615224c9cfafbf735d7ae91af748
 
 ![Watch Dogs: Legion spider drone](https://www.lifewire.com/thmb/UOpYTu-WYh_4Z_Icu9ZD7aLW78Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-4-a1beafe90fe7494b84b19f97e292c2ab.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
  Once you complete the opening scene, the game is presented like most open world games — pick a mission, drive to it, complete the mission, and repeat. There are plenty of distractions and side missions to take part in like collecting text and audio files, finding the tech points which allow you to upgrade, participating in bare-knuckle fighting, delivering packages, and drinking a beer, and applying paste-ups. You can also shop for clothes.
@@ -102,6 +102,13 @@ thumbnail: https://thmb.techidaily.com/a0246cc894d7a615224c9cfafbf735d7ae91af748
  Fighting is simple yet satisfying, with a dodge and counter system that feels realistic, and interesting finishing moves. Shooting feels pretty ok too— the aiming works well, and the duck and cover system feels natural. Cut scenes are very well done. They don’t feel arbitrarily thrown in, and they’re well integrated in the game engine. The main storyline takes around 20 hours, but it’ll take much longer if you play all the side missions.
 
 ![Watch Dogs: Legion character creation](https://www.lifewire.com/thmb/fT7PRS6tGlloKdqVFXl8H-TPrVY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-2-ed238e68324c450997c310f225ff57a6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -124,10 +131,10 @@ thumbnail: https://thmb.techidaily.com/a0246cc894d7a615224c9cfafbf735d7ae91af748
 ![Watch Dogs: Legion mission](https://www.lifewire.com/thmb/K-AWpBjCaRJlrJ0G-xBMEG92pQo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-7-87aeabc18ddb4bca8252d33fcb1f20bf.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Erika Rawes / Lifewire
@@ -141,10 +148,10 @@ thumbnail: https://thmb.techidaily.com/a0246cc894d7a615224c9cfafbf735d7ae91af748
  The story kept me interested, although the plot bordered on predictable.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Watch Dogs: Legion vs. Grand Theft Auto Series**
@@ -154,13 +161,6 @@ thumbnail: https://thmb.techidaily.com/a0246cc894d7a615224c9cfafbf735d7ae91af748
  Final Verdict: A good, but not great open world experience.
 
  Watch Dogs: Legion feels like a missed opportunity, with a “play as anyone” feature that’s cool, but not cool enough to compensate for the lack of novelty. The addition of online play may offer more replayability, but as of launch, there isn’t enough to keep us coming back.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -185,22 +185,20 @@ thumbnail: https://thmb.techidaily.com/a0246cc894d7a615224c9cfafbf735d7ae91af748
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-360-aerial-panoramas-with-yuneec-breeze-drone-review/"><u>2024 Approved 360 Aerial Panoramas with Yuneec Breeze Drone Review</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-expert-analysis-the-leading-mac-screenshots-and-recorders-ranked/"><u>2024 Approved Expert Analysis The Leading Mac Screenshots & Recorders Ranked</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-selecting-your-perfect-mp4-device/"><u>2024 Approved Selecting Your Perfect MP4 Device</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/double-location-dongle-all-to-know-about-apple-iphone-7ipad-gps-spoofing-drfone-by-drfone-virtual-ios/"><u>Double Location Dongle All to Know About Apple iPhone 7/iPad GPS Spoofing | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-kootek-notebook-thermal-management-pad-an-impressive-cross-platform-selection/"><u>Evaluating the Kootek Notebook Thermal Management Pad - An Impressive Cross-Platform Selection</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-evening-bliss-an-in-depth-look-into-barnes-and-nobles-nook-glowlight-3-e-reader-for-dark-environments/"><u>Experience Evening Bliss: An In-Depth Look Into Barnes & Noble's Nook GlowLight 3 E-Reader for Dark Environments</u></a></li>
-<li><a href="https://win-popular.techidaily.com/hassle-free-mac-recording-master-the-art-of-mixing-and-editing-tunes-with-mixcraft/"><u>Hassle-Free Mac Recording: Master the Art of Mixing and Editing Tunes with Mixcraft</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-oneplus-nord-n30-se-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from OnePlus Nord N30 SE to iPad | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Huawei Nova Y91? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-the-latest-third-gen-apple-tv-4k/"><u>In-Depth Evaluation of the Latest Third Gen Apple TV 4K</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-microsoft-sculpt-ergo-keyboard-evaluation-exceptional-worth/"><u>In-Depth Microsoft Sculpt Ergo Keyboard Evaluation: Exceptional Worth</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-specs-in-depth-analysis-of-the-oneplus-nord-n100/"><u>Navigating the Specs: In-Depth Analysis of the OnePlus Nord N100</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/photoshop-techniques-optimizing-your-work-for-high-quality-prints/"><u>Photoshop Techniques: Optimizing Your Work for High-Quality Prints</u></a></li>
-<li><a href="https://extra-information.techidaily.com/transform-your-tiktok-content-with-expert-number-manipulation/"><u>Transform Your TikTok Content with Expert Number Manipulation</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/unveiling-portability-meets-performance-the-msi-pro-mp161e2-display-review/"><u>Unveiling Portability Meets Performance: The MSI Pro MP161E2 Display Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potency-of-linksys-ea950/"><u>Unveiling the Potency of Linksys EA950</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-the-samsung-galaxy-s20-fe-5g-is-a-must-have-for-smartphone-aficionados/"><u>Why the Samsung Galaxy S20 FE 5G Is a Must-Have for Smartphone Aficionados</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-optimize-your-videos-discoverability-with-key-youtube-seo-strategies/"><u>[New] Optimize Your Videos' Discoverability with Key YouTube SEO Strategies</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-ultimate-avc-player-on-devices/"><u>[New] Ultimate AVC Player on Devices</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-unpacking-presenter-8s-features-against-the-best/"><u>[Updated] 2024 Approved Unpacking Presenter 8’S Features Against the Best</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723212365734-astro-a40-microphone-not-working-heres-how-you-can-get-it-up-and-running-again/"><u>Astro A40 Microphone Not Working? Here's How You Can Get It Up and Running Again</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-your-channels-popularity-optimal-post-dates-for-2024/"><u>Boost Your Channel's Popularity - Optimal Post Dates for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/command-the-field-with-a-customized-in-game-character-voice-in-free-fire-for-2024/"><u>Command the Field with a Customized In-Game Character Voice in Free Fire for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/destiny-2-and-broccoli-collision-the-ultimate-game-changer-patch-of-2024/"><u>Destiny 2 & Broccoli Collision: The Ultimate Game-Changer Patch of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-leading-iphone-antivirus-solutions-our-selection-of-the-6-finest-options/"><u>Discover the Leading iPhone Antivirus Solutions: Our Selection of the 6 Finest Options</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/intense-performance-at-steep-costs-an-in-depth-look-at-alienware-aurora-r7/"><u>Intense Performance at Steep Costs: An In-Depth Look at Alienware Aurora R7</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-time-management-how-mobvois-ticwatch-pro-3-utilizes-a-dual-screen-design-for-enhanced-battery-life-and-accurate-gps-tracking/"><u>Mastering Time Management: How Mobvoi's TicWatch Pro 3 Utilizes a Dual Screen Design for Enhanced Battery Life & Accurate GPS Tracking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sony-wh-1000xm4-review-a-critical-listening-perspective/"><u>Sony WH-1000XM4 Review: A Critical Listening Perspective</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sumind-bt70b-bluetooth-transmitter-evaluation-ultimate-companion-for-in-car-connectivity/"><u>Sumind BT70B Bluetooth Transmitter Evaluation: Ultimate Companion for In-Car Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-legacy-lives-on-a-modern-take-on-the-vintage-netgear-c3000-router-performance-review/"><u>The Legacy Lives On: A Modern Take on the Vintage Netgear C3000 Router Performance Review</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-nokia-c300-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Nokia C300? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Oppo A59 5G | Dr.fone</u></a></li>
 </ul></div>
 

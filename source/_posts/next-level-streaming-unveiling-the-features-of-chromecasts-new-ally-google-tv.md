@@ -1,7 +1,7 @@
 ---
 title: "Next-Level Streaming: Unveiling the Features of Chromecast's New Ally, Google TV"
-date: 2024-10-15T01:45:52.599Z
-updated: 2024-10-18T18:18:27.278Z
+date: 2024-10-17T20:11:04.294Z
+updated: 2024-10-24T16:26:26.845Z
 categories:
   - BestProducts
 description: "This Article Describes Next-Level Streaming: Unveiling the Features of Chromecast's New Ally, Google TV"
@@ -74,13 +74,6 @@ Lifewire / Jeremy Laukkonen
 
  Luna is an impressive service with what seems like solid underlying tech right out of the gate. The biggest questions seem to be how and when Amazon will go about filling holes in the library, how well the service will work when they eventually roll out 4K streaming, and whether we’ll see better Android support in the future.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design and Controls: Decent enough app and a nearly flawless controller
 
  Luna isn’t a traditional game console, so there isn’t much design to speak of in terms of hardware. The two important elements here are the Luna app, which operates as an Android app on Fire TV and a web app in[Chrome](https://www.lifewire.com/what-is-google-chrome-4687647) and[Safari](https://www.lifewire.com/what-is-safari-4173608) , and the controller that’s technically optional.
@@ -88,10 +81,10 @@ Lifewire / Jeremy Laukkonen
 ![Amazon Luna](https://www.lifewire.com/thmb/c10USyUEVgaFrdeWRUBgX6MNpOQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_05-7314cf2ae25a4f428d93f40cc56fb5d1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -103,6 +96,13 @@ Lifewire / Jeremy Laukkonen
  The controller is similarly unassuming, and Amazon clearly isn’t trying to rock the boat there. It’s extremely similar in profile to an Xbox One controller, right down to the positioning of the offset analog sticks. This configuration has long been my favorite, with the Sony-style side-by-side analogs feeling cramped, so the Luna controller feels instinctually good in my hands. If you’re a fan of the Xbox One controller, you’ll likely feel the same. If you don’t like the Xbox-style design for whatever reason, then you may at least appreciate the fact that the build quality of the controller feels quite solid, and it’s very snappy and responsive in use.
 
 ![Amazon Luna](https://www.lifewire.com/thmb/jNDwaMGOVuF5UIISPsmdb5uQdGU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_04-985a4419a93945d2879b09d61fafae5a.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -129,13 +129,6 @@ Lifewire / Jeremy Laukkonen
  If you do opt to link your controller to your Amazon account when you buy it, and you already own other Amazon devices like[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) that are connected to your Wi-Fi connection, then you can take advantage of Amazon’s Wi-Fi simple setup that shaves some time off the setup process. Otherwise, you just use the Luna controller app on your Android or iPhone to hook the controller up to Wi-Fi.
 
  After the initial setup process, your Luna controller is ready to go regardless of platform. Power on the controller, launch the Luna app or website, and everything automatically connects without any additional work or input.
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Performance: Impressive game streaming, but no 4K
 
@@ -169,31 +162,24 @@ Lifewire / Jeremy Laukkonen
 
 ![Amazon Luna](https://www.lifewire.com/thmb/NBB1N6qtwbtdjrUgwr1YaBaTuBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_02-37837bf860d244d3ab11ff01f37c609c-db472e204ada4ccca88e7510eacfae34.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
  For some reason, the fighting category is populated by titles like the rogue-like shooter Everspace and the co-op brawler River City Girls. No actual fighting games, though. The horror category was empty until Amazon scored Resident Evil 7 Gold Edition and also saddled gorefest pixel art platformer Valfaris with the horror tag.
 
  It’s clear that Amazon is working to bring a nice mix of games to the service, but the depth and breadth of the titles you can access with a basic subscription remain the biggest question as Luna moves through beta and toward general launch.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Price: Affordable fee reflects the thin library
 
  Luna comes with a price tag of $4.95 per month during the beta period, with the insinuation that it will increase later on. It’s uncertain as to whether or not the price will actually go up, but right now it’s a pretty good deal. The only real caveat is that the attractive price tag is balanced by a somewhat thin library. Go ahead and check the library before you sign up. If you see more than a handful of games you’re interested in, then Luna is absolutely worth the price of admission.
 
  The Luna controller has a heftier price tag of $50, but that’s actually pretty reasonable if you compare it to other wireless controllers. It’s cheaper than a lot of the other options, and you can use it via Wi-Fi with Luna, or via Bluetooth or USB-C to play non-Luna games on your PC. All in all, it’s a good controller that’s priced competitively.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Amazon Luna vs. Microsoft Game Pass Ultimate
 
@@ -213,11 +199,31 @@ Lifewire / Jeremy Laukkonen
 
  Amazon Luna is an impressive game streaming service that works surprisingly well whether or not you buy the optional controller. It isn’t perfect, and you’re likely to experience hiccups here and there, but it’s an extremely affordable way to experience dozens of games, many of which would otherwise require an expensive gaming PC or console, without any kind of initial investment. The future of the service remains uncertain, and the precedent of locking Ubisoft games behind an expensive additional paywall isn’t a great sign, but Amazon has a chance to make a real splash in the gaming world with Luna.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Xbox Series X|S Controller](https://www.lifewire.com/xbox-series-x-or-s-controller-review-5113227)
 * [Sony DualSense Wireless Controller](https://www.lifewire.com/sony-dualsense-wireless-controller-review-feel-the-quality-5101639)
 * [Xbox One Elite Controller](https://www.lifewire.com/xbox-one-elite-controller-review-4770957)
+
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -249,24 +255,17 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/updated-expert-advice-how-to-share-your-imovie-videos-on-vimeo/"><u>[Updated] Expert Advice How to Share Your iMovie Videos on Vimeo</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/asus-chromebook-flip-c3ca-a-comprehensive-review-of-a-cost-effective-2-in-1-laptop-that-exceeds-expectations/"><u>Asus Chromebook Flip C3#CA: A Comprehensive Review of a Cost-Effective, 2-in-1 Laptop that Exceeds Expectations</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/campfires-and-crafting-unveiling-the-best-features-of-minecrafts-newest-theme-pack/"><u>Campfires and Crafting: Unveiling the Best Features of Minecraft's Newest Theme Pack</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/elevating-your-online-voice-detailed-steps-for-reddit-success/"><u>Elevating Your Online Voice Detailed Steps for Reddit Success</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-jaco-smartpro-digital-tire-inflator-an-experts-guide-to-a-portable-and-high-performance-device/"><u>Evaluating the Jaco SmartPro Digital Tire Inflator: An Expert's Guide to a Portable and High-Performance Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/examining-the-midland-lxt500vp3-transceiver-a-multitude-of-features-but-does-it-deliver/"><u>Examining The Midland LXT500VP3 Transceiver: A Multitude Of Features, But Does It Deliver?</u></a></li>
-<li><a href="https://article-helps.techidaily.com/from-darkroom-to-digital-mastering-modern-grading-techniques/"><u>From Darkroom to Digital Mastering Modern Grading Techniques</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-i-successfully-completed-my-pending-windows-update-at-100/"><u>How I Successfully Completed My Pending Windows Update at 100%</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-intense-evaluation-the-detailed-study-of-bublcam-360/"><u>In 2024, Intense Evaluation The Detailed Study of Bublcam 360</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/inside-scoop-on-devices-from-toms-digital-world/"><u>Inside Scoop on Devices From Tom's Digital World</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/1726028709359-kodi-kodi/"><u>Kodiヘルプ＆ガイド - Kodiの使い方を学ぶ</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximizing-productivity-spotlight-on-the-best-large-screen-laptops-of-2024/"><u>Maximizing Productivity: Spotlight on the Best Large-Screen Laptops of 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionary-mohu-blade-television-dongle-assessed-stylish-appearance-and-solid-interior-signal-quality/"><u>Revolutionary Mohu Blade Television Dongle Assessed: Stylish Appearance and Solid Interior Signal Quality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-drive-with-the-lihan-lhfm1039-a-comprehensive-review-of-bluetooth-car-stereo-connectivity/"><u>Revolutionize Your Drive with the LIHAN LHFM1039: A Comprehensive Review of Bluetooth Car Stereo Connectivity</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/streamlined-use-of-tp-links-re305-range-extender-in-ac1200-wifi-setup-in-depth-analysis/"><u>Streamlined Use of TP-Link's RE305 Range Extender in AC1200 WiFi Setup: In-Depth Analysis</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/superior-selection-of-free-high-definition-software-for-both-oss/"><u>Superior Selection of Free, High-Definition Software for Both OS's</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-viral-power-couple-tiktok-and-twitter-trends-for-2024/"><u>The Viral Power Couple TikTok & Twitter Trends for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/transforming-search-with-microsoft-bings-advanced-ai-integration/"><u>Transforming Search with Microsoft Bing's Advanced AI Integration</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-coolest-way-to-keep-your-pc-frosty-a-review-of-the-pricey-yet-powerful-thermaltake-massive-tm-laptop-cooler/"><u>Unboxing the Coolest Way to Keep Your PC Frosty - A Review of the Pricey Yet Powerful Thermaltake Massive TM Laptop Cooler</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-step-by-step-crafting-and-uploading-360-vids-for-fb/"><u>[New] 2024 Approved Step-by-Step Crafting & Uploading 360 Vids for FB</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-zoom-into-action-capturing-your-desktop-ezvide-style/"><u>[Updated] In 2024, Zoom Into Action Capturing Your Desktop, EZvide Style</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/activating-or-deactivating-your-on-screen-typing-tools-in-windows-10-tutorial/"><u>Activating or Deactivating Your On-Screen Typing Tools in Windows 10 (Tutorial)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/boost-your-battery-life-with-our-insightful-review-of-the-innovative-halo-bolt-portable-charger/"><u>Boost Your Battery Life with Our Insightful Review of the Innovative Halo Bolt Portable Charger</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-essential-elements-of-the-best-dash-camera/"><u>Evaluating Essential Elements of the Best Dash Camera</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-microsoft-sculpt-ergonomic-keyboard-exceptional-affordability-and-comfort/"><u>Expert Analysis of the Microsoft Sculpt Ergonomic Keyboard - Exceptional Affordability & Comfort</u></a></li>
+<li><a href="https://driver-download.techidaily.com/hp-laserjet-1320-windows-compatible-driver-download-and-installation-guide/"><u>HP LaserJet 1320 Windows-Compatible Driver Download & Installation Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-through-the-upgrade-decision-process/"><u>Navigating Through the Upgrade Decision Process</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/pc-games-memory-freeze-and-capture-6-ways-to-win-in-2024/"><u>PC Games Memory - Freeze and Capture 6 Ways to Win, In 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/tactical-approaches-to-harvesting-hd-content-from-social-feeds/"><u>Tactical Approaches to Harvesting HD Content From Social Feeds</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unmissable-oneplus-bargains-prime-day-exclusive-savings/"><u>Unmissable OnePlus Bargains: Prime Day Exclusive Savings</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-the-ultimate-journey-in-voice-coaching-changing-how-you-sound-for-2024/"><u>Updated The Ultimate Journey in Voice Coaching Changing How You Sound for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Comprehensive TP-Link Deco P9 Wireless Networking Solution Analysis
-date: 2024-10-15T20:32:36.863Z
-updated: 2024-10-18T17:56:20.660Z
+date: 2024-10-18T18:26:50.529Z
+updated: 2024-10-24T17:57:44.995Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive TP-Link Deco P9 Wireless Networking Solution Analysis
@@ -49,6 +49,13 @@ Lifewire / Jeremy Laukkonen
 
 ![Amazon Luna](https://www.lifewire.com/thmb/NT3lnZ3hOwaGUbS2tHARE7zRT1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_Hero_Square-cced3e5a3d3e4d24af1b85a59c76932d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
 [View On Amazon](https://www.amazon.com/luna/landing-page?tag=lifewire-onsite-prod-20&ascsubtag=5119523%7Cnc95ba131dcd04d8fadef0bfb2a313e6816%7C)
@@ -80,6 +87,13 @@ Lifewire / Jeremy Laukkonen
 
 ![Amazon Luna](https://www.lifewire.com/thmb/c10USyUEVgaFrdeWRUBgX6MNpOQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_05-7314cf2ae25a4f428d93f40cc56fb5d1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
  The Luna app, both the Fire TV version and the web app version, is well-designed enough, without a whole lot to really stand out or impress. It functions as a basic interface to access all of the games that the service offers, including a Home screen that highlights games in various categories, a Library screen that lists every available game, and a Playlist page that provides easy access to games you have specifically chosen to place there.
@@ -89,6 +103,13 @@ Lifewire / Jeremy Laukkonen
  The controller is similarly unassuming, and Amazon clearly isn’t trying to rock the boat there. It’s extremely similar in profile to an Xbox One controller, right down to the positioning of the offset analog sticks. This configuration has long been my favorite, with the Sony-style side-by-side analogs feeling cramped, so the Luna controller feels instinctually good in my hands. If you’re a fan of the Xbox One controller, you’ll likely feel the same. If you don’t like the Xbox-style design for whatever reason, then you may at least appreciate the fact that the build quality of the controller feels quite solid, and it’s very snappy and responsive in use.
 
 ![Amazon Luna](https://www.lifewire.com/thmb/jNDwaMGOVuF5UIISPsmdb5uQdGU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_04-985a4419a93945d2879b09d61fafae5a.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -109,13 +130,6 @@ Lifewire / Jeremy Laukkonen
  If you’re using the optional Luna controller, there is a bit of additional setup to work through. You can choose to have your controller automatically linked to your Amazon account when you buy it, which simplifies setup a bit, but it’s a fairly straightforward process either way.
 
 ![Amazon Luna](https://www.lifewire.com/thmb/6427gP-MSnqe4st8hfuI-7yxlos=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_03-f12a92bc606e43caa77b445a2fdcf1c1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -143,13 +157,6 @@ Lifewire / Jeremy Laukkonen
 
  If you have a slow internet connection or suffer from poor connectivity, then it’s likely that the brief issues I experienced could be amplified to an unacceptable point. If you have a decent connection, live closer to a major metropolitan area than I do, and have more than 10Mbps of downstream bandwidth available, the service should work just fine.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Software: Dozens of games, but the library is a bit thin with a lot of holes
 
  Luna’s biggest issue, and its biggest question mark going forward, is its streaming library. Amazon is taking a page from Microsoft’s book in that they’re trying to function as a Netflix of game streaming, but Amazon just doesn’t have the same deep library as Microsoft.
@@ -162,13 +169,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Amazon Luna](https://www.lifewire.com/thmb/NBB1N6qtwbtdjrUgwr1YaBaTuBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_02-37837bf860d244d3ab11ff01f37c609c-db472e204ada4ccca88e7510eacfae34.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jeremy Laukkonen
 
  For some reason, the fighting category is populated by titles like the rogue-like shooter Everspace and the co-op brawler River City Girls. No actual fighting games, though. The horror category was empty until Amazon scored Resident Evil 7 Gold Edition and also saddled gorefest pixel art platformer Valfaris with the horror tag.
@@ -176,10 +176,10 @@ Lifewire / Jeremy Laukkonen
  It’s clear that Amazon is working to bring a nice mix of games to the service, but the depth and breadth of the titles you can access with a basic subscription remain the biggest question as Luna moves through beta and toward general launch.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Price: Affordable fee reflects the thin library
@@ -213,10 +213,10 @@ Lifewire / Jeremy Laukkonen
 * [Xbox One Elite Controller](https://www.lifewire.com/xbox-one-elite-controller-review-4770957)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -249,22 +249,22 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-get-to-know-the-pros-of-engaging-with-asmr/"><u>[New] Get to Know the Pros of Engaging with ASMR</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-navigating-safe-mode-and-pip-features-on-iphone-ipad-and-macos/"><u>[New] Navigating Safe Mode and PIP Features on iPhone, iPad & MacOS</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-boosting-zoom-image-resolution-expert-advice/"><u>[Updated] 2024 Approved Boosting Zoom Image Resolution Expert Advice</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-creating-dynamic-content-with-youtube-playlist-embedding-for-2024/"><u>[Updated] Creating Dynamic Content with YouTube Playlist Embedding for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-comparing-dailymovements-and-youtubes-income-models/"><u>In 2024, Comparing DailyMovement's and Youtube's Income Models</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-discovering-the-power-behind-youtube-statistics-interpretation/"><u>In 2024, Discovering the Power Behind YouTube Statistics Interpretation</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-integrate-video-archives-for-streaming-companionship/"><u>In 2024, Integrate Video Archives for Streaming Companionship</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-apple-iphone-12-mini-location-by-mobile-number-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 6 Apps/Services to Trace Any Apple iPhone 12 mini Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-bluetooth-audio-systems-a-comprehensive-review/"><u>Top Rated Bluetooth Audio Systems : A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-ranked-password-safety-tools-a-comprehensive-review/"><u>Top-Ranked Password Safety Tools : A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-ranked-qled-televisions-your-ultimate-guide/"><u>Top-Ranked QLED Televisions : Your Ultimate Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-ranking-android-tablet-picks/"><u>Top-Ranking Android Tablet Picks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-ranking-mac-displays-a-comprehensive-buyers-guide/"><u>Top-Ranking Mac Displays : A Comprehensive Buyer's Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-intelligent-fire-alert-systems/"><u>Top-Rated Intelligent Fire Alert Systems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-iphone-13-screensaver-solutions-for-enhanced-display-safety/"><u>Top-Rated iPhone 13 Screensaver Solutions for Enhanced Display Safety</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-liquid-cooling-systems-to-enhance-your-computers-performance/"><u>Top-Rated Liquid Cooling Systems to Enhance Your Computer's Performance</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-motorola-moto-g14-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Motorola Moto G14 IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-digital-tapestry-crafting-visual-narratives-for-2024/"><u>[New] Digital Tapestry Crafting Visual Narratives for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-instacapture-the-ultimate-download-toolkit-unveiled/"><u>[Updated] 2024 Approved InstaCapture The Ultimate Download Toolkit Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-reimagined-a-critical-review-of-microsofts-trailblazing-xbox-series-x-console/"><u>Experience Reimagined: A Critical Review of Microsoft's Trailblazing Xbox Series X Console</u></a></li>
+<li><a href="https://win-answers.techidaily.com/expert-advice-overcoming-stability-problems-with-escape-from-tarkov-on-your-personal-computer/"><u>Expert Advice: Overcoming Stability Problems with 'Escape From Tarkov' On Your Personal Computer</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/exploring-the-world-of-gadgets-with-toms-hardware-insights/"><u>Exploring the World of Gadgets with Tom's Hardware Insights</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-samsung-galaxy-z-flip-5-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Samsung Galaxy Z Flip 5 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-fb-video-placement-upright-or-flat-angle/"><u>In 2024, FB Video Placement - Upright or Flat Angle?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovo-chromebook-duet-overview-affordable-hybrid-laptoptablet-analysis/"><u>Lenovo Chromebook Duet Overview: Affordable Hybrid Laptop/Tablet Analysis</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/mastering-immediate-collage-making-for-social-sharing/"><u>Mastering Immediate Collage Making for Social Sharing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-home-network-efficiency-the-ultimate-orbi-whole-home-tri-band-wi-fi-6-system-assessment/"><u>Maximizing Home Network Efficiency: The Ultimate Orbi Whole Home Tri-Band Wi-Fi 6 System Assessment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mohu-blade-tv-antenna-analysis-unmatched-design-and-superior-performance-in-your-home/"><u>Mohu Blade TV Antenna Analysis: Unmatched Design & Superior Performance in Your Home</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/revolutionize-your-user-interface-master-8-bubble-ui-techniques-for-windows/"><u>Revolutionize Your User Interface: Master 8 Bubble UI Techniques for Windows</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/skylines-of-cities-in-depth-game-review-and-insights/"><u>Skylines of Cities: In-Depth Game Review and Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/solid-features-in-bose-wireless-headphone-exploration/"><u>Solid Features in Bose Wireless Headphone Exploration</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sx420-review-breathtaking-42x-optical-focus-for-portables/"><u>SX420 Review: Breathtaking 42X Optical Focus for Portables</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/travel-with-peace-of-mind-watch-over-your-furry-family-members/"><u>Travel with Peace of Mind, Watch Over Your Furry Family Members</u></a></li>
 </ul></div>
 

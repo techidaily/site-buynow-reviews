@@ -1,7 +1,7 @@
 ---
 title: "The Sony Xperia 5 Overview: A Miniature Marvel with a Premium Tag"
-date: 2024-10-16T00:39:10.647Z
-updated: 2024-10-18T22:57:57.711Z
+date: 2024-10-22T17:25:18.388Z
+updated: 2024-10-24T16:34:20.406Z
 categories:
   - BestProducts
 description: "This Article Describes The Sony Xperia 5 Overview: A Miniature Marvel with a Premium Tag"
@@ -44,16 +44,16 @@ Lifewire / Erika Rawes
 
 4
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## SEGA Yakuza: Like a Dragon
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/2HQ40tAW6PvhutMT0JyWvwFpbdI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_HeroSquare-ea84381e359846e6951c77b6f7e7c5a0.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -74,6 +74,19 @@ Lifewire / Erika Rawes
  _Our reviewer purchased Yakuza: Like a Dragon so they could put it to the test. Keep reading for the full product review._
 
  The[best PC games](https://www.lifewire.com/best-pc-games-4147292) offer something unique that keeps you coming back for more. Yakuza: Like a Dragon takes the standard Yakuza formula and stands it on its head, moving the fighting system from real-time to turn-based and making this entry to the series feel like a true JRPG. I played Yakuza: Like a Dragon[on PC](https://www.lifewire.com/best-pc-games-4147292) to find out if these changes make this game better or worse. Should you play the new Yakuza or skip it? Read on to check out my full review of Yakuza: Like a Dragon.
+
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Setting and Plot: A very long intro
 
@@ -112,10 +125,10 @@ Lifewire / Erika Rawes
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/ZvcwNcecc79umImvw53CUJlLvIc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_02-6396bcd8866c4a479331a02e160eb890.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -142,18 +155,18 @@ Lifewire / Erika Rawes
 
 Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Price: The typical $60
 
  The base version of Yakuza: Like a Dragon comes in at $60 like most new titles. The price is reasonable for the amount of gameplay. However, you have two other purchase options as well. The Hero Edition, which costs $70, includes the Job Set and the Management Mode set and features two extra jobs and three sets of Management mode employees.
 
  The Legendary Hero edition costs $90, and it includes both previously listed sets, as well as the Crafting Mat, Stat Boost, Karaoke, and Ultimate Costume sets. These are all nice bonuses and can certainly add to the experience, but you will also find more than enough gameplay in the base game.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Yakuza: Like a Dragon vs. Dragon Quest Series
 
@@ -165,13 +178,6 @@ Lifewire / Erika Rawes
 
  A well-crafted masterpiece. Yakuza: Like a Dragon falls into the must-play category for anyone who loves a good story, JRPGs, or a wild game that will make you laugh. It’s definitely a departure from the rest of the series, but that contributes to a lot of the fun and uniqueness of the game.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Cyberpunk 2077](https://www.lifewire.com/cyberpunk-2077-review-5113844)
@@ -179,16 +185,10 @@ Lifewire / Erika Rawes
 * [Torment: Tides of Numenera](https://www.lifewire.com/torment-tides-of-numenera-review-5077302)
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -219,24 +219,16 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/approved-the-smart-way-to-extract-specific-segments-from-youtube/"><u>2024 Approved The Smart Way to Extract Specific Segments From YouTube</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comparison-showdown-how-does-the-tp-link-archer-ax6000-stack-up-against-the-nighthawk-ax12/"><u>Comparison Showdown: How Does the TP-Link Archer AX6000 Stack Up Against the Nighthawk AX12?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dells-alienware-aurora-r9-revolutionary-design-meets-ultimate-power-for-gamers/"><u>Dell's Alienware Aurora R9: Revolutionary Design Meets Ultimate Power for Gamers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-why-zmi-powerpack-20000-is-hailed-as-the-ultimate-go-anywhere-power-unit/"><u>Discover Why ZMI PowerPack 20000 Is Hailed as the Ultimate Go-Anywhere Power Unit!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-dell-inspiron-3671-desktop-computer-a-review-of-an-unassuming-midrange-performance-unit/"><u>Evaluating the Dell Inspiron 3671 Desktop Computer: A Review of an Unassuming, Midrange Performance Unit</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-it-lava-storm-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Lava Storm 5G Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-to-oppo-a1-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Oppo A1 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-motorolas-moto-g-featuring-a-stylus-outstanding-performance-satisfactory-battery-longevity/"><u>In-Depth Review of Motorola's Moto G Featuring a Stylus: Outstanding Performance, Satisfactory Battery Longevity</u></a></li>
-<li><a href="https://win-blog.techidaily.com/mastering-smooth-gaming-overcoming-lag-in-dota-2-tips/"><u>Mastering Smooth Gaming: Overcoming Lag in Dota 2 - Tips</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximize-gaming-performance-in-depth-review-of-the-havit-5-fan-cooler-for-laptops/"><u>Maximize Gaming Performance: In-Depth Review of the HAVIT 5 Fan Cooler for Laptops</u></a></li>
-<li><a href="https://driver-download.techidaily.com/quick-guide-how-to-download-and-install-mediatek-vcom-usb-drivers-easily/"><u>Quick Guide: How to Download and Install MediaTek VCOM USB Drivers Easily</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-macbook-pros-performance-with-ssd/"><u>Revolutionize Your MacBook Pro's Performance with SSD</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-definitive-selection-of-premium-htpc-models-for-the-new-year/"><u>The Definitive Selection of Premium HTPC Models for the New Year</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/the-epitome-of-hd-recording-curated-list-unveiled/"><u>The Epitome of HD Recording Curated List Unveiled</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-future-of-mobile-charging-unveiled-a-review-of-the-omnicharge-omni-20-with-qi-wireless-and-conventional-inputs/"><u>The Future of Mobile Charging Unveiled - A Review of the Omnicharge Omni 20 with Qi Wireless & Conventional Inputs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-global-pearson-linguistic-network/"><u>The Global Pearson Linguistic Network</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/top-mobile-playlists-discovering-the-ultimate-melodies-for-your-android-device-for-2024/"><u>Top Mobile Playlists Discovering the Ultimate Melodies for Your Android Device for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-future-elite-key-locators-ranked/"><u>Unlocking the Future: Elite Key Locators Ranked</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/vaio-unveils-ultra-lightweight-visionplus-14-worlds-lighter-portable-monitor-at-just-072lbs/"><u>Vaio Unveils Ultra-Lightweight Vision+ 14: World's Lighter Portable Monitor at Just 0.72Lbs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-filmmakers-pathway-to-anime-subscription-buttons-in-filmora/"><u>[New] 2024 Approved Filmmaker’s Pathway to Anime Subscription Buttons in Filmora</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastering-multitasking-sync-many-yt-videos-simultaneously/"><u>[Updated] In 2024, Mastering Multitasking Sync Many YT Videos Simultaneously</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-enhancing-audience-experience-four-ways-to-livestream-on-tv/"><u>2024 Approved Enhancing Audience Experience Four Ways to Livestream on TV</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assessing-the-cost-is-apple-vision-pro-worth-it/"><u>Assessing the Cost: Is Apple Vision Pro Worth It?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fitbit-versa-lite-assessed-premium-fitness-features-at-an-economical-price-point/"><u>Fitbit Versa Lite Assessed: Premium Fitness Features at an Economical Price Point</u></a></li>
+<li><a href="https://win11.techidaily.com/handling-please-exit-problems-with-roblox-on-windows/"><u>Handling Please Exit Problems with Roblox on Windows</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oppo-reno-8t-5g-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Oppo Reno 8T 5G to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-zte-blade-a73-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from ZTE Blade A73 5G to New Phone | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-apple-iphone-xs-max-for-parents-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 10 Telegram Spy Tools On Apple iPhone XS Max for Parents | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smart-investing-in-home-entertainment-think-twice-on-dvr-purchase/"><u>Smart Investing in Home Entertainment: Think Twice on DVR Purchase</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unraveling-the-distinctions-amazon-echo-pop-vs-amazon-echo-dot/"><u>Unraveling the Distinctions: Amazon Echo Pop Vs. Amazon Echo Dot</u></a></li>
 </ul></div>
 

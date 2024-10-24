@@ -1,7 +1,7 @@
 ---
 title: "Ultra-Modern Lighting Experience: In-Depth Analysis of the TaoTronics TT-DL16 LED Desk Lamp"
-date: 2024-10-14T22:23:24.299Z
-updated: 2024-10-18T21:54:11.425Z
+date: 2024-10-19T19:41:40.730Z
+updated: 2024-10-24T20:03:26.145Z
 categories:
   - BestProducts
 description: "This Article Describes Ultra-Modern Lighting Experience: In-Depth Analysis of the TaoTronics TT-DL16 LED Desk Lamp"
@@ -73,6 +73,13 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Dark, sturdy, and feature-packed**
 
  The general format of the Elite Series 2 takes the basic XB1 controller and builds upon that excellent design by adding in tons of extras and features. However, unlike the first Elite controller, this version uses the newer One S model controller as its basis. This means there is no more two-piece design where the top and bottom shells of the controller are separate. The build is less flashy perhaps, no longer sporting a two-tone finish, but it makes it feel much more solid and creates a sleeker look.
@@ -101,13 +108,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Comfort: Hefty, but darn comfy**
 
  The original Elite was perhaps the most comfortable controller I’ve ever used, so with the Series 2, I had high hopes in this department. Thanks to some clever but subtle changes by the Microsoft team, this controller is even better.
@@ -122,7 +122,21 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/cS5fpyPSlqvyETs-nGxTtAB3vXU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-4-070b6c59b206457ba1068704bbe7bca9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process and Software: Bluetooth, at long last**
 
@@ -143,6 +157,13 @@ Lifewire / Zach Sweat
  If you plan to buy this controller to use with other electronics that support Bluetooth devices, make sure you do some research before committing to it, as it doesn’t always work with everything. That said, we did manage to pair the controller with a couple other devices that weren’t officially supported.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -169,10 +190,10 @@ Lifewire / Zach Sweat
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Like buying a brand new console**
@@ -185,27 +206,7 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/6VfCJGOyjLkAkE_mjiHr7rz8Gyw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-6-0c1d7a2ae4e8443ea5b69f559e52bd12.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
 
@@ -220,13 +221,6 @@ Lifewire / Zach Sweat
  **A truly awesome controller with a steep price point.**
 
  Everything we disliked about the original Elite controller has been improved with the second iteration, making it the best first-party controller you can get for XB1 or PC. However, the steep price point might be a hard pill to swallow for users who don’t like to splurge.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -260,17 +254,17 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-precision-in-recording-windowsmaciosandroid-edition/"><u>[New] 2024 Approved Precision in Recording Windows/Mac/iOS/Android Edition</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-youtube-music-a-guide-to-coherence/"><u>[New] 2024 Approved YouTube Music A Guide to Coherence</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/outube-gold-strategies-for-financial-flourishing/"><u>[New] YouTube Gold Strategies for Financial Flourishing</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-the-leading-replacements-for-microsoft-office-in-202n4/"><u>Comprehensive Guide: The Leading Replacements for Microsoft Office in 202N4</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-aphaca-bt69-the-ultimate-compact-bluetooth-fm-transmitter-for-your-car/"><u>Comprehensive Review of the Aphaca BT69 - The Ultimate Compact Bluetooth FM Transmitter for Your Car</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/elevate-your-felinecanine-experience-petcube-budget-hd-cam/"><u>Elevate Your Feline/Canine Experience - Petcube Budget HD Cam</u></a></li>
-<li><a href="https://solve-howtos.techidaily.com/ersparen-sie-mit-unentgeltlichen-alternativen-zum-hp-simplesave-unter-windows-111087-exklusive-tipps-and-tools/"><u>Ersparen Sie Mit Unentgeltlichen Alternativen Zum HP SimpleSave Unter Windows 11/10/8/7 - Exklusive Tipps & Tools</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-next-level-drawing-authoritative-analysis-of-the-gaomon-pd1560-tablet/"><u>Experience Next-Level Drawing: Authoritative Analysis of the Gaomon PD1560 Tablet</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Tecno Camon 20 | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-leading-4-autonomous-vehicle-companies/"><u>The Leading 4 Autonomous Vehicle Companies</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-connectivity-with-the-linksys-ea9500-smart-router-exposed/"><u>Unveiling the Power of Connectivity with the Linksys EA9500 Smart Router Exposed</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-editing-for-dummies-10-essential-youtube-insights-for-2024/"><u>Video Editing for Dummies 10 Essential YouTube Insights for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unleashing-fun-crafting-amazing-youtube-reaction-videos-in-3-ways/"><u>[New] Unleashing Fun Crafting Amazing YouTube Reaction Videos in 3 Ways</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-vacation-adventures-reimagined-this-years-top-classics/"><u>[New] Vacation Adventures Reimagined This Year's Top Classics</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-fast-track-to-excellent-valorant-thumbnails-artistry-for-2024/"><u>[Updated] Fast-Track to Excellent Valorant Thumbnails Artistry for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-go-live-with-google-meet-youtube-broadcasting-steps-for-2024/"><u>[Updated] Go Live with Google Meet YouTube Broadcasting Steps for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-your-journey-through-the-maze-of-uploading-videos-on-youtube/"><u>2024 Approved Your Journey Through the Maze of Uploading Videos on YouTube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/capitalize-on-prime-day-sales-find-the-finest-offers-on-benq-monitors-and-projection-equipment/"><u>Capitalize on Prime Day Sales: Find the Finest Offers on BenQ Monitors & Projection Equipment</u></a></li>
+<li><a href="https://games-able.techidaily.com/expert-insights-on-maximizing-productivity-the-docked-steam-deck-way/"><u>Expert Insights on Maximizing Productivity: The Docked Steam Deck Way</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-fix-coredll-is-not-present-a-comprehensive-guide/"><u>How to Fix 'core.dll Is Not Present' – A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-the-new-4k-apple-tv-model-from-2021-revolutionizing-hd-streaming-and-voice-command-technology/"><u>In-Depth Review: The New 4K Apple TV Model From 2021 – Revolutionizing HD Streaming & Voice Command Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-skies-safely-top-storm-tracking-tools-of-2024/"><u>Navigating the Skies Safely: Top Storm Tracking Tools of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-powerful-combination-of-design-and-functionality-in-apples-4k-imac/"><u>Reviewing the Powerful Combination of Design & Functionality in Apple's 4K iMac</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/troubleshooting-and-correcting-watchdogsys-system-failures-for-stability/"><u>Troubleshooting and Correcting Watchdog.sys System Failures for Stability</u></a></li>
 </ul></div>
 

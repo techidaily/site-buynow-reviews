@@ -1,7 +1,7 @@
 ---
 title: "Propella 7S 4.0 Tested: Unlocking Affordability, Maneuverability & Portability in One Package"
-date: 2024-10-12T01:55:46.191Z
-updated: 2024-10-18T16:22:01.255Z
+date: 2024-10-21T16:22:14.562Z
+updated: 2024-10-24T19:44:27.008Z
 categories:
   - BestProducts
 description: "This Article Describes Propella 7S 4.0 Tested: Unlocking Affordability, Maneuverability & Portability in One Package"
@@ -42,21 +42,22 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
@@ -81,13 +82,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -110,18 +104,18 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: T-minus one minute**
 
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
 
  Lifewire / Jeffrey Daniel Chadwick
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
 
@@ -144,10 +138,10 @@ Lifewire / Jeffrey Daniel Chadwick
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A decent buy considering its versatility**
@@ -193,22 +187,19 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-a-visual-extravaganza-detailed-examination-of-lg-ud88-uhd-tv/"><u>[New] 2024 Approved A Visual Extravaganza Detailed Examination of LG UD88-UHD TV</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-best-5-headsets-a-youtube-gamers-guide-for-2024/"><u>[New] Best 5 Headsets A YouTube Gamer's Guide for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/erfect-your-yt-thumbnails-with-these-mac-tips-for-2024/"><u>[New] Perfect Your YT Thumbnails with These Mac Tips for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-innovative-approaches-to-social-media-video-making/"><u>[Updated] Innovative Approaches to Social Media Video Making</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-fongo-assessment-canadian-voip-solutions-evaluated/"><u>Comprehensive Fongo Assessment: Canadian VOIP Solutions Evaluated</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/effectively-chill-out-with-the-economical-topmate-c302-laptop-fan-reveal/"><u>Effectively Chill Out with the Economical TopMate C302 Laptop Fan Reveal</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-your-latest-hp-laserjet-5200-drivers-for-windows-11-10-and-8-free-downloads-available-now/"><u>Get Your Latest HP LaserJet 5200 Drivers for Windows 11, 10 & 8 - Free Downloads Available Now!</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-make-a-digital-signature-for-word-2010-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to make a digital signature for Word 2010</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-vivo-y100t-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Vivo Y100t</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-itel-p55t-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Itel P55T to iPad | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-google-pixelbook-go-analysis-exceptional-performance-meets-costly-tag/"><u>In-Depth Google Pixelbook Go Analysis: Exceptional Performance Meets Costly Tag</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-garmin-forerunner/"><u>In-Depth Review of Garmin Forerunner</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-chatgpt-plus-right-for-you-explore-the-5-key-advantages-to-secure-your-spot-today/"><u>Is ChatGPT Plus Right for You? Explore the 5 Key Advantages to Secure Your Spot Today!</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-capturing-images-with-your-xbox-one-console/"><u>Step-by-Step Guide: Capturing Images with Your Xbox One Console</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/syma-x5c-rc-quadcopter-comprehensive-review-of-a-budget-friendly-starter-drone/"><u>SYMA X5C R/C Quadcopter - Comprehensive Review of a Budget-Friendly Starter Drone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-choosing-a-digital-weather-station-spotlight-on-netatmos-app-compatible-device/"><u>The Ultimate Guide to Choosing a Digital Weather Station: Spotlight on Netatmo's App-Compatible Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/travel-friendly-powershot-g9x2-elegant-and-featureful/"><u>Travel-Friendly PowerShot G9X2: Elegant & Featureful</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-ultimate-guide-to-self-supported-youtube-earnings-strategies/"><u>[New] The Ultimate Guide to Self-Supported YouTube Earnings Strategies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assessing-console-evolution-ps5-and-ps4-pro-comparison/"><u>Assessing Console Evolution: PS5 & PS4 Pro Comparison</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/decide-wisely-a-thorough-guide-to-amazon-fire-and-samsung-tablet-features/"><u>Decide Wisely: A Thorough Guide to Amazon Fire and Samsung Tablet Features</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/gpts-grind-dissecting-chatgpt-4s-slow-shift-from-35/"><u>GPT's Grind: Dissecting ChatGPT-4's Slow Shift From 3.5</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-locked-oneplus-ace-3-phone-by-drfone-android/"><u>How to Reset a Locked OnePlus Ace 3 Phone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-vivo-y36-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Vivo Y36 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Samsung Galaxy M14 4G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-yielding-income-a-streamers-guide-to-earning/"><u>In 2024, Yielding Income A Streamer's Guide to Earning</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-assessment-of-the-gaomon-pd15-graphic-designers-delight-drawing-pad/"><u>In-Depth Assessment of the Gaomon PD15_ Graphic Designer's Delight Drawing Pad</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-filmmakers-online-youtube-tutorials-for-growth/"><u>Indie Filmmakers Online YouTube Tutorials for Growth</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/innovative-skagen-falster-3-analysis-timeless-elegance-meets-modern-technology-in-a-smartwatch/"><u>Innovative Skagen Falster 3 Analysis - Timeless Elegance Meets Modern Technology in a Smartwatch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/photo-excellence-online-best-2024-printers-revealed/"><u>Photo Excellence Online: Best 2024 Printers Revealed</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/snap-and-tag-your-audio-favorite-to-share/"><u>Snap & Tag Your Audio Favorite to Share</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-amazfit-gts-unveiled-balancing-elegance-with-exercise-features-in-our-assessment/"><u>The Amazfit GTS Unveiled: Balancing Elegance with Exercise Features in Our Assessment</u></a></li>
 </ul></div>
 

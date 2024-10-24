@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Lenovo Chromebook Duet Evaluation – Affordable Convertible Laptop
-date: 2024-10-18T03:40:24.690Z
-updated: 2024-10-18T18:09:58.034Z
+date: 2024-10-19T19:21:09.065Z
+updated: 2024-10-24T18:05:09.262Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Lenovo Chromebook Duet Evaluation – Affordable Convertible Laptop
@@ -44,22 +44,15 @@ Lifewire / Andrew Hayward
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## ASUS Chromebook Flip C302CA-DHM4
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/A6HRRNfYS6KrVqW-2K3fI0NN7EI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_HeroSquare-01d50171ef9c411f82467742bfad1126.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
@@ -93,6 +86,13 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design and Features: It’s flippin’ nice**
 
  Just as Chromebooks are conceptually designed as budget laptops, the Asus Chromebook Flip is physically built like a budget MacBook. It has the same kind of minimal aesthetic, albeit not to quite the same level of premium visual polish. From the hinge design to the materials and tiny nuances, the Chromebook Flip doesn’t look like a $1,000 laptop.
@@ -125,6 +125,13 @@ Lifewire / Andrew Hayward
 
  It also acts like an extra-large tablet screen since it’s a touchscreen with 10 points of interaction. It felt just as responsive as any tablet we’ve used.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: It does what it can**
 
  You really can’t pit the Chromebook Flip against pricier Windows and Mac laptops in terms of sheer processing power because Chromebooks aren’t built to be beasts. But they don’t really need to be: the highest quality of graphics processing it’ll need to handle are mobile-quality games, since the Chromebook Flip can run Android apps from the Play Store, and you’re not able to download high-end games from Steam or the Epic Games Store.
@@ -139,42 +146,15 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/7B1-43v0GHPcS2HESabWT97_XPQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_Keyboard_03-8bc37c7c2d0243bb8ed1fa10e338374f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 ## **Audio: Sounds fine**
 
  The tiny speaker grates on the left and right side of the Chromebook Flip don’t look too promising, but the playback quality was better than expected. Music output isn’t big and bold, but it’s pretty clear and it can get loud without getting too muddled. Video playback via YouTube and Netflix was sometimes too quiet at full volume, however.
 
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Network: No complaints here**
 
  The Chromebook Flip has dual-band Wi-Fi that can connect to both 2.4Ghz and 5Ghz networks, and we had no issues with either during our testing. We went online at a home network and a Starbucks Google network alike, and things were routinely speedy. On the home network, we saw speeds of about 33Mbps and upload speeds in excess of 10Mbps—essentially the same as we’ve seen with[other laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) and[smartphones](https://www.lifewire.com/best-smartphones-4043781) .
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Battery: Nearly a day’s worth**
 
@@ -185,6 +165,13 @@ Lifewire / Andrew Hayward
  Our laptop video rundown test, which streams a Netflix movie over Wi-Fi while at 100 percent brightness, delivered a similar result: it lasted 6 hours, 57 minutes before the Chromebook Flip shut down. In both use cases, we were pleasantly surprised by the battery performance of the device—it even beat the 2018 MacBook Air.
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/VR5Y-1tDILHowNSeA408pnLVtgg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_closed_04-bde5ec8f988c4bb49e4019f95cc47c31.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -208,14 +195,14 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/NHrMPSrgOWsOuCEYg0M-STQUfsU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Air-v-Surface-Comparison-a255967a27e14762b5c2ad9c442df77f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Asus Chromebook Flip C302CA vs. Apple MacBook Air**
 
@@ -230,6 +217,13 @@ Lifewire / Andrew Hayward
  **It’s an excellent, affordable laptop.**
 
  Just as the recent crop of cheap, strong mid-range phones has made many flagship smartphones seem excessive and unnecessary, the Asus Chromebook Flip C302CA does much the same for laptops. This is a seriously impressive and versatile notebook without any major deficiencies, and it’s priced at just $499—less than half the price of the cheapest Apple laptop right now.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -263,17 +257,24 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-compensated-analysis-the-vlog-perspective-on-goods/"><u>[Updated] 2024 Approved Compensated Analysis The Vlog Perspective on Goods?</u></a></li>
-<li><a href="https://discover-awesome.techidaily.com/effortless-method-for-transforming-kobo-book-files-into-portable-document-format-pdf/"><u>Effortless Method For Transforming Kobo Book Files Into Portable Document Format (PDF)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-the-featherlight-marvel-in-depth-review-of-the-2018-lg-gram-156-ultrabook/"><u>Experience the Featherlight Marvel: In-Depth Review of the 2018 LG Gram 15.6 Ultrabook!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-on-the-twelve-south-compass-pro-intuitively-designed-for-unmatched-stability/"><u>Expert Review on the Twelve South Compass Pro: Intuitively Designed for Unmatched Stability</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-from-apple-iphone-14-plus-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked From Apple iPhone 14 Plus?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/marvel-heroes-on-screen-navigating-through-the-midway-points-of-excellence-and-mediocrity/"><u>Marvel Heroes on Screen: Navigating Through the Midway Points of Excellence & Mediocrity</u></a></li>
-<li><a href="https://techtrends.techidaily.com/sequencing-spy-thrills-discover-the-best-viewing-order-for-james-bond-classics/"><u>Sequencing Spy Thrills: Discover the Best Viewing Order for James Bond Classics</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stay-connected-on-the-go-our-selection-of-top-of-the-line-travel-routers-for-202absolutely-here-are-five-seo-friendly-titles-that-convey-similar-meanings-to12/"><u>Stay Connected on the Go: Our Selection of Top-of-the-Line Travel Routers for 202Absolutely! Here Are Five SEO-Friendly Titles that Convey Similar Meanings to The Best Wireless Travel Routers of 2024:</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-definitive-review-of-the-lg-gram-17-thin-featherlight-and-surprisingly-powerful/"><u>The Definitive Review of the LG Gram 17: Thin, Featherlight and Surprisingly Powerful</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-10-oppo-a1-5g-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Oppo A1 5G Android SIM Unlock APK</u></a></li>
-<li><a href="https://discover-data.techidaily.com/ultimate-selection-of-complimentary-mac-to-pc-file-sharing-solutions/"><u>Ultimate Selection of Complimentary Mac to PC File Sharing Solutions</u></a></li>
-<li><a href="https://win-studio.techidaily.com/windows-11-wiederherstellen-auf-einem-asus-notebook-einfache-schritte/"><u>Windows 11 Wiederherstellen Auf Einem Asus Notebook: Einfache Schritte.</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-snapshot-strategies-maintaining-consistent-snapstreaks/"><u>[New] In 2024, Snapshot Strategies Maintaining Consistent Snapstreaks</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-inspecting-slowdown-in-your-photo-booth-recording/"><u>[New] Inspecting Slowdown in Your Photo Booth Recording</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-master-your-creative-vision-with-digital-cropting-skills-for-2024/"><u>[New] Master Your Creative Vision with Digital Cropting Skills for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-professional-grade-handguns-for-ultimate-video-stability/"><u>[New] Professional Grade Handguns for Ultimate Video Stability</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-essential-guide-to-15-top-instagram-downloader-apps-for-2024/"><u>[New] The Essential Guide to 15 Top Instagram Downloader Apps for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-step-by-step-for-customizing-and-downloading-spiritual-audio/"><u>[Updated] In 2024, Step by Step for Customizing and Downloading Spiritual Audio</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-mlb-the-show-19-when-sports-beauty-meets-unexpected-rpg-twists/"><u>Exploring MLB The Show 19: When Sports Beauty Meets Unexpected RPG Twists</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/gamers-guide-unboxing-the-nvidia-shield-tv-pro-the-ultimate-streaming-console/"><u>Gamer's Guide: Unboxing the Nvidia Shield TV Pro - The Ultimate Streaming Console</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-tecno-spark-20c-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Tecno Spark 20C to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-twelve-souths-bookbook-v2-macbook-sleeve-smart-and-innovative/"><u>In-Depth Analysis of Twelve South's BookBook V2 MacBook Sleeve – Smart & Innovative</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-fujitsu-scansnap-ix1600-a-sturdy-desk-document-scanner/"><u>In-Depth Look at the Fujitsu ScanSnap iX1600: A Sturdy Desk Document Scanner</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/journey-through-the-unexpected-an-enriching-exploration-of-yokus-island-express/"><u>Journey Through the Unexpected: An Enriching Exploration of Yoku's Island Express</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/natures-dream-the-ultimate-homestead-expansion-blueprint/"><u>Nature's Dream: The Ultimate Homestead Expansion Blueprint</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/navigating-video-editor-landscape-choose-filmora-or-democracy-creator/"><u>Navigating Video Editor Landscape Choose Filmora or Democracy Creator?</u></a></li>
+<li><a href="https://win11.techidaily.com/overcoming-cannot-determine-error-on-windows-computers/"><u>Overcoming Cannot Determine Error on Windows Computers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revitalized-ratchet-and-clank-experience-an-in-depth-analysis-of-the-remastered-adventure/"><u>Revitalized Ratchet & Clank Experience: An In-Depth Analysis of the Remastered Adventure</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/ultimate-guide-top-tools-and-techniques-for-effortless-subtitle-extraction-from-various-video-formats/"><u>Ultimate Guide: Top Tools & Techniques for Effortless Subtitle Extraction From Various Video Formats</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/uncover-the-potential-testing-and-review-of-the-netgear-ex6200-wifi-signal-amplifier-ac1200-model/"><u>Uncover the Potential: Testing and Review of the Netgear EX6200 WiFi Signal Amplifier (AC1200 Model)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-xbox-one-elite-series-2-is-crowned-as-a-legendary-controller/"><u>Why Xbox One Elite Series 2 Is Crowned as a Legendary Controller</u></a></li>
 </ul></div>
 

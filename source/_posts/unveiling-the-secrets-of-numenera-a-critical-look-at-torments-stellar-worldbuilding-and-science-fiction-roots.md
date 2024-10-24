@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Secrets of Numenera: A Critical Look at Torment's Stellar Worldbuilding and Science Fiction Roots"
-date: 2024-10-15T22:26:42.193Z
-updated: 2024-10-18T21:37:11.346Z
+date: 2024-10-19T16:41:37.423Z
+updated: 2024-10-24T17:57:25.931Z
 categories:
   - BestProducts
 description: "This Article Describes Unveiling the Secrets of Numenera: A Critical Look at Torment's Stellar Worldbuilding and Science Fiction Roots"
@@ -42,9 +42,23 @@ Lifewire / Jonno Hill
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## ClearStream 2V Indoor/Outdoor HDTV Antenna
 
 ![ClearStream 2V HDTV Antenna](https://www.lifewire.com/thmb/q2B57F3c717qLOPlnokMF7al1pA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_HeroSquare-b07d5067648049ecb987e39b62796406.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -70,6 +84,19 @@ Lifewire / Jonno Hill
  If you live far enough from your local TV signal source that other indoor antennas have failed you, the ClearStream 2V Indoor/Outdoor HDTV Antenna might actually provide some help. Buyers should probably make sure that they can’t get away with a smaller, cheaper, simpler solution first, but if or when that fails, this antenna definitely gets the job done.
 
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/vY1j7QoS0FLwOKNhPlSfR3XMlmo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_02-e97897fe03b74f5faa2eefad3b3b7208.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
@@ -97,13 +124,6 @@ Lifewire / Jonno Hill
 
  In my channel acquisition test, the ClearStream managed 76 channels consistently, far and away the best result from any of the devices I tested. The worst antenna I tested picked up just 47 channels, and the second best, 69\. Needless to say, all the wires, cages, and bulbous plastic spheres are clearly doing something here, because this was the best result I saw.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Range: Extensive**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna is rated for up to 60 miles. These ratings are generally based on relatively unobstructed paths between the signal and your device. There is a lot less than 60 miles between me and my local TV broadcast source, but if the other results are any indication, the ClearStream has a fighting chance at living up to these claims.
@@ -113,22 +133,15 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Performance doesn’t come cheap**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna has a list price of $120 and a 90-day rolling average price on Amazon of $83\. This is significantly more than any of the other antennas I tested, some of which could be had for around $25\. If you live far enough that you need a better performing antenna, however, it could easily be worth every penny. I would only caution buyers to make sure they really do need this performance before pulling the trigger on this very large antenna.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **ClearStream 2V Indoor/Outdoor HDTV Antenna vs 1byone Digital Amplified Indoor HD TV Antenna**
 
@@ -140,13 +153,6 @@ Lifewire / Jonno Hill
 
 **Great performance for those that need it.**
  The ClearStream 2V Indoor/Outdoor HDTV Antenna isn’t the cheapest or best-looking antenna on the market, but it gets the job done better than any of the other antennas we tested. Buyers who know they need an antenna with better range and performance will find this to be a noticeable bump from cheaper indoor antennas.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -174,18 +180,16 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-pathfinders-paradise-the-best-movies-for-a-purposeful-life-for-2024/"><u>[New] Pathfinders' Paradise The Best Movies for a Purposeful Life for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dont-miss-out-prime-days-finest-discounted-apple-products/"><u>Don't Miss Out: Prime Day's Finest Discounted Apple Products</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-see-someones-location-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, How to See Someones Location on Apple iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-vlog-with-verve-following-in-the-footsteps-of-video-experts/"><u>In 2024, Vlog with Verve Following in the Footsteps of Video Experts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-and-review-why-the-iphone-xs-max-stands-out-as-the-pinnacle-of-iphones/"><u>In-Depth Analysis & Review: Why the iPhone XS Max Stands Out as the Pinnacle of iPhones</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-anker-roav-dash-cam-c1-evaluation-the-perfect-choice-for-safe-and-secure-driving/"><u>In-Depth Anker Roav Dash Cam C1 Evaluation - The Perfect Choice for Safe and Secure Driving</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-learning-revolutionized-by-mondly-2022-winner/"><u>Language Learning Revolutionized by Mondly, 2022 Winner</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-of-the-newly-enhanced-chromecast-with-google-tv-vs-amazons-firetv/"><u>Review of the Newly Enhanced Chromecast with Google TV Vs. Amazon's FireTV</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/spotlight-tiktoks-current-top-sensations/"><u>Spotlight TikTok's Current Top Sensations</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-definitive-review-why-apples-latest-creation-sets-a-new-standard/"><u>The Definitive Review: Why Apple's Latest Creation Sets a New Standard</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-ultimate-gaming-device-razers-hot-swappable-keyboard/"><u>The Ultimate Gaming Device: Razer's Hot-Swappable Keyboard</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-5-essentials-for-choosing-the-right-gaming-console/"><u>Top 5 Essentials for Choosing the Right Gaming Console</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/transforming-life-experiences-into-engaging-yt-videos/"><u>Transforming Life Experiences Into Engaging YT Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-no-fog-only-clarity-gopro-lens-care-essentials/"><u>[Updated] 2024 Approved No Fog, Only Clarity GoPro Lens Care Essentials</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-superior-video-cutting-edge-tools-devices/"><u>2024 Approved Superior Video Cutting-Edge Tools (Devices)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-rt-ac88u-explored-breaking-down-its-capabilities-for-gamers/"><u>Asus RT-AC88U Explored: Breaking Down Its Capabilities for Gamers</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/como-conversion-de-archivos-3gp-en-mp3-libre-de-recursos-utilizando-movavi-online/"><u>Cómo Conversión De Archivos 3GP en MP3 Libre De Recursos Utilizando Movavi Online</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-high-quality-windows-drivers-for-focusrite-scarlett-ebx/"><u>Download & Install: High-Quality Windows Drivers for Focusrite Scarlett Ebx</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/easy-guide-to-transforming-webm-videos-into-mpeg-4-format/"><u>Easy Guide to Transforming WebM Videos Into MPEG-4 Format</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effective-solutions-to-get-your-steelseries-arctis-n-microphone-working-again/"><u>Effective Solutions to Get Your SteelSeries Arctis N Microphone Working Again</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/garmin-vivomove-hr-watch-evaluation-the-perfect-fusion-of-style-and-activity-tracking/"><u>Garmin Vivomove HR Watch Evaluation: The Perfect Fusion of Style and Activity Tracking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-the-art-of-gaming-console-selection-pre-buying-insights-you-cant-ignore/"><u>Mastering the Art of Gaming Console Selection: Pre-Buying Insights You Can't Ignore</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/performance-insights-into-the-economical-logitech-c615-webcam-solution/"><u>Performance Insights Into the Economical Logitech C615 Webcam Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-connections-with-tangos-unlimited-text-voice-and-video-calling-no-charge/"><u>Revolutionize Your Connections with Tango's Unlimited Text, Voice, & Video Calling - No Charge!</u></a></li>
 </ul></div>
 
