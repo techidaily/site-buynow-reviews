@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Review: The Reliability of the Halo Bolt Multi-Functional Charger/Jump Starter Unleashed"
-date: 2024-09-04T18:53:41.077Z
-updated: 2024-09-05T18:53:41.077Z
+date: 2024-10-24T16:16:14.111Z
+updated: 2024-10-30T16:10:14.520Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Review: The Reliability of the Halo Bolt Multi-Functional Charger/Jump Starter Unleashed"
@@ -43,6 +43,13 @@ Lifewire / Andrew Hayward
 
 ![Halo Bolt Portable Charger/Jump Starter](https://www.lifewire.com/thmb/wNeN4Rq5GyM9MuDOzyg5QlRT-U4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-HeroSquare-889ebc2fc6b54573a26c09cabb34bd5c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
  in this article
@@ -62,11 +69,12 @@ Lifewire / Andrew Hayward
  Granted, it doesn’t pack as much power as some dedicated laptop chargers, which may be a better option for that need. Still, the added versatility gives the Halo Bolt a unique edge in the market. I tested the Halo Bolt for a week with multiple devices, including laptops and smartphones.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design: The shiny brick**
 
  While certainly portable, the Halo Bolt isn’t designed to be pocket-friendly. This big brick of a battery pack comes in at 7.2 x 1.6 x 3.8 inches (HWD) with a weight of more than 1.5 pounds. Smaller, cheaper battery packs are available for smartphones, but this beast is made for heavier-duty needs and is designed accordingly.
@@ -81,14 +89,15 @@ Lifewire / Andrew Hayward
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/nYYltjJN71EGK1Dwv2_XABixuhs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-04-85b590a9939a4f44b0c7a510a456b80f.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Load it up**
 
  You’ll need to charge the brick to total capacity before using it, and the four green battery lights on the right side of the front face indicate how much capacity is currently left. The battery is fully charged when all four are illuminated when pressing any of the power buttons. Otherwise, for the AC and USB ports, the Halo Bolt is a plug-and-play charger.
@@ -100,11 +109,12 @@ Lifewire / Andrew Hayward
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Charging Speed and Battery: Not so long-lasting**
 
  The Halo Bolt has 58,830mWh of battery power within, and the official description suggests that it can provide up to several hours of additional usage for a MacBook Pro or[iPad Air](https://www.lifewire.com/apple-ipad-air-2019-review-4688969) . In my testing, the results didn’t quite match those targets.
@@ -121,26 +131,8 @@ Lifewire / Andrew Hayward
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/MNFqifirQ0sn61GPO1e-bLQ1t8s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-06-8bc3449bd35243aaaf67272c1d3774a6-bc803e0a114b4116adf3078af6a2de00.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: It’s priced right**
 
  For a jack-of-all-trades power brick that can jump-start your car and charge its battery, serve as a bright flashlight for roadside emergencies, and charge a wide array of portable devices, the $100 price seen on Amazon looks pretty reasonable. However, given that it couldn’t charge my laptop to total capacity and lacks a USB-C port, handier, higher-capacity charging bricks are available specifically for laptop and smartphone charging needs.
@@ -157,12 +149,6 @@ Lifewire / Andrew Hayward
 
  The Halo Bolt isn’t the best option for charging laptops, but it is a solid all-around device for providing backup power to a broader array of gadgets, not to mention jump-starting a car. This versatile device is smart to have around if you drive a car and are frequently mobile with your portable gadgets. I wouldn’t bring it with me on vacation, but it could prove useful before long as a backup device to keep handy.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Bolt ACDC 58830 mWh Portable Charger/Jump Starter
@@ -174,14 +160,11 @@ Lifewire / Andrew Hayward
 * Ports  2x USB-A. 1x AC, 1x Jump Start
 * Waterproof  N/A
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -190,4 +173,26 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-from-sluggish-to-speedy-select-android-tools/"><u>[New] In 2024, From Sluggish to Speedy Select Android Tools</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unleash-creativity-with-animated-gifs/"><u>[New] Unleash Creativity with Animated GIFS</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-detailed-exploration-lightroom-app-on-the-android-platform/"><u>[Updated] Detailed Exploration Lightroom App on the Android Platform</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-step-up-your-sj4000-game-with-these-accessories/"><u>[Updated] In 2024, Step Up Your SJ4000 Game with These Accessories</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-4-effective-ways-to-captivate-ig-audiences-with-loop-videos/"><u>2024 Approved 4 Effective Ways to Captivate IG Audiences with Loop Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-piecing-together-a-memorable-trailer-moment/"><u>2024 Approved Piecing Together a Memorable Trailer Moment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-rt-ac68u-analysis-top-performing-5g-wireless-router-with-advanced-security/"><u>Asus RT-AC68U Analysis - Top-Performing 5G Wireless Router with Advanced Security</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/crafting-a-captivating-periscope-livestream-for-2024/"><u>Crafting a Captivating Periscope Livestream for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-data-step-by-step-photovideo-save/"><u>Decoding Facebook's Data – Step by Step Photo/Video Save</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/empire-at-stake-an-in-depth-review-of-the-strategy-game-imperator-rome/"><u>Empire at Stake: An In-Depth Review of the Strategy Game Imperator: Rome</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-extollo-lansocket-1500-expert-insights-on-superior-speeds-and-minimal-delays/"><u>In-Depth Analysis of Extollo LANSocket 1500: Expert Insights on Superior Speeds & Minimal Delays</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-nulaxy-km18-classic-car-stereo-fm-transmitter-is-it-still-a-top-pick/"><u>In-Depth Analysis of Nulaxy KM18 Classic Car Stereo FM Transmitter - Is It Still a Top Pick?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/taking-streaming-to-new-heights-comprehensive-review-chromecast-with-google-tv-surpasses-firetv/"><u>Taking Streaming to New Heights: Comprehensive Review - Chromecast with Google TV Surpasses FireTV</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-automotive-pivot-integrating-chatbot-insights-for-mods/"><u>The Automotive Pivot: Integrating Chatbot Insights for Mods</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-strengths-and-weaknesses-of-webex-as-an-online-meeting-solution-explained/"><u>The Strengths and Weaknesses of Webex as an Online Meeting Solution Explained</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-storm-surveillance-apps-for-the-year-2024/"><u>Ultimate Guide to Storm Surveillance Apps for the Year 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-best-compact-charger-bricks-for-your-laptop-2024-edition/"><u>Ultimate Guide to the Best Compact Charger Bricks for Your Laptop - 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultra-small-yet-powerful-ourlink-u631-wi-fi-adapter-for-swift-internet-connection/"><u>Ultra Small yet Powerful Ourlink U631 Wi-Fi Adapter for Swift Internet Connection</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-from-iphone-11-pro-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives From iPhone 11 Pro</u></a></li>
+</ul></div>
 

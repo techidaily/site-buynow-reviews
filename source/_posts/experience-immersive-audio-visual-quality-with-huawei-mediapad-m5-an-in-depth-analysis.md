@@ -1,7 +1,7 @@
 ---
 title: Experience Immersive Audio-Visual Quality with Huawei MediaPad M5 - An In-Depth Analysis
-date: 2024-10-19T19:23:37.866Z
-updated: 2024-10-24T18:25:38.567Z
+date: 2024-10-24T16:17:43.876Z
+updated: 2024-10-30T16:20:47.869Z
 categories:
   - BestProducts
 description: This Article Describes Experience Immersive Audio-Visual Quality with Huawei MediaPad M5 - An In-Depth Analysis
@@ -42,13 +42,6 @@ Lifewire / Jordan Provost
 [View On Amazon](https://www.amazon.com/dp/B0883DGM5X/?tag=lifewire-onsite-prod-20&ascsubtag=4686097%7Cn75ebf34f23a54c469b9761158943aeec15%7CB0883DGM5X) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnokia-7-1-with-64gb-memory-cell-phone-unlocked-blue%2F6291898.p%3FskuId%3D6291898)
 
 4.2
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Nokia 7.1
 
@@ -92,6 +85,13 @@ Lifewire / Jordan Provost
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/1cMJEwjyd7B1WxBO7uBZOm0C2So=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_3-483bfb6a868848adaaf021846b9fb559.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
 
  The buttons are all located on the right side of the device, and they feature the same chamfered shape as the main body of the phone. The positioning of the buttons makes them easy to hit with your index finger when you hold the device in your left hand, or with your thumb if you hold it in your right.
@@ -107,13 +107,6 @@ Lifewire / Jordan Provost
  Setting up the Nokia 7.1 is a breeze if you have a Google account ready to go. Since it uses stock Android and is part of the Android One program, there aren’t any extra hoops to jump through. The only hiccup we experienced was the flood of required updates right out of the box—make sure you allow some extra time to download and install everything.
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/LkCNBmkQjVwHH-SoT7i4QFOrSsk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_1-83b2f49a5f2c4443b2b7f30b502fd094.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
@@ -134,10 +127,10 @@ Lifewire / Jordan Provost
  It’s important to note that when the Nokia 7.1 launched, it was plagued with complaints about slow operation, lag, and an unresponsive touchscreen. These appear to have been software-related issues that have since been fixed, as we experienced no such problems in our hands-on testing.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: Data connection is slow**
@@ -147,6 +140,13 @@ Lifewire / Jordan Provost
  The Nokia 7.1 exhibited similar speed issues when tested in other locations despite showing a very strong connection. The highest speeds we were able to achieve, with full reception bars, were 18.0 Mbps down and 1.42 Mbps up (compared to 37.8 Mbps down and 7.23 Mbps up measured on a Pixel 3 in the same location at the same time).
 
  Despite these connectivity problems, we were still able to stream YouTube videos and music from Google Play over the data connection.
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Display Quality: HDR quality with a chunky notch**
 
@@ -160,6 +160,13 @@ Lifewire / Jordan Provost
 
  The only problem with the Nokia 7.1’s display is that the color temperature is extremely cool. If you hold it next to any similar phone, you’ll notice a somewhat bluish tinge. The phone does include a “night mode” feature that tints the display in increasingly strong shades of amber after the sun goes down, which can help with eye strain at night. But if you’re sensitive to blue light, you may have trouble with this display.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Sound Quality: Loud, no distortion, but a lack of bass response**
 
  At the bottom of the Nokia 7.1’s aluminum body, you’ll find the microphone, a USB-C port, and two small rectangular cutouts. That’s where the sound comes from, and despite there being two cutouts, it’s all provided by a single driver.
@@ -169,10 +176,10 @@ Lifewire / Jordan Provost
  The speaker is serviceable, and we didn’t notice too much distortion when streaming music at high volumes. There is very little bass response though, even compared to other mid-range handsets. The speaker is there if you need it, but you’ll want to plug in headphones or use an external speaker whenever possible. The Nokia 7.1 does includes a headphone jack, located on the top edge of the device, and comes with a pair of earbuds in the box.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Camera/Video Quality: Surprisingly competent camera**
@@ -185,27 +192,20 @@ Lifewire / Jordan Provost
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/VI32Dr6kjQKlJti1W9Egtq7kb10=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_2-b7780c375da34f349ba0c037120ee3ff.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
 
 ![Nokia 7.1 rose photo](https://www.lifewire.com/thmb/4d-M-nqoc9xpcT44HdNVobPQU1U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/gs9-photo9-7b35a0c91bd544ae89dab81238efdda2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire
 
 ![Nokia 7.1 cat photo](https://www.lifewire.com/thmb/hepqa5K_YkbwuC1_7lRbkLgxJVc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/cat-photo7-e1f061ad95324519a4cd85a39faeb1a7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire
 
@@ -230,10 +230,16 @@ Lifewire
  Charging is accomplished through USB-C, and it does support fast charging when you use the included charger and cable. Despite the glass back, wireless charging is not supported.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Android One means guaranteed updates**
@@ -249,10 +255,10 @@ Lifewire
  The Nokia 7.1 is a mid-range handset in terms of price, but it packs a lot of features that you’d expect from a much more expensive phone. It retails for $349 which, in the world of ever-expanding handset price tags, almost borders on the budget category. For what you get in terms of style, specifications, and features, that’s a pretty good deal.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Stacks up well against the competition**
@@ -312,18 +318,21 @@ Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-mastering-speed-with-premium-controller-add-ons/"><u>[New] Mastering Speed with Premium Controller Add-Ons</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/1725289512339-dvdwindowsandmac/"><u>「DVD自動焼きに必要不可欠！無料プログラムとその使い方：Windows&Macユーザー向けガイド」</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-exceptional-alternatives-to-microsoft-office-this-year-2024/"><u>Discover Exceptional Alternatives to Microsoft Office This Year 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/eliminate-game-lags-in-bl3-expert-advice-to-tackle-and-resolve-performance-hitches/"><u>Eliminate Game Lags in BL3: Expert Advice to Tackle and Resolve Performance Hitches</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exciting-fortnite-chapter-updates-revamped-gameplay-in-the-latest-season/"><u>Exciting Fortnite Chapter Updates: Revamped Gameplay in the Latest Season</u></a></li>
-<li><a href="https://win-able.techidaily.com/how-to-get-your-last-epoch-game-running-again-fixes-for-pc-players/"><u>How to Get Your Last Epoch Game Running Again - Fixes for PC Players!</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-honor-magic-6-lite-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Honor Magic 6 Lite to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-drone-buying-roadmap-pre-purchase-essentials/"><u>In 2024, The Ultimate Drone Buying Roadmap Pre-Purchase Essentials</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/innovative-design-meets-expensive-reality-microsofts-studio-2-examined/"><u>Innovative Design Meets Expensive Reality: Microsoft's Studio 2 Examined</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/latest-tech-review-how-primetracking-enhances-security-for-your-belongings-with-its-tiny-design-detailed-analysis/"><u>Latest Tech Review: How PrimeTracking Enhances Security for Your Belongings with Its Tiny Design, Detailed Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/runners-ultimate-guide-in-depth-garmin-forerunner/"><u>Runner's Ultimate Guide: In-Depth Garmin Forerunner 지도 워십 사전 검토</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-samsung-galaxy-a75g-review-an-affordable-contender-for-flagship-devices/"><u>The Samsung Galaxy A7^5G Review: An Affordable Contender for Flagship Devices</u></a></li>
-<li><a href="https://howto.techidaily.com/why-is-my-vivo-y17s-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Vivo Y17s Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-elevating-voice-quality-top-10-microphone-guide-for-2024/"><u>[New] Elevating Voice Quality Top 10 Microphone Guide for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-from-novice-to-pro-paving-the-way-in-graphics-careers/"><u>[New] From Novice to Pro Paving the Way in Graphics Careers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-overcoming-the-windows-11-photo-app-hurdles/"><u>[New] Overcoming the Windows 11 Photo App Hurdles</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-transforming-images-on-snapchat-an-editors-playbook-for-2024/"><u>[New] Transforming Images on Snapchat An Editor's Playbook for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-best-online-deals-on-webcam-protection-kits/"><u>2024 Approved Best Online Deals on Webcam Protection Kits</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-garmins-latest-gps-running-watch-a-detailed-review-of-the-forerunner-265/"><u>Evaluating Garmin's Latest GPS Running Watch: A Detailed Review of the Forerunner 265</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-picks-for-the-fastest-and-reliable-mesh-wi-fi-systems/"><u>Expert Picks for The Fastest and Reliable Mesh Wi-Fi Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-differences-kindle-reading-systems-vs-amazons-fire-tablet-range/"><u>Exploring Differences: Kindle Reading Systems Vs. Amazon's Fire Tablet Range</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-new-google-nest-hubs-capabilities-an-overview-in-light-of-no-integrated-camera-technology/"><u>Exploring the New Google Nest Hub's Capabilities - An Overview in Light of No Integrated Camera Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/galaxy-ford-f150-remote-control-truck-review-an-rc-truck-giant/"><u>Galaxy Ford F150 Remote Control Truck Review: An RC Truck Giant</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-infinix-hot-30i-get-deleted-photos-back-with-ease-and-safety-by-fonelab-android-recover-photos/"><u>How to Infinix Hot 30i Get Deleted photos Back with Ease and Safety?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/introducing-the-ultimate-video-doorbell-and-alert-system-by-arlo-an-expert-analysis/"><u>Introducing the Ultimate Video Doorbell and Alert System by Arlo - An Expert Analysis</u></a></li>
+<li><a href="https://discover-community.techidaily.com/ist-die-av1-kodierung-in-adobe-premiere-pro-verfugbar-fur-den-import-bzw-export-von-medieninhalten/"><u>Ist Die AV1-Kodierung in Adobe Premiere Pro Verfügbar Für Den Import Bzw. Export Von Medieninhalten?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/keep-pace-with-technology-iphones-trade-up-system/"><u>Keep Pace with Technology: IPhone's Trade-Up System</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722967855656-seamless-connectivity-find-download-and-update-drivers-for-netgear-wireless-adapters-today/"><u>Seamless Connectivity: Find, Download & Update Drivers for NETGEAR Wireless Adapters Today</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723015482900-troubleshoot-and-stop-that-pesky-headphone-noise-once-for-all/"><u>Troubleshoot and Stop That Pesky Headphone Noise Once for All!</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Amazon Luna Assessment: Exceptionally Slick Gaming Streaming Experience"
-date: 2024-09-04T18:50:53.287Z
-updated: 2024-09-05T18:50:53.287Z
+date: 2024-10-25T16:01:55.457Z
+updated: 2024-10-30T16:36:17.879Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Amazon Luna Assessment: Exceptionally Slick Gaming Streaming Experience"
@@ -66,12 +66,6 @@ Lifewire / Scott Gercken
 
  Lifewire / Scott Gercken
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Feels good with natural controls**
 
  The Nikon COOLPIX A10 is a nice looking camera with a flashy silver front and black rear. It’s 3.5” wide, 2.25” tall, 0.75” deep on the narrow side and 1” deep on the wide side. The right side of the camera, the one with all the controls, has a rounded bulge that grows from 0.75” to 1”, perfectly designed to fit the hand (the camera would otherwise have been too narrow to hold comfortably). There are several controls on the top of the camera—the on/off button, the shutter, and the zoom controls.
@@ -81,11 +75,12 @@ Lifewire / Scott Gercken
  Lifewire / Scott Gercken
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process: Straightforward and simple**
 
  Like most point-and-shoot cameras, setup is simple. We just inserted the included AA batteries, put in the SD card (not included), and turned it on. The camera ran us through the standard steup (date, time, etc.) and then was ready to go.
@@ -97,11 +92,12 @@ Lifewire / Scott Gercken
  Lifewire / Scott Gercken
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Photo Quality: Beautiful photographs with a frustrating user experience.**
 
  The headline number for every[point and shoot](https://www.lifewire.com/point-and-shoot-camera-4688891) digital camera is[megapixels](https://www.lifewire.com/what-is-a-megapixel-493313) , and the Nikon COOLPIX A10 has a fairly standard 16 MP ceiling. But the megapixel count doesn’t express much about the quality of the camera or the photographs it takes. We took the Nikon COOLPIX A10 out to see what it could do, taking photos in every setting we could think of, from night landscapes to indoor pet shots. The COOLPIX produces quality photos in most circumstances.
@@ -119,11 +115,18 @@ Lifewire / Scott Gercken
  Lifewire / Scott Gercken
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Video Quality: Noisy, grainy video in all kinds of light**
 
 [Video capabilities](https://www.lifewire.com/point-and-shoot-camera-4688891) seem almost like an afterthought for the Nikon COOLPIX A10\. The camera allows lots of options and settings for photographs, whether you want to manage them manually or through a preset scene. There isn’t anything like that for video. The only options you have are in resolution: 720, 480, or 240\. When recording, the screen also doesn’t show any stats or information like it does when you’re taking a photo. You can zoom in or out, but you don’t know whether it’s using optical or digital zoom.
@@ -139,17 +142,12 @@ Lifewire / Scott Gercken
  Fortunately, the COOLPIX A10 works easily with other photo library software, so we didn’t have to rely on Nikon. You should note, however, that the COOLPIX A10 does not come with a USB cord, an annoying oversight. The Nikon COOLPIX A10 also has some basic editing features, but they aren’t worth using if you have a competent PC. You can apply a couple gimmicky filters, and you can crop photos, but why would you try to do any editing on this tiny screen when you could use your computer? It feels like a feature set that some marketing exec dreamed up so they could claim the COOLPIX is ready for Instagram.
 
 <!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Low-priced camera with some major flaws**
 
  The Nikon COOLPIX A10 has a list price of $75, around the same price as many entry-level digital cameras. It takes decent photos, so you can grab some nice vacay pictures at the beach or camping without exposing expensive gear to the weather. Our only major hesitation is around the lengthy delay between taking photos.
@@ -166,12 +164,6 @@ Lifewire / Scott Gercken
 
  While the Nikon COOLPIX A10 takes beautiful photos, the user experience ruins the camera. It’s difficult to use and locks up for a few seconds after every photo. The sheen of high quality images quickly fades when you’re staring at a warning indicator for long, static moments. Other entry-level cameras perform much better.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Coolpix A10
@@ -203,8 +195,6 @@ Lifewire / Scott Gercken
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -212,4 +202,24 @@ Lifewire / Scott Gercken
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/aximizing-videography-with-youtubes-creative-commons-for-2024/"><u>[New] Maximizing Videography with YouTube's Creative Commons for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-toggle-between-normal-and-pip-views-for-youtube-app-on-ios/"><u>[New] Toggle Between Normal and PIP Views for Youtube App on iOS</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unleashing-visual-potential-incorporating-new-fonts-in-ae/"><u>[New] Unleashing Visual Potential Incorporating New Fonts in AE</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-learn-and-master-io-screen-recording-today/"><u>[Updated] 2024 Approved Learn and Master IO Screen Recording Today</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/1728463696206-4/"><u>「ダウンロードフォルダが開かず、操作できない！最適解決策4つ」</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-nokia-g22-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Nokia G22 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-unmatched-durability-with-the-robust-stanley-j5c09-benchtop-drill-press/"><u>Experience Unmatched Durability with the Robust Stanley J5C09 Benchtop Drill Press</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-linksys-velop-a-game-changing-approach-to-wireless-coverage/"><u>Expert Analysis of the Linksys Velop: A Game-Changing Approach to Wireless Coverage</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/get-familiar-with-the-arlo-home-protection-suite-a-hands-on-guide/"><u>Get Familiar with The Arlo Home Protection Suite - A Hands-On Guide</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Vivo V30 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-from-the-apple-iphone-6s-plus-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock From the Apple iPhone 6s Plus Without Previous Owner?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/outstanding-value-for-canon-elph-190/"><u>Outstanding Value for Canon ELPH 190</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-2023-amazon-echo-show-10-gen-3-your-handy-mobile-assistant/"><u>The Ultimate Guide to the 2023 Amazon Echo Show 10 (Gen 3): Your Handy Mobile Assistant</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-tp-link-re505x-wi-fi-booster-a-complete-product-overview/"><u>The Ultimate Guide to the TP-Link RE505X Wi-Fi Booster - A Complete Product Overview</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/transform-speeches-into-animated-videos/"><u>Transform Speeches Into Animated Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unbeatable-prime-day-discounts-on-apple-products/"><u>Unbeatable Prime Day Discounts on Apple Products</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-capabilities-of-jackerys-powerbar-with-built-in-ac-outlet-our-full-insightful-review/"><u>Unveiling the Capabilities of Jackery's PowerBar with Built-In AC Outlet – Our Full Insightful Review</u></a></li>
+</ul></div>
 

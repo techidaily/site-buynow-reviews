@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Analysis of the Lenovo 130S: Balancing Minimal Battery Life with Pleasant Operational Fluidity"
-date: 2024-10-21T19:32:54.932Z
-updated: 2024-10-24T16:34:52.255Z
+date: 2024-10-25T16:10:43.850Z
+updated: 2024-10-30T16:23:33.894Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Analysis of the Lenovo 130S: Balancing Minimal Battery Life with Pleasant Operational Fluidity"
@@ -43,16 +43,16 @@ Lifewire / Rebecca Isaacs
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Sabrent Mini Travel USB Optical Mouse
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/XBAevViAWBKn-uqOn_jnTLrfwTw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_HeroSquare-6ae9d6d299054d748f84492b5c31f033.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -75,6 +75,13 @@ Lifewire / Rebecca Isaacs
 
  Working on the go can prove difficult on a laptop, especially when you need to work on heavy-hitting projects requiring precision. Travel mice, or portable computer mice that can be packed and unpacked on the go, can alleviate much of the proverbial headache of working on PC-heavy tasks. For those who prefer their mouse have a cable, the Sabrent fits the bill. Using high definition precision technology, the tiny, three-year-old mouse is designed for those who want convenience and extreme precision in their work.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Basic**
 
  The Sabrent was not designed for heavy gaming in mind; its design is so tiny at 3.2 x 1.5 inches (LW) that it fits into the cup of your palm with some room to spare. Unlike gaming mice, which can be complex, with a plethora of buttons/features, the all-black, 1.5-ounce mouse only has three buttons: the left (main) button, the wheel, and the right button. While this might turn off many users, in reality, it turns out to be of huge benefit. Thanks to its simplicity, ambidextrous users will appreciate its ability to swap between dominant hands.
@@ -89,13 +96,6 @@ Lifewire / Rebecca Isaacs
 
  The cable’s addition increases the size of the mouse, bringing the total measurements to 6.44 x 1.5x 2.44 inches (LWH). The Sabrent also comes with a mesh carrying bag, making it easy to pack up and take on the go without scratching it. One more perk: this mouse is adaptable to most[Windows](https://www.lifewire.com/windows-4781566) ,[Mac](https://www.lifewire.com/mac-backup-software-hardware-and-guides-2260931) , and[Linux](https://www.lifewire.com/software-and-apps-4781541) systems, so you can insert it into USB ports across multiple machines for fast use.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Plug and play**
 
  Setting up the Sabrent proved simple and convenient. Expanding the cable and plugging it into the PC’s USB port allows the Sabrent to self-install. In under less than a minute, the plug and play features kick in. If you need to alter it to suit ambidextrous needs, you’ll need to head into the control panel of your PC to make the swap. Those requiring left-handed features will need to alter it. Once the software quickly installs, and you’re able to begin scrolling in no time.
@@ -103,6 +103,13 @@ Lifewire / Rebecca Isaacs
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/mM3uSf3Y2pyayDyWJzP8_5uUya4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_05-04e025144b514674b109e77f79129d74.jpg)
 
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Precise, but mildly problematic**
 
@@ -112,13 +119,6 @@ Lifewire / Rebecca Isaacs
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/ZAK9csfHFEKVkNFSzE-Knbqabgs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_03-c6a7b875505642c69218c2c6c3449e50.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
 
  The buttons responded quickly and with ease as well. While the main and right buttons do click with some noise, the constant clacking won’t get on any nerves. The scroller isn’t loud, but it took us a couple rolls of the wheel before it shifted around without any resistance. This ultimately wasn’t a big deal, but it might need a little breaking in, so don’t give up on it straight away.
@@ -127,24 +127,18 @@ Lifewire / Rebecca Isaacs
 
  The cable length left something to be desired in a work PC, however. At 25 inches, it sounds like a dream come true, however, testing it on a standing desk where the PC tower is located further away from the keyboard and mouse we realized there was a problem. The length cable prevented us from shifting our grip on the mouse, and the tugging was a frustrating physical constraint. Laptop users won’t even notice the cable, but PC users may want to look for something a little more wireless.
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Comfort: Too small**
 
  Because the mouse is so tiny, and barely fit into the palm of our hand, we constantly had to adjust our fingers to compensate for its size. Granted, we used the mouse for up to eight hours at a time in testing, and our muscles didn’t tire out and hands didn’t cramp, which was a testament to the ergonomic design. However, constantly having to shift our grip to press buttons and scroll was mildly annoying, especially when we were deeply engaged in work.
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/h8ibsbPtDqgJOD0XgpZSD6FOXUU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_02-1331828bbc3f460baebd85cbd24d61e2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -167,10 +161,10 @@ Lifewire / Rebecca Isaacs
  While we constantly had to shift our grip on the tiny Sabrent mouse, we really liked its portability and fast, accurate movements. The cable proved to be difficult for desktop use, however, laptop users will enjoy the speeds that accompany the wired cable.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -200,24 +194,16 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-engaging-audiences-with-instagram-stories-surveys/"><u>[New] 2024 Approved Engaging Audiences with Instagram Stories Surveys</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-mastery-of-memes-how-to-download-twitters-animated-images/"><u>[New] Mastery of Memes How to Download Twitter's Animated Images</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-the-quick-route-to-celebrity-status-on-insta-top-15-strategies-for-rapid-follower-growth-for-2024/"><u>[Updated] The Quick Route to Celebrity Status on Insta Top 15 Strategies For Rapid Follower Growth for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-with-no-compromise-the-ultimate-guide-to-the-tp-link-archer-a9-router-under-100-dollars/"><u>Budget-Friendly with No Compromise: The Ultimate Guide to the TP-Link Archer A9 Router Under 100 Dollars</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/compact-wonder-sx720hs-reveals-canons-long-range-vision/"><u>Compact Wonder SX720HS Reveals Canon's Long-Range Vision</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-photoscape-appraisal-your-go-to-source-for-gratis-graphic-modification/"><u>Comprehensive PhotoScape Appraisal: Your Go-To Source for Gratis Graphic Modification</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/delving-into-the-narrative-an-analytical-look-at-minecrafts-storytelling-skins-pack/"><u>Delving Into The Narrative: An Analytical Look at Minecraft's Storytelling Skins Pack</u></a></li>
-<li><a href="https://network-issues.techidaily.com/eliminating-c1900101-error-in-win11-deployment/"><u>Eliminating C1900101 Error in Win11 Deployment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-performance-of-hps-affordable-amd-powered-15-laptop-is-it-up-to-the-task/"><u>Evaluating the Performance of HP's Affordable AMD-Powered 15 Laptop - Is It Up to the Task?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fashionable-fitness-with-amazfit-gts-a-balanced-review-of-form-and-functionality/"><u>Fashionable Fitness with Amazfit GTS - A Balanced Review of Form and Functionality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/find-the-most-economical-and-high-definition-petcam-by-petcube/"><u>Find the Most Economical and High Definition Petcam by Petcube</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/fixing-windows-1011-iphone-picture-import-glitches/"><u>Fixing Windows 10/11 iPhone Picture Import Glitches</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/from-basic-to-advanced-switching-windows-11-homes/"><u>From Basic to Advanced: Switching Windows 11 Homes</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-xiaomi-redmi-note-13-5g-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Xiaomi Redmi Note 13 5G Without PUK Codes</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-disabled-apple-iphone-13-pro-how-to-unlock-a-disabled-apple-iphone-13-pro-by-drfone-ios/"><u>In 2024, Disabled Apple iPhone 13 Pro How to Unlock a Disabled Apple iPhone 13 Pro?</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Itel S23 | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/locating-your-missing-facetime-images-a-step-by-step-guide/"><u>Locating Your Missing FaceTime Images: A Step-by-Step Guide</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On OnePlus Nord CE 3 5G? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/voip-evolution-has-vonage-maintained-its-market-reign/"><u>VoIP Evolution: Has Vonage Maintained Its Market Reign?</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-illuminate-your-images-adding-life-with-illustrator-motion/"><u>[Updated] 2024 Approved Illuminate Your Images Adding Life with Illustrator Motion</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-philips-hf3505-sunrise-alarm-product-overview-and-insights/"><u>Comprehensive Guide to the Philips HF3505 Sunrise Alarm - Product Overview & Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discerning-critical-specifications-in-game-ready-notebooks/"><u>Discerning Critical Specifications in Game-Ready Notebooks</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/efficient-obs-usage-live-skype-capture-tips-for-2024/"><u>Efficient OBS Usage Live Skype Capture Tips for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/enter-the-viral-world-of-tiktoks-on-your-flat-screen-a-step-by-step-guide-to-connect-your-phone-and-tv/"><u>Enter the Viral World of TikToks on Your Flat Screen - A Step-by-Step Guide to Connect Your Phone and TV</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/free-online-converter-change-mp4-files-to-wav-format-with-movavi/"><u>Free Online Converter: Change MP4 Files to WAV Format with Movavi</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/insightful-guide-to-apc-back-ups-pro-1500va-stellar-performance-ample-outlets-and-hot-swappable-battery-design/"><u>Insightful Guide to APC Back-UPS Pro 1500VA - Stellar Performance, Ample Outlets and Hot Swappable Battery Design</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solution-found-nvidias-geforce-software-no-longer-faces-settings-recovery-problem/"><u>Solution Found: Nvidia's GeForce Software No Longer Faces Settings Recovery Problem</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-asus-ax6000-rt-ax88u-harnessing-the-power-of-a-superior-smart-wi-fi-evolution-in-home-networking/"><u>The Ultimate Guide to the Asus AX6000 (RT-AX88U): Harnessing the Power of a Superior Smart Wi-Fi Evolution in Home Networking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-review-of-raspberry-pi-400-discover-how-this-miniaturized-mpc-revolutionizes-your-workspace/"><u>Ultimate Review of Raspberry Pi 400: Discover How This Miniaturized MPC Revolutionizes Your Workspace</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-oneplus-nord-3-5g-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for OnePlus Nord 3 5G Users</u></a></li>
 </ul></div>
 

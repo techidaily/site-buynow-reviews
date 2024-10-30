@@ -1,7 +1,7 @@
 ---
 title: Top-Rated Substitutes for Microsoft Office
-date: 2024-10-22T18:49:23.557Z
-updated: 2024-10-24T21:11:25.411Z
+date: 2024-10-25T16:14:26.536Z
+updated: 2024-10-30T16:35:28.066Z
 categories:
   - BestProducts
 description: This Article Describes Top-Rated Substitutes for Microsoft Office
@@ -75,6 +75,13 @@ PHOTO: Amazon
 
 **Type:** Membrane | **Connectivity:** Wireless receiver, Bluetooth | **RGB:** None | **Tenkeys:** Yes | **Palm Rest:** Yes | **Dedicated Media Controls:** No
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Best Bluetooth
 
 [Logitech K350](https://www.walmart.com/ip/13215113)
@@ -102,13 +109,6 @@ PHOTO: Amazon
  The Logitech K350 uses two AAA batteries for power and can reportedly run for up to three years before swapping them out. The keyboard features dedicated media keys for streaming music and movies and fully customizable F keys to help streamline your workflow.
 
 **Type:** Membrane | **Connectivity:** Wireless receiver | **RGB:** None | **Tenkeys:** Yes | **Palm Rest:** Yes | **Dedicated Media Controls:** Yes
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Best for Macs
 
@@ -139,6 +139,13 @@ PHOTO: Amazon
 
 [Kinesis Freestyle2 Blue (Mac) Review](https://www.lifewire.com/freestyle2-blue-review-4780187)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Best for Gaming
 
 [KINESIS Gaming Freestyle Edge RGB](https://www.amazon.com/KINESIS-Gaming-Freestyle-Mechanical-Keyboard/dp/B07SXX7P6D/?tag=lifewire-onsite-prod-20&ascsubtag=4147386%7Cn326e10e09a2e4a42be05879465b0c31513%7CB07SXX7P6D)
@@ -168,19 +175,6 @@ PHOTO: Amazon
 
 [The Best Mice for Macs of 2024](https://www.lifewire.com/best-mice-for-macs-6753004)
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What to Look For in an Ergonomic Keyboard
 
 ### **Usage**
@@ -188,10 +182,10 @@ PHOTO: Amazon
  Where will you be using this keyboard? Is it mainly for personal use, or will you take it to the office? Do you need an ergonomic keyboard explicitly made with gamers in mind? While you can use a keyboard for multiple purposes, you may enjoy customizing which one you buy based on how you will use it the most.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Mac vs. PC**
@@ -199,10 +193,10 @@ PHOTO: Amazon
  Do you have a Mac or a PC? While it seems like keyboards should be usable with both, that’s not always the case. You need to make sure whatever keyboard you buy is compatible with your system (this is usually a bigger problem for Macs rather than PCs). Additionally, the two operating systems have slightly different keys. While you can often use mapping software to alleviate these issues, you may want to purchase a keyboard specifically designed for your type of machine.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Keyboard size**
@@ -249,22 +243,22 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-perfect-pitch-in-words-crafting-captivating-podcast-episodes/"><u>[New] Perfect Pitch in Words Crafting Captivating Podcast Episodes</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-optimize-clarity-mastering-close-up-techniques-in-videoleap/"><u>2024 Approved Optimize Clarity Mastering Close-Up Techniques in Videoleap</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1723002499471-adobe-application-wont-boot-resolve-error-code-0xc0000022-and-start-successfully/"><u>Adobe Application Won't Boot? Resolve Error Code 0xC0000022 and Start Successfully</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-anker-powercoreplus-26800-portable-charger-a-comprehensive-overview/"><u>Expert Analysis of the Anker PowerCore+ 26800 Portable Charger - A Comprehensive Overview</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-features-of-the-asus-bw-16d1x-u-blu-ray-player-attractive-build-but-some-eccentricities-detected/"><u>Exploring the Features of the Asus BW-16D1X-U Blu-Ray Player: Attractive Build but Some Eccentricities Detected</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-virtual-ice-rink-a-comprehensive-look-at-nhl-19s-engaging-game-mechanics/"><u>Exploring the Virtual Ice Rink: A Comprehensive Look at NHL 19'S Engaging Game Mechanics</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/how-to-get-snapchat-on-mac-easy-guide/"><u>How to Get Snapchat on Mac? [Easy Guide]</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-oneplus-open-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for OnePlus Open | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-achieve-creative-excellence-on-tiktok-with-easy-border-swapping-strategies/"><u>In 2024, Achieve Creative Excellence on TikTok with Easy Border Swapping Strategies</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-and-critique-of-the-ring-doorbell-pro-a-comprehensive-overview/"><u>In-Depth Analysis and Critique of the Ring Doorbell Pro: A Comprehensive Overview</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/preview-techniques-for-websites-a-comprehensive-checklist/"><u>Preview Techniques for Websites: A Comprehensive Checklist</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/prioritizing-your-needs-critical-factors-in-buying-a-refurbished-ipad/"><u>Prioritizing Your Needs: Critical Factors in Buying a Refurbished iPad</u></a></li>
-<li><a href="https://win11.techidaily.com/rav-antivirus-popping-up-origin-and-safely-uninstalling/"><u>Rav Antivirus Popping Up: Origin & Safely Uninstalling</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-portable-reading-with-the-kobo-clara-hd-expert-insights-and-evaluation/"><u>Revolutionizing Portable Reading with the Kobo Clara HD - Expert Insights and Evaluation</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-5-gpt-powered-tips-to-streamline-routine-hr-processes/"><u>Top 5 GPT-Powered Tips to Streamline Routine HR Processes</u></a></li>
-<li><a href="https://video-capture.techidaily.com/unmatched-virtual-speedway-showdowns-top-5-list-for-2024/"><u>Unmatched Virtual Speedway Showdowns Top 5 List for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/visual-storytelling-with-the-carvers-digital-display/"><u>Visual Storytelling with the Carver's Digital Display</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-hdr-editing-essentials-for-pc-users/"><u>[Updated] In 2024, HDR Editing Essentials for PC Users</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-stepwise-approach-for-professional-screen-recordings-in-adobe-captive/"><u>[Updated] Stepwise Approach for Professional Screen Recordings in Adobe Captive</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-live-stream-scenery-ideas-2023/"><u>2024 Approved Top Live Stream Scenery Ideas 2023</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assessing-the-lenovo-thinkpad-x1-fold-innovative-yet-not-without-its-quirks/"><u>Assessing the Lenovo ThinkPad X1 Fold: Innovative Yet Not without Its Quirks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/behind-the-funny-lines-an-overview-of-elgoegs-unique-mirror-domain/"><u>Behind the Funny Lines: An Overview of elgoeG's Unique Mirror Domain</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/dont-miss-out-get-the-new-echo-spot-as-an-amazing-deal-at-40-off-on-prime-day-find-it-here-on-zdnet/"><u>Don’t Miss Out! Get the New Echo Spot as an Amazing Deal at 40% Off on Prime Day - Find It Here on ZDNET!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhancing-outdoor-connectivity-with-the-netgear-orbi-rbs50y-in-depth-analysis-and-review/"><u>Enhancing Outdoor Connectivity with the Netgear Orbi RBS50Y - In-Depth Analysis and Review</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Sony Xperia 5 V | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-simplify-note-capture-with-mematic-app/"><u>In 2024, Simplify Note Capture with Mematic App</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-the-samsung-galaxy-tab-s3-still-a-top-tablet-choice-an-in-depth-review/"><u>Is the Samsung Galaxy Tab S3 Still a Top Tablet Choice? An In-Depth Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/master-your-photography-no-cost-multiplatform-darkroom-software-lightzone-for-all-users/"><u>Master Your Photography: No Cost, Multiplatform Darkroom Software (Lightzone) for All Users</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-time-lapse-like-a-pro-advanced-techniques-in-final-cut-pro/"><u>New Time Lapse Like a Pro Advanced Techniques in Final Cut Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/premium-aural-accessories-for-screen-entertainment/"><u>Premium Aural Accessories for Screen Entertainment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-tab-s3-review-still-worth-it/"><u>Samsung Galaxy Tab S3 Review: Still Worth It</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-choosing-a-value-smartphone-spotlight-on-oneplus-nord-n100/"><u>The Ultimate Guide to Choosing a Value Smartphone: Spotlight on OnePlus Nord N100</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-review-crisp-conversations-with-the-midland-gxt1000vp4-unit/"><u>Top Review: Crisp Conversations with the Midland GXT1000VP4 Unit</u></a></li>
+<li><a href="https://win-able.techidaily.com/winning-the-battle-against-latency-expert-fixes-for-valheims-network-delays-pc/"><u>Winning the Battle Against Latency: Expert Fixes for Valheim's Network Delays (PC)</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Xiaomi Mi Smart Band 4 Review
-date: 2024-10-21T20:30:17.124Z
-updated: 2024-10-24T16:21:04.303Z
+date: 2024-10-27T16:27:10.644Z
+updated: 2024-10-30T16:14:16.867Z
 categories:
   - BestProducts
 description: This Article Describes Xiaomi Mi Smart Band 4 Review
@@ -52,13 +52,6 @@ thumbnail: https://www.lifewire.com/thmb/lWDkaNRnDn1kI-ZglN_-1NSj-lo=/400x300/fi
 
 **TL;DR:** Nintendo knows how to make great handheld gaming consoles with the Switch OLED the best of the bunch thanks to its great screen, huge amount of games, and lightweight build.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Why We Recommend This
 
  It might not be the most powerful console around but the Nintendo Switch OLED is the one that I’m most likely to grab before heading out for the day. It has all the charm you’d expect from a Nintendo console. It takes seconds to start up, its menu system is easy to figure out, and its game catalog is fantastic.
@@ -100,6 +93,19 @@ thumbnail: https://www.lifewire.com/thmb/lWDkaNRnDn1kI-ZglN_-1NSj-lo=/400x300/fi
 [$450 at Amazon](https://www.amazon.com/Valve-Handheld-Console-No-Operating-System/dp/B0BBQRYN9M?tag=lifewire-onsite-prod-20&ascsubtag=8656300%7Cn828e9c21ba084df1b24d3ffdd45b85b813%7CB0BBQRYN9M) [$459 at Walmart](https://www.walmart.com/ip/Valve-Steam-Deck-64-GB/2237665775) [$399 at Steampowered.com](https://store.steampowered.com/steamdeck)
 
 **TL;DR:** The Steam Deck makes PC gaming truly portable and much simpler than ever before. It’s all within a sleek and easy to hold shell with a great screen whether you go LED or OLED. As with the Switch, you can always dock it, and even install Windows if you want a full portable PC.
+
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Why We Recommend This
 
@@ -146,10 +152,10 @@ thumbnail: https://www.lifewire.com/thmb/lWDkaNRnDn1kI-ZglN_-1NSj-lo=/400x300/fi
 **TL;DR:** Old enough to remember the Nintendo Game Boy? This is a lot like that with plenty of nostalgic games on-board and more to be purchased separately. It’s perfect for anyone seeking nostalgia and it’s very keenly priced too.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Why We Recommend This
@@ -181,6 +187,13 @@ thumbnail: https://www.lifewire.com/thmb/lWDkaNRnDn1kI-ZglN_-1NSj-lo=/400x300/fi
 * **Who else recommends it?** TechRadar, GamesRadar, Stuff, and The Guardian have all highly rated the Hyper Mega Tech Super Pocket.
 * **What do buyers think?** Between the two models, the Hyper Mega Tech Super Pocket has an average rating of 4.5 out of 5 on Amazon. 84% of customers have rated the Capcom version 4 or 5 stars, with 90% rating the Taito the same score.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How I Test
 
  I reviewed every handheld gaming console featured here over a number of weeks. The Nintendo Switch OLED, Switch Lite, and Steam Deck were purchased by me, while the Hyper Mega Tech Super Pocket, and Logitech G Cloud were acquired on loan from the manufacturer.
@@ -188,10 +201,10 @@ thumbnail: https://www.lifewire.com/thmb/lWDkaNRnDn1kI-ZglN_-1NSj-lo=/400x300/fi
  While playing them, I focused on how fun they are to use, how portable they are, and how user-friendly they are.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Other Handheld Gaming Consoles We Considered
@@ -199,13 +212,6 @@ thumbnail: https://www.lifewire.com/thmb/lWDkaNRnDn1kI-ZglN_-1NSj-lo=/400x300/fi
  The[Nintendo Switch Lite](https://www.amazon.com/dp/B092VT1JGD?tag=lifewire-onsite-prod-20&ascsubtag=8656300%7Cn828e9c21ba084df1b24d3ffdd45b85b813%7C) is the smaller and solely portable Switch option. It can’t be docked to your TV and has a weaker screen, but it’s cheaper and ideal for solo gaming.
 
 ![Logitech G Cloud.](https://www.lifewire.com/thmb/SMW56Oe3oBSahp0Lznq6lQGJiTU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LogitechGCloud1-c2a2bb36b9ff4fa7bf3d6d8e65253de1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Logitech G Cloud.
 
@@ -254,17 +260,22 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-creating-seamless-ps4-streams-using-obs-studio-tools/"><u>[New] 2024 Approved Creating Seamless PS4 Streams Using OBS Studio Tools</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-why-does-imovie-adjust-video-borders-in-2024/"><u>[New] Why Does iMovie Adjust Video Borders, In 2024</u></a></li>
-<li><a href="https://network-issues.techidaily.com/resolved-sudden-blinks-on-laptop-monitor/"><u>[Resolved] Sudden Blinks on Laptop Monitor</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-gopro-shootout-max-360-vs-hero-11-performance-analysis/"><u>2024 Approved GoPro Shootout Max 360 vs Hero 11 Performance Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-nulaxy-km18-fm-transmitter-evaluation-reliable-and-classic-performance/"><u>Comprehensive Nulaxy KM18 FM Transmitter Evaluation: Reliable and Classic Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fitbit-sense-vs-apple-watch-a-comprehensive-guide-to-wellness-centric-smartwatches/"><u>Fitbit Sense Vs. Apple Watch: A Comprehensive Guide to Wellness-Centric Smartwatches</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-to-capture-and-preserve-preview-images-within-your-word-documents/"><u>How to Capture and Preserve Preview Images Within Your Word Documents</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Honor Magic V2 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/pioneer-bdr-xs06-blu-ray-burner-a-thorough-review-focusing-on-its-convenience-and-efficiency/"><u>Pioneer BDR-XS06 Blu-Ray Burner: A Thorough Review Focusing on Its Convenience & Efficiency</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-choosing-a-gamers-dream-samsung-q6/"><u>The Ultimate Guide to Choosing a Gamer's Dream: Samsung Q6</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/transform-dvd-to-avi-without-cost-discover-these-5-simple-techniques/"><u>Transform DVD to AVI without Cost: Discover These 5 Simple Techniques</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/unrivaled-tale-composers-hub/"><u>Unrivaled Tale Composers Hub</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-expertly-picked-top-10-windows-11-cam-recorders-for-2024/"><u>[New] Expertly Picked Top 10 Windows 11 Cam Recorders for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-revive-the-unseen-watch-video-icon-on-fb-for-2024/"><u>[New] Revive the Unseen Watch Video Icon on FB for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-vimeo-vs-youtube-differences-between-vimeo-and-youtube-for-2024/"><u>[Updated] Vimeo vs YouTube Differences Between Vimeo and YouTube for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-unified-tint-harmonizer/"><u>2024 Approved Unified Tint Harmonizer</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/engaging-viewers-and-vendors-a-guide-to-yt-sponsorships/"><u>Engaging Viewers and Vendors A Guide to YT Sponsorships</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-formidable-stanley-j5c09-a-blend-of-size-and-functionality/"><u>Evaluating the Formidable Stanley J5C09 - A Blend of Size and Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/examining-the-combination-of-robustness-and-affordability-in-fintie-cases-for-macbook-pro-13/"><u>Examining the Combination of Robustness & Affordability in Fintie Cases for MacBook Pro 13</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exclusive-acer-offers-for-prime-day-shoppers/"><u>Exclusive Acer Offers for Prime Day Shoppers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-microsoft-surface-ergonomic-keyboards-premium-build-and-design/"><u>Expert Analysis of the Microsoft Surface Ergonomic Keyboard's Premium Build & Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-unveiling-the-capabilities-of-the-gaomon-pd1560-pen-display/"><u>Expert Review: Unveiling The Capabilities of The Gaomon PD1560 Pen Display</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-bouncies-driving-connect-tracking-solution-affordable-easy-to-use-tech-for-on-road-peace-of-mind/"><u>Exploring Bouncie's Driving Connect Tracking Solution: Affordable, Easy-to-Use Tech for On-Road Peace of Mind</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/gamers-reveal-the-top-console-picks/"><u>Gamers Reveal the Top Console Picks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-fill-your-free-time-top-10-exciting-games-when-youre-feeling-bored/"><u>How to Fill Your Free Time: Top 10 Exciting Games When You're Feeling Bored</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-oppo-a78-5g-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Oppo A78 5G Phone? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-meizu-21-pro-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Meizu 21 Pro Devices</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-contacts-on-galaxy-z-flip-5-without-backup-by-fonelab-android-recover-contacts/"><u>The way to recover deleted contacts on Galaxy Z Flip 5 without backup.</u></a></li>
+<li><a href="https://extra-information.techidaily.com/total-circles-capture-systems/"><u>Total Circles Capture Systems</u></a></li>
 </ul></div>
 

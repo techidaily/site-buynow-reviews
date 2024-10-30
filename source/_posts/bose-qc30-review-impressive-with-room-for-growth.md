@@ -1,7 +1,7 @@
 ---
 title: "Bose QC30 Review: Impressive with Room for Growth"
-date: 2024-10-22T17:47:52.066Z
-updated: 2024-10-24T19:22:08.467Z
+date: 2024-10-26T16:45:48.948Z
+updated: 2024-10-30T16:43:22.578Z
 categories:
   - BestProducts
 description: "This Article Describes Bose QC30 Review: Impressive with Room for Growth"
@@ -93,34 +93,28 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
 
@@ -130,13 +124,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Autofocus: Blazing fast**
 
  We were shocked by how fast and consistent the autofocus is in the SX70 HS, even in low-light situations. It rarely fails to lock on to your intended subject, and focus tracking works flawlessly.
@@ -144,6 +131,13 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -161,6 +155,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -174,6 +175,13 @@ Lifewire / Andy Zahn
  A problem with all these automated modes and scene settings is that the images they produce are exclusively JPEG, with RAW being unavailable. Fortunately, Program mode is essentially the same as Auto, and you can enable RAW image recording there.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
 
@@ -205,13 +213,6 @@ Lifewire / Andy Zahn
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Competition: Dominating from the middle ground**
 
  Canon hasn’t tried to push any boundaries with the SX70 HS. Instead, it plays it safe and just does everything very well. Two of its main competitors in the superzoom arena, Panasonic and Nikon, offer intriguing alternatives by either cutting costs or offering groundbreaking technological advances.
@@ -233,13 +234,6 @@ Lifewire / Andy Zahn
 * [Panasonic Lumix DC-FZ80](https://www.lifewire.com/panasonic-lumix-dc-fz80-review-4691071)
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
-
-<!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -275,24 +269,22 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-auroras-approach-to-hdv-standing-out-or-same-old/"><u>2024 Approved Aurora's Approach to HDV Standing Out or Same Old</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-backupbuddy-reviewers-thoughts/"><u>2024 Approved BackupBuddy Reviewers Thoughts</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-eyedome-recorder-chromeos-screen-snapshots/"><u>2024 Approved EyeDome Recorder ChromeOS Screen Snapshots</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/apple-farewell-bid-adieu-to-one-of-its-most-enduring-and-successful-devices/"><u>Apple Farewell: Bid Adieu to One of Its Most Enduring and Successful Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-netatmos-smart-weather-station-perfect-for-tech-enthusiasts/"><u>Comprehensive Review of Netatmo's Smart Weather Station - Perfect for Tech Enthusiasts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-flexible-fm-transmitter-with-bluetooth-from-sumind-bt70b-a-driving-companion/"><u>Comprehensive Review of the Flexible FM Transmitter with Bluetooth From Sumind BT70B - A Driving Companion</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/headphone-hustle-apples-airpods-pro-versus-samsungs-buds-pro/"><u>Headphone Hustle: Apple's AirPods Pro versus Samsung's Buds Pro</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Lenovo ThinkPhone? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-on-the-go-the-elite-selection-of-wireless-routers-for-2n4s-adventures/"><u>Navigating on the Go: The Elite Selection of Wireless Routers for 2N4's Adventures</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Xiaomi 14 Pro? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/realme-11-proplus-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Realme 11 Pro+ Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/reliable-and-practical-audew-mini-air-pump-an-in-depth-product-review/"><u>Reliable & Practical Audew Mini Air Pump - An In-Depth Product Review</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/secure-your-icloud-emails-the-essential-guide-to-using-two-step-verification/"><u>Secure Your iCloud Emails: The Essential Guide to Using Two-Step Verification</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-race-for-speed-how-netgears-nighthawk-rax1ebuilds-dominance-in-the-5ghz-wi-fi-arena/"><u>The Race for Speed: How Netgear's Nighthawk RAX1ebuilds Dominance in the 5GHz Wi-Fi Arena</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-5g-smartphone-with-endurance-exploring-motorola-one-amo-5g-aces-lightning-speeds-and-robust-battery-capability/"><u>The Ultimate 5G Smartphone with Endurance - Exploring Motorola One Amo 5G Ace's Lightning Speeds & Robust Battery Capability</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-review-for-overwatchs-fun-and-fierce-multiplayer-action/"><u>Top-Rated Review for Overwatch's Fun and Fierce Multiplayer Action</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/uninterrupted-routine-ensure-healthy-pet-habits-using-the-petsafe-six-meal-autofeeder/"><u>Uninterrupted Routine: Ensure Healthy Pet Habits Using the PetSafe Six Meal AutoFeeder</u></a></li>
-<li><a href="https://howto.techidaily.com/why-does-my-poco-x5-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Poco X5 Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/windows-audio-on-win-1110-troubleshooting-success/"><u>Windows Audio on WIN 11/10: Troubleshooting Success</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rofit-potential-per-viewer-youtubes-financial-dynamics/"><u>[New] Profit Potential Per Viewer YouTube's Financial Dynamics</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-audio-files-new-world-how-to-convert-srt-effortlessly/"><u>[New] The Audio Files' New World How to Convert SRT Effortlessly</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-clearing-up-the-darkness-tips-for-non-black-screens-with-obs/"><u>[Updated] 2024 Approved Clearing Up the Darkness Tips for Non-Black Screens with OBS</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-activation-lock-from-iphone-xs-max-4-easy-ways-by-drfone-ios/"><u>Bypass Activation Lock From iPhone XS Max - 4 Easy Ways</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/bypass-tools-to-bypass-lock-screen-p40plus-by-drfone-android-unlock-android-unlock/"><u>Bypass Tools to Bypass Lock Screen(P40+)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discerning-critical-specifications-in-game-ready-notebooks/"><u>Discerning Critical Specifications in Game-Ready Notebooks</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-navigating-instagrams-video-landscape-a-detailed-look/"><u>In 2024, Navigating Instagram's Video Landscape A Detailed Look</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-honor-play-7t-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Honor Play 7T</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-assessment-of-cyberpowers-cp685avrg-essential-ups-functionality-reviewed/"><u>In-Depth Assessment of Cyberpower's CP685AVRG - Essential UPS Functionality Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-microsofts-ergonomic-keyboard-a-look-at-quality-features-and-user-experience/"><u>In-Depth Review of Microsoft's Ergonomic Keyboard - A Look at Quality, Features, and User Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/insightful-guide-to-apc-back-ups-pro-1500va-stellar-performance-ample-outlets-and-hot-swappable-battery-design/"><u>Insightful Guide to APC Back-UPS Pro 1500VA - Stellar Performance, Ample Outlets and Hot Swappable Battery Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/kobo-forma-assessment-the-devoted-e-reader-for-avid-readers/"><u>Kobo Forma Assessment: The Devoted E-Reader for Avid Readers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/movavi-trasforma-i-tuoi-video-flv-in-mp4-gratis-e-protetto-da-right-click-aac/"><u>Movavi - Trasforma I Tuoi Video FLV in MP4 Gratis E Protetto Da Right-Click (AAC)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/testing-the-mighty-asus-rt-ac88u-is-this-gamers-dream-worth-it/"><u>Testing the Mighty Asus RT-AC88U - Is This Gamer's Dream Worth It?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-asus-ax6000-rt-ax88u-harnessing-the-power-of-a-superior-smart-wi-fi-evolution-in-home-networking/"><u>The Ultimate Guide to the Asus AX6000 (RT-AX88U): Harnessing the Power of a Superior Smart Wi-Fi Evolution in Home Networking</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/top-3-free-tools-for-effortlessly-moving-iphone-pictures-to-your-computer/"><u>Top 3 FREE Tools for Effortlessly Moving iPhone Pictures to Your Computer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-assassins-creed-valhalla-a-masterful-journey-through-the-viking-era/"><u>Unveiling Assassin's Creed: Valhalla – A Masterful Journey Through the Viking Era</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Review of Kobo Clara HD – The Ideal Compact E-Reader for Avid Readers on the Fly
-date: 2024-09-04T18:51:59.902Z
-updated: 2024-09-05T18:51:59.902Z
+date: 2024-10-28T16:22:35.776Z
+updated: 2024-10-30T16:28:57.347Z
 categories:
   - BestProducts
 description: This Article Describes Review of Kobo Clara HD – The Ideal Compact E-Reader for Avid Readers on the Fly
@@ -41,6 +41,13 @@ Lifewire / Jordan Provost
 
 ![Philips Somneo HF3650/60 Sleep and Wake-Up Light Therapy Lamp](https://www.lifewire.com/thmb/c9nvEoRMRBjYcwbVPMqxcJWpqBg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-4137028-1-3-5c8fee16c9e77c0001ff0b33.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jordan Provost
 
 [View On Amazon](https://www.amazon.com/dp/B075S53HD9/?tag=lifewire-onsite-prod-20&ascsubtag=4589395%7Cn1f0a866f6147413ba03c22019cdaa97609%7CB075S53HD9) [View On Walmart](https://www.walmart.com/ip/544380672) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6165966.p)
@@ -65,6 +72,13 @@ Lifewire / Jordan Provost
 
 ![Philips Somneo HF3650/60 Sleep and Wake-Up Light Therapy Lamp](https://www.lifewire.com/thmb/VDEjoFnc3QJe7b75UbUe2AdUIqE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4137028-1-1-5c8fee2ac9e77c0001ac18e6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
 
 ## **Design and Setup: Very user-friendly, if oddly shaped**
@@ -74,11 +88,12 @@ Lifewire / Jordan Provost
 ![Philips Somneo HF3650/60 Sleep and Wake-Up Light Therapy Lamp](https://www.lifewire.com/thmb/idFMYxSvr4WNKHfmtginjcQrPy4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4137028-1-2-5c8fee3dc9e77c0001a926f6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
 
  A quick note: the interface itself is easy to read, and adjusts to the room’s ambient light. The clock’s home interface is easy to navigate as well. It comes with a number of simple touch-activated buttons including a light switch, an FM radio feature, and the previously mentioned wind down option.
@@ -89,12 +104,6 @@ Lifewire / Jordan Provost
 
  See Just How Well These Light Therapy Alarm Clocks Glow
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Easy to build, but not so easy to configure**
 
  The Somneo comes with three components: the clock, an AC adapter, charging cable, and an auxiliary cord. To set it up, we simply plugged the adapter and the charging cable into the clock, and plugged the adapter into the wall.
@@ -103,48 +112,18 @@ Lifewire / Jordan Provost
 
  The Philips Somneo is a top-tier product in the light therapy alarm clock market.
 
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Features: Great for falling asleep**
 
  The unique feature about the Philips Somneo is that it offers a “wind down” feature, which includes both a sunset simulation and breathing exercises. Simply tap the wind down button, and then tap the sunset option, and the light slowly diminishes from a bright yellow hue, morphing to oranges and reds before it completely turns off. We like that the lights don’t suddenly switch off at the beginning and end — every light-related feature with the Somneo gradually fades and brightens.
 
  This feature also comes into play during breathing exercises, as it brightens as you breathe in and fades as you breathe out. If you want the light to stay on, you can use it in lamp mode to let it double as a night light or a bedside lamp. There are 25 brightness levels, but we noticed that while the Somneo is a great nightlight, the high brightness wasn’t quite good enough to be a lamp. You can read from it, but it’s just not an optimal bedside light.
 
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Waking up: It’s a breeze**
 
  As we discovered the next morning, the same gradual light changes are available for the morning alarm. The light didn’t pop on, but gradually brightened. The Somneo ended up waking us up naturally a few minutes before the audio alarm sounded. It offers seven different audio options for the alarm itself, ranging from birdsong to soft gongs, but not your own phone’s tunes.
 
 ![Philips Somneo HF3650/60 Sleep and Wake-Up Light Therapy Lamp](https://www.lifewire.com/thmb/-Y5_OBcQ3E4zZLKBd4JYJ2fDj04=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4137028-1-5-5c8fee6ac9e77c0001eb1c8d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jordan Provost
 
  Snoozing the alarm clock is very easy, too. Simply tap the top of the alarm clock, and the light will stay on while the music stops playing for nine minutes. To turn off the alarm, we simply pressed the alarm button on the interface, the music stopped playing, and the light gradually faded away.
@@ -153,20 +132,28 @@ Lifewire / Jordan Provost
 
  Lifewire / Jordan Provost
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Radio: An extra convenience**
 
  Because the audio is superb, we thoroughly tested the radio feature. The user can preset five radio stations, and can easily control swapping between them. We couldn’t flip back and forth between the options, but rather cycled through the other stations before coming back to the original. There is a volume section under the FM radio where you can easily increase or decrease it, though it was confusing to find at first. Once you become familiarized with it, though, it’s simple to maneuver.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Top end for high-end products**
 
  At $199.99, the Somneo is priced on the high-end for light therapy alarm clocks. However, you get what you pay for: great audio quality, gradual, subtle light changes, and more alarm options than most clocks on the market. We especially liked the radio preset feature as well as the auxiliary option for phone playback — an extra option nearly all other light therapy clocks lack. While pricey, the Somneo really boasts all the bells and whistles you may want or need.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Philips Somneo vs. Philips HF3520 Wake-Up Light**
 
  Compared to its cheaper sibling, the[Philips HF3520 Wake-Up Light](https://www.lifewire.com/philips-hf3520-light-therapy-alarm-clock-review-4589352) , the Philips Somneo’s extra features set it apart. Unlike the HF3520, the Somneo offers the breathing exercises, USB phone charging port, and a 3.5mm audio jack. However, the HF3520 has a lower price with many similar options, like five alarms with solid audio quality, and the same gradual light brightening and fading. The HF3520 similarly has a wind-down option, but not any USB or auxiliary ports. If relaxing before bed and charging a phone is a necessity for you, invest in the Somneo, otherwise, the HF3520 can save you some money.
@@ -204,8 +191,6 @@ Lifewire / Jordan Provost
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -213,4 +198,17 @@ Lifewire / Jordan Provost
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-reviews.techidaily.com/dive-into-immersive-role-playing-with-the-elder-scrolls-v-skyrim-reviewed-for-the-switch-platform/"><u>Dive Into Immersive Role-Playing with The Elder Scrolls V: Skyrim - Reviewed for the Switch Platform</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-the-eufy-t8200-the-ultimate-guide-to-a-video-doorbell-without-membership-fees/"><u>Experience the Eufy T8200 – The Ultimate Guide to a Video Doorbell Without Membership Fees</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/from-idea-to-live-stream-a-comprehensive-guide-for-instagram-and-obs-users/"><u>From Idea to Live Stream A Comprehensive Guide for Instagram & OBS Users</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-about-vivo-s17-frp-bypass-by-drfone-android/"><u>In 2024, About Vivo S17 FRP Bypass</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-sharpen-your-videoleap-videos-from-afar/"><u>In 2024, Sharpen Your Videoleap Videos From Afar</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Asus ROG Phone 7? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/must-have-points-the-top-5-things-when-shopping-for-vr-headsets/"><u>Must-Have Points: The Top 5 Things When Shopping for VR Headsets</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-final-cut-pro-for-less-take-advantage-of-education-pricing-for-2024/"><u>New Final Cut Pro for Less Take Advantage of Education Pricing for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-ultimate-guide-to-adding-a-password-layer-to-your-text-files/"><u>The Ultimate Guide to Adding a Password Layer to Your Text Files</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-selection-best-cellular-deals-for-elders/"><u>The Ultimate Selection: Best Cellular Deals for Elders</u></a></li>
+</ul></div>
 

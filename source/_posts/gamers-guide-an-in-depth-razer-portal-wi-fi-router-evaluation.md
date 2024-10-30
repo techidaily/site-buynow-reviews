@@ -1,7 +1,7 @@
 ---
 title: "Gamer's Guide: An In-Depth Razer Portal Wi-Fi Router Evaluation"
-date: 2024-10-22T20:43:33.514Z
-updated: 2024-10-24T21:06:55.264Z
+date: 2024-10-28T16:35:34.498Z
+updated: 2024-10-30T16:03:16.165Z
 categories:
   - BestProducts
 description: "This Article Describes Gamer's Guide: An In-Depth Razer Portal Wi-Fi Router Evaluation"
@@ -43,9 +43,23 @@ thumbnail: https://thmb.techidaily.com/08adc1f5589e44169595af5c9b0bbe1d47ddf2512
 
 3
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -66,13 +80,6 @@ thumbnail: https://thmb.techidaily.com/08adc1f5589e44169595af5c9b0bbe1d47ddf2512
 
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -84,16 +91,10 @@ thumbnail: https://thmb.techidaily.com/08adc1f5589e44169595af5c9b0bbe1d47ddf2512
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Humans have never been so annoying**
@@ -128,13 +129,6 @@ thumbnail: https://thmb.techidaily.com/08adc1f5589e44169595af5c9b0bbe1d47ddf2512
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
@@ -144,10 +138,10 @@ thumbnail: https://thmb.techidaily.com/08adc1f5589e44169595af5c9b0bbe1d47ddf2512
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Other city-building games**
@@ -189,24 +183,22 @@ thumbnail: https://thmb.techidaily.com/08adc1f5589e44169595af5c9b0bbe1d47ddf2512
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/0-mock-musicals-that-bring-smiles-for-2024/"><u>[New] 10 Mock Musicals That Bring Smiles for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-crafting-the-perfect-sound-for-stories-and-reels-on-instagram/"><u>[New] 2024 Approved Crafting the Perfect Sound for Stories & Reels on Instagram</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-live-action-anytime-anywhere-our-ultimate-12-stream-service/"><u>[New] Live Action Anytime, Anywhere - Our Ultimate 12-Stream Service</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/10-sites-to-help-with-your-apartment-search/"><u>10 Sites to Help With Your Apartment Search</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/elevate-your-digital-experience-with-acer-aspire-c27-the-low-profile-high-performance-desktop/"><u>Elevate Your Digital Experience with Acer Aspire C27: The Low Profile, High Performance Desktop</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fixing-kodi-network-problems-how-to-overcome-directory-retrieval-errors/"><u>Fixing Kodi Network Problems: How to Overcome 'Directory Retrieval Errors'</u></a></li>
-<li><a href="https://driver-download.techidaily.com/fresh-driver-pack-for-your-pc-enhance-the-performance-of-msi-b350-motherboard-windows-friendly/"><u>Fresh Driver Pack for Your PC: Enhance the Performance of MSI B350 Motherboard (Windows Friendly)</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-to-discreetly-monitor-location-information-on-an-iphone/"><u>How to Discreetly Monitor Location Information on an iPhone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-poco-x6-pro-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Poco X6 Pro to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-the-ultimate-guide-to-the-fitbit-inspire-hr-247-health-and-activity-monitor/"><u>In-Depth Analysis: The Ultimate Guide to the Fitbit Inspire HR 24/7 Health & Activity Monitor</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lg-k51-handset-unveiled-impressive-visual-design-dampened-by-underpowered-chip-analysis/"><u>LG K51 Handset Unveiled: Impressive Visual Design Dampened by Underpowered Chip Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-2n4s-best-cell-plan-options-for-seniors-a-detailed-review/"><u>Navigating 2N4's Best Cell Plan Options for Seniors: A Detailed Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-world-of-fitness-trackers-top-5-insights-for-your-purchase-decision/"><u>Navigating the World of Fitness Trackers: Top 5 Insights for Your Purchase Decision</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/oneplus-9-pro-assessment-a-blend-of-fashionable-appearance-swift-functionality-and-impressive-camera-quality/"><u>OnePlus 9 Pro Assessment: A Blend of Fashionable Appearance, Swift Functionality & Impressive Camera Quality</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-samsung-galaxy-f34-5g-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Samsung Galaxy F34 5G</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solving-dolby-atmos-issues-a-guide-for-windows-11-and-windows-10-users/"><u>Solving Dolby Atmos Issues: A Guide for Windows 11 & Windows 10 Users</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/swiftly-slide-through-content-advanced-techniques-to-accelerate-video-viewing-on-tiktok-for-2024/"><u>Swiftly Slide Through Content Advanced Techniques to Accelerate Video Viewing on TikTok for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-top-contenders-in-mesh-wi-fi-networks-expert-insights-and-rankings/"><u>Unveiling the Top Contenders in Mesh Wi-Fi Networks - Expert Insights and Rankings</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/upgrading-made-easy-journey-from-windows-10-to-11-unveiled/"><u>Upgrading Made Easy: Journey From Windows 10 to 11 Unveiled</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-fb-content-horizontal-or-vertical-format-debate-for-2024/"><u>[New] FB Content Horizontal or Vertical Format Debate for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-maximizing-video-quality-with-gopro-max-or-hero-11-in-2024/"><u>[New] Maximizing Video Quality with GoPro Max or Hero 11, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-premier-choice-the-best-10-recorders-for-tech-talks/"><u>[Updated] Premier Choice The Best 10 Recorders for Tech Talks</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-earnings-spectrum-unveiling-the-financial-power-of-dailymovement-and-youtube/"><u>2024 Approved Earnings Spectrum Unveiling the Financial Power of DailyMovement and YouTube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-low-cost-ssl-security-services/"><u>Comparing Low-Cost SSL Security Services</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dbpower-600a-the-ultimate-guide-to-its-dependable-jump-starting-and-18000mah-power-supply-capabilities/"><u>DBPOWER 600A - The Ultimate Guide to Its Dependable Jump Starting and 18,000mAh Power Supply Capabilities!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/determining-the-value-in-iphoneipod-battery-upgrades/"><u>Determining the Value in iPhone/iPod Battery Upgrades</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/digging-deep-into-the-world-of-w15a-frames/"><u>Digging Deep Into the World of W15A Frames</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-london-in-watch-dogs-an-exhaustive-review-of-the-legion-series-unique-environment-shift/"><u>Discovering London in Watch Dogs: An Exhaustive Review of the Legion Series' Unique Environment Shift</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dominating-the-rc-track-an-exhaustive-look-at-the-powerful-galaxy-ford-f-150-remote-control-leviathan/"><u>Dominating the R/C Track: An Exhaustive Look at the Powerful Galaxy Ford F-150 Remote Control Leviathan</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elite-selection-of-accessories-for-your-iphone-device/"><u>Elite Selection of Accessories for Your iPhone Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-legacy-performance-of-lg-watch-style-powered-by-wear-os-version-20/"><u>Evaluating the Legacy Performance of LG Watch Style Powered by Wear OS Version 2.0</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-easily-unlock-samsung-screen-by-drfone-android/"><u>How To Easily Unlock Samsung Screen?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-complete-analysis-triangulating-life-with-samsung-vr/"><u>In 2024, Complete Analysis Triangulating Life with Samsung VR</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Oppo A78 | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-step-by-step-guide-to-excelling-at-final-cut-pro/"><u>In 2024, Step-by-Step Guide to Excelling at Final Cut Pro</u></a></li>
+<li><a href="https://fox-that.techidaily.com/navigating-troublesome-iphone-x-challenges-solutions-to-the-7-most-common-quandaries/"><u>Navigating Troublesome iPhone X Challenges: Solutions to the 7 Most Common Quandaries</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Kobo Forma Assessment: The Devoted E-Reader for Avid Readers"
-date: 2024-10-20T20:34:47.850Z
-updated: 2024-10-24T21:06:33.103Z
+date: 2024-10-28T16:39:59.289Z
+updated: 2024-10-30T16:23:08.919Z
 categories:
   - BestProducts
 description: "This Article Describes Kobo Forma Assessment: The Devoted E-Reader for Avid Readers"
@@ -44,13 +44,6 @@ Lifewire / Rebecca Isaacs
 
 4
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 7 Days to Die
 
 ![7 Days to Die](https://www.lifewire.com/thmb/mKaiRcg5xaWaOPRj0Ph1dRjUbSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4164252-1-e8b8c3eb31dd46e8a63e8e40a5a9d04b.jpg)
@@ -81,13 +74,6 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Easy thanks to Steam**
 
  7 Days to Die for PC can be located on Steam, making it easy to set up. It takes a little while to download, but once it boots up, you’re in. You’ll press the “New Game” button and you’ll need to create a new character, which is easy if you choose one of the preset characters from the list. If you’d like to make a unique character, it’s easy with a creation system similar to Skyrim. Everything, down to the very arch on the eyebrows, is customizable.
@@ -97,6 +83,19 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/Eq0YCIdbj82yj3lOCWEdZS7jX6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-4-341174c3997543728bd2b024c6e2a309.jpg)
 
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Plot: Open world horror sandbox**
 
@@ -113,6 +112,13 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/U2XChOqkiQvFhP69V0cQ5mYcYME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-3-d19d9b4d19734cffb022d6e0db90382e.jpg)
 
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Gameplay: Could be better, but solid overall**
 
@@ -134,13 +140,6 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/O0do2JbbpgP_VF7azi5OhENnDpc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-5-13eba1dcdd7d45b48c0c3d07711686e6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
 
 ## **Graphics: Outdated, but detailed on optimal**
@@ -151,13 +150,6 @@ Lifewire / Rebecca Isaacs
 
  Because the graphics are a rather mixed bag, the frames per second (fps) can vary dramatically. We experienced drops as low as 18 fps when playing. When surrounded by a horde, that can cost you your life.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Platform: It’s complicated**
 
  7 Days to Die runs on many platforms:[PC](https://www.lifewire.com/what-is-a-mac-4155662) ,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and[Xbox 360](https://www.lifewire.com/xbox-360-buyers-guide-3562451) . We played 7 Days on PC, and at the time of writing, they released a teaser for the Alpha 18 update which would roll out to the PC version of the game.
@@ -165,15 +157,28 @@ Lifewire / Rebecca Isaacs
  Last time we checked, the company that owned all console rights, Telltale, went bust, and The Fun Pimps (the developer) were in legal limbo trying to reacquire their own rights. There’s a good chance that there will not be an update in the console versions of the game anytime soon as this issue makes its way through the courts. Therefore, we strongly recommend that you purchase the PC version if you decide this is a game you might like to try.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Average for an alpha game**
 
  At around $25, 7 Days isn’t the most expensive zombie game on the market. However, it is the most expensive alpha zombie game out there. Because you can purchase it on[Steam](https://www.lifewire.com/what-is-steam-4177380) or Humble Bumble, we recommend waiting for a Steam sale and getting it for a discount, especially since it’s still in progress. This way, if you decide you don’t like it in the future, you aren’t out the full price.
+
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Other sandbox shooters**
 
@@ -192,6 +197,13 @@ Lifewire / Rebecca Isaacs
 * The Last of Us Remastered
 * [Days Gone](https://www.lifewire.com/days-gone-review-4778364)
 * [Dying Light](https://www.lifewire.com/dying-light-review-4778324)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -220,22 +232,24 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discover-community.techidaily.com/movavi-avimjpeg/"><u>如何使用 Movavi 在線將AVI文件轉為MJPEG格式 - 免費直接變更器</u></a></li>
-<li><a href="https://facebook.techidaily.com/affordable-content-scheduling-top-5-tricks-for-facebook-timing/"><u>Affordable Content Scheduling: Top 5 Tricks for Facebook Timing</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/crucial-considerations-for-selecting-the-perfect-fitness-tracker/"><u>Crucial Considerations for Selecting the Perfect Fitness Tracker</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/edit-your-images-in-style-with-the-freebie-lightzone-suite-on-all-platforms/"><u>Edit Your Images in Style with the Freebie LightZone Suite on All Platforms!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/elevate-your-in-house-broadcasting-with-a-wallet-friendly-choice-the-onebyone-digital-hdtv-antenna-review-for-superior-reception/"><u>Elevate Your In-House Broadcasting with a Wallet-Friendly Choice - The Onebyone Digital HDTV Antenna Review for Superior Reception</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-apples-latest-timepiece-watch-series-9/"><u>Expert Insights on Apple's Latest Timepiece: Watch Series 9</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/expert-tips-for-enhancing-your-dogcats-gaze-in-photos-avoiding-unnatural-glints/"><u>Expert Tips for Enhancing Your Dog/Cat's Gaze in Photos: Avoiding Unnatural Glints</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/from-pieces-to-performance-unveiling-the-potential-of-the-makeblock-mbot-educational-robotics-kit/"><u>From Pieces to Performance: Unveiling the Potential of the Makeblock mBot Educational Robotics Kit</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Honor Magic 6 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Motorola Moto G13 | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-complete-understanding-of-srt-covering-everything-important/"><u>In 2024, Complete Understanding of SRT, Covering Everything Important</u></a></li>
-<li><a href="https://win-info.techidaily.com/1728474976922-nvme-ssd/"><u>NVMe SSDへのスムーズ転送：データ損失無し！</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/precision-meets-portability-in-the-new-sabrent-mini-travel-mouse-with-superior-corded-connection/"><u>Precision Meets Portability in the New Sabrent Mini Travel Mouse with Superior Corded Connection</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/step-by-step-guide-creating-your-nintendo-network-id-on-the-3ds/"><u>Step-by-Step Guide: Creating Your Nintendo Network ID on the 3DS</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-social-media-roadmap-for-business-growth/"><u>The Social Media Roadmap for Business Growth</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-boosting-your-home-viewing-experience-with-1byones-hdtv-amplified-antenna-value-king/"><u>The Ultimate Guide to Boosting Your Home Viewing Experience with 1BYONE's HDTV Amplified Antenna – Value King</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/zombie-encounter-redux-a-comprehensive-review-of-7-days-to-die-transforming-the-undead-into-an-engaging-game-experience/"><u>Zombie Encounter Redux: A Comprehensive Review of '7 Days to Die' - Transforming the Undead Into an Engaging Game Experience</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-guide-to-correct-age-information-for-tiktok-users/"><u>[New] 2024 Approved Guide to Correct Age Information for TikTok Users</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-speed-demos-like-video-duo-for-rapid-growth/"><u>[New] In 2024, Instagram Speed Demos Like-Video Duo for Rapid Growth</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-top-picks-of-firefox-tools-to-streamline-your-facebook-video-experience-2023/"><u>[New] Top Picks of Firefox Tools to Streamline Your Facebook Video Experience, 2023</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dive-into-enhanced-safety-with-your-new-arlo-security-camera-setup/"><u>Dive Into Enhanced Safety with Your New Arlo Security Camera Setup</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-xiaomi-has-native-mkv-support-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Does Xiaomi has native MKV support?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-propella-7s-40-assessment-compact-design-and-budget-friendly/"><u>In-Depth Propella 7S 4.0 Assessment: Compact Design & Budget-Friendly</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/pc-gaming-success-story-eliminating-deathloops-lagging-challenges-once-and-for-all/"><u>PC Gaming Success Story: Eliminating Deathloop's Lagging Challenges Once and For All</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/reversing-gmails-undo-button-mistakes-a-step-by-step-guide/"><u>Reversing Gmail's Undo Button Mistakes: A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/speed-and-convenience-on-two-wheels-in-depth-review-of-the-gotrax-gxl-v2-e-scooter/"><u>Speed & Convenience on Two Wheels: In-Depth Review of the Gotrax GXL V2 E-Scooter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stream-smart-chromecast-vs-roku-determining-the-superior-media-player/"><u>Stream Smart: Chromecast Vs. Roku - Determining the Superior Media Player</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/tech-savvy-strategies-for-harvesting-and-saving-facebooks-most-trendy-gifs/"><u>Tech Savvy Strategies for Harvesting & Saving Facebook's Most Trendy GIFs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-complete-guide-to-mobvois-ticwatch-pro-4g-why-its-your-go-to-for-a-fully-connected-watch-experience/"><u>The Complete Guide to Mobvoi's Ticwatch Pro 4G: Why It's Your Go-To for a Fully Connected Watch Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-finest-6-destinations-for-finding-quality-computing-devices/"><u>The Finest 6 Destinations for Finding Quality Computing Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-new-era-of-ebooks-unveiled-a-detailed-look-at-the-amazon-kindle-paperwhite-2018/"><u>The New Era of Ebooks Unveiled: A Detailed Look at the Amazon Kindle Paperwhite (2018)</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-premier-source-of-no-cost-creative-tools-in-ae/"><u>The Premier Source of No-Cost Creative Tools in AE</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-sony-playstation-5-examined-its-not-only-about-enhanced-strength/"><u>The Sony PlayStation 5 Examined: It's Not Only About Enhanced Strength</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-powerhouse-an-in-depth-review-of-the-netgear-nighthawk-c7000-modem-performance/"><u>Unveiling the Powerhouse: An In-Depth Review of the Netgear Nighthawk C7000 Modem Performance</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-samsung-galaxy-s23-fe-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Samsung Galaxy S23 FE Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/1726029584934-3/"><u>ウェブインターネット上で効果的なウェビナー記録手段：3コツ</u></a></li>
 </ul></div>
 

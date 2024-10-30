@@ -1,7 +1,7 @@
 ---
 title: Top Review of the Amazon Basics HDTV Antenna for Cost-Effective Television Viewing
-date: 2024-10-23T16:53:41.462Z
-updated: 2024-10-24T18:29:49.468Z
+date: 2024-10-23T16:16:09.628Z
+updated: 2024-10-30T16:33:47.594Z
 categories:
   - BestProducts
 description: This Article Describes Top Review of the Amazon Basics HDTV Antenna for Cost-Effective Television Viewing
@@ -42,23 +42,9 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -89,6 +75,13 @@ Lifewire / Erika Rawes
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup: Relatively easy**
 
  Setting up the antenna is pretty straightforward. You start by plugging one end of the coaxial cable into the antenna, and then the other end to the coaxial/antenna-in connector to your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) .
@@ -109,13 +102,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Range: 35 miles**
 
  The AmazonBasics antenna has a 35-mile range, which isn’t very far considering 50 plus miles is becoming more common. It is omnidirectional, however, so you don’t need to point it in a specific direction. It supports UHF/VHF, so I was able to get a decent selection of channels.
@@ -123,6 +109,13 @@ Lifewire / Erika Rawes
  Even with the short-range, I was able to pick up 16 channels on my first attempt, including The CW, PBS, and more. In a different room in my test home, I was able to get 23 channels, but this is probably because there’s less tree cover outside of the house on that side of the property. Considering the location of my test home, 23 channels is pretty good.
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Super affordable**
 
@@ -133,10 +126,16 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
@@ -148,6 +147,19 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
+
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -180,22 +192,19 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-step-by-step-approach-to-podcast-naming-and-50plus-dynamic-name-options/"><u>2024 Approved Step-by-Step Approach to Podcast Naming & 50+ Dynamic Name Options</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-realme-gt-3-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Realme GT 3? | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/amd-vs-intel-what-is-the-best-gaming-cpu/"><u>AMD Vs. Intel: What Is the Best Gaming CPU?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/disc-masters-of-2024-high-quality-cd-players-ranked/"><u>Disc Masters of 2024: High-Quality CD Players Ranked</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/elevating-vimeo-video-speed-for-2024/"><u>Elevating Vimeo Video Speed for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/freely-capture-perfection-the-leading-10-high-quality-recorders/"><u>Freely Capture Perfection The Leading 10 High-Quality Recorders</u></a></li>
-<li><a href="https://techtrends.techidaily.com/guide-facile-pour-mettre-en-place-le-transcodeur-handbrake-sous-windows-7810-vista/"><u>Guide Facile Pour Mettre en Place Le Transcodeur HandBrake Sous Windows : 7/8/10 / Vista</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-realme-gt-neo-5-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Realme GT Neo 5 Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-find-my-iphone-without-apple-id-from-your-iphone-15-pro-max-by-drfone-ios/"><u>How to Remove Find My iPhone without Apple ID From your iPhone 15 Pro Max?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Realme V30T | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/join-forces-and-leap-to-victory-in-dying-light-a-riveting-review-of-its-co-op-parkour-and-survival-challenges/"><u>Join Forces and Leap to Victory in Dying Light: A Riveting Review of Its Co-Op, Parkour, & Survival Challenges</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/oneplus-8t-analysis-fast-performance-hindered-by-inconsistent-camera-quality/"><u>OnePlus 8T Analysis: Fast Performance Hindered by Inconsistent Camera Quality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/pros-and-cons-of-the-acurite-pro-weather-station-model-010-review-easy-installation-and-sturdy-construction/"><u>Pros and Cons of the AcuRite Pro Weather Station Model 010 Review - Easy Installation & Sturdy Construction</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/smart-shopping-key-points-to-think-about-before-you-print/"><u>Smart Shopping: Key Points to Think About Before You Print</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-impact-of-larger-screens-on-user-experience-with-the-apple-iphone-12-pro-max-an-insightful-review/"><u>The Impact of Larger Screens on User Experience with the Apple iPhone 12 Pro Max - An Insightful Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-iphones-for-gamers-picking-the-perfect-device/"><u>Top iPhones for Gamers: Picking the Perfect Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-truth-a-thorough-review-of-seatechs-external-usb-blu-ray-recorder-with-variable-output/"><u>Unveiling the Truth: A Thorough Review of SeaTech's External USB Blu-Ray Recorder with Variable Output</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-what-lies-beneath-an-exploration-into-youtubes-unlisted-video-space/"><u>[New] What Lies Beneath An Exploration Into YouTube's Unlisted Video Space</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-achieving-steady-motion-video-and-photography-insights/"><u>[Updated] 2024 Approved Achieving Steady Motion Video & Photography Insights</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-gamers-guide-to-best-4k-laptop-models-for-2024/"><u>[Updated] Gamer's Guide to Best 4K Laptop Models for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/deep-dive-into-bloodsport-an-immersive-gaming-experience-revealed/"><u>Deep Dive Into Bloodsport: An Immersive Gaming Experience Revealed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-5-best-travel-friendly-wi-fi-routers-of-this-year-2024-edition/"><u>Discover the 5 Best Travel-Friendly Wi-Fi Routers of This Year, 2024 Edition</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-whats-new-with-sony-at-the-anticipated-2024-state-of-play-presentation/"><u>Discover What’s New with Sony at the Anticipated 2024 State of Play Presentation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-excellence-with-the-samsung-galaxy-note-9-a-gargantuan-phone-experience/"><u>Discovering Excellence with the Samsung Galaxy Note 9 – A Gargantuan Phone Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-ultra-hd-quality-with-samsungs-55-ru7300-4k-smart-tv-comprehensive-review/"><u>Experience Ultra HD Quality with Samsung's 55 RU7300 4K Smart TV - Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-evaluation-nintendo-switch-outshines-rivals-as-top-portable-game-system/"><u>Expert Evaluation: Nintendo Switch Outshines Rivals as Top Portable Game System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-picks-leading-power-inverters-to-watch/"><u>Expert Picks: Leading Power Inverters to Watch</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Vivo Y200? | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/restoring-accuracy-fixed-discord-games-status-errors-windows/"><u>Restoring Accuracy: Fixed Discord Games Status Errors (Windows)</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/tips-and-tricks-enhancing-your-rpg-campaigns-using-ai-powered-assistant-chatgpt/"><u>Tips & Tricks: Enhancing Your RPG Campaigns Using AI-Powered Assistant, ChatGPT</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/trouble-with-nvidia-game-overlay-discover-simple-solutions-to-restore-its-functionality/"><u>Trouble with NVIDIA Game Overlay? Discover Simple Solutions to Restore Its Functionality</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Romer LED Rechargeable Handheld Searchlight Review
-date: 2024-09-04T18:50:23.175Z
-updated: 2024-09-05T18:50:23.175Z
+date: 2024-10-25T16:35:24.582Z
+updated: 2024-10-30T16:05:26.709Z
 categories:
   - BestProducts
 description: This Article Describes Romer LED Rechargeable Handheld Searchlight Review
@@ -37,6 +37,13 @@ Lifewire / Gannon Burgett
 
 3.5
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## ChargeTech 27000mAh Portable AC Battery Pack
 
 ![Charge Tech](https://www.lifewire.com/thmb/x-1Iy0CxchTrQYvRNlYOCmLw4BQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_5WebHERO-5c8fffb2c9e77c00010e971c.jpg)
@@ -63,12 +70,6 @@ Lifewire / Gannon Burgett
 
  To see just how well it works and whether or not it lives up to its hype—and price tag—we put the ChargeTech through the wringer to see just how well it performs.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Sleek and slim**
 
  The ChargeTech 27000mAh battery pack looks as unassuming as you'd expect. It's effectively a beefed-up smartphone battery pack that happens to sneak a full-sized AC outlet into it. The rectangular device features tapered sides, which helps add to its slim profile, as well as a satin matte black finish, which we'll elaborate on more in a minute.
@@ -97,12 +98,6 @@ Lifewire / Gannon Burgett
 
  While on the topic of charging, it's worth noting the power input is a dedicated plugin that uses the included charger. It would've been nice to see ChargeTech use a[USB Type-C](https://www.lifewire.com/usb-c-4149490) input, but that isn't the case. Instead, the battery pack relies on an entirely separate charger that will take up even more space than a spare smartphone or two.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Charging Speed and Battery: Plenty of power at decent speeds**
 
  As mentioned above, we started the testing process by draining the ChargeTech 27000mAh entirely and charging it up. Over the course of the first charge and seven subsequent charges throughout testing, the battery pack averaged a charge time of approximately four and a half hours using the included charger.
@@ -112,17 +107,12 @@ Lifewire / Gannon Burgett
 ![Charge Tech](https://www.lifewire.com/thmb/zGJCf-e-sSLH4humuEfNXuJczUk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_4Web-5c9003f146e0fb0001770117.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
  The iPhone XS managed six and a half full charges with an average charge time of an hour and a half. The Samsung Galaxy S8 Active charged seven and a half times with an average charge time of an hour and a half as well. ChargeTech doesn't provide guidelines on charge estimates, but the numbers line up with other testing we've done and reviews left on the Amazon product page.
@@ -133,16 +123,24 @@ Lifewire / Gannon Burgett
 
  Something to keep in mind is charge times will vary greatly depending on how many devices are plugged in, the temperature, and whether or not you're using devices while they're charging.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: A little bit up there**
 
  The ChargeTech 27000mAh battery pack retails for $199\. Considering its capacity and included AC plugin, that's a reasonable price. Not to mention it was nice to know we had a full laptop charge on the go, because carrying around the large power adapter isn't exactly convenient.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Competition: Just that little bit extra**
 
  The ChargeTech's competition can be narrowed down to two main devices, the[Jackery PowerBar 77](https://www.lifewire.com/jackery-powerbar-battery-pack-review-4589480) and the Omars battery pack. All three devices include an integrated AC plugin and all three devices are within 5,000mAh of battery capacity.
@@ -159,30 +157,12 @@ Lifewire / Gannon Burgett
 
  In summary, if capacity is your priority in a charger that also has an integrated AC plugin, the ChargeTech 27,000 will get the job done. But it won't do it fast and it won't impress you along the way. In our testing, it kind of just hummed along, charging at an adequate pace with a standard feature set. The additional power adapter was a pain and something well worth considering if portability is a concern of yours.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [MaxOak 185Wh/50000mAh Battery Pack](https://www.lifewire.com/maxoak-185wh-50000mah-battery-pack-review-4589398)
 * [Anker PowerCore+ 26800 Battery Pack Bundle](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
 * [JETSUN 16750mAh Solar Power Bank](https://www.lifewire.com/jetsun-16750mah-solar-power-bank-review-4690521)
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  27000mAh Portable AC Battery Pack
@@ -198,14 +178,11 @@ Lifewire / Gannon Burgett
 * Warranty  One year
 * Compatibility  Android, iOS, Windows, macOS, Linux
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -214,4 +191,19 @@ Lifewire / Gannon Burgett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/updated-virtual-adventures-await-in-latest-windows-10-gaming-and-apps/"><u>[Updated] Virtual Adventures Await in Latest Windows 10 Gaming & Apps</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-complete-overview-the-ultimate-video-editors-review-for-vivocut/"><u>2024 Approved Complete Overview The Ultimate Video Editor's Review for VivoCut</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/convert-facebook-to-mp4-hack-for-quick-access/"><u>Convert Facebook to MP4 – Hack for Quick Access</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-elite-ergonomic-wrist-rest-solutions-for-optimal-typing/"><u>Discover Elite Ergonomic Wrist Rest Solutions for Optimal Typing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/easy-tutorial-on-transforming-tivo-files-into-high-quality-mp4-videos/"><u>Easy Tutorial on Transforming TiVo Files Into High-Quality MP4 Videos</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-fix-onikumas-non-functional-headset-mic-a-comprehensive-guide/"><u>How to Fix Onikuma's Non-Functional Headset Mic: A Comprehensive Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-digitally-chronicled-tweets-of-the-year-so-far/"><u>In 2024, Digitally Chronicled Tweets of the Year So Far</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-garmin-venu-the-all-in-one-fitness-tracker-and-health-companion/"><u>In-Depth Analysis of the Garmin Venu: The All-in-One Fitness Tracker and Health Companion</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ratchet-and-clank-reimagined-a-tribute-to-a-beloved-gaming-icon/"><u>Ratchet and Clank Reimagined: A Tribute to a Beloved Gaming Icon</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-secret-art-of-hidden-streaming-instagrams-anonymous-spectators-guide-for-2024/"><u>The Secret Art of Hidden Streaming Instagram's Anonymous Spectators Guide for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-rotibox-bluetooth-hat-stellar-comfort-meets-superior-sound-quality-inside/"><u>The Ultimate Guide to Rotibox Bluetooth Hat: Stellar Comfort Meets Superior Sound Quality Inside</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-reveal-of-the-dell-alienware-aurora-r9-redefining-future-of-gaming-pcs-with-innovative-style/"><u>Ultimate Reveal of the Dell Alienware Aurora R9 - Redefining Future of Gaming PCs with Innovative Style</u></a></li>
+</ul></div>
 

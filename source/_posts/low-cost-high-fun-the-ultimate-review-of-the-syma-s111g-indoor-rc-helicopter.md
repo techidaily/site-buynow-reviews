@@ -1,7 +1,7 @@
 ---
 title: "Low-Cost, High-Fun: The Ultimate Review of the Syma S111G Indoor RC Helicopter"
-date: 2024-10-17T20:58:56.660Z
-updated: 2024-10-24T18:09:09.370Z
+date: 2024-10-27T16:08:02.712Z
+updated: 2024-10-30T16:45:42.503Z
 categories:
   - BestProducts
 description: "This Article Describes Low-Cost, High-Fun: The Ultimate Review of the Syma S111G Indoor RC Helicopter"
@@ -46,13 +46,6 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/YWkGikwP23JK119N4M7J22dAPJY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Kelsey Simon
 
 [View On Amazon](https://www.amazon.com/dp/B00D2ZK1IG/?tag=lifewire-onsite-prod-20&ascsubtag=4778324%7Cn8b17d62e028148938085d16c4455799211%7CB00D2ZK1IG) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/dying-light/10111372.html)
@@ -84,6 +77,13 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 ## **Plot: A character torn between obligation and friendship**
@@ -98,14 +98,14 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Gameplay: Parkour and zombies galore**
 
@@ -123,6 +123,13 @@ Harran is a whole different city at night.
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Graphics: Attention to detail**
 
  The graphics of Dying Light compare well to other triple-A titles, though it feels like the developers took more care with the scenery than the characters. Human models look a little plasticky, but the world around you is textured beautifully and rich with small details like posters and graffiti that help make the world around you feel real.
@@ -131,20 +138,13 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Worth the cost, especially with a friend**
@@ -164,10 +164,10 @@ Harran is a whole different city at night.
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -191,17 +191,18 @@ Harran is a whole different city at night.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://hardware-help.techidaily.com/download-now-latest-hp-scanjet-printer-drivers-for-windows-11-and-87-free/"><u>[Download Now] Latest HP Scanjet Printer Drivers for Windows 11 & 8/7 - Free</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-disruptive-beats-curated-list-of-music-mutators/"><u>[New] 2024 Approved Disruptive Beats Curated List of Music Mutators</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-behind-the-scenes-of-video-studios-xreview-analysis/"><u>[Updated] 2024 Approved Behind the Scenes of Video Studios XReview Analysis</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-quick-and-easy-incorrante-audio-into-fb-profiles-ios-android/"><u>[Updated] 2024 Approved Quick & Easy Incorrante Audio Into FB Profiles (iOS, Android)</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-unraveling-the-purpose-behind-a-common-symbol-on-fb-chat/"><u>[Updated] 2024 Approved Unraveling the Purpose Behind a Common Symbol on FB Chat</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-downloading-fb-video-files-in-a-flash-as-mp4/"><u>2024 Approved Downloading FB Video Files in a Flash as MP4</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-value-mobile-phone-contracts-save-big-on-cell-service/"><u>Best Value Mobile Phone Contracts : Save Big on Cell Service!</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-vivo-y78-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Vivo Y78 5G</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/inside-the-review-is-kooteks-cooling-pad-for-laptops-a-solid-choice-for-users-everywhere-find-out-here/"><u>Inside the Review: Is Kootek's Cooling Pad for Laptops a Solid Choice for Users Everywhere? Find Out Here</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/petsafe-automatic-feeder-for-pets-perfectly-balanced-six-serving-daily-routine/"><u>PetSafe Automatic Feeder for Pets: Perfectly Balanced, Six-Serving Daily Routine</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sandisk-clip-jam-review-compact-affordable-sound-pleasure/"><u>SanDisk Clip Jam Review: Compact, Affordable Sound Pleasure</u></a></li>
-<li><a href="https://win-alternatives.techidaily.com/windows-reparatur-leicht-gemacht-erfolgreiches-datenabrufen-nach-einem-startversagen-zwei-schnelle-methoden-erklart/"><u>Windows-Reparatur Leicht Gemacht: Erfolgreiches Datenabrufen Nach Einem Startversagen – Zwei Schnelle Methoden Erklärt</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-riches-in-pixels-identifying-the-best-12-sites-with-free-stock-photos/"><u>[New] Riches in Pixels Identifying the Best 12 Sites with Free Stock Photos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-hunters-choice-top-5-ultimate-shot-recording-gear/"><u>[Updated] Hunters' Choice Top 5 Ultimate Shot-Recording Gear</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-guide-to-vyncs-analytics-suite-trustworthy-features-met-with-convoluted-payment-plans/"><u>A Comprehensive Guide to Vyncs Analytics Suite: Trustworthy Features Met with Convoluted Payment Plans</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-new-era-of-high-def-in-depth-on-hps-z32-x-review-for-2024/"><u>A New Era of High-Def In Depth on HP’s Z32 X Review for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/comparing-generative-pre-trained-transformers-unveiling-the-distinctions-between-gpt-4-gpt-4-turbo-and-gpt-4o/"><u>Comparing Generative Pre-Trained Transformers: Unveiling the Distinctions Between GPT-4, GPT-4 Turbo & GPT-4o</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-the-pros-and-cons-of-genius-widecam-model-f100-featuring-pixel-distortion-and-acoustic-problems/"><u>Comprehensive Review: The Pros and Cons of Genius WideCam Model F100, Featuring Pixel Distortion & Acoustic Problems</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-amazing-facebook-cover-pictures-for-your-timeline/"><u>How to Create Amazing Facebook Cover Pictures for Your Timeline</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-samsung-galaxy-f34-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Samsung Galaxy F34 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-can-i-share-videos-on-facebook/"><u>In 2024, Can I Share Videos on Facebook?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/logitech-gaming-mouse-g602-setup-and-drivers-free-downloads-for-windows-users/"><u>Logitech Gaming Mouse (G602) Setup & Drivers: Free Downloads for Windows Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-face-off-determining-if-outlook-or-gmail-serves-you-best/"><u>The Ultimate Face-Off: Determining if Outlook or Gmail Serves You Best</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-in-depth-analysis-of-kobo-clara-colour-ebook-reader/"><u>Ultimate Guide: In-Depth Analysis of Kobo Clarа Colоur eBook Reader</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-secrets-of-the-logitech-c615-superior-quality-without-breaking-the-bank/"><u>Unveiling the Secrets of the Logitech C615: Superior Quality without Breaking the Bank</u></a></li>
 </ul></div>
 

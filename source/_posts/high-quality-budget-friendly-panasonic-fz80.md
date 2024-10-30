@@ -1,7 +1,7 @@
 ---
 title: "High-Quality, Budget-Friendly: Panasonic FZ80"
-date: 2024-10-17T16:56:30.114Z
-updated: 2024-10-24T19:51:59.446Z
+date: 2024-10-24T16:40:21.212Z
+updated: 2024-10-30T16:47:49.194Z
 categories:
   - BestProducts
 description: "This Article Describes High-Quality, Budget-Friendly: Panasonic FZ80"
@@ -72,13 +72,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Nostalgia trip**
 
  The Pruveeo F5 gives the immediate impression that it was constructed some time in the previous decade. Anyone who bought a bargain bin MP3 player from the aughts will instantly recognize the cheap plastic shell, the glossy, chintzy buttons, and a screen that screams early 21st century in big neon letters.
@@ -93,13 +86,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process:** **Simple, but poorly described**
 
  Setting up the Pruveeo F5 may not be a particularly complicated process, but it is complicated by the fact that the instruction manual doesn’t really tell you anything about the installation process. You’re mostly left to figure it out on your own.
@@ -113,10 +99,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Camera Quality: Extremely poor**
@@ -140,10 +126,16 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity and software: Mysteriously absent**
@@ -153,6 +145,13 @@ Lifewire / Andy Zahn
 ## **Price: Cheap if below MSRP**
 
  At its MSRP of $70 the Pruveeo F5 faces stiff competition, but fortunately it typically retails for about half that price, and in the $30-$50 range its a bargain. For around $40 it offers decent video capabilities and useful features despite its cheap exterior. Keep in mind that you must consider the price of a microSD card in the total cost, as one is necessary but not included.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Pruveeo F5 vs. Anker Roav C1**
 
@@ -165,6 +164,19 @@ Lifewire / Andy Zahn
 **Difficult to recommend.**
 
  The only reason not to completely write off the Pruveeo F5 as hot garbage is how frequently it’s on sale, but enough at a discount it’s not a great product. It’s only barely possible, given its limited capabilities, to use this as an aid for insurance claims in case of accidents. For all its faults we did find it to be reliable, and the video it captures marginally acceptable for its purpose, but there are so many better options available for slightly more money.
+
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -192,21 +204,22 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-essential-guide-best-top-10-fb-videos-on-android-downloader/"><u>[New] Essential Guide Best Top 10 FB Videos on Android Downloader</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-from-average-to-exceptional-discover-the-finest-free-intra-designs/"><u>[New] From Average to Exceptional Discover the Finest Free Intra Designs</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-daily-dharma-the-best-yoga-channels-for-self-growth/"><u>[Updated] In 2024, Daily Dharma The Best Yoga Channels for Self-Growth</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-tips-for-a-smooth-transition-into-vr-worlds/"><u>2024 Approved Tips for a Smooth Transition Into VR Worlds</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-lenovo-chromebook-duet-a-cost-effective-and-versatile-2-in-1-laptop-alternative/"><u>Comprehensive Guide to the Lenovo Chromebook Duet: A Cost-Effective and Versatile 2-in-1 Laptop Alternative</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-the-impressive-endurance-and-reliable-functionality-of-the-moto-g-play/"><u>Comprehensive Review: The Impressive Endurance and Reliable Functionality of the Moto G Play</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-stanley-j5c09-an-ample-workspace-with-robust-functionality/"><u>Exploring the Stanley J5C09: An Ample Workspace with Robust Functionality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/get-insight-into-the-amazing-capabilities-of-ambients-affordable-ws-2902a-osprey-weather-monitoring-system/"><u>Get Insight Into the Amazing Capabilities of Ambient's Affordable WS-2902A Osprey Weather Monitoring System</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Nokia G310 | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-about-samsung-galaxy-f34-5g-frp-bypass-by-drfone-android/"><u>In 2024, About Samsung Galaxy F34 5G FRP Bypass</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-full-guide-to-unlock-your-meizu-21-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Meizu 21</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-the-definitive-list-high-quality-costless-lut-options-explored/"><u>In 2024, The Definitive List High-Quality, Costless LUT Options Explored</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-how-does-the-high-security-12-sheet-amazonbasics-shredder-compare-to-others/"><u>In-Depth Review: How Does the High-Security 12-Sheet AmazonBasics Shredder Compare to Others?</u></a></li>
-<li><a href="https://fox-info.techidaily.com/streamlining-photo-and-video-transfer-from-android-for-2024/"><u>Streamlining Photo & Video Transfer From Android for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-lg-gram-17-revealed-how-this-lightweight-powerhouse-redefines-performance-laptops-expert-review/"><u>The LG Gram 17 Revealed: How This Lightweight Powerhouse Redefines Performance Laptops - Expert Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-film-enthusiasts-index-top-7-destinations-for-watching-upcoming-trailers/"><u>The Ultimate Film Enthusiast’s Index: Top 7 Destinations for Watching Upcoming Trailers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-optimize-social-media-visual-clarity-for-iphoneandroid-users/"><u>[New] 2024 Approved Optimize Social Media Visual Clarity for iPhone/Android Users</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-precision-editing-in-photopea-sculpting-cleaner-visual-space/"><u>[New] 2024 Approved Precision Editing in Photopea Sculpting Cleaner Visual Space</u></a></li>
+<li><a href="https://win-guides.techidaily.com/1-step-by-step-guide-capturing-tv-shows-and-movies-as-mp4-files-on-macwindows/"><u>1. Step-by-Step Guide: Capturing TV Shows & Movies as MP4 Files on Mac/Windows</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-taming-the-audio-in-your-canva-videos-step-by-step/"><u>2024 Approved Taming the Audio in Your Canva Videos Step by Step</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/adding-extra-ps3-memory-with-a-new-hdd/"><u>Adding Extra PS3 Memory with a New HDD</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/beach-pool-bliss-with-innovative-gadgets/"><u>Beach Pool Bliss with Innovative Gadgets</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-voip-services-can-vonage-keep-its-crown/"><u>Best VoIP Services - Can Vonage Keep Its Crown?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/capture-childhood-memories-effortlessly/"><u>Capture Childhood Memories Effortlessly</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-owc-mercury-pro-analysis-top-tier-reliability-meets-unmatched-velocity/"><u>Comprehensive OWC Mercury Pro Analysis: Top-Tier Reliability Meets Unmatched Velocity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/decoding-the-oneplus-8t-experience-exceptional-speed-overshadowed-by-mediocre-camera-quality/"><u>Decoding the OnePlus 8T Experience: Exceptional Speed Overshadowed by Mediocre Camera Quality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/decoding-tiny-titans-an-in-depth-galaxy-and-ford-f-150-remote-control-vehicle-analysis/"><u>Decoding Tiny Titans: An In-Depth Galaxy & Ford F-150 Remote Control Vehicle Analysis.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/differences-between-echo-dot-and-homepod-mini-a-comprehensive-comparison/"><u>Differences Between Echo Dot and HomePod Mini - A Comprehensive Comparison</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-vivo-s17-pro-lock-screen-password-by-drfone-android/"><u>How To Change Vivo S17 Pro Lock Screen Password?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-samsung-galaxy-a14-5g-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Samsung Galaxy A14 5G</u></a></li>
+<li><a href="https://driver-error.techidaily.com/make-your-seagate-hard-disk-visible-again-in-w10/"><u>Make Your Seagate Hard Disk Visible Again in W10</u></a></li>
+<li><a href="https://program-issues.techidaily.com/optimizing-your-experience-with-dying-light-2-on-pc-solutions-for-improved-fps-and-smooth-graphics/"><u>Optimizing Your Experience with Dying Light 2 on PC: Solutions for Improved FPS & Smooth Graphics</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Verdict on Sony DSC-W800 Quality & Price Ratio
-date: 2024-09-04T18:54:44.121Z
-updated: 2024-09-05T18:54:44.121Z
+date: 2024-10-23T16:15:19.759Z
+updated: 2024-10-30T16:31:21.822Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Verdict on Sony DSC-W800 Quality & Price Ratio
@@ -72,6 +72,13 @@ Lifewire / Andy Zahn
 
 ![Fossil Sport Smartwatch](https://www.lifewire.com/thmb/09nYIY5js64r3HdZV05shTtw6aI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fossil-Sport-Smart-Watch-3-596e9d29b0634b1a9abfa429e619733e.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
  The Fossil Sport is controlled using both a[touchscreen](https://www.lifewire.com/what-is-a-touchscreen-4144770) and three dedicated buttons. The central button features a rotating dial that’s great for scrolling through menus and notifications. The other two can be programmed as shortcuts to access different functions. It’s water-resistant down to 5 ATM, or 164 feet, though it’s not a diving watch.
@@ -79,17 +86,12 @@ Lifewire / Andy Zahn
  The Fossil Sport is one slick looking watch, and it’s impressively customizable.
 
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup process: Streamlined with lots of prompts**
 
  The Google Wear OS setup experience is decently streamlined, though be prepared to sit through plenty of prompts for the various permissions needed to fully utilize the capabilities of the Fossil Sport. Once you’ve got the Wear OS app installed on your phone, it will guide you through the pairing and setup processes. When you’re through with this initial setup, the other aspects of the watch (like Google Fit, apps,[Bluetooth](https://www.lifewire.com/what-is-bluetooth-2377412) headphone connections, etc.) require their own separate setup processes.
@@ -97,25 +99,20 @@ Lifewire / Andy Zahn
 ![Fossil Sport Smartwatch](https://www.lifewire.com/thmb/DdOVg5yJzQTRZs3QPo_qPoBT7mA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fossil-Sport-Smart-Watch-4-653a372a18904e089de460ed88380344.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Comfort: Highly adjustable**
 
  I appreciated that Fossil included a watch band large enough to fit my extra-large 9-inch wrists with room to spare. I found it comfortable to wear all day long; its lightweight prevented it from being overly burdensome on my wrist.
@@ -126,38 +123,14 @@ Lifewire / Andy Zahn
 
  The 1.2-inch 390 PPI AMOLED display is wonderfully crisp, clear, and bright enough to see even in strong sunlight. It’s so pretty to look at with deep blacks and bright colors that I found myself occasionally glancing at the watch just to enjoy this startlingly nice screen.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Battery: 24-hour power**
 
  I found that I was easily able to get through a day or two without having to recharge the Fossil Sport. Its 24-hour battery claim is accurate under average daily use conditions. Once you do run the battery down, the watch switches into a battery saver mode where only the time is displayed. In this mode, you can expect a week's worth of battery life.
 
 ![Fossil Sport Smartwatch](https://www.lifewire.com/thmb/a8TojyXavE05a-LRkRQauxY7ChM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fossil-Sport-Smart-Watch-2-cb6ea34d0ed1441c8c0dac4542d0dd1d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: The Highs and Lows of Wear OS**
 
  Fossil Sport utilizes Google’s[WearOS](https://www.lifewire.com/best-tips-and-tricks-for-wear-os-4583030) , which is something of a double-edged sword. On one hand, WearOS supports a range of devices, which means the Fossil Sport isn’t dependent upon a closed ecosystem. On the other hand, I had some issues with the compatibility of WearOS apps on Fossil Sport.
@@ -170,9 +143,23 @@ Lifewire / Andy Zahn
 
  Just because an app runs on WearOS, this doesn’t mean it will run flawlessly on any WearOS device.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: An excellent value**
 
  Since launch, the MSRP of the Vivoactive 3 Music has plummeted from $275 to just $99, making it a genuine bargain. The watch is ridiculously high quality for such a low price.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Fossil Sport vs. Garmin Vivoactive 3 Music**
 
@@ -206,8 +193,6 @@ Lifewire / Andy Zahn
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -215,4 +200,16 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unveiling-the-secrets-of-facebook-videos/"><u>[Updated] Unveiling the Secrets of Facebook Videos</u></a></li>
+<li><a href="https://extra-information.techidaily.com/dynamic-portraits-techniques-for-effective-motion-blur-using-picsart/"><u>Dynamic Portraits Techniques for Effective Motion Blur Using Picsart</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fixing-the-madden-2am-20-game-crash-bug-on-windows-step-by-step-solution/"><u>Fixing the Madden 2Am 20 Game Crash Bug on Windows - Step by Step Solution</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-enter-the-ispoofer-discord-server-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, How to enter the iSpoofer discord server On Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/linkedin-plus-a-thoughtful-investment-for-networking-enthusiasts/"><u>LinkedIn Plus: A Thoughtful Investment for Networking Enthusiasts?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-amazfit-bip-unveiled-an-incredible-introduction-to-smartwatches-on-a-budget/"><u>The Amazfit Bip Unveiled: An Incredible Introduction to Smartwatches on a Budget</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-nvidia-shield-tv-pro-gamers-dream-in-one-box/"><u>Ultimate Guide: Nvidia Shield TV Pro - Gamer's Dream in One Box</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlock-your-digital-potential-with-the-new-ipad-air-10th-generation-at-only-250-post-apple-announcement-insights/"><u>Unlock Your Digital Potential with the New iPad Air (10Th Generation) at Only $250 Post-Apple Announcement - Insights</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/win-10-how-to-reconnect-to-wi-fi/"><u>Win 10: How to Reconnect to Wi-Fi?</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: In-Depth Review of Microsoft's Ergonomic Keyboard - A Look at Quality, Features, and User Experience
-date: 2024-10-20T19:42:08.987Z
-updated: 2024-10-24T17:00:14.121Z
+date: 2024-10-26T16:16:58.801Z
+updated: 2024-10-30T16:42:35.370Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Review of Microsoft's Ergonomic Keyboard - A Look at Quality, Features, and User Experience
@@ -47,22 +47,15 @@ Lifewire / Emily Isaacs
 4.4
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -84,13 +77,6 @@ Lifewire / Emily Isaacs
 
  You can tell Microsoft put a considerable amount of thought into the Sculpt Ergonomic Keyboard’s design. From the manta ray style folds, which keep shoulders and hands at a relaxed, comfortable angle, to the detached numpad and magnetized risers for increased customization options when you want them, the Sculpt is quite the package. As with anything new, it took a period of adjustment, but we found it relatively quick thanks to the intuitive, easy-to-use design.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Made for comfort**
 
  The Sculpt is an ergonomic keyboard with a split design akin to that of a manta ray. The two halves of the keyboard sweep outwards and downwards creating an empty, raised space in the center of its swoop design. Its keys vary in size, with those nearest to the split being slightly wider than those on the outer edges of the keyboard. It’s largely made with plastic and has a bit of a clacky sound as you type. The Sculpt employs a standard layout with a fabric wrist pad at the front for extra comfort. This intuitive, split design combined with the wrist pad help your wrists, hands, and shoulders sit at a neutral, natural angle in order to[alleviate repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) that frequent typists are prone to over time.
@@ -105,15 +91,36 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
@@ -155,13 +162,6 @@ Lifewire / Emily Isaacs
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  Sculpt Ergonomic Keyboard
@@ -192,16 +192,16 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/updated-in-depth-the-full-spectrum-of-toolwiz-apps-capabilities-2023/"><u>[Updated] In Depth The Full Spectrum of Toolwiz App's Capabilities, 2023</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-the-insiders-guide-to-flawless-game-recordings-on-playstation-4/"><u>[Updated] The Insider’s Guide to Flawless Game Recordings on PlayStation 4</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/using-macxdvdusing-macxdvd/"><u>[Using MacXDVD](#using-MacXDVD)</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-nokia-g22-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Nokia G22 to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-cyberpower-cp6-essential-backup-unit-evaluation/"><u>Comprehensive Review of the CyberPower CP6# - Essential Backup Unit Evaluation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/conquering-paradise-a-strategic-review-of-tropico-6s-political-intrigues-and-island-management/"><u>Conquering Paradise - A Strategic Review of Tropico 6'S Political Intrigues and Island Management</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/getting-the-most-out-of-your-hyperx-cloud-headset-fixing-microphone-malfunctions/"><u>Getting the Most Out of Your HyperX Cloud Headset: Fixing Microphone Malfunctions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-fitbits-inspire-hr-tracker-for-non-stop-daily-use/"><u>In-Depth Analysis of Fitbit's Inspire HR Tracker for Non-Stop Daily Use</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/its-suitable-for-various-metals-including-stainless-steel-aluminum-and-titanium/"><u>It's Suitable for Various Metals, Including Stainless Steel, Aluminum, and Titanium.</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/smooth-start-gradual-appearance-for-2024/"><u>Smooth Start Gradual Appearance for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-list-of-high-performance-portable-batteries-for-laptops-2024-edition/"><u>Ultimate List of High-Performance Portable Batteries for Laptops - 2024 Edition</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-top-transcoding-approaches-to-boost-zoom-videos/"><u>[New] In 2024, Top Transcoding Approaches to Boost Zoom Videos</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-top-12-game-choices-for-the-ultimate-pc-clicking-journey/"><u>[Updated] In 2024, Top 12 Game Choices for the Ultimate PC Clicking Journey</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-audio-accentuation-tunes-for-visual-projects/"><u>2024 Approved Audio Accentuation Tunes for Visual Projects</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-instagrams-video-spin-what-causes-it/"><u>2024 Approved Instagram's Video Spin What Causes It?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/boost-your-wi-fi-range-with-confidence-a-thorough-evaluation-of-the-netgear-ex6200-ac1200-extender/"><u>Boost Your Wi-Fi Range with Confidence - A Thorough Evaluation of the Netgear EX6200 AC1200 Extender</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-the-apc-back-ups-pro-1500va-robust-power-reserve-numerous-connection-ports-and-hot-swappable-battery-system/"><u>Inside the APC Back-UPS Pro 1500VA - Robust Power Reserve, Numerous Connection Ports & Hot Swappable Battery System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/solution-a-non-responsive-result-could-be-due-to-transient-pulpal-changes-from-trauma-and-further-evaluation-or-repeat-testing-may-be-necessary-once-the-pul63/"><u>Solution: A Non-Responsive Result Could Be Due to Transient Pulpal Changes From Trauma, and Further Evaluation or Repeat Testing May Be Necessary Once the Pulp Has Recovered.</u></a></li>
+<li><a href="https://fox-http.techidaily.com/taking-your-photos-to-new-heights-mastering-ios-11s-features/"><u>Taking Your Photos to New Heights Mastering iOS 11'S Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-differences-between-iphone-15-pro-and-iphone-15-pro-max-models/"><u>Unveiling Differences Between iPhone 15 Pro and iPhone 15 Pro Max Models</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-features-of-the-49-inch-ultra-hd-smart-led-sony-bravia-in-depth-review/"><u>Unveiling the Features of the 49-Inch Ultra HD Smart LED Sony Bravia: In-Depth Review</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1726224298999-mp4ogv-movavi/"><u>オンラインでのフリーMP4とOGV形式変換 - Movavi</u></a></li>
 </ul></div>
 

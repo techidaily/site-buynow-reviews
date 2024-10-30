@@ -1,7 +1,7 @@
 ---
 title: "Value for Money E-Reader: A Detailed Examination of the 2019 Kindle on Amazon"
-date: 2024-10-17T21:13:22.370Z
-updated: 2024-10-24T20:27:34.202Z
+date: 2024-10-24T16:16:22.200Z
+updated: 2024-10-30T16:14:04.475Z
 categories:
   - BestProducts
 description: "This Article Describes Value for Money E-Reader: A Detailed Examination of the 2019 Kindle on Amazon"
@@ -45,22 +45,21 @@ Lifewire / Jeremy Laukkonen
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Amazon Luna
 
 ![Amazon Luna](https://www.lifewire.com/thmb/NT3lnZ3hOwaGUbS2tHARE7zRT1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_Hero_Square-cced3e5a3d3e4d24af1b85a59c76932d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -88,6 +87,13 @@ Lifewire / Jeremy Laukkonen
 
  Luna is an impressive service with what seems like solid underlying tech right out of the gate. The biggest questions seem to be how and when Amazon will go about filling holes in the library, how well the service will work when they eventually roll out 4K streaming, and whether we’ll see better Android support in the future.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design and Controls: Decent enough app and a nearly flawless controller
 
  Luna isn’t a traditional game console, so there isn’t much design to speak of in terms of hardware. The two important elements here are the Luna app, which operates as an Android app on Fire TV and a web app in[Chrome](https://www.lifewire.com/what-is-google-chrome-4687647) and[Safari](https://www.lifewire.com/what-is-safari-4173608) , and the controller that’s technically optional.
@@ -104,6 +110,13 @@ Lifewire / Jeremy Laukkonen
 
 ![Amazon Luna](https://www.lifewire.com/thmb/jNDwaMGOVuF5UIISPsmdb5uQdGU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_04-985a4419a93945d2879b09d61fafae5a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
  In addition to the offset analog sticks, the Luna controller also features a fairly standard array of buttons. A somewhat mushy directional pad sits below the left analog stick, and four familiar face buttons sit above the right stick. The triggers are fairly shallow but feel responsive, and shoulder buttons are easily accessed without moving your fingers off the triggers. In addition to the standard array, the Luna controller also includes a microphone button to access Alexa.
@@ -115,6 +128,13 @@ Lifewire / Jeremy Laukkonen
  In terms of ports, the Luna controller includes a USB-C port for charging and connectivity and a 3.5mm port for plugging in your favorite set of headphones or earbuds. At the back, you’ll find a removable battery cover, as the controller is powered by two AA batteries.
 
  Overall, the Luna controller has quickly become one of my favorite alternatives to the Xbox One or Xbox Series X/S controller; the only real issues being the mushy d-pad and the texture of the analog sticks. I ended up snapping on some performance thumb grips, which worked great.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Setup Process: Quick and easy
 
@@ -129,19 +149,6 @@ Lifewire / Jeremy Laukkonen
  If you do opt to link your controller to your Amazon account when you buy it, and you already own other Amazon devices like[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) that are connected to your Wi-Fi connection, then you can take advantage of Amazon’s Wi-Fi simple setup that shaves some time off the setup process. Otherwise, you just use the Luna controller app on your Android or iPhone to hook the controller up to Wi-Fi.
 
  After the initial setup process, your Luna controller is ready to go regardless of platform. Power on the controller, launch the Luna app or website, and everything automatically connects without any additional work or input.
-
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Performance: Impressive game streaming, but no 4K
 
@@ -163,13 +170,6 @@ Lifewire / Jeremy Laukkonen
 
  If you have a slow internet connection or suffer from poor connectivity, then it’s likely that the brief issues I experienced could be amplified to an unacceptable point. If you have a decent connection, live closer to a major metropolitan area than I do, and have more than 10Mbps of downstream bandwidth available, the service should work just fine.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Software: Dozens of games, but the library is a bit thin with a lot of holes
 
  Luna’s biggest issue, and its biggest question mark going forward, is its streaming library. Amazon is taking a page from Microsoft’s book in that they’re trying to function as a Netflix of game streaming, but Amazon just doesn’t have the same deep library as Microsoft.
@@ -181,6 +181,13 @@ Lifewire / Jeremy Laukkonen
  During the beta period, the basic Luna subscription gets you access to 70 games, with an additional two dozen games locked behind the Ubisoft+ subscription. The 70 games included with the basic subscription offer a ton of entertainment value, but most genres are woefully underrepresented, and others are missing altogether. For example, fans of fighting games won’t find anything to rally behind here.
 
 ![Amazon Luna](https://www.lifewire.com/thmb/NBB1N6qtwbtdjrUgwr1YaBaTuBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_02-37837bf860d244d3ab11ff01f37c609c-db472e204ada4ccca88e7510eacfae34.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -218,13 +225,6 @@ Lifewire / Jeremy Laukkonen
 * [Sony DualSense Wireless Controller](https://www.lifewire.com/sony-dualsense-wireless-controller-review-feel-the-quality-5101639)
 * [Xbox One Elite Controller](https://www.lifewire.com/xbox-one-elite-controller-review-4770957)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  Luna
@@ -255,16 +255,20 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-hitching-a-ride-on-stream-success-obs-plus-zoom-for-2024/"><u>[New] Hitching a Ride on Stream Success OBS + Zoom for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-a-step-by-step-guide-to-embedding-timestamp-metadata/"><u>[Updated] A Step-by-Step Guide to Embedding Timestamp Metadata</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-mapping-your-marketing-journey-on-youtube/"><u>[Updated] In 2024, Mapping Your Marketing Journey on YouTube</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-hardware-hurdles-whats-necessary-for-big-sur/"><u>2024 Approved Hardware Hurdles What's Necessary for Big Sur?</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/discover-how-to-utilize-openais-revolutionary-gpt-store-beginners-tutorial-inside/"><u>Discover How to Utilize OpenAI's Revolutionary GPT Store - Beginner's Tutorial Inside</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-elegance-and-excellence-a-thorough-critique-of-the-elite-class-samsung-galaxy-s1/"><u>Experience Elegance and Excellence: A Thorough Critique of the Elite-Class Samsung Galaxy S1</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/homecoming-haven-crafting-comfortable-animal-kingdoms/"><u>Homecoming Haven: Crafting Comfortable Animal Kingdoms</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/next-gen-tech-on-your-face-explore-the-elite-lineup-of-smart-glasses/"><u>Next-Gen Tech on Your Face: Explore the Elite Lineup of Smart Glasses</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sonys-walkman-model-analysis-design-dilemmnas/"><u>Sonys Walkman Model Analysis: Design Dilemmnas</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stand-up-to-fitness-with-the-cubefit-terramat-a-comprehensive-review-for-busy-professionals/"><u>Stand Up to Fitness with the CubeFit TerraMat: A Comprehensive Review for Busy Professionals</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/thorough-review-of-videoshow-24-features-and-updates/"><u>Thorough Review of VideoShow '24 Features & Updates</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-mouthwatering-masters-culinary-youtube-experts/"><u>[Updated] Mouthwatering Masters Culinary YouTube Experts</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-the-ultimate-guide-for-iphone-screen-taping-for-2024/"><u>[Updated] The Ultimate Guide for iPhone Screen Taping for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-abbreviated-action-sequences-script/"><u>2024 Approved Abbreviated Action Sequences Script</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-affordable-setups-tailored-obs-for-budget-computers/"><u>2024 Approved Affordable Setups Tailored OBS for Budget Computers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-poco-c51-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Poco C51 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/boost-your-efficiency-with-apples-latest-release-the-ipad-10nch-changes-everything/"><u>Boost Your Efficiency with Apple's Latest Release - The iPad 10.nch Changes Everything</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/conquer-power-shortages-the-beatit-bt-d11s-mighty-performance-unveiled/"><u>Conquer Power Shortages: The Beatit BT-D11's Mighty Performance Unveiled!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-skagen-falster-2-classy-tech-choice-versus-apple-gadgets/"><u>Exploring the Skagen Falster 2 - Classy Tech Choice Versus Apple Gadgets</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-data-from-iphone-13-pro-using-stellar-data-recovery-for-iphone-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Data from iPhone 13 Pro using Stellar Data Recovery for iPhone? | Stellar</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-samsung-galaxy-z-flip-5-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Samsung Galaxy Z Flip 5 to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-road-safety-expert-review-of-the-learn-as-you-drive-escort-ix-device/"><u>Navigating Road Safety: Expert Review of the Learn-As-You-Drive Escort iX Device</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/steps-to-become-a-live-spectator-on-tiktok/"><u>Steps to Become a Live Spectator on TikTok</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-budget-option-for-health-monitoring-dive-into-our-fitbit-versa-lite-review/"><u>The Best Budget Option for Health Monitoring? Dive Into Our Fitbit Versa Lite Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-trick-for-gamesharing-securely-with-friends-using-an-xbox-one-system/"><u>The Ultimate Trick for Gamesharing Securely With Friends Using an Xbox One System</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/ultimate-buyers-list-for-the-most-effective-wi-fi-cards-of-2024/"><u>Ultimate Buyer's List for the Most Effective Wi-Fi Cards of 2024</u></a></li>
 </ul></div>
 

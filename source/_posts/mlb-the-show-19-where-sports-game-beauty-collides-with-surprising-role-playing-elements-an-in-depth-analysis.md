@@ -1,7 +1,7 @@
 ---
 title: "'MLB The Show 19' - Where Sports Game Beauty Collides with Surprising Role-Playing Elements: An In-Depth Analysis"
-date: 2024-10-19T16:44:27.004Z
-updated: 2024-10-24T20:59:35.579Z
+date: 2024-10-29T16:44:15.344Z
+updated: 2024-10-30T16:37:11.251Z
 categories:
   - BestProducts
 description: "This Article Describes 'MLB The Show 19' - Where Sports Game Beauty Collides with Surprising Role-Playing Elements: An In-Depth Analysis"
@@ -45,9 +45,29 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/o0LkMzwRLq9UDT8tBDJerDIsp8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -67,13 +87,6 @@ Lifewire / Erika Rawes
 * [Specs](https://www.lifewire.com/#toc-full-spec)
 
  The TP-Link Archer C80 is an affordable[long range router](https://www.lifewire.com/best-long-range-routers-4122554) that should be ideal for medium-sized homes. With 3x3[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , parental controls, and remote control using TP-Link’s Tether app, the Archer C80 has a few admirable features for a router under $100, but it also lacks some of the things we’ve come to expect in a router in this price range (like smart assistant compatibility and no USB port). I tested the TP-Link Archer C80 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment when compared to other budget routers on the market.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Design: Basic, but effective**
 
@@ -99,13 +112,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Network Performance: Fast speeds, No USB port**
 
  Although this is a low to mid-tier level device, I was quite impressed with its speed and performance. I live in a suburb about 20 minutes away from Raleigh, NC, and I have Spectrum as my internet service provider. The Wi-Fi speeds in my home max out at 400 Mbps. I have a smart box that sits in a utility closet where the router connects. I mounted the router on the wall in that closet, which has a solid door that acts as an immediate signal obstruction. In spite of the presence of this solid door, I was still able to get between 340 and 350 Mbps all throughout the entire downstairs (on the 5GHz band). On the 2.4GHz band, I could get up to 90Mbps all throughout the first floor and in my garage.
@@ -114,34 +120,13 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Range: Even better than advertised**
 
  TP-Link advertises the C80 as a router for three-bedroom homes. However, that estimate understates the router’s range capabilities. My home is a two-story, 3,000 square-foot residence with five-bedrooms, and I was able to maintain a stable Wi-Fi connection in every corner. Every closet, bathroom, and bedroom got a steady signal, and I experienced no dead zones whatsoever. Even in the garage, front yard, and backyard, the signal remained strong. It was only when I attempted to use multiple gaming and streaming devices at one time that I experienced any sort of lag.
 
  Every closet, bathroom, and bedroom maintained a signal, and I experienced no dead zones whatsoever.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: TP-Link Tether app**
 
@@ -155,9 +140,23 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Around 100 bucks**
 
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **TP-Link Archer C80 vs. TP-Link Archer A9**
 
@@ -168,6 +167,13 @@ Lifewire / Erika Rawes
 **Fast speeds and an exceptionally long range.**
 
  Even though it lacks a USB port, the Archer C80 puts out impressive speeds over a long range in homes with light to medium networking capacity. For homes that have several people streaming, gaming, and working on cloud applications, they’ll want something more high octane.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -204,20 +210,18 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-unraveling-the-mystery-of-where-to-find-top-ranked-instagram-ringtones-and-craft-perfect-alarms/"><u>[New] In 2024, Unraveling the Mystery of Where to Find Top-Ranked Instagram Ringtones & Craft Perfect Alarms</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-unlocking-the-potential-of-your-phone-and-dslr-for-igtv-videos-for-2024/"><u>[New] Unlocking the Potential of Your Phone & DSLR for IGTV Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-boost-views-through-effective-youtube-thumbnail-selection-for-2024/"><u>[Updated] Boost Views Through Effective YouTube Thumbnail Selection for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-optimal-video-player-best-availability-on-multiple-systems/"><u>[Updated] Optimal Video Player Best Availability on Multiple Systems</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/converti-file-tga-a-formato-jpeg-online-gratuitamente-con-movavi/"><u>Converti File TGA a Formato JPEG Online Gratuitamente Con Movavi</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exclusive-insights-how-amazon-prime-members-can-benefit-from-toshibes-55lf711u20-fire-edition-tv/"><u>Exclusive Insights: How Amazon Prime Members Can Benefit From Toshibe's 55LF711U20 Fire Edition TV</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-on-amplifi-hd-wireless-router-range-extender-bid-farewell-to-dead-zones/"><u>Expert Analysis on Amplifi HD Wireless Router Range Extender: Bid Farewell to Dead Zones</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-evaluation-of-the-high-quality-12mp-docooler-usb-20-camera-surprisingly-exceptional/"><u>Expert Evaluation of the High-Quality 12MP Docooler USB 2.0 Camera: Surprisingly Exceptional</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Poco F5 5G | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-motorola-edge-40-pro-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Motorola Edge 40 Pro Pattern Lock Screen</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-the-dual-capabilities-of-the-netgear-c37er-cable-modem-and-router/"><u>In-Depth Analysis: The Dual Capabilities of the Netgear C37er Cable Modem and Router</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-the-ipad-air-a-worthy-contender-against-the-ipad-pro-an-in-depth-review/"><u>Is the iPad Air a Worthy Contender Against the iPad Pro? An In-Depth Review</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/laptoppc-editors-steer-clear-of-inshot-for-2024/"><u>Laptop/PC Editors Steer Clear of Inshot for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximize-your-productivity-with-the-best-keyboard-cushion-options-of-2024/"><u>Maximize Your Productivity with the Best Keyboard Cushion Options of 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/unveiling-the-game-changer-samsung-ue590-4k-monitor/"><u>Unveiling the Game Changer - Samsung UE590 4K Monitor</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-ultimate-oculus-rift-game-hits-of-the-season/"><u>[New] 2024 Approved Ultimate Oculus Rift Game Hits of the Season</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-step-by-step-tutorial-for-efficient-video-capturing-via-zd-for-2024/"><u>[Updated] Step-by-Step Tutorial for Efficient Video Capturing via ZD for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/4k-video-powerhouse-panasonic-wxf991/"><u>4K Video Powerhouse: Panasonic WXF991</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comparative-study-economical-yet-effective-pet-cameras/"><u>A Comparative Study: Economical Yet Effective Pet Cameras</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-y36-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Y36?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-honor-play-7t-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Honor Play 7T Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-art-of-playlist-portability-service-to-service-swap/"><u>In 2024, The Art of Playlist Portability Service to Service Swap</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/mx/"><u>MXプレーヤー用コーデックダウンロード＆設置手順: 任意の動画形式再生可能に！</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/by-step-solution-for-non-shown-shorts-thumbnails-on-youtube/"><u>Step-by-Step Solution for Non-Shown Shorts Thumbnails on YouTube</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1723006393681-troubleshoot-and-master-discord-setup-no-more-failures/"><u>Troubleshoot and Master Discord Setup – No More Failures!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-nintendo-switch-guide-top-choice-in-portable-gaming/"><u>Ultimate Nintendo Switch Guide: Top Choice in Portable Gaming</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unexpected-revelations-in-ufo-logic-by-aminy/"><u>Unexpected Revelations in UFO Logic by Aminy</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-the-nintendo-switch-stands-out-a-detailed-overview-of-handheld-gamings-finest/"><u>Why the Nintendo Switch Stands Out: A Detailed Overview of Handheld Gaming's Finest</u></a></li>
 </ul></div>
 

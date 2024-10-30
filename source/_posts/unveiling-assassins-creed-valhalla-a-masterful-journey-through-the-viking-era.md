@@ -1,7 +1,7 @@
 ---
 title: "Unveiling Assassin's Creed: Valhalla – A Masterful Journey Through the Viking Era"
-date: 2024-10-17T16:12:00.541Z
-updated: 2024-10-24T16:41:36.703Z
+date: 2024-10-27T16:08:04.601Z
+updated: 2024-10-30T16:40:26.564Z
 categories:
   - BestProducts
 description: "This Article Describes Unveiling Assassin's Creed: Valhalla – A Masterful Journey Through the Viking Era"
@@ -47,6 +47,13 @@ Lifewire / Yoona Wagener
 
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/N-GQ6pPXvhJw5LQ_NHsY_n8NkZQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_HeroSquare-666cef27669e4f4ea53d69a546098b20.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
 [View On Amazon $120](https://www.amazon.com/dp/B08BRFWGMC/?tag=lifewire-onsite-prod-20&ascsubtag=5120915%7Cnc635061288084b3aac8ef97dc66e8cb722%7CB08BRFWGMC) [View On Walmart $170](https://www.walmart.com/ip/753687122) [View On Adorama.com $300](https://www.adorama.com/mbp10320003a.html)
@@ -77,13 +84,6 @@ Lifewire / Yoona Wagener
 
  The all-black build and face design gives this watch a sporty feel, extended by the two large buttons that serve as handy controls for launching workouts or waking the display. This display is also touch-responsive, which I found functioned well generally. There were moments when taps and swipes didn't seem to register immediately. These incidents were infrequent and minor when compared to the general user-friendliness of the device.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Comfort: Bulky for extended wear
 
  The TicWatch Pro 3 shed some weight from its previous iteration, making it slimmer and lighter overall, according to Mobvoi. Still, the stainless steel face isn't exactly light at 1.48 ounces. The display also measures nearly 1.9 inches across and about 0.5 inches deep. Those dimensions presented challenges for my 5.5-inch wrist.
@@ -102,6 +102,13 @@ Lifewire / Yoona Wagener
 
 Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Performance: A well-rounded wearable
 
  The Ticwatch Pro 3 comes with a bundle of handy native features such as a flashlight, calculator, alarm clock, and hand-washing timer. Thoughtful extras include built-in[Google Assistant](https://www.lifewire.com/what-is-google-assistant-4120911) , weather updates, calendar notifications,[NFC](https://www.lifewire.com/what-is-nfc-832715) pay via[Google Pay](https://www.lifewire.com/how-to-pay-with-google-4163418) , and wellness-oriented tools to track exercise and other essentials such as resting heart rate, blood oxygen saturation (SPO2) levels, and sleep.
@@ -110,23 +117,9 @@ Lifewire / Yoona Wagener
 
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/24UwZRaSR9Dx9_LbhC0ICDpEF2s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_03-35584bf0589a4ad19fcd9280d973018c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Yoona Wagener
 
  Sleep data was a little inconsistent in terms of when the device detected sleep. Sometimes the sleep start times were a couple of hours off. Generally, I was pleased with the presentation of sleep and exercise data. It's easy enough to glance at results from the watch and entirely forego a companion app.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Software: Feature overlap creates some confusion
 
@@ -148,6 +141,13 @@ Lifewire / Yoona Wagener
 
  The TicWatch Pro 3 does have 8GB of onboard storage, which makes this watch attractive for Android smartphone users who want to use it for onboard music storage. Apps like NavMusic make this easy. Android users also have easier control over and access to third-party fitness, productivity, and other useful apps from the[Google Play](https://www.lifewire.com/what-is-google-play-1616720) store than iOS users—who will likely find this a bit clunky to manage.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Battery: Solid 72-hour longevity
 
  Mobvoi touts the 72-hour battery life of the TicWatch Pro 3 in smart mode, and it delivers. I used the TicWatch Pro 3 exclusively in this highly connected mode, including a workout a day, and this watch was still chugging along by day three. Of course, battery performance always varies depending on usage. I didn't run any extra apps, store and play music, or leave the display to the always-on setting, which all helped me reach the three-day mark.
@@ -160,14 +160,14 @@ Lifewire / Yoona Wagener
 
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/O2h1ls6gDrmzljZ5SvO0QEkrLIE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_02-03e93150d27d41f89e14d807aad2d10d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Price: A bit costly for those missing a few premium features
 
@@ -191,18 +191,18 @@ Lifewire / Yoona Wagener
 
  The Mobvoi TicWatch Pro 3 GPS is a sporty, sleek smartwatch with good looks and great battery life. While the larger profile won't fit everyone, Android users, in particular, will find a lot to enjoy about this customizable wearable that functions as a daily workout tracker, smartwatch companion, and reliable time-telling accessory.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Apple Watch SE](https://www.lifewire.com/apple-watch-se-review-5088223)
 * [Garmin Vivomove HR](https://www.lifewire.com/garmin-vivomove-hr-review-4843913)
 * [Mobvoi TicWatch Pro 4G LTE](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -239,20 +239,22 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ed-seamless-integration-of-youtube-melodies-into-imovie/"><u>[Updated] Seamless Integration of YouTube Melodies Into iMovie</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-step-by-step-privacy-adjustments-for-youtube/"><u>[Updated] Step-by-Step Privacy Adjustments for YouTube</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/apple-watch-series-9-versus-fitbit-charge-6-a-comprehensive-head-to-head-review/"><u>Apple Watch Series 9 Versus Fitbit Charge 6: A Comprehensive Head-to-Head Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/cyberpowers-uninterruptible-power-supply-for-beginners-a-look-into-the-cp685avrg-model/"><u>Cyberpower's Uninterruptible Power Supply for Beginners - A Look Into the CP685AVRG Model</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expand-your-wireless-network-with-the-tp-link-ac1200-wifi-signal-amplifier-re305-overview/"><u>Expand Your Wireless Network with the TP-Link AC1200 WiFi Signal Amplifier RE305 Overview</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/harnessing-the-potential-of-ipados-the-new-era-of-workplace-productivity-begins-with-apples-latest-ipad-102-7th-gen/"><u>Harnessing the Potential of iPadOS: The New Era of Workplace Productivity Begins with Apple's Latest iPad 10.2 (7Th Gen)</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-boost-volume-levels-on-your-pc-running-windows-11/"><u>How to Boost Volume Levels on Your PC Running Windows 11</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Realme GT Neo 5 | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-change-your-apple-id-on-iphone-14-plus-with-or-without-password-drfone-by-drfone-ios/"><u>How To Change Your Apple ID on iPhone 14 Plus With or Without Password | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-6-plus-to-other-iphone-13-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 6 Plus To Other iPhone 13 devices? | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-distinguished-pioneers-elite-insta-hlv-page-builders/"><u>In 2024, Distinguished Pioneers Elite Insta HLV Page Builders</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-nokia-c02-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Nokia C02 | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/review-of-philips-hf3505-sunrise-alarm-essential-timepiece-evaluation/"><u>Review of Philips HF3505 Sunrise Alarm - Essential Timepiece Evaluation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sony-wma-nw78-audio-evolution-review/"><u>Sony WMA-NW78 - Audio Evolution Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-complete-guide-to-choosing-a-google-wireless-nest-doorbell-battery-version/"><u>The Complete Guide to Choosing a Google Wireless Nest Doorbell (Battery Version)</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-androids-heartfelt-3ds-gaming-alternatives/"><u>[New] Android's Heartfelt 3DS Gaming Alternatives</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-one-click-coordination-sync-your-zoom-calls-across-devices/"><u>[New] One-Click Coordination Sync Your Zoom Calls Across Devices</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-simplified-social-syncing-from-instagram-to-facebook/"><u>[Updated] 2024 Approved Simplified Social Syncing From Instagram To Facebook</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-the-art-of-adding-audio-to-visual-content-for-facebook-sharing/"><u>[Updated] 2024 Approved The Art of Adding Audio to Visual Content for Facebook Sharing</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-brief-scene-structure-summary/"><u>[Updated] Brief Scene Structure Summary</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-deciphering-instagrams-video-limit-rules-for-2024/"><u>[Updated] Deciphering Instagram's Video Limit Rules for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/avoiding-issues-graphics-cards-and-windows-8s-safe-mode-journey/"><u>Avoiding Issues: Graphics Cards and Windows 8'S Safe Mode Journey</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-kootek-laptop-fan-the-ultimate-versatile-solution/"><u>Comprehensive Review of the Kootek Laptop Fan: The Ultimate Versatile Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dive-into-the-latest-fortnite-adventure-engaging-reviews-of-the-newest-season/"><u>Dive Into the Latest Fortnite Adventure: Engaging Reviews of the Newest Season</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-garmin-forerunner-945-why-its-a-leader-in-gps-sporting-wearables/"><u>Expert Analysis of the Garmin Forerunner 945: Why It's a Leader in GPS Sporting Wearables</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/finding-lost-items-made-easy-with-apple-airtag-a-detailed-assessment/"><u>Finding Lost Items Made Easy with Apple AirTag: A Detailed Assessment</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/from-exclusive-to-inclusive-demystifying-how-gpt-n-is-revolutionizing-global-usage/"><u>From Exclusive to Inclusive: Demystifying How GPT-N Is Revolutionizing Global Usage</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/m06s-bluetooth-excellence-a-sonic-review-insight/"><u>M06's Bluetooth Excellence - A Sonic Review Insight</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/propella-7s-40-overview-effortlessly-portable-swiftly-operational-affordably-priced/"><u>Propella 7S 4.0 Overview: Effortlessly Portable, Swiftly Operational, Affordably Priced</u></a></li>
+<li><a href="https://techtrends.techidaily.com/resolving-no-matches-found-issues-a-guide-to-succeeding-on-bumble/"><u>Resolving 'No Matches Found' Issues: A Guide to Succeeding on Bumble</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-choosing-your-console-nintendo-switch-lite-vs-nintendo-switch-oled/"><u>The Ultimate Guide to Choosing Your Console: Nintendo Switch Lite vs Nintendo Switch OLED</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-ranking-the-finest-document-and-photograph-scanners-of-24/"><u>Ultimate Ranking: The Finest Document & Photograph Scanners of '24</u></a></li>
 </ul></div>
 

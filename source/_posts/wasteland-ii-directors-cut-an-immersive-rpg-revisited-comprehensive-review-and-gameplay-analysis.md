@@ -1,7 +1,7 @@
 ---
 title: "Wasteland II Director's Cut: An Immersive RPG Revisited – Comprehensive Review and Gameplay Analysis"
-date: 2024-10-19T20:43:34.035Z
-updated: 2024-10-24T19:49:53.307Z
+date: 2024-10-26T16:21:50.994Z
+updated: 2024-10-30T16:37:13.794Z
 categories:
   - BestProducts
 description: "This Article Describes Wasteland II Director's Cut: An Immersive RPG Revisited – Comprehensive Review and Gameplay Analysis"
@@ -72,13 +72,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: A clean look, with some awkward ports**
 
  Measuring 5.7 x 2.6 x 1.1 inches (HWD), the AmazonBasics 7 Port USB 3.0 Hub is not a particularly petite or compact device, but it does do itself some favors in the design department. The slanted body contains two connections on its left, one for the power and one for the USB-B port. On the back, you’ll find five standard USB 3.0 Type-A ports. The right side contains two fast-charge ports capable of supplying more than the standard power, so long as you’ve connected the hub to an outlet using the power cable. Finally, the top contains a simple blue LED, which lit up as soon as we connected the USB cable to the computer.
@@ -92,6 +85,13 @@ Lifewire / Jonno Hill
  There were two quality control mishaps on the particular unit we tested. First, the internal ports were somewhat misaligned with the outer casing, making it difficult to plug in some devices. Second, the labels that should be printed around the ports didn’t make it onto this particular unit, despite all the product page images showing this feature. Not a huge deal, but also not a ringing endorsement for the device’s quality.
 
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/-6zArDEXr2_gqDvtkeqZAbTQKiQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_05-c3e5d946a7e84b6cb1b395cff1103e42.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
@@ -110,13 +110,20 @@ Lifewire / Jonno Hill
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/Ep4bZmgChjDyFofASwezrrPrDYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_04-e00baf7ec07a4762bf437cde18e2b4de.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Just what you’d expect**
 
@@ -125,10 +132,10 @@ Lifewire / Jonno Hill
  The five ports in the back supply the standard 0.9A of power, whereas the ports on the side, designed for fast charging, can supply up to 1.5A.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: You get what you pay for**
@@ -138,20 +145,19 @@ Lifewire / Jonno Hill
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/AnTpc7CmLFfbEILGIFkFiA9Ur2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_03-063f9486bd7045c18c0643276029f85e.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **AmazonBasics 7 Port USB 3.0 Hub vs. Aukey USB Hub 3.0**
 
@@ -194,18 +200,20 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-switch-strike-force-your-top-10-game-lineup-for-2024/"><u>[New] Switch Strike Force Your Top 10 Game Lineup for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/essential-list-of-top-rated-imessage-games-for-iphone-and-android-users/"><u>Essential List of Top-Rated iMessage Games for iPhone & Android Users</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/how-do-shared-links-in-chatgpt-enhance-user-interaction-unveiling-the-process/"><u>How Do Shared Links in ChatGPT Enhance User Interaction? Unveiling The Process</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-tecno-photos-an-easy-method-explained-by-fonelab-android-recover-photos/"><u>How to Restore Deleted Tecno Photos An Easy Method Explained.</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-crafting-a-digital-identity-with-inspiring-instagram-captions/"><u>In 2024, Crafting a Digital Identity with Inspiring Instagram Captions</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Motorola Moto G24 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-the-amazon-basics-7x-usb-30-connectivity-hub/"><u>In-Depth Evaluation of the Amazon Basics 7X USB 3.0 Connectivity Hub</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mobvoi-ticwatch-pro-with-lte-an-in-depth-evaluation-of-your-ideal-smartwatch-companion/"><u>Mobvoi Ticwatch Pro with LTE: An In-Depth Evaluation of Your Ideal Smartwatch Companion</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/qc35-ii-unpacked-the-best-headphones-for-focus-and-peace/"><u>QC35 II Unpacked: The Best Headphones for Focus & Peace</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-definitive-guide-to-choosing-an-android-champion-samsungn-galaxy-s21-ultra-unveiled/"><u>The Definitive Guide to Choosing an Android Champion: Samsung’n Galaxy S21 Ultra Unveiled</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleashing-the-fun-with-zombies-a-thorough-examination-of-7-days-to-die-and-its-survival-adventure/"><u>Unleashing the Fun with Zombies: A Thorough Examination of '7 Days to Die' And Its Survival Adventure</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-ready-to-dive-into-photo-talking-videos-heres-what-you-need-to-know/"><u>Updated In 2024, Ready To Dive Into Photo Talking Videos? Heres What You Need To Know</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/what-are-hdcp-problems-fixing-strategies-for-better-connectivity/"><u>What Are HDCP Problems? Fixing Strategies for Better Connectivity</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-circumventing-virtual-classroom-videos-without-hesitation/"><u>[New] 2024 Approved Circumventing Virtual Classroom Videos Without Hesitation</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-engage-viewers-anytime-from-phone-stream-youtube-with-less-than-a-thousand/"><u>[New] In 2024, Engage Viewers Anytime, From Phone Stream Youtube with Less Than a Thousand</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-step-by-step-inverting-iphone-video-order/"><u>[New] Step-by-Step Inverting iPhone Video Order</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-ultimate-thirteen-for-professional-cinematic-equipment/"><u>[New] Ultimate Thirteen for Professional Cinematic Equipment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/before-you-invest-in-a-fitness-tracker-consider-these-important-5-aspects/"><u>Before You Invest in a Fitness Tracker, Consider These Important 5 Aspects</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-bluetooth-headset-review-satisfying-truckers-sound-needs/"><u>Budget Bluetooth Headset Review: Satisfying Truckers’ Sound Needs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/examining-the-midland-lxt500v3-handheld-radios-are-their-promised-features-actually-reliable/"><u>Examining the Midland LXT500V3 Handheld Radios – Are Their Promised Features Actually Reliable?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/excellence-in-every-shot-unveiling-camera-brilliance-of-the-huawei-p20-pro-phone/"><u>Excellence in Every Shot: Unveiling Camera Brilliance of the Huawei P20 Pro Phone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/re-the-best-apps-for-effortless-youtube-to-webm-conversion-for-2024/"><u>Explore the Best Apps for Effortless YouTube to WebM Conversion for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-new-horizons-firsthand-impressions-of-the-ampacite-andes-1500-solar-power-station/"><u>Exploring New Horizons: Firsthand Impressions of the AmpaCite Andes 1500 Solar Power Station</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-amazon-halo-a-cutting-edge-fitness-monitor-with-a-daring-twist/"><u>Exploring the Amazon Halo: A Cutting-Edge Fitness Monitor with a Daring Twist</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-features-and-value-a-thorough-review-of-the-beantech-bitwatch-s1plus-wearable-tech/"><u>Exploring the Features & Value - A Thorough Review of the Beantech Bitwatch S1+ Wearable Tech</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-celebratory-moments-captured-a-list-of-the-most-beautiful-wedding-videos-8/"><u>In 2024, Celebratory Moments Captured A List of the Most Beautiful Wedding Videos (8)</u></a></li>
+<li><a href="https://video-capture.techidaily.com/quick-and-simple-guide-converting-flv-videos-into-html5-format/"><u>Quick & Simple Guide: Converting FLV Videos Into HTML5 Format</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-mic-lists-tailored-for-high-definition-4k-cameras-for-2024/"><u>Top Mic Lists Tailored for High-Definition 4K Cameras for 2024</u></a></li>
 </ul></div>
 
