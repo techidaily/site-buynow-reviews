@@ -1,7 +1,7 @@
 ---
 title: "Furbo’s Triumph in Tails: A Comprehensive Review for Canine Camera Enthusiasts"
-date: 2024-10-24T16:32:18.664Z
-updated: 2024-10-30T16:02:58.459Z
+date: 2024-11-02T19:52:49.584Z
+updated: 2024-11-05T02:02:53.218Z
 categories:
   - BestProducts
 description: "This Article Describes Furbo’s Triumph in Tails: A Comprehensive Review for Canine Camera Enthusiasts"
@@ -41,9 +41,23 @@ Lifewire / Kelsey Simon
 
 2.7
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -69,13 +83,6 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
  This whole introduction is slow moving and boring, and getting through it is rough. But even past this, things don’t necessarily pick up and get more interesting. The game has such a heavy hand with its narration, telling you the game’s visuals even though you can see them right there on your screen. The whole game reads like someone wrote a novel, couldn’t publish it, and then decided making a[video game](https://www.lifewire.com/best-gaming-consoles-4154610) was a better idea, and instead of trimming the fat, they left every unnecessary description and detail in the game’s prompt.
@@ -90,13 +97,6 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
  Beyond this, the other major gameplay mechanic is a system of effort and inspiration. Every action you take will prompt you to use effort. This effort allows for your character to work harder at the chosen action, and thus gives your character a better chance of accomplishing their goal.
@@ -110,6 +110,13 @@ Lifewire / Kelsey Simon
  Overall, this game was a weak attempt at offering players the experience of a novel in[video game](https://www.lifewire.com/game-play-and-streaming-4781449) format. The storytelling is very heavy-handed. The writing is weak and full of repeated telling of things you can easily see on-screen around you. There’s little to no direction about where to go or what exactly you should be doing, and combined with the long paragraphs of text, things becomes boring fast. The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way. It’s just a shame that it gets buried under such heavy, inactive storytelling.
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Graphics: Outdated and simplistic**
 
@@ -129,13 +136,6 @@ Lifewire / Kelsey Simon
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Competition: Other story focused RPGs**
 
  There are quite a few other games available that are story-focused RPGs besides Tides of Numenera. Wasteland 2 (view on[Amazon](https://www.amazon.com/Wasteland-2-Directors-Cut-PlayStation-4/dp/B013CQHQFU/?tag=lifewire-onsite-prod-20&ascsubtag=5077302%7Cnac6eb02defc3413da4da5d4ed0dc77ea21%7C) ) is a very similar game, as it is made by the same developers, but where Numenera falls flat with its heavy-handed storytelling, Wasteland 2 stands apart with a fun, tactical combat system.
@@ -149,10 +149,10 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -178,19 +178,20 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-designing-the-ideal-youtube-playlist-for-you/"><u>[New] 2024 Approved Designing the Ideal YouTube Playlist for You</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-mastering-video-chat-on-snapchat-a-3-step-guide-to-efficiency/"><u>[New] Mastering Video Chat on Snapchat A 3-Step Guide to Efficiency</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-stream-smarter-with-float-mastery-over-pip-on-netflix/"><u>[Updated] Stream Smarter with Float Mastery Over PIP on Netflix</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-skew-and-warp-a-photographers-guide/"><u>2024 Approved Skew and Warp A Photographer's Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-samsung-galaxy-tab-s6-unveiling-s-pen-and-multi-tasking-dex-modes/"><u>Comprehensive Guide to Samsung Galaxy Tab S6 - Unveiling S Pen & Multi-Tasking DeX Modes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-look-at-the-acer-xfa2ns-design-philosophy-its-all-about-function/"><u>Comprehensive Look at the Acer XFA2n's Design Philosophy - It’s All About Function</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/from-basic-windows-10-to-advanced-64-bit-operating-system/"><u>From Basic Windows 10 to Advanced 64-Bit Operating System</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/guidelines-for-correcting-chatgpts-plugin-errors/"><u>Guidelines for Correcting ChatGPT's Plugin Errors</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-realme-c67-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Realme C67 5G? | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/podcasting-perfection-premium-recording-mics/"><u>Podcasting Perfection Premium Recording Mics</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/redefining-gaming-excellence-an-insightful-review-on-how-the-asus-zephyrus-g14-delivers-uncompromised-performance/"><u>Redefining Gaming Excellence: An Insightful Review on How the Asus Zephyrus G14 Delivers Uncompromised Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-leading-speech-to-text-solutions-for-this-year/"><u>The Leading Speech-to-Text Solutions for This Year</u></a></li>
-<li><a href="https://win-dash.techidaily.com/upgrade-your-graphics-intel-hd-graphics-4400-drivers-download-and-installation-guide/"><u>Upgrade Your Graphics: Intel HD Graphics 4400 Drivers Download & Installation Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/value-for-money-e-reader-a-detailed-examination-of-the-2019-kindle-on-amazon/"><u>Value for Money E-Reader: A Detailed Examination of the 2019 Kindle on Amazon</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-flavorful-friends-top-gastronomy-guides-online-for-2024/"><u>[New] Flavorful Friends Top Gastronomy Guides Online for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-insider-advice-efficiently-amassing-stock-visuals-for-use/"><u>[New] Insider Advice Efficiently Amassing Stock Visuals for Use</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-capturing-games-in-plain-sight-choose-between-obs-and-shadowplay/"><u>[Updated] 2024 Approved Capturing Games in Plain Sight Choose Between OBS and ShadowPlay</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/ending-epson-misprint-mistake/"><u>Ending Epson Misprint Mistake</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-revealed-power-meets-size-in-the-apple-ipad-mini/"><u>Expert Review Revealed: Power Meets Size in the Apple iPad Mini</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-the-beauty-and-sound-of-teac-pd-301/"><u>Explore the Beauty & Sound of Teac PD-301</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-moto-g-play-exceptional-battery-endurance-combined-with-solid-operating-capabilities/"><u>Exploring the Moto G Play: Exceptional Battery Endurance Combined with Solid Operating Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-master-hunting-alien-monsters-an-in-depth-review-of-monster/"><u>How to Master Hunting Alien Monsters: An In-Depth Review of Monster</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-troubleshoot-and-fix-your-laptops-mute-speakers-problem-easily/"><u>How to Troubleshoot and Fix Your Laptop's Mute Speakers Problem Easily</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/less-than-a-hundred-more-security-in-depth-analysis-of-remobells-top-rated-video-doorbells/"><u>Less Than a Hundred, More Security: In-Depth Analysis of RemoBell's Top-Rated Video Doorbells</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/pinnacle-10-tools-for-masterful-online-subtitle-edits-for-2024/"><u>Pinnacle 10 Tools for Masterful Online Subtitle Edits for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/secrets-unveiled-gaining-access-to-amazon-prime-at-student-rates-a-comprehensive-walkthrough/"><u>Secrets Unveiled: Gaining Access to Amazon Prime at Student Rates - A Comprehensive Walkthrough</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-checklist-5-critical-factors-for-choosing-the-right-fitness-tracker/"><u>The Ultimate Checklist: 5 Critical Factors for Choosing the Right Fitness Tracker</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-netgear-orbi-stands-out-as-the-ideal-mesh-router-solution/"><u>Why Netgear Orbi Stands Out as the Ideal Mesh Router Solution</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211108921-9781401976774-you-are-a-channel/"><u>You Are a Channel | Free Book</u></a></li>
 </ul></div>
 

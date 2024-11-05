@@ -1,7 +1,7 @@
 ---
 title: "Huawei MediaPad M5 Tablet Showdown: A Device Built Around Optimal Display and Audio Quality"
-date: 2024-10-27T16:52:17.011Z
-updated: 2024-10-30T16:21:53.579Z
+date: 2024-11-03T22:22:14.653Z
+updated: 2024-11-04T18:04:13.903Z
 categories:
   - BestProducts
 description: "This Article Describes Huawei MediaPad M5 Tablet Showdown: A Device Built Around Optimal Display and Audio Quality"
@@ -48,13 +48,6 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/EEEMCdq2FsBPMcT8nPUgndDIw4A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 [View On Amazon](https://www.amazon.com/dp/B078WG6DBH/?tag=lifewire-onsite-prod-20&ascsubtag=4796693%7Cn899f0376278d4881a5af76b596b54aa000%7CB078WG6DBH) [View On EBay](https://www.ebay.com/itm/Sony-XBR65X850F-65-Inch-4K-Ultra-HD-Smart-LED-TV-2018-Model/312237520273)
@@ -77,18 +70,18 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
  Though Sony panels are sometimes on the expensive end of the spectrum, there are some older Sony 4K TVs that can be had for a nice little discount. One such TV is Sony’s XBR65X850F from their X850F series. This specific model has now been replaced by the X850G, but that doesn’t mean you necessarily need to go with the most current model. In fact, snagging one of these earlier generation sets can save you some cash without forcing you to compromise too much.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Standard Sony**
 
  The XBR65X850F's design is a combination of sleek and workmanlike. The stand on this Sony is pretty common for TVs these days, with two V-shaped feet that stick out to either side. While they look aluminum, these are actually plastic too, with merely an aluminum finish. They are decently steady, but we noticed a bit of wobble if you move the TV around. It should be plenty sturdy for most, though you will need a fairly wide stand for them to rest on since they stick out so far. There’s also no room for adjusting the unit up or down, but they’re tall enough to fit a soundbar underneath if you want. They also flip open on the top if you want to use them for some clever cable management.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/v7wi7isxu06LAoWNZK3dJ908mCk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-4-cb1a370bd78244b383c802010a570313.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -105,16 +98,10 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
  On the front of the screen, the bezels are a little thicker than some of the 4K TVs we’ve reviewed, but they’re pretty thin and shouldn’t distract. There’s your standard anti-glare coating found on the screen here too.
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Stick to the on-screen instructions**
@@ -128,13 +115,6 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
  Sony has done a solid job here of making the setup process simple, or maybe we should be thanking Google for that, as this is an Android TV. All you need to do is follow along with the on-screen instructions and complete them as necessary. Using the remote, you’ll be prompted to choose a language, location, internet connection, sign into accounts, etc. Just stick to the guide.
 
  With the initial process done, you will likely need to run a quick update check. This should automatically pop up, but check under the settings tab if it doesn’t. An update to the firmware should improve things considerably, especially if you need to upgrade to the latest version of Android TV. Updating takes a bit of time to do, so maybe go watch some TV while…oh right. Well, whatever you do during this process, just remember not to unplug the power while it’s running through updates.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Image Quality: Impressive 4K for IPS with some shortcomings**
 
@@ -167,6 +147,13 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Audio Quality: Loud, but distorted**
 
  Built-in speakers are never going to be great, but they’re nice to have if you’re lacking an[external sound system](https://www.lifewire.com/connect-tv-to-external-audio-system-1846816) like a soundbar. While we’d recommend getting an external setup for the best experience, let’s take a quick look at what the XBR65X850F has to offer with the included setup.
@@ -186,6 +173,13 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
  Browsing through the interface, we did find it to be a bit laggy and choppy at times, which can be quite frustrating. Hopefully, this can be fixed down the line when new versions of Android TV make their way to the device.
 
  One last thing, your phone can also be used as a remote if you so choose. All you need to do is download the app and connect it to the TV. This works with both Android and iOS devices (thanks Google). While it’s not a good as the regular remote, it works fine enough if you’re too lazy to get up and find the standard remote.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Not bad for the size, but not the cheapest**
 
@@ -242,17 +236,16 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/updated-conquer-snapchats-boomerang-challenges-easily/"><u>[Updated] Conquer Snapchat's Boomerang Challenges Easily</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-decoding-the-jargon-what-mcns-mean-for-you-for-2024/"><u>[Updated] Decoding the Jargon What MCNs Mean for You for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-highlighted-viewer-insights-unveiled-for-2024/"><u>[Updated] Highlighted Viewer Insights Unveiled for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/android-and-iphones-hottest-social-tools-to-increase-fb-likes/"><u>Android & iPhone's Hottest Social Tools to Increase FB Likes</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-delving-deep-wirecast-and-its-broader-scope/"><u>In 2024, Delving Deep WireCast & Its Broader Scope</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/precision-and-durability-in-every-detail-reviewing-the-stable-masterpiece-that-is-the-twelve-south-compass-pro/"><u>Precision and Durability in Every Detail: Reviewing the Stable Masterpiece That Is the Twelve South Compass Pro</u></a></li>
-<li><a href="https://games-able.techidaily.com/refund-your-xbox-games-step-by-step-guide/"><u>Refund Your Xbox Games - Step-by-Step Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-power-packed-dell-xps-13-2-in-1-reviewed-a-testament-to-its-stellar-performance-and-versatility/"><u>The Power-Packed Dell XPS 13 2-in-1 Reviewed: A Testament to Its Stellar Performance and Versatility</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-revolutionary-2018-lg-gram-156-laptop-review-striking-balance-between-large-screen-and-ultra-light-design/"><u>The Revolutionary 2018 LG Gram 15.6 Laptop Review: Striking Balance Between Large Screen and Ultra Light Design</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-smart-choice-for-holistic-health-monitoring-why-fitbit-sense-beats-the-apple-watch/"><u>The Smart Choice for Holistic Health Monitoring: Why Fitbit Sense Beats the Apple Watch</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-sharing-your-game-library-with-pals-on-xbox-one/"><u>The Ultimate Guide: Sharing Your Game Library with Pals on Xbox One</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-travel-companion-a-portable-music-solution-for-every-mood-on-the-go/"><u>The Ultimate Travel Companion: A Portable Music Solution for Every Mood on the Go</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-full-review-of-razers-high-definition-webcam-for-2024/"><u>[Updated] Full Review of Razer's High Definition Webcam for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/accelerating-streamed-instagram-content-mobile-hacks/"><u>Accelerating Streamed Instagram Content Mobile Hacks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/beyond-the-limits-how-starlink-satellites-can-transform-your-life/"><u>Beyond The Limits: How Starlink Satellites Can Transform Your Life</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-photo-challenger-nikon-a10-shot-user-slammed/"><u>Budget Photo Challenger: Nikon A10 Shot, User Slammed</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722975944545-effortless-updates-how-to-download-latest-drivers-for-your-dell-monitors-today/"><u>Effortless Updates: How to Download Latest Drivers for Your Dell Monitors Today!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-unique-blend-of-baseball-and-rpg-in-mlb-the-show-19-a-review-for-gamers/"><u>Exploring the Unique Blend of Baseball and RPG in 'MLB The Show 19': A Review for Gamers</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fix-guide-for-windows-bluetooth-headphones-with-music-only-option/"><u>Fix Guide for Windows Bluetooth Headphones with Music Only Option</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-does-the-ipad-pro-stack-up-against-the-macbook-pro-exploring-key-contrasts/"><u>How Does the iPad Pro Stack Up Against the MacBook Pro? Exploring Key Contrasts</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-x-to-pc-via-usb-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone X to PC via USB? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-unveiling-the-powerful-performance-and-intelligent-features-of-the-asus-ax6000-rt-ax88u-wi-fi-6-router/"><u>The Ultimate Review: Unveiling the Powerful Performance and Intelligent Features of the Asus AX6000 (RT-AX88U) Wi-Fi 6 Router</u></a></li>
+<li><a href="https://fox-that.techidaily.com/understanding-and-troubleshooting-phone-numbers-instead-of-names-in-messages/"><u>Understanding and Troubleshooting Phone Numbers Instead of Names in Messages</u></a></li>
 </ul></div>
 

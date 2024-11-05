@@ -1,7 +1,7 @@
 ---
 title: "The Pros & Cons of the TP-Link AV2000 Network Adapter: Great Speed but Poorly Designed Device"
-date: 2024-09-04T18:48:28.937Z
-updated: 2024-09-05T18:48:28.937Z
+date: 2024-10-31T22:47:54.551Z
+updated: 2024-11-04T19:25:21.044Z
 categories:
   - BestProducts
 description: "This Article Describes The Pros & Cons of the TP-Link AV2000 Network Adapter: Great Speed but Poorly Designed Device"
@@ -40,6 +40,19 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/C8f1R4cMjb3MUZ1ViPdvQ67Q7tE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Claire Cohen
 
 [View On Amazon $38](https://www.amazon.com/dp/B01N8ROH7G/?tag=lifewire-onsite-prod-20&ascsubtag=4589559%7Cn7c9facd8b2a7476ea5e744a63f18481911%7CB01N8ROH7G) [View On Walmart $38](https://www.walmart.com/ip/TP-Link-RE305-AC1200-Wi-Fi-Range-Extender-works-with-any-router-or-WiFi-system/981199634) [View On Best Buy $50](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Ftp-link-ac1200-dual-band-wi-fi-range-extender-white%2F6295316.p)
@@ -75,12 +88,6 @@ Lifewire / Claire Cohen
 
  There's an[Ethernet port](https://www.lifewire.com/what-is-an-ethernet-port-817546) at the bottom of the device as well as a pinhole reset button, just in case it needs rebooted at any point. It's a bit awkward to hang an[Ethernet cord](https://www.lifewire.com/what-is-an-ethernet-cable-817548) from the extender depending on where you've placed it in your home, but it's a useful addition to bring Ethernet to a desktop, TV, or gaming console without having to put holes in your wall.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Simple and quick**
 
  Setup is extremely simple. There's no software required to install with the RE305, and it’s very quick to set up. It takes a matter of minutes to get it up and running via a web browser. There's a Quick Installation Guide included that outlines out the process. We found it painless to follow.
@@ -89,12 +96,6 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/PS8-Iywv5MsnOo99Fir-jNOiPF8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-4-5c924206c9e77c0001ff0bb8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Claire Cohen
 
  You'll create a password, let the device scan your network for an applicable router, and then enter the SSID and password to your current wireless network from there. There are options to change the extender network’s SSID and password if you so choose, but otherwise, it’ll remain the same as your default network. Once completed, the 2.4 GHz and/or 5GHz lights on the device should come on, depending on[your router's functionality](https://www.lifewire.com/what-is-a-router-2618162) . The entire process from unboxing to surfing the web took about 7 minutes.
@@ -113,7 +114,21 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/Lyz1QcuQDPYlUp5pPBJiL0YKSag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-2-5c9241dcc9e77c0001a92785.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Claire Cohen
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Clean and easy to understand**
 
@@ -121,12 +136,6 @@ Lifewire / Claire Cohen
 
  It's a bit bereft of some functionality for veteran extender users who may want to fiddle with settings and skip the "easy mode" setup, but it does its job particularly well. It even includes a[QR code](https://www.lifewire.com/scan-qr-codes-on-smartphone-4154658) to scan for users to download the wireless management app straight from the setup page. It doesn't take any real doing to reach this website either, and can be accessed at any time from the network.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: A deal at any price**
 
  At a list price of $59.99, the RE305 is a fantastic deal, considering it's typically on sale for much cheaper, often $10 to $15 less than retail. It isn't TP-Link's lowest-end option, but the performance and speeds offered for the price are certainly more than your money's worth, especially if you live in a larger home and pay for higher internet speeds. It’s important to keep in mind that it won’t include all the features you’ll get with pricier extenders like multiple ethernet ports or additional antennas, but this basic setup is just about all the average user needs, anyway.
@@ -134,19 +143,14 @@ Lifewire / Claire Cohen
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/bG-oXoYxR83gVSUH4vzz37hfYxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-1-5c92424b46e0fb000172f127.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Claire Cohen
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024347/7443" target="_top" id="2024347">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024347/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: More of the same**
 
  There are a variety of different extenders on the market with similar price points, and many are pricier, with fewer promised features and lesser range. If you’re looking to stay “on brand,” you might opt for competition such as the[Netgear EX3700](https://www.lifewire.com/netgear-ex3700-wifi-range-extender-ac750-review-4589551) , but there’s no real reason to do so when they offer a good amount of the same features for a similar price. We also found the RE305 to be much more aesthetically pleasing overall if that’s of importance to you.
@@ -159,18 +163,6 @@ Lifewire / Claire Cohen
 
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  RE305 AC1200 Wi-Fi Range Extender
@@ -195,8 +187,6 @@ Lifewire / Claire Cohen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -204,4 +194,26 @@ Lifewire / Claire Cohen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-pivot-and-post-mastering-video-orientation/"><u>[New] 2024 Approved Pivot and Post Mastering Video Orientation</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-discover-prime-sites-offering-free-got-soundtracks/"><u>[New] Discover Prime Sites Offering Free GoT Soundtracks</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-perfecting-picture-clarity-efficiently-eradicating-backgrounds/"><u>[New] Perfecting Picture Clarity Efficiently Eradicating Backgrounds</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-the-key-to-rising-roi-in-facebooks-animated-advertising-sector-for-2024/"><u>[New] The Key to Rising ROI in Facebook's Animated Advertising Sector for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-shoppers-ultimate-list-of-top-rated-webcams/"><u>[Updated] 2024 Approved Shopper’s Ultimate List of Top-Rated Webcams</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-effortless-pubg-vocal-modifications/"><u>2024 Approved Effortless PUBG Vocal Modifications</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/canon-powershot-the-efficient-sx620-hs-explores-photography/"><u>Canon PowerShot: The Efficient SX620 HS Explores Photography</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-lg-k51-attractive-aesthetics-overshadowed-by-processing-speed/"><u>Comprehensive Analysis of the LG K51: Attractive Aesthetics Overshadowed by Processing Speed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/gopro-hero9-black-unveiled-quality-meets-cost/"><u>GoPro HERO9 Black Unveiled - Quality Meets Cost</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-oppo-a59-5g-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Oppo A59 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-perfect-pitch-integrating-music-with-cropping-and-editing-in-canva/"><u>In 2024, Perfect Pitch Integrating Music with Cropping and Editing in Canva</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-scoop-on-the-mohu-blade-how-this-non-traditional-tv-antenna-delivers-excellent-signal-quality-indoors/"><u>Inside Scoop on the Mohu Blade – How This Non-Traditional TV Antenna Delivers Excellent Signal Quality Indoors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-features-of-the-budget-friendly-nintendo-switch-lite-handheld-system/"><u>Navigating the Features of the Budget-Friendly Nintendo Switch Lite Handheld System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/optimizing-performance-with-an-additional-memory-card-in-your-device/"><u>Optimizing Performance with an Additional Memory Card in Your Device</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/quick-fixes-for-launching-problems-with-the-witcher-3-wild-hunt/"><u>Quick Fixes for Launching Problems with the Witcher 3 Wild Hunt</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-amazon-fire-tv-cube-next-level-speed-for-ultimate-streaming-experience/"><u>Review of the Amazon Fire TV Cube – Next-Level Speed for Ultimate Streaming Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-nulaxy-km18-fm-transmitter-for-cars-vintage-reliability-meets-modern-convenience/"><u>The Ultimate Guide to the Nulaxy KM18 FM Transmitter for Cars: Vintage Reliability Meets Modern Convenience</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unlock-a-steep-discount-on-asus-rog-strix-g15-save-600-with-our-exclusive-promo/"><u>Unlock a Steep Discount on ASUS ROG STRIX G15 - Save $600 with Our Exclusive Promo!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-in-depth-review-of-samsungs-latest-galaxy-s2n-ultra-smartphone/"><u>Unveiling: In-Depth Review of Samsung's Latest Galaxy S2n Ultra Smartphone</u></a></li>
+</ul></div>
 

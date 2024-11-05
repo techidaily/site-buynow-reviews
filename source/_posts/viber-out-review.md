@@ -1,7 +1,7 @@
 ---
 title: Viber Out Review
-date: 2024-10-27T16:49:46.898Z
-updated: 2024-10-30T16:08:15.702Z
+date: 2024-10-30T00:19:39.895Z
+updated: 2024-11-05T08:55:01.418Z
 categories:
   - BestProducts
 description: This Article Describes Viber Out Review
@@ -49,6 +49,13 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/o0LkMzwRLq9UDT8tBDJerDIsp8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 [View On Walmart $68](https://www.walmart.com/ip/124219534) [View On Target $100](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.target.com%2Fp%2Ftp-link-ac1900-mu-mimo-mesh-compatible-dual-band-router%2F-%2FA-79847605%3Fslfpid%3D3) [View On Staples $91](https://www.staples.com/tp-link-archer-c80-ac1900-dual-band-wireless-and-ethernet-router-black/product%5F24467939?cid=AFF%3A24467939&slfpid=3)
@@ -76,6 +83,13 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/Ep4Dk2l5q44AgM0S3cs9My3AE3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_03-a367c45b39474785856cb986e82c88dc.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
  Overall, the C80 feels pretty sturdy. There are four antennas, and they don’t feel flimsy or easily breakable. The antennas are exceptionally long—disproportionately so when compared to the router’s body—but the length of the antennas is advantageous for performance. You can move the antennas 90 degrees up and down and roughly 180 degrees side to side, which lets you appropriately adjust them for placement on a wall or table. The Gigabit Ethernet ports (one WAN, four LAN) and power adapter port are located on the back of the device, which is ideal for placement on a flat surface, but not as great for mounting on a wall because the cables come out of the top of the router, and they’re difficult to hide or organize.
@@ -92,13 +106,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Network Performance: Fast speeds, No USB port**
 
  Although this is a low to mid-tier level device, I was quite impressed with its speed and performance. I live in a suburb about 20 minutes away from Raleigh, NC, and I have Spectrum as my internet service provider. The Wi-Fi speeds in my home max out at 400 Mbps. I have a smart box that sits in a utility closet where the router connects. I mounted the router on the wall in that closet, which has a solid door that acts as an immediate signal obstruction. In spite of the presence of this solid door, I was still able to get between 340 and 350 Mbps all throughout the entire downstairs (on the 5GHz band). On the 2.4GHz band, I could get up to 90Mbps all throughout the first floor and in my garage.
@@ -108,26 +115,26 @@ Lifewire / Erika Rawes
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Range: Even better than advertised**
 
  TP-Link advertises the C80 as a router for three-bedroom homes. However, that estimate understates the router’s range capabilities. My home is a two-story, 3,000 square-foot residence with five-bedrooms, and I was able to maintain a stable Wi-Fi connection in every corner. Every closet, bathroom, and bedroom got a steady signal, and I experienced no dead zones whatsoever. Even in the garage, front yard, and backyard, the signal remained strong. It was only when I attempted to use multiple gaming and streaming devices at one time that I experienced any sort of lag.
 
  Every closet, bathroom, and bedroom maintained a signal, and I experienced no dead zones whatsoever.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: TP-Link Tether app**
 
@@ -140,10 +147,10 @@ Lifewire / Erika Rawes
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -161,13 +168,6 @@ Lifewire / Erika Rawes
 **Fast speeds and an exceptionally long range.**
 
  Even though it lacks a USB port, the Archer C80 puts out impressive speeds over a long range in homes with light to medium networking capacity. For homes that have several people streaming, gaming, and working on cloud applications, they’ll want something more high octane.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -204,19 +204,21 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/iy-guide-zero-cost-youtube-intros-and-template-usage/"><u>[New] DIY Guide Zero Cost YouTube Intros & Template Usage</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nitiate-your-video-journey-establishing-a-youtube-account/"><u>[New] Initiate Your Video Journey Establishing a YouTube Account</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-conquer-and-cease-the-unremovable-guide-to-youtube-shorts-for-2024/"><u>[Updated] Conquer & Cease The Unremovable Guide to Youtube Shorts for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-depth-skype-audio-capture-guide-with-obs-software-for-2024/"><u>[Updated] In-Depth Skype Audio Capture Guide with OBS Software for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-hidden-layers-to-understanding-instagram-stories/"><u>[Updated] The Hidden Layers to Understanding Instagram Stories</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-does-the-202n-apple-macbook-air-with-m1-chip-13-inches-stack-up-an-in-depth-analysis-and-review/"><u>How Does The 202N Apple MacBook Air with M1 Chip (13 Inches) Stack Up? An In-Depth Analysis and Review</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Infinix Smart 8 HD | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-linksys-wrt3200acm-top-choice-among-open-source-routers/"><u>In-Depth Analysis: Linksys WRT3200ACM - Top Choice Among Open Source Routers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-huawei-p20-pro-exceptional-camera-performance-in-an-impressive-device/"><u>In-Depth Look at the Huawei P20 Pro: Exceptional Camera Performance in an Impressive Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/introductory-limolight-agg814-kit-review/"><u>Introductory LimoLight AGG814 Kit Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/join-forces-for-survival-in-the-high-stakes-parkour-world-of-dying-light/"><u>Join Forces for Survival in the High-Stakes, Parkour World of Dying Light.</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/keep-your-pc-running-smoothly-essential-guide-to-modifying-motherboard-drivers-on-windows-os/"><u>Keep Your PC Running Smoothly: Essential Guide to Modifying Motherboard Drivers on Windows OS</u></a></li>
-<li><a href="https://driver-install.techidaily.com/transforming-mouse-interaction-windows-drivers-revamped/"><u>Transforming Mouse Interaction: Windows Drivers Revamped</u></a></li>
-<li><a href="https://win-info.techidaily.com/upcoming-microsoft-policy-paid-windows-10-update-fees-from-next-year-what-you-need-to-know/"><u>Upcoming Microsoft Policy: Paid Windows 10 Update Fees From Next Year - What You Need to Know</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-callers-audio-logger-iphone-24/"><u>[New] 2024 Approved Caller's Audio Logger IPhone '24</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-chill-bites-analysis-in-depth-review-of-ice-cream-recorder-for-2024/"><u>[Updated] Chill Bites Analysis In-Depth Review of Ice Cream Recorder for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-the-art-of-webp-conversion-to-jpeg/"><u>[Updated] Mastering the Art of WebP Conversion to JPEG</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bike-enthusiasts-guide-to-creating-an-ingenious-android-auto-display-device-protecting-phones-on-the-go/"><u>Bike Enthusiast's Guide to Creating an Ingenious Android Auto Display Device - Protecting Phones on the Go!</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/boost-your-game-presence-with-free-voice-alteration-tips-for-free-fire-for-2024/"><u>Boost Your Game Presence with Free Voice Alteration Tips for Free Fire for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-internet-coverage-with-the-powerful-netgear-nighthawk-x6s-range-extender/"><u>Elevate Your Internet Coverage with the Powerful Netgear Nighthawk X6S Range Extender</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-identify-some-outdated-hardware-drivers-with-windows-device-manager-on-windows-11-by-drivereasy-guide/"><u>How to identify some outdated hardware drivers with Windows Device Manager on Windows 11</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-asus-rog-phone-7-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Asus ROG Phone 7 to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-6s-to-other-iphone-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 6s to other iPhone devices? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/improving-the-gaming-experience-on-google-stadia-key-areas-for-development/"><u>Improving the Gaming Experience on Google Stadia: Key Areas for Development</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-acers-xfa2n-series-where-functionality-leads-design-choices/"><u>In-Depth Look at Acer's XFA2n Series - Where Functionality Leads Design Choices</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/insightful-names-in-virtual-reality-ventures/"><u>Insightful Names in Virtual Reality Ventures</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-cost-of-applecareplus-justified-by-its-offered-benefits-and-features/"><u>Is the Cost of AppleCare+ Justified by Its Offered Benefits and Features?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovo-ideapad-130s-analysis-constrained-performance-with-unexpected-user-experience/"><u>Lenovo IdeaPad 130S Analysis: Constrained Performance with Unexpected User Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-through-anthropics-smart-photo-editor-pros-cons-and-performance-evaluation/"><u>Navigating Through Anthropics' Smart Photo Editor: Pros, Cons, and Performance Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nostalgic-camera-for-modern-travelers-powershot-g9-x-mark-ii-reviewed/"><u>Nostalgic Camera for Modern Travelers – PowerShot G9 X Mark II Reviewed</u></a></li>
 </ul></div>
 

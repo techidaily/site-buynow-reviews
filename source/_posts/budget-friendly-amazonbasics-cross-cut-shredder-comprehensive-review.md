@@ -1,7 +1,7 @@
 ---
 title: Budget-Friendly AmazonBasics Cross-Cut Shredder - Comprehensive Review
-date: 2024-09-04T18:47:00.839Z
-updated: 2024-09-05T18:47:00.839Z
+date: 2024-11-01T20:56:25.696Z
+updated: 2024-11-04T16:26:16.205Z
 categories:
   - BestProducts
 description: This Article Describes Budget-Friendly AmazonBasics Cross-Cut Shredder - Comprehensive Review
@@ -81,12 +81,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process:** **Simple, but poorly described**
 
  Setting up the Pruveeo F5 may not be a particularly complicated process, but it is complicated by the fact that the instruction manual doesn’t really tell you anything about the installation process. You’re mostly left to figure it out on your own.
@@ -99,18 +93,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Camera Quality: Extremely poor**
 
  Every issue associated with a cheap camera is magnified in the Pruveeo F5\. It’s actually hard to know where to begin when describing the serious problems present in the footage this dash cam produces. Artifacting, noise, poor color, and a mushy, unclear appearance make reviewing the video from the Pruveeo F5 an almost painful experience. You won’t be using this to film your vacation.
@@ -122,17 +104,12 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: Lackluster and very basic**
 
  The F5 records video and audio poorly but reliably, and you can loop video so that old video is erased as new video is recorded, and lock important video clips to keep them from being erased by accident. Unlike other dash cams, this locking function must be triggered manually with a button press rather than automatically by collision sensors.
@@ -144,27 +121,23 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Connectivity and software: Mysteriously absent**
 
  You will find in your instructions information on using Wi-Fi and a mobile app. However, as pointed out on Pruveeo’s Amazon storefront and on Pruveeo’s website, the feature has been removed from the F5\. This is not a death blow to the camera, but it severely limits its appeal compared to competing products. Without Wi-Fi and the companion app (GoPlus Cam), you can’t use the various features this enables. You can’t use your phone to remotely control the Pruveeo F5, use it as a viewfinder, download files to your phone, or change settings using a less frustrating interface than that built into the camera.
 
 <!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Cheap if below MSRP**
 
  At its MSRP of $70 the Pruveeo F5 faces stiff competition, but fortunately it typically retails for about half that price, and in the $30-$50 range its a bargain. For around $40 it offers decent video capabilities and useful features despite its cheap exterior. Keep in mind that you must consider the price of a microSD card in the total cost, as one is necessary but not included.
@@ -182,11 +155,12 @@ Lifewire / Andy Zahn
  The only reason not to completely write off the Pruveeo F5 as hot garbage is how frequently it’s on sale, but enough at a discount it’s not a great product. It’s only barely possible, given its limited capabilities, to use this as an aid for insurance claims in case of accidents. For all its faults we did find it to be reliable, and the video it captures marginally acceptable for its purpose, but there are so many better options available for slightly more money.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  F5 FHD 1080P Dash Cam
@@ -204,8 +178,6 @@ Lifewire / Andy Zahn
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -213,4 +185,26 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-no-cash-all-fun-turning-twitter-vids-into-gifs-for-2024/"><u>[New] No Cash, All Fun Turning Twitter Vids Into GIFs for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-the-art-of-insight-discovering-your-off-facebook-activities/"><u>2024 Approved Mastering the Art of Insight Discovering Your Off-Facebook Activities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-watch-series-9-versus-fitbit-charge-6-a-comparative-review/"><u>Apple Watch Series 9 versus Fitbit Charge 6: A Comparative Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-zenbook-pro-duo-comprehensive-analysis-of-a-large-display-compromise-rich-portable-computer/"><u>Asus ZenBook Pro Duo - Comprehensive Analysis of a Large-Display, Compromise-Rich Portable Computer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-the-perfect-wrist-rest-the-best-picks-of-2e4/"><u>Choosing the Perfect Wrist Rest: The Best Picks of 2E4</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-apple-iphone-ses-features-and-performance/"><u>Comprehensive Analysis of the Apple iPhone SE's Features & Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-effortless-reading-in-depth-analysis-of-amazons-latest-kindle-paperwhite-gen/"><u>Experience Effortless Reading: In-Depth Analysis of Amazon's Latest Kindle Paperwhite (Gen )</u></a></li>
+<li><a href="https://win-blog.techidaily.com/expert-advice-fixing-bugs-and-crashes-in-nwstoreexe-efficiently/"><u>Expert Advice: Fixing Bugs and Crashes in NW_store.exe Efficiently</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-photoscape-ultimate-guide-on-top-rated-free-image-editor/"><u>Expert Analysis: PhotoScape Ultimate Guide on Top-Rated Free Image Editor</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/expertly-curated-selection-of-exceptional-home-theater-computers-dominating-the-market/"><u>Expertly Curated Selection of Exceptional Home Theater Computers Dominating the Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-value-of-acer-aspire-e-15-why-its-a-smart-investment-for-budget-buyers/"><u>Exploring the Value of Acer Aspire E 15: Why It's a Smart Investment for Budget Buyers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fashionable-tech-on-your-wrist-pros-and-cons-of-the-amazfit-gts-smartwatch/"><u>Fashionable Tech on Your Wrist: Pros and Cons of the Amazfit GTS Smartwatch</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/fortgeschrittene-prozedur-zur-erstellung-eines-bootfahigen-usb-dienstprogramms-fur-die-reparatur-und-wiederherstellung-von-computersystemen/"><u>Fortgeschrittene Prozedur Zur Erstellung Eines Bootfähigen USB-Dienstprogramms Für Die Reparatur Und Wiederherstellung Von Computersystemen</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/has-the-era-of-your-ipads-relevance-passed/"><u>Has the Era of Your iPad's Relevance Passed?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-honor-x50-gt-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Honor X50 GT FRP Locks</u></a></li>
+<li><a href="https://win11.techidaily.com/resolving-windows-speakers-not-detected-issue/"><u>Resolving Windows: Speakers Not Detected Issue</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/securely-implementing-new-os-windows-11-and-vmware-edition/"><u>Securely Implementing New OS: Windows 11 & VMWare Edition</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/832127-9781780993638-the-teachings-of-the-nephalim/"><u>The Teachings of the Nephalim | Free Book</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/what-does-jailbreaking-apple-iphone-12-i-do-get-answers-here-by-drfone-ios/"><u>What Does Jailbreaking Apple iPhone 12 i Do? Get Answers here</u></a></li>
+</ul></div>
 

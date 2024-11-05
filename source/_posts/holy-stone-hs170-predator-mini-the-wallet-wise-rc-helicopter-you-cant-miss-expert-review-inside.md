@@ -1,7 +1,7 @@
 ---
 title: "Holy Stone HS170 Predator Mini: The Wallet-Wise RC Helicopter You Can't Miss - Expert Review Inside"
-date: 2024-10-26T16:36:49.364Z
-updated: 2024-10-30T16:12:04.196Z
+date: 2024-11-04T04:19:29.111Z
+updated: 2024-11-05T06:32:14.900Z
 categories:
   - BestProducts
 description: "This Article Describes Holy Stone HS170 Predator Mini: The Wallet-Wise RC Helicopter You Can't Miss - Expert Review Inside"
@@ -46,10 +46,10 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
@@ -83,6 +83,13 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/Ep4Dk2l5q44AgM0S3cs9My3AE3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_03-a367c45b39474785856cb986e82c88dc.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
  Overall, the C80 feels pretty sturdy. There are four antennas, and they don’t feel flimsy or easily breakable. The antennas are exceptionally long—disproportionately so when compared to the router’s body—but the length of the antennas is advantageous for performance. You can move the antennas 90 degrees up and down and roughly 180 degrees side to side, which lets you appropriately adjust them for placement on a wall or table. The Gigabit Ethernet ports (one WAN, four LAN) and power adapter port are located on the back of the device, which is ideal for placement on a flat surface, but not as great for mounting on a wall because the cables come out of the top of the router, and they’re difficult to hide or organize.
@@ -107,13 +114,6 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **Range: Even better than advertised**
@@ -123,10 +123,10 @@ Lifewire / Erika Rawes
  Every closet, bathroom, and bedroom maintained a signal, and I experienced no dead zones whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: TP-Link Tether app**
@@ -140,24 +140,24 @@ Lifewire / Erika Rawes
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Around 100 bucks**
 
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **TP-Link Archer C80 vs. TP-Link Archer A9**
 
@@ -204,24 +204,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-digital-detailing-at-your-command/"><u>[New] Digital Detailing at Your Command</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-uniting-your-soundtrack-sets-from-different-spaces/"><u>[New] Uniting Your Soundtrack Sets From Different Spaces</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/deciding-between-the-latest-gadgets-apple-watch-series-9-or-fitbit-charge-6/"><u>Deciding Between the Latest Gadgets: Apple Watch Series 9 or Fitbit Charge 6?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/decoding-the-apple-watch-series-6-review-a-humble-progression-towards-continued-superiority/"><u>Decoding the Apple Watch Series 6 Review: A Humble Progression Towards Continued Superiority</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dell-alienware-aurora-r9-unveiled-revolutionizing-the-future-of-high-performance-gaming-pcs/"><u>Dell Alienware Aurora R9 Unveiled: Revolutionizing the Future of High-Performance Gaming PCs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/detailed-insights-on-jackery-powerbar-with-internal-ac-port-for-versatile-charging-solutions/"><u>Detailed Insights on Jackery PowerBar with Internal AC Port for Versatile Charging Solutions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-best-protective-pads-for-your-hands-2024s-leading-keyboard-cushions/"><u>Discover the Best Protective Pads for Your Hands: 2024'S Leading Keyboard Cushions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-convenient-and-comfortable-ride-with-mods-latest-sidecar-ebike-creation/"><u>Discover the Convenient and Comfortable Ride with Mod's Latest Sidecar eBike Creation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-leading-cable-modems-of-2024-expert-reviews-and-ratings/"><u>Discover the Leading Cable Modems of 2024: Expert Reviews & Ratings</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dive-into-literature-with-the-kobo-libra-h2o-the-unmatched-water-resistant-reader-device/"><u>Dive Into Literature with the Kobo Libra H2O – The Unmatched Water-Resistant Reader Device!</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/easy-methods-for-graphics-card-improvement-on-pc-systems/"><u>Easy Methods for Graphics Card Improvement on PC Systems</u></a></li>
-<li><a href="https://win11.techidaily.com/efficiently-managing-setup-host-cpu-use/"><u>Efficiently Managing Setup Host CPU Use</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/elevate-workouts-with-tailored-tracks-on-your-garmin-vivoactive-3-stay-tuned-in/"><u>Elevate Workouts with Tailored Tracks on Your Garmin Vivoactive 3 - Stay Tuned In!</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/igtv-video-submission-made-simple-for-2024/"><u>IGTV Video Submission Made Simple for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-14-pro-max-passcode-screen-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 14 Pro Max Passcode Screen?</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-key-elements-of-constructive-job-interviews/"><u>In 2024, Key Elements of Constructive Job Interviews</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/mastering-the-art-of-retrieving-tweets-as-gifs/"><u>Mastering the Art of Retrieving Tweets as GIFs</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-unlocking-the-fix-for-constant-reboot-on-windows-1011-systems/"><u>Troubleshooting: Unlocking the Fix for Constant Reboot on Windows 10/11 Systems</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/windows-11-user-guide-how-to-deactivate-live-updates-and-news-tiles/"><u>Windows 11 User Guide: How to Deactivate Live Updates and News Tiles</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-bring-life-to-your-instagram-posts-with-branded-graphics-and-icons-for-2024/"><u>[New] Bring Life to Your Instagram Posts with Branded Graphics & Icons for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/experience-a-stable-dive-into-the-depths-with-fixed-subnautica-below-zero-on-your-desktop-computer/"><u>Experience a Stable Dive Into the Depths with [FIXED] Subnautica: Below Zero on Your Desktop Computer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-elite-an-evaluation-of-microsofts-surface-studio-2-masterpiece/"><u>Exploring the Elite: An Evaluation of Microsoft's Surface Studio 2 Masterpiece</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-windows-7-hdmi-audio-issues-solutions-guide/"><u>Fixing Windows 7 HDMI Audio Issues - Solutions Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-after-deleting-from-recently-deleted-on-iphone-15-pro-max-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to recover deleted photos after deleting from Recently Deleted on iPhone 15 Pro Max | Stellar</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-lava-blaze-curve-5g-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Lava Blaze Curve 5G PC | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-from-apple-iphone-8-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock From Apple iPhone 8 Online</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-samsung-galaxy-m34-5g-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Samsung Galaxy M34 5G to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-new-microsoft-surface-studio-2-a-smart-investment-review-inside/"><u>Is the New Microsoft Surface Studio 2 a Smart Investment? Review Inside</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/motorolas-marvel-the-elegant-moto-g-power-with-its-unmatched-battery-endurance-reviewed/"><u>Motorola's Marvel: The Elegant Moto G Power with Its Unmatched Battery Endurance Reviewed</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2603841-9781785353239-pagan-portals-the-cailleach/"><u>Pagan Portals - The Cailleach | Free Book</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-blade-e-flite-mcx2-rc-helicopter-reviewed-is-it-really-the-best-value-in-the-sky/"><u>The Blade E-Flite mCX2 RC Helicopter Reviewed - Is It Really the Best Value in the Sky?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-lenovo-tab-4-unveiled-cost-effective-tablet-potential-drawbacks-explored/"><u>The Lenovo Tab 4 Unveiled: Cost-Effective Tablet, Potential Drawbacks Explored</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-modern-stylish-solution-for-your-workspace-detailed-review-of-the-flexispot-theodore-adjustable-standing-desk/"><u>The Modern, Stylish Solution for Your Workspace: Detailed Review of the Flexispot Theodore Adjustable Standing Desk</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-motorola-moto-g-stylus-an-economical-phone-with-impressive-writing-capabilities/"><u>The Ultimate Guide to the Motorola Moto G Stylus - An Economical Phone with Impressive Writing Capabilities.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-iphone-models-a-comprehensive-guide-to-choosing-the-ultimate-gamers-phone/"><u>Top iPhone Models: A Comprehensive Guide to Choosing the Ultimate Gamer's Phone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-google-nest-doorbells-a-complete-guide-to-your-battery-options/"><u>Top Rated Google Nest Doorbells – A Complete Guide to Your Battery Options</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-samsung-55-ru7300-models-performance-in-a-full-4k-tv-review-do-the-curves-matter/"><u>Top Samsung 55 RU7300 Model's Performance in a Full 4K TV Review: Do The Curves Matter?</u></a></li>
+<li><a href="https://win-forum.techidaily.com/your-guide-to-popular-online-communities-facebook-twitter-instagram-and-youtube/"><u>Your Guide to Popular Online Communities: Facebook, Twitter, Instagram & YouTube</u></a></li>
 </ul></div>
 

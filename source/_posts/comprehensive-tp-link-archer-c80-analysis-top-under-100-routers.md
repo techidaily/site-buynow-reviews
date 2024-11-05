@@ -1,7 +1,7 @@
 ---
 title: Comprehensive TP-Link Archer C80 Analysis - Top Under $100 Routers
-date: 2024-10-27T16:55:25.759Z
-updated: 2024-10-30T16:23:44.257Z
+date: 2024-11-01T21:11:55.681Z
+updated: 2024-11-05T05:31:11.863Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive TP-Link Archer C80 Analysis - Top Under $100 Routers
@@ -43,10 +43,16 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Antop AT-127
@@ -84,13 +90,6 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **Setup: Easier than most**
@@ -102,16 +101,10 @@ Lifewire / Erika Rawes
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
 <!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels**
@@ -122,7 +115,21 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: Could be better**
 
@@ -131,13 +138,6 @@ Lifewire / Erika Rawes
  On my first attempt, I used the included stand, and the auto-programming only picked up four channels. When I placed the antenna on a window facing the TV transmitter tower, however, the omnidirectional HD antenna picked up 23 channels, which is a good amount considering the area.
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Mid-range**
 
@@ -188,24 +188,17 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-the-art-of-image-detection-opposite-on-facebook-networks-for-2024/"><u>[New] The Art of Image Detection Opposite on Facebook Networks for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-through-the-lens-through-the-mind-advanced-photo-editing-mastery/"><u>[New] Through the Lens, Through the Mind Advanced Photo Editing Mastery</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-advanced-equipment-guide-top-5-innovative-slow-motion-devices/"><u>[Updated] Advanced Equipment Guide Top 5 Innovative Slow Motion Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/achieving-perfection-insightful-hitman-3-assessment/"><u>Achieving Perfection: Insightful Hitman 3 Assessment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/analyzing-the-merits-of-wi-fi-mesh-setups/"><u>Analyzing the Merits of Wi-Fi Mesh Setups</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/effective-techniques-to-restore-microphone-functionality-on-skype-with-windows-11/"><u>Effective Techniques to Restore Microphone Functionality on Skype with Windows 11</u></a></li>
-<li><a href="https://discover-best.techidaily.com/enhanced-web-tracking-and-personalization-through-cookiebot-integration/"><u>Enhanced Web Tracking and Personalization Through Cookiebot Integration</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-oppo-reno-11-5g-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Oppo Reno 11 5G Screen Black But Still Works? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-zte-nubia-z60-ultra-phone-without-password-by-drfone-android/"><u>How To Unlock ZTE Nubia Z60 Ultra Phone Without Password?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/navigating-technology-in-depth-insights-from-toms-computing-world/"><u>Navigating Technology: In-Depth Insights From Tom's Computing World</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/resolved-diagnose-and-mend-error-code-0xc0000017-on-your-pc-repair-guide/"><u>RESOLVED: Diagnose & Mend Error Code 0xC0000017 on Your PC - Repair Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/simplified-steps-for-cutting-top-sports-videos/"><u>Simplified Steps for Cutting Top Sports Videos</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-corsair-one-pro-innovative-and-sleek-for-serious-gamers/"><u>The Ultimate Guide to the Corsair One Pro: Innovative and Sleek for Serious Gamers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-pick-evaluating-the-reliable-space-saving-j5-tactical-v1-pro-flashlight-for-optimal-low-light-performance/"><u>Top Pick: Evaluating the Reliable, Space-Saving J5 Tactical V1-Pro Flashlight for Optimal Low-Light Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-hp-chromebook-11-analysis-perfectly-balanced-for-learning-productivity-and-entertainment/"><u>Ultimate HP Chromebook 11 Analysis: Perfectly Balanced for Learning, Productivity, and Entertainment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unearthing-pleasure-in-the-world-of-pokemon-shining-pearl/"><u>Unearthing Pleasure in the World of Pokemon Shining Pearl</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unpacking-excellence-with-the-samsung-galaxy-tab-s7plus-review-your-go-to-for-superior-android-experience/"><u>Unpacking Excellence with the Samsung Galaxy Tab S7+ Review: Your Go-To for Superior Android Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potential-of-your-fitness-journey-with-the-samsung-galaxy-watch-active/"><u>Unveiling the Potential of Your Fitness Journey with the Samsung Galaxy Watch Active</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/viking-saga-unveiled-in-assassins-creed-valhalla-a-comprehensive-game-review/"><u>Viking Saga Unveiled in Assassin's Creed: Valhalla - A Comprehensive Game Review</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-cutting-edge-recording-win-11s-superior-camcorders/"><u>[New] 2024 Approved Cutting-Edge Recording Win 11'S Superior Camcorders</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-10-power-players-youtubes-ladies-in-gaming-for-2024/"><u>[Updated] 10 Power Players YouTube's Ladies in Gaming for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-flavorful-frames-stepwise-food-film-making-for-2024/"><u>[Updated] Flavorful Frames Stepwise Food Film-Making for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-insta-spin-wonders-expert-techniques-to-enthrall-your-followers-with-flipped-photos/"><u>2024 Approved Insta Spin Wonders Expert Techniques to Enthrall Your Followers with Flipped Photos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-oppo-a78-5g-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Oppo A78 5G via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-tablet-with-a-gorgeous-fhdplus-display-lenovo-tab-m10-in-2020-an-in-depth-analysis/"><u>Budget-Friendly Tablet with a Gorgeous FHD+ Display: Lenovo Tab M10 in 2020 - An In-Depth Analysis</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/exploring-the-strengths-of-the-asus-tuf-a14-gaming-laptop-steadfastness-meets-efficiency/"><u>Exploring the Strengths of the Asus TUF A14 Gaming Laptop - Steadfastness Meets Efficiency</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-effectively-power-cycle-or-force-reboot-on-every-version-of-the-ipad/"><u>How to Effectively Power Cycle or Force Reboot on Every Version of the iPad</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-leading-virtual-reality-enhancements-for-gamers/"><u>In 2024, Leading Virtual Reality Enhancements for Gamers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-samsung-qn55q60rafxza-smart-tv-with-advanced-4k-and-hdr10plus-technology/"><u>In-Depth Analysis of the Samsung QN55Q60RAFXZA Smart TV with Advanced 4K and HDR10+ Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-oneplus-nine-breakdown-quantitative-disappointments/"><u>The OnePlus Nine Breakdown: Quantitative Disappointments</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/understanding-why-to-choose-an-m3-macbook-air/"><u>Understanding Why to Choose an M3 MacBook Air</u></a></li>
 </ul></div>
 

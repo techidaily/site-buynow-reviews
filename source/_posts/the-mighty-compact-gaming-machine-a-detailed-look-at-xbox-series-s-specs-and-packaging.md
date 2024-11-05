@@ -1,7 +1,7 @@
 ---
 title: The Mighty Compact Gaming Machine - A Detailed Look at Xbox Series S Specs and Packaging
-date: 2024-10-26T16:42:06.221Z
-updated: 2024-10-30T16:30:54.364Z
+date: 2024-10-28T17:58:34.433Z
+updated: 2024-11-04T21:41:20.462Z
 categories:
   - BestProducts
 description: This Article Describes The Mighty Compact Gaming Machine - A Detailed Look at Xbox Series S Specs and Packaging
@@ -71,6 +71,13 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
  Lifewire / Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design and Software: A surprising amount of features in this chunky watch**
 
  The most outstanding feature of the Bitwatch’s design is its chunkiness. For those with small wrists, this smartwatch looks ridiculous. Furthermore, the included bands are too small in comparison to the watch, giving the overall design a cheap feel. When you wear this watch, you will notice it weighing your wrists down, taunting you to take it off. But as ugly as the Bitwatch is, it is a functional little watch. It has a power button and volume buttons, as well as a strong vibration motor. Its touchscreen works without a problem, and the app layout is intuitive to understand.
@@ -81,6 +88,13 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
  While it doesn’t have[NFC](https://www.lifewire.com/what-is-nfc-832715) or GPS, it does have a speaker, and you can send basic messages with the watch. The Bitwatch S1 is surprisingly robust for those who want to dip their toes into the smartwatch experience, with many of the features that mid-tier smartwatches possess.
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Easy, but unexplained**
 
  Setting up the Bitwatch works as you’d expect. Pair it via the Bluetooth on your phone and download the Beantech app. It works with both Android and iOS, so you should have no difficulty. Alerts will show up in the remote notifier app, and apps such as the calendar are not synced with your phone’s calendar apps, so keep that in mind if you’d like to add any events, notifications, or alarms to your watch.
@@ -88,20 +102,13 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/O7xHfA9sKsBdC0nmqNXbFky-Dm4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-2-3b838f1124184bbd9452b79bb8449c2b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: You get what you pay for**
 
@@ -128,10 +135,10 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
  The Beantech Bitwatch is not a groundbreaking smartwatch, but it provides a lot of essential features for $50.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: If you want more, it will cost more**
@@ -145,13 +152,6 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
  **An ultra-budget smartwatch that covers the basics.**
 
  The Beantech Bitwatch is not a groundbreaking smartwatch, but it provides a lot of essential features for $50\. If you’re looking to try out smartwatches, the Bitwatch will give you a solid battery life, music storage, passive notifications, phone call management, and a very large touchscreen.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -182,24 +182,22 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-gopro-evolution-a-step-by-step-comparison-tutorial/"><u>[New] Gopro Evolution A Step-by-Step Comparison Tutorial</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-elite-android-3d-entertainment-hub/"><u>2024 Approved Elite Android 3D Entertainment Hub</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-alternative-in-depth-look-at-the-apple-ipad-air-2020/"><u>Budget-Friendly Alternative: In-Depth Look at the Apple iPad Air (2020)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-face-off-nintendo-switch-lite-versus-nintendo-switch-oled-review/"><u>Comprehensive Face-Off: Nintendo Switch Lite Versus Nintendo Switch OLED Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-tp-links-av1300-wi-fi-extender-is-it-really-powerful-enough/"><u>Comprehensive Review of TP-Link's AV1300 Wi-Fi Extender - Is It Really Powerful Enough?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/conquer-cosmic-markets-in-offworld-trading-company-an-essential-game-review-for-savvy-traders/"><u>Conquer Cosmic Markets in 'Offworld Trading Company': An Essential Game Review for Savvy Traders</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/detailed-analysis-of-star-wars-squadrons-an-engaging-galactic-battle-experience/"><u>Detailed Analysis of Star Wars: Squadrons - An Engaging Galactic Battle Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/echo-dot-vs-homepod-mini-face-off-identifying-critical-contrasts/"><u>Echo Dot Vs. HomePod Mini Face-Off: Identifying Critical Contrasts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-advice-on-boosting-performance-in-intel-powered-imac-computers/"><u>Expert Advice on Boosting Performance in Intel-Powered iMac Computers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-why-kootek-is-leading-the-pack-in-laptop-thermal-management/"><u>Expert Analysis: Why Kootek Is Leading the Pack in Laptop Thermal Management</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/explore-lighting-innovations-in-our-top-softbox-kits-2024/"><u>Explore Lighting Innovations in Our Top Softbox Kits 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-vivo-y200-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Vivo Y200 Quickly | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-the-ultimate-toolkit-for-editors-magix-video-pro-x-review/"><u>In 2024, The Ultimate Toolkit for Editors Magix Video Pro X Review</u></a></li>
-<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-m14-5g-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy M14 5G Phone FRP Lock</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/masterful-selection-8-top-free-3d-video-players-windows-and-mac-for-2024/"><u>Masterful Selection 8 Top Free 3D Video Players Windows & Mac for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/resolved-fixes-and-solutions-for-logitech-g433-microphone-issues/"><u>Resolved: Fixes & Solutions for Logitech G433 Microphone Issues</u></a></li>
-<li><a href="https://extra-support.techidaily.com/serenity-through-stories-a-review-of-parent-driven-narrative-vids-for-2024/"><u>Serenity Through Stories A Review of Parent-Driven Narrative Vids for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-vivo-y100-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Vivo Y100 | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-to-the-most-effective-wi-fi-expanders-for-this-year/"><u>Ultimate Guide to the Most Effective Wi-Fi Expanders for This Year</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-creating-captivating-vimeo-video-content-for-2024/"><u>[New] Creating Captivating Vimeo Video Content for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-key-players-in-top-6-4k-youtube-to-mp3-conversion-software/"><u>2024 Approved Key Players in Top 6 4K YouTube-to-MP3 Conversion Software</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/darktable-a-cost-free-alternative-to-editing-high-quality-raw-photographs-on-your-apple-or-linux-machine/"><u>Darktable: A Cost-Free Alternative to Editing High-Quality RAW Photographs on Your Apple or Linux Machine</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/decoding-the-kobo-nia-review-a-formidable-challenger-to-amazons-kindle-empire/"><u>Decoding the Kobo Nia Review: A Formidable Challenger to Amazon's Kindle Empire</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/delving-into-advanced-gadgets-with-toms-electronics-expertise/"><u>Delving Into Advanced Gadgets with Tom's Electronics Expertise</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-show-wi-fi-password-on-xiaomi-redmi-note-12-5g-by-drfone-android/"><u>How to Show Wi-Fi Password on Xiaomi Redmi Note 12 5G</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-apple-iphone-11-pro-without-him-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, Two Ways to Track My Boyfriends Apple iPhone 11 Pro without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ipad-pro-vs-surface-pro-showdown-which-tablet-outperforms/"><u>IPad Pro Vs. Surface Pro Showdown: Which Tablet Outperforms?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/make-the-most-of-your-gaming-experience-top-methods-to-document-minecraft-on-mac/"><u>Make the Most of Your Gaming Experience - Top Methods to Document Minecraft on Mac</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/obs-streaming-hitch-lets-tackle-that-troublesome-black-screen-issue/"><u>OBS Streaming Hitch? Let’s Tackle That Troublesome Black Screen Issue!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/resolving-the-kernel-paging-issue-step-by-step-guide/"><u>Resolving the Kernel Paging Issue: Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-ion-audio-tailgater-plus-seamless-playback-and-enhanced-bass-with-easy-one-touch-controls/"><u>Review of Ion Audio Tailgater Plus: Seamless Playback and Enhanced Bass with Easy One-Touch Controls</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/selecting-your-next-laptop-insiders-list-of-top-e-places-to-shop/"><u>Selecting Your Next Laptop: Insider's List of Top E Places To Shop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smart-buying-what-to-look-for-when-picking-the-perfect-activity-tracking-gadget/"><u>Smart Buying: What to Look for When Picking the Perfect Activity Tracking Gadget</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/soundsafeguard-wireless-headphones-insight/"><u>SoundSafeguard Wireless Headphones Insight</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-midland-lxt500vp3-radio-series-a-deep-dive-into-its-extensive-capabilities-and-contrasting-actual-output/"><u>The Midland LXT500VP3 Radio Series: A Deep Dive Into Its Extensive Capabilities and Contrasting Actual Output</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potential-comprehensive-review-of-aphaca-bt69-compact-fm-bluetooth-radio-for-cars/"><u>Unveiling the Potential: Comprehensive Review of Aphaca BT69 Compact FM Bluetooth Radio for Cars</u></a></li>
 </ul></div>
 

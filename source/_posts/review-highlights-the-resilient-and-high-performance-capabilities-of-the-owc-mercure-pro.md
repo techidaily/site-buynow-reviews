@@ -1,7 +1,7 @@
 ---
 title: "Review Highlights: The Resilient and High-Performance Capabilities of the OWC Mercure Pro"
-date: 2024-09-04T18:46:56.600Z
-updated: 2024-09-05T18:46:56.600Z
+date: 2024-11-02T19:17:16.916Z
+updated: 2024-11-04T20:15:29.264Z
 categories:
   - BestProducts
 description: "This Article Describes Review Highlights: The Resilient and High-Performance Capabilities of the OWC Mercure Pro"
@@ -38,9 +38,23 @@ Lifewire / Rebecca Isaacs
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Sabrent Mini Travel USB Optical Mouse
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/XBAevViAWBKn-uqOn_jnTLrfwTw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_HeroSquare-6ae9d6d299054d748f84492b5c31f033.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -78,23 +92,18 @@ Lifewire / Rebecca Isaacs
  The cable’s addition increases the size of the mouse, bringing the total measurements to 6.44 x 1.5x 2.44 inches (LWH). The Sabrent also comes with a mesh carrying bag, making it easy to pack up and take on the go without scratching it. One more perk: this mouse is adaptable to most[Windows](https://www.lifewire.com/windows-4781566) ,[Mac](https://www.lifewire.com/mac-backup-software-hardware-and-guides-2260931) , and[Linux](https://www.lifewire.com/software-and-apps-4781541) systems, so you can insert it into USB ports across multiple machines for fast use.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process: Plug and play**
 
  Setting up the Sabrent proved simple and convenient. Expanding the cable and plugging it into the PC’s USB port allows the Sabrent to self-install. In under less than a minute, the plug and play features kick in. If you need to alter it to suit ambidextrous needs, you’ll need to head into the control panel of your PC to make the swap. Those requiring left-handed features will need to alter it. Once the software quickly installs, and you’re able to begin scrolling in no time.
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/mM3uSf3Y2pyayDyWJzP8_5uUya4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_05-04e025144b514674b109e77f79129d74.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
 ## **Performance: Precise, but mildly problematic**
@@ -106,11 +115,12 @@ Lifewire / Rebecca Isaacs
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/ZAK9csfHFEKVkNFSzE-Knbqabgs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_03-c6a7b875505642c69218c2c6c3449e50.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
  The buttons responded quickly and with ease as well. While the main and right buttons do click with some noise, the constant clacking won’t get on any nerves. The scroller isn’t loud, but it took us a couple rolls of the wheel before it shifted around without any resistance. This ultimately wasn’t a big deal, but it might need a little breaking in, so don’t give up on it straight away.
@@ -125,30 +135,12 @@ Lifewire / Rebecca Isaacs
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/h8ibsbPtDqgJOD0XgpZSD6FOXUU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_02-1331828bbc3f460baebd85cbd24d61e2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2031472/7443" target="_top" id="2031472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2031472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2031472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Reasonable**
 
  At around $7, this is a great budget mouse. Essentially, the cost is for basic mouse features, and not for anything heavier or more taxing on a PC. If you’re looking for a travel mouse with more features, then expect to spend more. However, if accomplishing work tasks is solely your task then this is the perfect price point.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Sabrent Mini Travel Mouse vs. VicTsing Wireless Mouse**
 
  Because the mouse is so tiny, we also tested the[VicTsing Wireless Mouse](https://www.lifewire.com/victsing-wireless-mouse-review-4799129) (view on[Amazon](https://www.amazon.com/VicTsing-Wireless-Portable-Receiver-Adjustable/dp/B013WC0P2A/?tag=lifewire-onsite-prod-20&ascsubtag=4799034%7Cn6493c6f4bf4b471ba05fab7dd162554120%7C) ) to get a feel as to which mouse is the better option for a portable, travel mouse. The answer turned out to be more complicated: whereas the Sabrent was more ideal for ambidextrous travel, the VicTsing Wireless Mouse was geared more for right-handed users who prefer adjustable and wireless features.
@@ -163,6 +155,13 @@ Lifewire / Rebecca Isaacs
 
  While we constantly had to shift our grip on the tiny Sabrent mouse, we really liked its portability and fast, accurate movements. The cable proved to be difficult for desktop use, however, laptop users will enjoy the speeds that accompany the wired cable.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Mini Travel USB Optical Mouse
@@ -175,14 +174,11 @@ Lifewire / Rebecca Isaacs
 * Compatibility  Windows 2000 and up, Mac OS X and up, Linux systems
 * Connectivity options  USB Port, NOT Bluetooth Enabled
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -191,4 +187,26 @@ Lifewire / Rebecca Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-a-comprehensive-guide-to-softening-images-with-iphone-software/"><u>[New] A Comprehensive Guide to Softening Images with iPhone Software</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-excellent-screen-capture-software-for-windows-11-users/"><u>[New] In 2024, Excellent Screen Capture Software for Windows 11 Users</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-enterprise-account-the-complete-guidebook-for-2024/"><u>[New] Instagram Enterprise Account The Complete Guidebook for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-installation-masterclass-transitioning-to-macos-sierra/"><u>[New] Installation Masterclass Transitioning to macOS Sierra</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-elite-desktopmobile-communication-software-zoom-substitutes/"><u>[Updated] Elite Desktop/Mobile Communication Software (Zoom Substitutes)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-detailed-depth-ranking-10-smartphones-with-superior-4k-camera-capabilities/"><u>[Updated] In 2024, Detailed Depth Ranking 10 Smartphones with Superior 4K Camera Capabilities</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-the-art-of-retention-capturing-gifs-from-social-media/"><u>[Updated] In 2024, The Art of Retention Capturing GIFs From Social Media</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-newly-released-apple-m4-processor-specifications-and-announcement-date/"><u>Exploring the Newly Released Apple M4 Processor - Specifications & Announcement Date</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/future-proof-your-network-an-authoritative-review-of-the-netgear-nighthawk-ax8-wi-fi-6-mesh-extender/"><u>Future-Proof Your Network: An Authoritative Review of the Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-on-oneplus-nord-ce-3-lite-5g-by-drfone-android/"><u>How to Bypass FRP on OnePlus Nord CE 3 Lite 5G?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-choreographing-content-and-music-in-powerpoint/"><u>In 2024, Choreographing Content and Music in PowerPoint</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/intuitive-navigation-on-the-budget-friendly-z-edge-z3-plus-dashcam-in-depth-review/"><u>Intuitive Navigation on the Budget-Friendly Z-Edge Z3 Plus Dashcam: In-Depth Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-applecares-value-proposition-a-critical-review/"><u>Navigating AppleCare's Value Proposition: A Critical Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-world-of-amazon-devices-understanding-the-gap-between-kindle-and-fire-tablet/"><u>Navigating the World of Amazon Devices: Understanding the Gap Between Kindle & Fire Tablet</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/shining-up-your-videos-on-android/"><u>Shining Up Your Videos on Android</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-timeless-adventure-of-ratchet-and-clank-reviewing-the-remastered-edition/"><u>The Timeless Adventure of Ratchet & Clank: Reviewing the Remastered Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-portable-laptop-charger-options/"><u>Top-Rated Portable Laptop Charger Options</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleash-your-inner-player-with-these-top-8-google-play-pass-game-titles/"><u>Unleash Your Inner Player with These Top 8 Google Play Pass Game Titles</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unmatched-selection-on-a-budget-the-ultimate-roku-express-review-highlights-huge-library-accessibility/"><u>Unmatched Selection on a Budget: The Ultimate Roku Express Review Highlights Huge Library Accessibility</u></a></li>
+</ul></div>
 

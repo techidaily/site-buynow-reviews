@@ -1,7 +1,7 @@
 ---
 title: Is the Samsung Galaxy S10+ Still Relevant Against the New S20?
-date: 2024-09-04T18:47:03.419Z
-updated: 2024-09-05T18:47:03.419Z
+date: 2024-10-30T23:46:08.129Z
+updated: 2024-11-05T04:37:35.039Z
 categories:
   - BestProducts
 description: This Article Describes Is the Samsung Galaxy S10+ Still Relevant Against the New S20?
@@ -72,6 +72,13 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Functional and slightly elevated**
 
  The Samsung Galaxy Fit is a fitness-oriented device, and the design reflects this. It’s clean, minimal, and straightforward. Not only is this wearable extremely lightweight at only 0.81 ounces, but it’s also quite slim, which gives it a bracelet-like appearance.
@@ -86,20 +93,15 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/uFwssrqnoTWtrPSlF6y16TFjA5A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-2-2e9d9cba7ec342918320509e630b0f09.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process** :**Speedy and to the point**
 
  Other than the watch itself, the only other equipment is a wireless charging dock. Charging to 100 percent is recommended at setup, and it took us about 40 minutes for the device to charge in full from about 70 percent charged out of the box.
@@ -111,17 +113,12 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
  Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Comfort: Almost undetectable**
 
  Like the[Samsung Galaxy Watch Active](https://www.lifewire.com/samsung-galaxy-watch-4174640) , this device also features a tucked-in strap. The difference is that there’s a little pin with a round head instead of the straight pin that most watch buckles have. This detail makes for an extremely close fit that verges on almost too close.
@@ -138,13 +135,20 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/SRdpyMKwwNLE2m_Dnn2o9thnpQ8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-3-40a8d98ca4a04e7c9b5b18531df43e6f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: High marks for accuracy**
 
@@ -162,12 +166,6 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/APk5ikkGQieSTN39gBAQ6rf6H9E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-5-5ff5a7cfa0c34594b8d74bbb224e9800.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Yoona Wagener
 
 ## **Battery: Good for a full week of use**
@@ -185,11 +183,12 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
  In addition to controlling the watch settings easily from the[mobile app](https://www.lifewire.com/what-are-apps-1616114) , the Samsung Health app is the other go-to resource. Here you can view all the information captured by the activity tracker, including fitness, sleep, and even stress levels. You can also take this a step further by using the app to monitor calories, weight, and water intake.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Great for what you get**
 
  The Samsung Galaxy Fit retails for $99.99, which makes it a strong competitor in the fitness tracker market. Similarly-priced devices from the Fitbit brand offer an equivalent bundle of all-day activity tracking and general wellness features but lack the vibrant display of the Galaxy Fit.
@@ -210,23 +209,18 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
  The Samsung Galaxy Fit is an appealing option for those who want a bit of smartwatch functionality and a heavy emphasis on exercise monitoring—without shelling out too much money. The fit, ironically, may be the largest issue. But if you’re able to find the right size, this may be everything you want in a fitness tracker.
 
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Samsung Galaxy Watch Active](https://www.lifewire.com/samsung-galaxy-watch-active-review-4766873)
 * [Fitbit Versa](https://www.lifewire.com/fitbit-versa-review-4769748)
 * [Apple Watch Series 4](https://www.lifewire.com/apple-watch-series-4-review-4769752)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -243,14 +237,11 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 * Connectivity  Bluetooth 5.0 (LE only)
 * Warranty  1 year
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -259,4 +250,26 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-top-10-android-and-ios-timers-for-effortless-wedding-countdown-management/"><u>[New] In 2024, Top 10 Android and iOS Timers for Effortless Wedding Countdown Management</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-plan-ahead-on-instagram-rankings-of-the-top-8-scheduling-apps-for-2024/"><u>[New] Plan Ahead on Instagram Rankings of The Top 8 Scheduling Apps for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ace-your-connectivity-leading-cellular-reception-amplifiers-reviewed/"><u>Ace Your Connectivity : Leading Cellular Reception Amplifiers Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/adding-new-games-to-your-nes-classic-console-with-ease/"><u>Adding New Games to Your NES Classic Console with Ease</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/advantages-and-disadvantages-an-in-depth-look-at-the-webex-virtual-conference-system/"><u>Advantages & Disadvantages: An In-Depth Look at the Webex Virtual Conference System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/adventurous-angle-ally-tripod-a-wanderers-dream/"><u>Adventurous Angle Ally Tripod: A Wanderer's Dream</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-power-in-your-hands-in-depth-look-at-the-google-pixel-4a-5g/"><u>Affordable Power in Your Hands: In-Depth Look at the Google Pixel 4a 5G</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/alcatel-joy-tab-5-different-titles-that-capture-a-readers-attention-for-an-article-about-maximizing-productivity-in-remote-work-environments/"><u>Alcatel Joy Tab 5 Different Titles that Capture a Reader's Attention for an Article About 'Maximizing Productivity in Remote Work Environments':</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazon-prime-day-2024-top-technology-savings-and-discounts/"><u>Amazon Prime Day 2024: Top Technology Savings and Discounts</u></a></li>
+<li><a href="https://windows11.techidaily.com/correcting-windows-xc0f1103f-geforce-not-working/"><u>Correcting Windows' XC0F1103F GeForce Not Working</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-add-a-digital-signature-field-to-a-word-2003-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to add a digital signature field to a Word 2003</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/how-to-use-9gag-to-create-meme-for-2024/"><u>How to Use 9GAG to Create Meme for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-nokia-xr21-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Nokia XR21 by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722586046284-lg-oled-c9-series-the-ultimate-feast-of-a-65-inch-4k-widescreen-tv-reviewed-by-experts/"><u>LG OLED C9 Series: The Ultimate Feast of a 65-Inch, 4K Widescreen TV Reviewed by Experts</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-persistent-crashes-in-the-surge-2/"><u>Troubleshooting Persistent Crashes in The Surge 2</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/understanding-the-difference-do-you-retweet-or-re-tweet/"><u>Understanding the Difference: Do You 'Retweet' Or 'Re-Tweet'?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/thing-unique-content-for-youtubes-spotlight-for-2024/"><u>Unearthing Unique Content for Youtube's Spotlight for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722745124861-unpacking-the-features-and-cost-efficiency-of-the-sony-xbr65x850f-tv/"><u>Unpacking the Features and Cost Efficiency of the Sony XBR65X850F TV</u></a></li>
+</ul></div>
 

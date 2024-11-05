@@ -1,7 +1,7 @@
 ---
 title: "Exploring elgooG: Inside The World's Funniest Search Engine"
-date: 2024-10-24T16:20:43.149Z
-updated: 2024-10-30T16:04:29.532Z
+date: 2024-11-04T04:59:17.543Z
+updated: 2024-11-04T16:46:13.137Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring elgooG: Inside The World's Funniest Search Engine"
@@ -48,6 +48,13 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/3Kfyp4XgBEtCuXPHAVw99RFqQs8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_HeroSquare-2e5c3941b8fe49afbd7464f382164976.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
 [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Famazon-halo-activity-and-sleep-tracker-medium-7-onyx%2F6445215.p)
@@ -76,13 +83,6 @@ Lifewire / Yoona Wagener
 
 Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design: An accessory that blends in
 
  The Halo band doesn’t overwhelm the senses. I tested a small-sized band in silver and appreciated the streamlined bracelet style form factor. The fabric strap, which is a mix of sweat-wicking synthetics, has an athleisure look and feel: sporty but not to the degree that it screams sport watch. Rounding out the minimalist look is one sole button on the side of the sensor unit, which is flanked by an[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) indicator and one of two internal microphones. The other mic is located on the back, along with the optical sensor; it's largely undetectable if you manage a close fit.
@@ -91,14 +91,14 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/QHImxX0EsYwunnnS2aNtTX9j80s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_03-66da73beea854cd39f6c35c06975ef4e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Comfort: Streamlined but not immune to typical fit issues
 
@@ -109,13 +109,6 @@ Lifewire / Yoona Wagener
  While the easy-adjusting Velcro strap is a welcome departure from the typical notch-and-clasp closure on most fitness trackers, adjusting the fit or removing the device wasn’t as smooth as I’d expected it to be.
 
  As for water resistance, I didn’t test the 50-meter swimproof rating of the Halo in a pool, but I did shower with the device for three days. Despite the band’s moisture-wicking band material, it remained damp far longer than was comfortable and compared to a fast-drying silicone band. If you’re an avid swimmer or prefer not to remove your wearable while showering, the sport band option will most likely be the more desirable option.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Performance: Constantly monitoring movement, not performance
 
@@ -135,6 +128,13 @@ Lifewire / Yoona Wagener
 
  The body fat scan is based on pictures uploaded to the app—and based on prompts from the app. While it felt invasive and isn’t a feature I’d seek out in a fitness tracker, it worked without issue. Amazon reports that this technology is twice as accurate as smart scales. For the right user who feels comfortable with this kind of data compilation, this feature also offers visualizations of how different body fat percentages would look on your frame and stores your scans for a look at trends over time. All voice data and images used for the body scan are deletable from the app, though you can also choose to back up body data in the[cloud](https://www.lifewire.com/what-is-cloud-computing-817770) , which Amazon assures is private and well secured.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Software: An essential and user-friendly mobile app
 
  Without a visual display to interact with, the accompanying Halo mobile app is absolutely essential to the user experience. It delivers helpful explanations and guidance that most users want. Compatible with[iOS](https://www.lifewire.com/what-is-ios-1994355) and[Android](https://www.lifewire.com/what-is-google-android-1616887) phones, the Halo app makes everything from the initial setup to body scanning and voice tracking straightforward. Sleep data is backed up by explanations as is the activity point tracking system. Automatically tracked workout data is also easily accessible and so is the option to manually upload workout activities (there are 38 to choose from, including an all-encompassing Other category).
@@ -153,18 +153,18 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/fBsShcBruhAWkg-kTKPWkYUaImo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_04-ee532fbe8d2f4e8195e63ed9dd45611a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Yoona Wagener
 
 ## Price: A reasonable price for the feature set
 
  Retailing for just about $100, the Amazon Halo band certainly won’t break the bank for budget-minded shoppers. While the lack of display could be a deterrent, the solid mobile app provides convenient access to the detailed sleep, automatic activity tracking, and specialized tone of voice and body fat analysis the Halo provides.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Amazon Halo vs. WHOOP Strap 3
 
@@ -185,10 +185,10 @@ Lifewire / Yoona Wagener
 * [Ticwatch Pro](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -222,18 +222,22 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-filmmakers-toolbox-in-depth-guide-to-cinematic-techniques-in-24/"><u>[New] 2024 Approved The Filmmaker’s Toolbox In-Depth Guide to Cinematic Techniques in '24</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-apple-vs-android-the-face-id-and-galaxy-recognition-race-for-2024/"><u>[New] Apple Vs. Android The Face ID and Galaxy Recognition Race for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-top-photography-choices-for-sharpest-4k-reflections/"><u>[New] Top Photography Choices for Sharpest 4K Reflections</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-fitness-tracking-with-the-best-value-a-comprehensive-fitbit-versa-lite-review/"><u>Affordable Fitness Tracking with the Best Value - A Comprehensive Fitbit Versa Lite Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-monoprice-graphics-tablet-assessment-top-value-for-artists/"><u>Affordable Monoprice Graphics Tablet Assessment - Top Value for Artists</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/before-investing-in-a-health-gadget-read-this-list-of-5-crucial-fitness-tracker-insights/"><u>Before Investing in a Health Gadget, Read This List of 5 Crucial Fitness Tracker Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-value-in-streaming-in-depth-analysis-of-the-roku-express-edition/"><u>Best Value in Streaming: In-Depth Analysis of the Roku Express Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722520307450-comprehensive-analysis-of-the-antolink-antenna-at-127-exceptional-picture-quality-at-no-cost/"><u>Comprehensive Analysis of the Antolink Antenna AT-127 - Exceptional Picture Quality at No Cost!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-the-omoton-t1-a-solid-choice-for-cost-conscious-tablet-enthusiasts/"><u>Comprehensive Analysis: The Omoton T1, a Solid Choice for Cost-Conscious Tablet Enthusiasts</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/dawn-of-digital-symphony-chatgpts-role-in-sound-design/"><u>Dawn of Digital Symphony: ChatGPT's Role in Sound Design</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Infinix Note 30 VIP Racing Edition? | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/pc-optimization-success-fixes-implemented-for-zombie-army-4-dead-war-launch-glitches/"><u>PC Optimization Success! Fixes Implemented for 'Zombie Army 4: Dead War' Launch Glitches</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-lenovo-thinkpad-x1-titanium-yoga-the-definitive-2-in-1-choice-for-serious-thinkpad-fans/"><u>Unveiling the Lenovo ThinkPad X1 Titanium Yoga: The Definitive 2-in-1 Choice for Serious ThinkPad Fans</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-unlocking-the-potential-with-samsungs-latest-photo-editor/"><u>[New] Unlocking the Potential with Samsung's Latest Photo Editor</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-best-screen-recording-software-top-10-list-for-2024/"><u>[Updated] Best Screen Recording Software Top 10 List for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-art-of-creating-shareable-content-on-fb-for-2024/"><u>[Updated] The Art of Creating Shareable Content on Fb for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-navigating-tiktok-profile-updates-with-linktree-integration/"><u>2024 Approved Navigating TikTok Profile Updates with Linktree Integration</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-viair-88p-pocket-compressor-overwhelming-might-accompanied-by-a-few-downsides/"><u>Comprehensive Analysis of Viair 88P Pocket Compressor - Overwhelming Might Accompanied by a Few Downsides</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-instructions-for-installing-latest-hp-laptop-driver-updates-on-windows-systems/"><u>Easy Instructions for Installing Latest HP Laptop Driver Updates on Windows Systems</u></a></li>
+<li><a href="https://win-answers.techidaily.com/expert-tips-to-overcome-corsair-icue-synchronization-challenges-with-windows-10-and-11/"><u>Expert Tips to Overcome Corsair iCUE Synchronization Challenges with Windows 10 and 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-lg-stylo-phone-6-aesthetic-appeal-paired-with-a-practical-stylus-for-everyday-use/"><u>Exploring the LG Stylo Phone 6: Aesthetic Appeal Paired with a Practical Stylus for Everyday Use</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixed-netflix-keeps-freezing-on-computer/"><u>Fixed: Netflix Keeps Freezing on Computer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/logitech-g533-review-revolutionizing-gaming-audio/"><u>Logitech G533 Review: Revolutionizing Gaming Audio</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/netgear-nighthawk-x6-wi-fi-mesh-extender-review/"><u>Netgear Nighthawk X6 Wi-Fi Mesh Extender Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-game-changer-a-comprehensive-analysis-of-the-new-m1-cpu-in-apples-macbook-pro-13-inch-2020-model/"><u>The Game Changer: A Comprehensive Analysis of the New M1 CPU in Apple's MacBook Pro 13-Inch (2020 Model)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-docoolers-12-megapixel-usb-20-exceptional-quality-or-overhyped-device/"><u>The Ultimate Review of Docooler's 12 Megapixel USB 2.0 – Exceptional Quality or Overhyped Device?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-uc-device-for-professionals/"><u>The Ultimate UC Device for Professionals</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-youtube-thumbnail-grabbers/"><u>Top 8 YouTube Thumbnail Grabbers</u></a></li>
+<li><a href="https://techtrends.techidaily.com/twitch-security-essentials-the-ultimate-guide-to-setting-up-and-utilizing-2fa/"><u>Twitch Security Essentials: The Ultimate Guide to Setting Up and Utilizing 2FA</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-apple-watch-series-6-noteworthy-tweaks-but-continues-to-reign-supreme/"><u>Unveiling the Apple Watch Series 6: Noteworthy Tweaks but Continues to Reign Supreme</u></a></li>
 </ul></div>
 

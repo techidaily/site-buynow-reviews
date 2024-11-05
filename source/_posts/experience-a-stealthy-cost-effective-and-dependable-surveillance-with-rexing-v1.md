@@ -1,7 +1,7 @@
 ---
 title: Experience a Stealthy, Cost-Effective, and Dependable Surveillance with Rexing V1
-date: 2024-10-26T16:04:05.241Z
-updated: 2024-10-30T16:23:24.714Z
+date: 2024-11-01T02:44:00.824Z
+updated: 2024-11-04T22:00:22.153Z
 categories:
   - BestProducts
 description: This Article Describes Experience a Stealthy, Cost-Effective, and Dependable Surveillance with Rexing V1
@@ -70,13 +70,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Small but solid**
 
  If you didn’t know this device was a dashcam, you could be forgiven for mistaking it for a point-and-shoot camera. It has a three-inch screen, and while that is small by the standards of today’s mobile devices, it’s a great size for your windshield. All the indicator lights and icons fit nicely on the screen and you only need to glance at it briefly while you drive to see that it’s recording.
@@ -113,6 +106,13 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Camera Quality: Beyond high definition**
 
  The Z3 Plus has outstanding recording abilities for a camera this size and can capture footage up to 2560 x 1440 resolution. However, this will fill up your camera quite fast, so you can set it as low as 720p if you don’t need super high-resolution footage. You can also adjust the frame rate to 30 and 60 frames per second (for resolutions exceeding 1920 x 1080, only 30 fps is available).
@@ -126,10 +126,10 @@ Lifewire / Danny Chadwick
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Never failed**
@@ -140,15 +140,22 @@ Lifewire / Danny Chadwick
 
  We did experience one strange glitch at the end of our testing—a couple of minutes after we had boxed up the Z3 Plus and put it away, we noticed loud, rapid beeping coming from the box. We took the Z3 Plus back out and it was frozen on the power-up screen. We couldn’t get it to turn off (or stop beeping) until the battery died a few minutes later. The camera appeared to work fine after that and we weren’t able to replicate the problem, but it was something of an alarming glitch from such a new device.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Fair price for a fair product**
 
  As of the time of this writing, you can pick up this dashcam from Z-Edge for between $120 and $140, which seems like a good value to us. Given its features, tools, and image quality, it’s a fair price for a useful and reliable device.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Z-Edge Z3 Plus vs. Apeman C450 Dash Camera**
@@ -166,13 +173,6 @@ Lifewire / Danny Chadwick
  **A durable, reliable dashboard camera that captures high-quality footage.**
 
  The Z-Edge Z3 Plus is easy to set up, intuitive to use, captures clear video footage for a reasonable price. We would like to have seen a second mounting option to the suction cup and a longer-lasting battery, but those are minor quibbles in light of this device’s reliable performance.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -206,21 +206,24 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-crafting-igtv-content-with-multilingual-support/"><u>[New] 2024 Approved Crafting IGTV Content with Multilingual Support</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-ethical-engagement-sustainable-strategies-for-content-creeps/"><u>[New] 2024 Approved Ethical Engagement Sustainable Strategies for Content Creeps</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/he-insiders-guide-to-online-video-affiliates-for-2024/"><u>[New] The Insider’s Guide to Online Video Affiliates for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-how-to-increase-followers-on-facebook-10-effective-ways/"><u>[Updated] 2024 Approved How to Increase Followers on Facebook (10 Effective Ways )</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-no-fog-only-clarity-gopro-lens-care-essentials/"><u>[Updated] 2024 Approved No Fog, Only Clarity GoPro Lens Care Essentials</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-a-compreranial-expedition-into-high-quality-pictures/"><u>[Updated] In 2024, A Compreranial Expedition Into High Quality Pictures</u></a></li>
-<li><a href="https://win11.techidaily.com/augmenting-linux-excellence-through-windows/"><u>Augmenting Linux Excellence Through Windows</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-the-toshiba-55lf711u20-fire-tv-edition-elevates-your-amazon-prime-entertainment-a-comprehensive-review/"><u>How the Toshiba 55LF711U20 Fire TV Edition Elevates Your Amazon Prime Entertainment - A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/hp-stream-14-review/"><u>HP Stream 14 Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/hp-stream-n14-2020-reviewed-balancing-cost-and-functionality-in-laptops/"><u>HP Stream N14 (2020) Reviewed: Balancing Cost and Functionality in Laptops</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-apple-iphone-xs-max-top-ranking-and-premium-cost/"><u>In-Depth Analysis of the Apple iPhone XS Max: Top Ranking & Premium Cost</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-viber-out-calling-app-feedback/"><u>In-Depth Analysis of Viber Out Calling App Feedback</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/insights-on-the-apeman-c450-camera-for-your-vehicle-economical-and-reliable-review/"><u>Insights on the Apeman C450 Camera for Your Vehicle: Economical and Reliable Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lenovo-tab-m10-hd-2020-review/"><u>Lenovo Tab M10 HD (2020) Review</u></a></li>
-<li><a href="https://win-blog.techidaily.com/reporting/"><u>Reporting</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210877132-9781601637338-the-purpose-guided-universe/"><u>The Purpose-Guided Universe | Free Book</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-discovering-the-power-of-fraps-in-video-capture/"><u>[New] In 2024, Discovering the Power of Fraps in Video Capture</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-rapid-windows-photo-examiner-for-enhanced-efficiency-for-2024/"><u>[Updated] Rapid Windows Photo Examiner for Enhanced Efficiency for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/chatgpt-unlocks-wearable-potential-with-six-pioneering-capabilities/"><u>ChatGPT Unlocks Wearable Potential with Six Pioneering Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-cp24-criacr-bluetooth-fm-transmitter-assessment-size-and-imperfections-analyzed/"><u>Comprehensive CP24 Criačr Bluetooth FM Transmitter Assessment: Size and Imperfections Analyzed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/game-like-never-before-on-the-philips-49-inches-pro-premium-oled-curve-screen/"><u>Game Like Never Before on the Philips 49 Inches Pro Premium OLED Curve Screen</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-itel-a70-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Itel A70? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-shimmer-shots-the-art-of-setting-the-scene-with-light/"><u>In 2024, Shimmer Shots The Art of Setting the Scene with Light</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-anker-powercore-26800-top-rated-battery-pack-bundle/"><u>In-Depth Look at the Anker PowerCore 26800 - Top Rated Battery Pack Bundle</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-samsung-galaxy-a20-an-affordable-option-for-android-lovers/"><u>In-Depth Look at the Samsung Galaxy A20 - An Affordable Option for Android Lovers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/no-download-needed-youtube-to-vivid-animation-gif-transformation/"><u>No Download Needed YouTube to Vivid Animation Gif Transformation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/razer-blade-pro-17-analysis-the-ultimate-gaming-laptop-on-the-go/"><u>Razer Blade Pro 17 Analysis: The Ultimate Gaming Laptop on the Go</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/streamline-your-pets-diet-with-the-automatic-six-serving-petfeast-by-petsafe/"><u>Streamline Your Pet’s Diet with the Automatic Six-Serving PetFeast by PetSafe</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-and-worst-of-the-new-lenovo-thinkpad-x1-fold-an-expert-review/"><u>The Best and Worst of the New Lenovo ThinkPad X1 Fold - An Expert Review</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-claude-edge-discover-4-ways-it-surpasses-chatgpt-in-conversation/"><u>The Claude Edge: Discover 4 Ways It Surpasses ChatGPT in Conversation</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-most-advanced-overhead-speakers-of-2n24-find-your-perfect-match/"><u>The Most Advanced Overhead Speakers of 2N24: Find Your Perfect Match</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-nokia-c300-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Nokia C300 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleash-your-photographic-potential-with-canon-sx530/"><u>Unleash Your Photographic Potential with Canon SX530</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-improved-functionality-in-amazons-latest-echo-model-our-detailed-review/"><u>Unveiling the Improved Functionality in Amazon’s Latest Echo Model – Our Detailed Review</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unveiling-the-secrets-to-successful-zoom-calls-with-android-for-2024/"><u>Unveiling the Secrets to Successful Zoom Calls with Android for 2024</u></a></li>
 </ul></div>
 

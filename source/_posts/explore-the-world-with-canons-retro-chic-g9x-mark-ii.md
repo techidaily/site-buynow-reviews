@@ -1,7 +1,7 @@
 ---
 title: Explore the World with Canon's Retro-Chic G9X Mark II
-date: 2024-10-26T16:45:41.344Z
-updated: 2024-10-30T16:46:47.923Z
+date: 2024-10-30T09:10:47.940Z
+updated: 2024-11-05T06:39:47.667Z
 categories:
   - BestProducts
 description: This Article Describes Explore the World with Canon's Retro-Chic G9X Mark II
@@ -43,16 +43,16 @@ Lifewire / Jeremy Laukkonen
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Lenovo Tab M10 HD (2nd Gen)
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/nflgcBFiQwDyFecUir_IrCX-Gc4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_HeroSquare-00489478f3e74cb9b38444e2d94ab257.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -104,10 +104,10 @@ Lifewire / Jeremy Laukkonen
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/pPNbzMq7aB9LY-_koMR-oHoTUHA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_02-1cb2ef47999844eaacd3c03a777faea8-f2d25c46eb184b4c8b7a8667735f2ea9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -165,10 +165,10 @@ Lifewire / Jeremy Laukkonen
  On the subject of audio and headphones, the Tab M10 HD includes a[built-in FM radio](https://www.lifewire.com/use-fm-radio-on-smartphone-4176272) using your headphones as the antenna. I plugged in my favorite earbuds, loaded up an FM radio app, and I was able to pull down dozens of local FM radio stations with pretty decent reception. This is a feature that isn’t always enabled even when the hardware technically supports it, so it’s a nice little extra you’ll be able to rely on even if your internet goes down.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Network: Good Wi-Fi speeds and an LTE option
@@ -191,18 +191,18 @@ Lifewire / Jeremy Laukkonen
 
 ![ Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/QWjGqm3tIOfUaMl-XbAiyNGq3Qs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_04-1ce5df00874d43509815a19be12088ad-889e4f6f68c041b58b9e2d96cd0d9c29.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jeremy Laukkonen
 
  Photos taken with the rear camera are more or less what I’ve come to expect from devices in this price class. Colors tend to look washed out, and uneven light results in parts of a photo being blown out. In anything less than full daylight outdoors, I noticed a whole lot of noise as well.
 
  The front camera is even worse, and you probably won’t be uploading any selfies taken with this tablet to your Instagram. I found it to work fine for video calls, but my face was always washed out or blown out depending on the lighting conditions.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Battery: Could be bigger
 
@@ -212,6 +212,13 @@ Lifewire / Jeremy Laukkonen
 
  While this isn’t an all-day battery, and you’ll probably have to stick it on the charger every day, six hours is long enough to catch up on your favorite show in bed at night, or keep the kids entertained in the car during a long drive.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Software: Stock Android 10 and Google Kids Space
 
  Lenovo doesn’t mess around with stock Android too much, and the Tab M10 HD ships with a very clean, very stock Android 10 experience. It works exactly like you’d expect a stock Android 10 device to work, with the extra apps it forces on you being only the Lenovo Tips app, an FM radio app, and Dolby Atmos.
@@ -219,10 +226,10 @@ Lifewire / Jeremy Laukkonen
  The biggest news here is that the second gen Tab M10 HD comes with Google Kids Space, which is a great app if you have kids, as it allows you to transform the tablet into a kid-friendly spigot of entertainment. It includes tons of pre-approved apps, books, and videos so you don’t have to worry about curating age-appropriate content. It also integrates with the Google Family Link app, providing you with remote control over screen time limits, bed times, and more.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Price: Hits the right price point for what you get
@@ -231,14 +238,14 @@ Lifewire / Jeremy Laukkonen
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/tEVLeulE6MYWbsBkYCv9cDXD3CM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_05-ffe07c01135a491abdafbdc41ef6eca6.jpg)
 
-Lifewire / Jeremy Laukkonen
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Lifewire / Jeremy Laukkonen
 
 ## Lenovo Tab M10 HD (2020) vs. Lenovo Tab M10 FHD Plus (2020)
 
@@ -259,13 +266,6 @@ Lifewire / Jeremy Laukkonen
 * [Lenovo P11 Pro](https://www.lifewire.com/lenovo-p11-pro-review-5116910)
 * [Samsung Galaxy Tab S7+](https://www.lifewire.com/samsung-galaxy-tab-s7-review-5088997)
 * [Google Pixel Slate](https://www.lifewire.com/pixel-slate-review-a-chromeos-mess-5072398)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -304,21 +304,16 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-exclusive-insight-into-selecting-the-top-5-digital-title-makers/"><u>[New] Exclusive Insight Into Selecting the Top 5 Digital Title Makers</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-cuddly-creatures-galore-best-android-wildlife-titles/"><u>[New] In 2024, Cuddly Creatures Galore Best Android Wildlife Titles</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-top-picks-best-hd-cameras-for-professional-twitch-streamers/"><u>[Updated] In 2024, Top Picks Best HD Cameras for Professional Twitch Streamers</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-depth-analysis-unveiling-the-best-5-racer-simulations/"><u>[Updated] In-Depth Analysis Unveiling the Best 5 Racer Simulations</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-unveiling-the-path-to-your-youtube-comments-on-devices-for-2024/"><u>[Updated] Unveiling the Path to Your YouTube Comments on Devices for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/discover-the-leading-2024-freeware-for-creating-stunning-brand-watermarks-top-15-picks/"><u>Discover the Leading 2024 Freeware for Creating Stunning Brand Watermarks (Top 15 Picks)</u></a></li>
-<li><a href="https://article-files.techidaily.com/leading-innovation-vr-controllers-reviewed-for-2024/"><u>Leading Innovation VR Controllers Reviewed for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/leading-voice-customization-go-beyond-echoes/"><u>Leading Voice Customization Go Beyond Echoes</u></a></li>
-<li><a href="https://discover-great.techidaily.com/methoden-zur-wiederherstellung-und-ubertragung-von-iphone-fotobackups/"><u>Methoden Zur Wiederherstellung Und Übertragung Von iPhone-Fotobackups</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/netgears-nighthawk-x6-wi-fi-extender-uncovered-a-detailed-review-of-its-advanced-capabilities/"><u>Netgear's Nighthawk X6 Wi-Fi Extender Uncovered – A Detailed Review of Its Advanced Capabilities</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/practical-and-powerful-dissecting-the-features-and-value-of-apples-2020-iphone-se-model/"><u>Practical and Powerful: Dissecting the Features and Value of Apple's 2020 iPhone SE Model</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/premium-portability-and-performance-in-nikon-sb-700/"><u>Premium Portability and Performance in Nikon SB-700</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/prime-day-bargains-exclusive-discounts-on-high-quality-tribit-headphones-and-bluetooth-speakers/"><u>Prime Day Bargains: Exclusive Discounts on High-Quality Tribit Headphones & Bluetooth Speakers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-s20-vs-s10plus-an-in-depth-performance-analysis/"><u>Samsung Galaxy S20 vs S10+: An In-Depth Performance Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-oneplus-nord-n100-explored-exceptional-features-for-the-price-conscious-consumer/"><u>The OnePlus Nord N100 Explored: Exceptional Features for the Price-Conscious Consumer</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-reliable-discreet-and-economical-rexing-v1-dashcam-a-full-performance-breakdown/"><u>The Reliable, Discreet, and Economical Rexing V1 Dashcam: A Full Performance Breakdown</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-crafting-harmonious-photographic-mosaics-with-ease/"><u>[New] Crafting Harmonious Photographic Mosaics with Ease</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-can-instagrams-video-selfies-be-trusted/"><u>[Updated] 2024 Approved Can Instagram's Video Selfies Be Trusted?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-techniques-for-forming-youtube-collab-videos-for-2024/"><u>[Updated] Essential Techniques for Forming YouTube Collab Videos for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-garmin-gpsmap/"><u>Expert Analysis of the Garmin GPSMAP</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-14-pro-to-other-iphone-13-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 14 Pro to other iPhone 13 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/implementing-real-time-transcriptions-in-reels-and-stories/"><u>Implementing Real-Time Transcriptions in Reels and Stories</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-stylish-portability-with-the-acer-chromebook-r-11-our-expert-review-insights/"><u>Navigating Stylish Portability with the Acer Chromebook R 11 – Our Expert Review Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nintendo-switch-review/"><u>Nintendo Switch Review</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-complete-roadmap-to-feeding-your-youtube-plays-with-content/"><u>The Complete Roadmap to Feeding Your YouTube Plays with Content</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-2024-range-routers-ultimate-selection-guide/"><u>Top 2024 Range Routers: Ultimate Selection Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/user-review-and-performance-check-on-google-wireless-nest-doorbell-using-battery-power/"><u>User Review and Performance Check on Google Wireless Nest Doorbell Using Battery Power</u></a></li>
 </ul></div>
 

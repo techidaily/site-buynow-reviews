@@ -1,7 +1,7 @@
 ---
 title: Questionable Decisions in the WS623 Walkman Design
-date: 2024-10-29T16:08:18.974Z
-updated: 2024-10-30T16:10:02.072Z
+date: 2024-10-30T07:05:49.727Z
+updated: 2024-11-04T20:44:20.375Z
 categories:
   - BestProducts
 description: This Article Describes Questionable Decisions in the WS623 Walkman Design
@@ -43,16 +43,10 @@ Lifewire / Danny Chadwick
 4.2
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Rexing V1 DashCam
@@ -103,10 +97,16 @@ Lifewire / Danny Chadwick
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/ztn3EsFqtKkWImvQhtgcr1vlHwI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_02-9ee3aa46e7394a1ab263a6b12b287314.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
@@ -123,14 +123,14 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/df0_L-UzAk3OryqSCncsjfqi8QM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_03-2273fff3f71944368711b60f5da9687e.jpg)
 
- Lifewire / Danny Chadwick
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Danny Chadwick
 
 ## **Camera Quality: Basic**
 
@@ -139,13 +139,6 @@ Lifewire / Danny Chadwick
  When we reviewed the footage captured by the Rexing V1, we found it to be highly detailed and clear when the car was moving along city streets. However, when we hit the freeway, the picture became a little less clear. Signs were hard to read unless you stopped the recording, and small details such as license plates and bumper stickers on other cars couldn’t be made out at all. Nevertheless, the videos yield a good picture of what happens when you drive.
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/9_1pHoEq74JWPJ8reothv8PeI8E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_04-c5d42af8ddfa4296a6c6b1e8551edef6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
 
@@ -164,15 +157,28 @@ Lifewire / Danny Chadwick
  Like the rest of the dashboard cameras we tested, the Rexing V1 has the ability to record audio, but it does a middling job of it. Voices in the car and sounds coming from the interior speakers were clear enough to understand, but sounds from outside the vehicle were muddy at best.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A good value**
 
  The Rexing V1 retails for $130, but as of the time of this writing, can typically be purchased for closer to $100\. We feel like this is a perfectly appropriate price for this device—it falls right in the middle of the typical dashcam price range, providing better performance than super budget models, but without the high-tech features of the more expensive options out there. In short, it’s a good price for a solid, basic device.
+
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Z3 Plus vs. Rexing V1**
 
@@ -219,24 +225,17 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-reddits-crowned-champions-the-10-most-upvoted-posts/"><u>[New] Reddit's Crowned Champions The 10 Most Upvoted Posts</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-rapid-execution-instant-clearance-of-signature-bg/"><u>[Updated] In 2024, Rapid Execution Instant Clearance of Signature Bg</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-understanding-googles-ar-sticker-innovation/"><u>[Updated] Understanding Google's AR Sticker Innovation</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-time-efficient-a-comprehensive-guide-to-srt-to-txt-switching/"><u>2024 Approved Time Efficient A Comprehensive Guide to SRT to TXT Switching</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/key-factors-to-assess-prior-to-purchasing-an-off-contract-mobile-device/"><u>Key Factors to Assess Prior to Purchasing an Off-Contract Mobile Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximizing-your-money-with-the-highly-rated-and-budget-friendly-arcshell-ar-5/"><u>Maximizing Your Money with the Highly Rated and Budget-Friendly Arcshell AR-5</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/microvid-recorder-critique-with-alternatives-for-2024/"><u>MicroVid Recorder Critique with Alternatives for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/nokia-71-smartphone-evaluation-outstanding-screen-and-camera-quality-at-an-attractive-price-point/"><u>Nokia 7.1 Smartphone Evaluation: Outstanding Screen and Camera Quality at an Attractive Price Point</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/picking-between-apple-and-google-the-ultimate-phone-comparison-guide/"><u>Picking Between Apple and Google: The Ultimate Phone Comparison Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/pre-purchase-tips-for-choosing-a-recorder/"><u>Pre-Purchase Tips for Choosing a Recorder</u></a></li>
-<li><a href="https://win-able.techidaily.com/resolving-the-server-connection-lost-error-in-escape-from-tarkov-a-step-by-step-guide/"><u>Resolving the 'Server Connection Lost Error' In Escape From Tarkov: A Step-by-Step Guide</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/reviving-the-old-console-games-with-modern-tactics/"><u>Reviving the Old Console Games with Modern Tactics</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/rigorous-assessment-of-jabras-tough-earbuds/"><u>Rigorous Assessment of Jabra's Tough Earbuds</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/soaring-high-with-the-best-a-comprehensive-review-of-microsofts-flight-simulator-x-gold-version/"><u>Soaring High with the Best: A Comprehensive Review of Microsoft's Flight Simulator X - Gold Version</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-instructions-for-fresh-targus-displaylink-driver-updates-on-windows-11-ve-or-7-systems/"><u>Step-by-Step Instructions for Fresh Targus DisplayLink Driver Updates on Windows 11, Ve, or 7 Systems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/strengthen-wi-fi-signals-discover-how-netgears-nighthawk-x6s-extender-makes-a-difference/"><u>Strengthen Wi-Fi Signals: Discover How Netgear's Nighthawk X6S Extender Makes a Difference</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/taking-flight-with-creativity-a-comprehensive-review-of-the/"><u>Taking Flight with Creativity: A Comprehensive Review of The</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-honor-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Honor Device</u></a></li>
-<li><a href="https://techtrends.techidaily.com/unstuck-from-windows-11-search-issues-here-are-reliable-fixes-to-try/"><u>Unstuck From Windows 11 Search Issues? Here Are Reliable Fixes to Try!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-bypassing-blockbusters-2023-indie-favorites-for-2024/"><u>[Updated] Bypassing Blockbusters 2023 Indie Favorites for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/flexispots-theodore-standing-desk-a-blend-of-style-and-ergonomic-design-for-professionals/"><u>Flexispot's Theodore Standing Desk: A Blend of Style and Ergonomic Design for Professionals</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-best-4k-pads-for-ultimate-gameplay/"><u>In 2024, Best 4K Pads for Ultimate Gameplay</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-omnimix-pro-versatile-os-edition/"><u>In 2024, OMNIMix Pro Versatile OS Edition</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-skyrocketing-traffic-the-power-of-collaborative-youtube-outros/"><u>In 2024, Skyrocketing Traffic The Power of Collaborative YouTube Outros</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-fujitsu-scansnap-ix1400-analysis-top-choice-for-home-and-smb-workstations/"><u>In-Depth Fujitsu ScanSnap iX1400 Analysis: Top Choice for Home and SMB Workstations</u></a></li>
+<li><a href="https://media-tips.techidaily.com/step-by-step-tutorial-accessing-live-coverage-of-rio-2016-olympics-with-apple-tv/"><u>Step-by-Step Tutorial: Accessing Live Coverage of Rio 2016 Olympics with Apple TV</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-iphone-13-slide-and-stand-case-protectors/"><u>Top-Rated iPhone 13 Slide & Stand Case Protectors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-laptop-peripherals-and-gadgets/"><u>Top-Rated Laptop Peripherals and Gadgets</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-portable-speakers-for-your-backyard/"><u>Top-Rated Portable Speakers for Your Backyard</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-samsung-galaxy-s24-gear-and-peripherals-the-ultimate-selection/"><u>Top-Rated Samsung Galaxy S24 Gear and Peripherals: The Ultimate Selection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-substitutes-for-the-apple-pencil/"><u>Top-Rated Substitutes for the Apple Pencil</u></a></li>
 </ul></div>
 

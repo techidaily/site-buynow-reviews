@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Guide to the Moto Craftsmanship: Delving Into the Powerful Performance & Unmatched Battery Capacity"
-date: 2024-10-28T16:06:37.831Z
-updated: 2024-10-30T16:45:29.266Z
+date: 2024-11-04T07:04:53.777Z
+updated: 2024-11-05T04:58:53.058Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate Guide to the Moto Craftsmanship: Delving Into the Powerful Performance & Unmatched Battery Capacity"
@@ -43,23 +43,9 @@ Lifewire / James Huenink
 
 1.4
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Docooler USB 2.0 12 Megapixel
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/23qFdg2CyjsEX1uFEK5ESBb8kO0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_HERO_1LW4065141_7_Final_Square-bd507bc5d1d646f9a0d8d7466601f569.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / James Huenink
 
@@ -84,7 +70,21 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/YIcu00ga1PIrZWJzNk-mS5C4z-A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_5_Final_Horiz-23ef27f359f24e919ebb2f47f9089957.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / James Huenink
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Flimsy and difficult to use**
 
@@ -102,6 +102,13 @@ Lifewire / James Huenink
 
  It was easy to set up when we clipped it to a laptop, but terrible when we tried to put it on our HD TV. Every time we moved the computer or the USB cable, the camera slid, twisted, or fell off the TV. The ball joint, which connects the camera to the base, didn’t move smoothly, so we struggled to point the Docooler USB 2.0 12 Megapixel in the right direction, and we were too worried about breaking the plastic to try and force it.
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Camera Quality: Not even close to advertised**
 
  The Docooler USB 2.0 12 Megapixel is advertised as a 12 megapixel camera capable of HD video, but it wasn’t even close to that. We tested the resolution by taking photos through photobooth, and they were only 640 x 480, or .31 megapixels. We tested the video resolution by using an online webcam testing tool, and it showed exactly the same results. The manufacturer claims the camera has 38 times more resolution than it actually does. We should have known that the manufacturer’s claims were too good to be true given the $8 asking price, but claiming a disparity that huge is really brazen.
@@ -111,13 +118,6 @@ Lifewire / James Huenink
  We tested the camera’s field of view by placing it 13.5 inches from a wall and measuring the field of view, 8.25 inches. After running those measurements through some trigonometric calculations, we found that it has a 34 degree field of view. The camera also has a surprising amount of distortion. Vertical lines in the background had a significant tilt backwards, and we saw tremendous barrel distortion everywhere except for the very center of the image.
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/BxI5asxQavdUO5cT3iIpSIqM9Mk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_10_Final_Horiz-8acc6be9290c439496f17a63684115ae.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / James Huenink
 
@@ -133,16 +133,16 @@ Lifewire / James Huenink
 
  The audio performance of the Docooler USB 2.0 12 Megapixel was also lackluster. The built-in microphone produced poor quality sound, and when we tested it on Skype, voices were both muffled and echoey. People on the other end could understand what we were saying, but it was an unpleasant experience.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Cheap price, even cheaper webcam**
 
  The Docooler USB 2.0 12 Megapixel is the most inexpensive webcam you can buy, ranging from $8 up to around $15, but there’s a reason it’s priced so low. The image and audio quality are both terrible, and the camera is difficult to use.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Falls short**
 
@@ -190,24 +190,19 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-cut-out-facebook-stories-step-by-step-for-pc-and-phones-for-2024/"><u>[New] Cut Out Facebook Stories Step-By-Step for PC & Phones for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-unlock-the-secrets-achieving-facebooks-prestige-marker-for-2024/"><u>[New] Unlock the Secrets Achieving Facebook's Prestige Marker for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-capturing-sound-on-mac-an-audacity-tutorial/"><u>[Updated] 2024 Approved Capturing Sound on Mac An Audacity Tutorial</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-pursuit-of-perfection-online-tv-capture-made-simple-for-2024/"><u>[Updated] In Pursuit of Perfection - Online TV Capture Made Simple for 2024</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-social-syncing-strategy-post-videos-between-platforms/"><u>[Updated] Social Syncing Strategy Post Videos Between Platforms</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-nokia-c12-plus-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Nokia C12 Plus Phones with/without a PC</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-spectacular-screen-synergy-the-perfect-partner-pairing-for-an-mcn/"><u>In 2024, Spectacular Screen Synergy The Perfect Partner Pairing for an MCN</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-superior-selections-pro-webcam-stabilizers/"><u>In 2024, Superior Selections Pro Webcam Stabilizers</u></a></li>
-<li><a href="https://facebook.techidaily.com/security-shaken-or-unshaken-face-recognition-data-deletions-effect-on-facebook/"><u>Security Shaken or Unshaken? Face Recognition Data Deletion's Effect on Facebook</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-family-friendly-router-security-systems-in-2e24/"><u>Top-Rated Family-Friendly Router Security Systems in 2E24</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-sealocus-silver-55-inch-4k-smart-tv-perfect-for-an-outdoorsy-lifestyle/"><u>Ultimate Guide to the Sealocus Silver 55-Inch 4K Smart TV: Perfect for an Outdoorsy Lifestyle</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-selecting-prime-positioning-for-your-ps4-cam/"><u>Ultimate Guide: Selecting Prime Positioning for Your PS4 Cam</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-leading-running-timepieces-and-fitness-bracelets-of-2024/"><u>Ultimate Selection: Leading Running Timepieces & Fitness Bracelets of 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleashing-joy-with-the-budget-friendly-syma-s111g-rc-helicopter-an-in-depth-assessment/"><u>Unleashing Joy with the Budget-Friendly Syma S111G RC Helicopter: An In-Depth Assessment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unraveling-status-bts-merits-cost-economic-but-not-ideal/"><u>Unraveling Status BT's Merits: Cost-Economic but Not Ideal</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-unleash-your-creativity-20-best-adobe-premiere-title-templates-free-download/"><u>Updated Unleash Your Creativity 20 Best Adobe Premiere Title Templates Free Download</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/user-guide-and-feature-breakdown-google-maps-on-iphone-and-ipad/"><u>User Guide & Feature Breakdown: Google Maps on iPhone and iPad</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/venturing-through-yokus-world-the-surprising-depths-of-an-unforgettable-adventure-game/"><u>Venturing Through Yoku's World: The Surprising Depths of an Unforgettable Adventure Game</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/yokus-island-express-how-a-classic-game-evolved-into-an-unexpectedly-grand-odyssey/"><u>Yoku's Island Express – How a Classic Game Evolved Into an Unexpectedly Grand Odyssey</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-efficient-methods-to-block-facebook-adverts-for-2024/"><u>[New] Efficient Methods to Block Facebook Adverts for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-prime-7-free-screen-recorders-for-old-computers-for-2024/"><u>[New] Prime 7 Free Screen Recorders for Old Computers for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-facebooks-recent-views-uncovered-for-you/"><u>[Updated] 2024 Approved Facebook’s Recent Views Uncovered for You</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-rotating-realities-your-guide-to-instagram-vision-for-2024/"><u>[Updated] Rotating Realities Your Guide to Instagram Vision for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/a-closer-look-at-the-new-functionalities-of-windows-10s-creators-update-insider-preview-v1503/"><u>A Closer Look at the New Functionalities of Windows 10'S Creator’s Update (Insider Preview V1503)</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-honor-magic-v2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Honor Magic V2 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor X50 GT? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-simplified-methods-for-saving-screen-share-talks/"><u>In 2024, Simplified Methods for Saving Screen-Share Talks</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/my-journey-towards-a-fully-integrated-smart-house-on-prime-day/"><u>My Journey Towards a Fully-Integrated Smart House on Prime Day</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-3-benefits-of-reviewing-all-the-shows-you-binge-watch/"><u>Top 3 Benefits of Reviewing All the Shows You Binge-Watch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-razer-kishi-experience-top-gadget-for-mastering-mobile-gaming/"><u>Ultimate Razer Kishi Experience: Top Gadget for Mastering Mobile Gaming</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlimited-streaming-how-to-skip-netflixs-screen-restrictions-with-an-easy-hack/"><u>Unlimited Streaming: How to Skip Netflix's Screen Restrictions with an Easy Hack</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-spotifys-latest-hidden-tier-the-mysterious-new-elite-subscription/"><u>Unveiling Spotify's Latest Hidden Tier: The Mysterious New Elite Subscription</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-a-laser-engraver-is-a-must-have-5-essential-advantages-for-craftsmen-and-creatives/"><u>Why a Laser Engraver Is a Must-Have: 5 Essential Advantages for Craftsmen and Creatives</u></a></li>
 </ul></div>
 

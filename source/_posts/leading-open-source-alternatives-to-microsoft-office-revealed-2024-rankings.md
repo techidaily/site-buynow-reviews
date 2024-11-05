@@ -1,7 +1,7 @@
 ---
 title: "Leading Open Source Alternatives to Microsoft Office Revealed: 2024 Rankings"
-date: 2024-10-28T16:50:22.843Z
-updated: 2024-10-30T16:05:53.715Z
+date: 2024-10-31T19:31:41.496Z
+updated: 2024-11-05T00:37:09.837Z
 categories:
   - BestProducts
 description: "This Article Describes Leading Open Source Alternatives to Microsoft Office Revealed: 2024 Rankings"
@@ -76,10 +76,10 @@ PHOTO: Amazon
 **Type:** Membrane | **Connectivity:** Wireless receiver, Bluetooth | **RGB:** None | **Tenkeys:** Yes | **Palm Rest:** Yes | **Dedicated Media Controls:** No
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Best Bluetooth
@@ -110,13 +110,6 @@ PHOTO: Amazon
 
 **Type:** Membrane | **Connectivity:** Wireless receiver | **RGB:** None | **Tenkeys:** Yes | **Palm Rest:** Yes | **Dedicated Media Controls:** Yes
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Best for Macs
 
 [Kinesis Freestyle2 Blue](https://www.amazon.com/dp/B00NMVJYEW/?tag=lifewire-onsite-prod-20&ascsubtag=4147386%7Cn326e10e09a2e4a42be05879465b0c31513%7CB00NMVJYEW)
@@ -145,6 +138,13 @@ PHOTO: Amazon
 **Type:** Membrane | **Connectivity:** Wireless receiver | **RGB:** None | **Tenkeys:** Yes | **Palm Rest:** Yes | **Dedicated Media Controls:** Yes
 
 [Kinesis Freestyle2 Blue (Mac) Review](https://www.lifewire.com/freestyle2-blue-review-4780187)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Best for Gaming
 
@@ -178,16 +178,10 @@ PHOTO: Amazon
 ## What to Look For in an Ergonomic Keyboard
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Usage**
@@ -195,10 +189,10 @@ PHOTO: Amazon
  Where will you be using this keyboard? Is it mainly for personal use, or will you take it to the office? Do you need an ergonomic keyboard explicitly made with gamers in mind? While you can use a keyboard for multiple purposes, you may enjoy customizing which one you buy based on how you will use it the most.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Mac vs. PC**
@@ -249,16 +243,22 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discover-the-magic-behind-effective-youtube-short-videos/"><u>[New] 2024 Approved Discover the Magic Behind Effective YouTube Short Videos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-fb-cover-video-techniques-for-business-professionals-for-2024/"><u>[New] FB Cover Video Techniques for Business Professionals for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-guide-to-perfectly-setting-up-your-photoshop-projects-for-print/"><u>A Guide to Perfectly Setting Up Your Photoshop Projects for Print</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/ai-driven-therapy-reimagined-discover-top-5-innovations/"><u>AI-Driven Therapy Reimagined: Discover Top 5 Innovations</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-vivo-v29-pro-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Vivo V29 Pro</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-guide-to-disable-recommended-podcast-features-in-spotify/"><u>In 2024, Guide to Disable Recommended Podcast Features in Spotify</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-country-on-app-store-for-iphone-13-pro-max-with-7-methods-drfone-by-drfone-ios/"><u>In 2024, How To Change Country on App Store for iPhone 13 Pro Max With 7 Methods | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722773837507-top-rated-video-game-systems-in-2/"><u>Top Rated Video Game Systems in 2</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-mastering-picture-in-picture-mode-on-android-devices/"><u>Ultimate Guide: Mastering Picture-in-Picture Mode on Android Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-ultra-hd-marvel-on-apple-tv-4k-a-comprehensive-review-with-siri-integration-for-2prise/"><u>Unveiling the Ultra HD Marvel on Apple TV 4K - A Comprehensive Review with Siri Integration for 2Prise !</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/your-affordable-e-reader-companion-in-2019-the-essential-amazon-kindle-reviewed/"><u>Your Affordable E-Reader Companion in 2019: The Essential Amazon Kindle Reviewed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-writing-vlogs-a-guide-to-persuasive-scripts-for-2024/"><u>[New] Writing Vlogs A Guide to Persuasive Scripts for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-eyecatcher-ultimate-screen-capture-guide/"><u>[Updated] 2024 Approved EyeCatcher Ultimate Screen Capture Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-ranked-affordable-video-players-and-streaming-services-pc-and-mobile/"><u>Best-Ranked Affordable Video Players and Streaming Services (PC & Mobile)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bose-quietcomfort-35-ii-review-the-best-on-the-market/"><u>Bose QuietComfort 35 II Review: The Best on the Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-look-at-the-eufy-t82-(video-doorbell-unlocking-security-without-a-recurring-fee/"><u>Comprehensive Look at the Eufy T82 <Video Doorbell: Unlocking Security Without a Recurring Fee</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/crafting-your-first-twitter-profile-for-2024/"><u>Crafting Your First Twitter Profile for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cyberpunk-2077-evaluation-an-imperfect-yet-remarkable-game/"><u>Cyberpunk 2077 Evaluation: An Imperfect Yet Remarkable Game</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-how-to-save-on-phone-contracts-with-our-top-picks/"><u>Discover How to Save on Phone Contracts with Our Top Picks</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-fixes-for-logitech-c615-mouse-driver-errors-a-comprehensive-guide/"><u>Effortless Fixes for Logitech C615 Mouse Driver Errors - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-vonages-position-at-the-forefront-of-voip-innovation/"><u>Evaluating Vonage's Position at the Forefront of VoIP Innovation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-choice-the-premier-extended-desk-mats-of-the-year/"><u>Expert Choice: The Premier Extended Desk Mats of the Year</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-unveiling-the-features-of-samsungs-top-tier-tablet-galaxy-tab-s7plus/"><u>In-Depth Evaluation: Unveiling the Features of Samsung's Top-Tier Tablet, Galaxy Tab S7+</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/iphone-showdown-the-new-era-of-the-iphone-15-plus-versus-the-elite-pro-max/"><u>IPhone Showdown: The New Era of the iPhone 15 Plus Versus the Elite Pro Max</u></a></li>
+<li><a href="https://driver-install.techidaily.com/nvidia-releases-latest-gtx-970-drivers-for-w10/"><u>Nvidia Releases Latest GTX 970 Drivers for W10</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-oneplus-nord-n30-5g-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On OnePlus Nord N30 5G? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-vivo-y78plus-t1-edition-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Vivo Y78+ (T1) Edition to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-made-simple-overcoming-the-challenge-of-code-0x80004005/"><u>Troubleshooting Made Simple: Overcoming the Challenge of Code 0X80004005</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "G9XII: Retro Aesthetics for Today’s Adventurous Photographers"
-date: 2024-09-04T18:46:57.835Z
-updated: 2024-09-05T18:46:57.835Z
+date: 2024-10-30T19:41:26.378Z
+updated: 2024-11-05T06:35:33.364Z
 categories:
   - BestProducts
 description: "This Article Describes G9XII: Retro Aesthetics for Today’s Adventurous Photographers"
@@ -69,12 +69,6 @@ thumbnail: https://thmb.techidaily.com/f6caddae96019a4142339a6d719f3ef49075dd557
 
  Lifewire / Anton Galang
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: An elegant addition to your décor**
 
  At a time when most digital frames are built with a similar black border and a basic tablet-esque design, the Iris is a style-conscious breath of fresh air. The frame I tested rocked a "burnished bronze" finish on its wide metallic border, giving the frame some nice visual pop while staying understated enough to fit in just about anywhere in my home. I imagine the "peach copper" and "silver" variants look equally elegant.
@@ -87,18 +81,6 @@ The Iris is a style-conscious breath of fresh air.
 
  Controlling the Iris and all its settings can be done via the Nixplay mobile app, which includes a virtual remote, but a physical remote is included as well. It's the same remote used by other Nixplay frames, so if you have multiple you can control them all with a single device—at the same time, confusingly, if they're close to each other. Overall, the remote works fine, but its square shape means frustration when you keep picking it up pointed the wrong way without realizing it.
 
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Media: Nothing to plug in**
 
  The Iris doesn't support physical media like[USB flash drives](https://www.lifewire.com/best-usb-flash-drives-4141193) or SD cards, which can be a bummer if you already have stored files ready to load. But once you're set up with the web app, depending on your fluency with the software and the extent of your online photo collection, you may find it easier to load your pics from the cloud than to track down and plug in physical memory. With 6.18GB of internal storage available on the frame, there's enough for plenty of photos to cycle through, and it's easy to swap in fresh ones.
@@ -106,11 +88,12 @@ The Iris is a style-conscious breath of fresh air.
  Lifewire / Anton Galang​
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process: Online presence not optional**
 
  The Iris should be relatively painless to set up for people used to working with wireless products and online accounts, but there's no denying it's a more involved process than with offline photo frames. To start, an internet connection is mandatory. After plugging in the frame and a bit of load time, you'll have to enter your Wi-Fi network information using the remote. You also need a Nixplay account to access any of the company's smart frames. Only when you have an account created and paired with your Iris can you start loading pictures and[using your picture frame](https://www.lifewire.com/learning-to-use-digital-photo-frames-492922) . Everything you can do with the app makes it worthwhile, but the setup process does include a few barriers.
@@ -126,11 +109,12 @@ The Iris is a style-conscious breath of fresh air.
  The Iris can also play video clips up to 15 seconds in length. The quality is decent enough, though combined with the quiet speakers that serve up the accompanying audio, video playback won't be a primary use for the frame.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Software: Bringing photo frames to the connected world**
 
  With how usable and convenient the Iris's cloud-based features are, it's not unreasonable to think it could represent the future of picture frames. You upload photos to your cloud albums directly from your phone or computer, then arrange them into playlists that can be shared among any paired Nixplay frames (up to five frames with a free account and 10GB of cloud storage). You can even get photos from friends, or link your Google Photos account to create dynamic playlists of, say, your 1,000 most recent photos.
@@ -141,18 +125,19 @@ The Iris is a style-conscious breath of fresh air.
 
  You can also control the Iris from anywhere with an internet connection. That includes setting up stuff like the vast selection of slideshow transition options, a sleep/wake schedule, or the noise-based activity sensor with ten levels of sensitivity. It's also compatible with[Amazon's Alexa voice assistant](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) , a feature not mentioned during setup but added as part of a recent software update. You can add Nixplay as an[Alexa skill](https://www.lifewire.com/alexa-skills-4126799) , but getting the voice commands to work is a bit cumbersome and may take some patience, practice, and customization.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Paying for style and substance**
 
  Usually available between $150 and $180, the Iris costs significantly more than a regular offline digital frame, but is worth the cost if you're a fan of its aesthetics and array of modern features.
 
  It’s worth the cost if you're a fan of its aesthetics and array of modern features.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: A prettier face**
 
 **_Nixplay Seed Ultra:_** Sharing the same suite of Nixplay cloud frame features, a lot of distinction between the Iris and the Seed Ultra that we tested comes in terms of design. The large frame on the Iris makes it about the same total size, but the Seed Ultra has a thinner plain black border with a 10-inch screen—slightly pricier for a bigger, higher-res display within a less elegant frame. The Seed Ultra also has a motion sensor, but no automatic brightness sensor.
@@ -168,11 +153,12 @@ The Iris is a style-conscious breath of fresh air.
  Even with a slightly smaller display, the Nixplay Iris steps up the digital photo frame game with its classy design on top of cloud features, shared playlists, social media integration, and controls from any PC or mobile device.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Iris Digital Picture Frame (8-inch)
@@ -193,8 +179,6 @@ The Iris is a style-conscious breath of fresh air.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -202,4 +186,21 @@ The Iris is a style-conscious breath of fresh air.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-capturing-stability-mastering-shaky-images/"><u>[New] Capturing Stability Mastering Shaky Images</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-capturing-the-ultimate-xbox-experience-a-screen-recorders-manual/"><u>[New] In 2024, Capturing the Ultimate Xbox Experience A Screen Recorder's Manual</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mouthwatering-movies-a-cooks-guide/"><u>[New] Mouthwatering Movies A Cook's Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-tips-to-rank-facebook-page-better/"><u>[Updated] 2024 Approved Tips to Rank Facebook Page Better</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/7-ways-to-unlock-a-locked-tecno-phantom-v-flip-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Tecno Phantom V Flip Phone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/boost-your-wi-fi-signal-with-netgear-nighthawk-x6s-range-extender/"><u>Boost Your Wi-Fi Signal with Netgear Nighthawk X6S Range Extender</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/broadband-revolution-is-starlink-your-next-internet-step/"><u>Broadband Revolution - Is Starlink Your Next Internet Step?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/essential-software-for-animation-and-3d-models-for-2024/"><u>Essential Software for Animation & 3D Models for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/family-adventure-on-wheels-the-ultimate-guide-to-maisto-rc-rock-crawlers/"><u>Family Adventure on Wheels: The Ultimate Guide to Maisto RC Rock Crawlers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/from-kitchen-to-chaos-insights-from-an-engrossing-overcooked-2-review/"><u>From Kitchen to Chaos: Insights From an Engrossing Overcooked! 2 Review</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-factory-unlock-your-telstra-apple-iphone-7-by-drfone-ios/"><u>How To Factory Unlock Your Telstra Apple iPhone 7</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722975047362-install-epson-ds-530-printer-drivers-on-your-windows-10-x64-pc-get-them-here/"><u>Install Epson DS-^530 Printer Drivers on Your Windows 10 (X64) PC - Get Them Here!</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/top-rated-free-hard-drive-clone-tools-for-windows-11-and-10-get-your-perfect-match-today/"><u>Top Rated Free Hard Drive Clone Tools for Windows 11 and 10: Get Your Perfect Match Today!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/voip-excellence-on-trial-assessing-whether-vonage-still-dominates-the-market/"><u>VoIP Excellence on Trial: Assessing Whether Vonage Still Dominates the Market</u></a></li>
+</ul></div>
 

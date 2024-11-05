@@ -1,7 +1,7 @@
 ---
 title: "Canon PowerShot: The Efficient SX620 HS Explores Photography"
-date: 2024-10-26T16:20:16.666Z
-updated: 2024-10-30T16:54:41.366Z
+date: 2024-11-03T21:03:39.004Z
+updated: 2024-11-04T22:57:41.078Z
 categories:
   - BestProducts
 description: "This Article Describes Canon PowerShot: The Efficient SX620 HS Explores Photography"
@@ -43,16 +43,16 @@ Lifewire / Nick Jaynes
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/kUpys0K04ePH0SuEfAENz--MXSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
 
@@ -75,19 +75,6 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: All-plastic, but sturdy and subtle**
 
  The Anker PowerDrive 2 might not be the sharpest or most cutting-edge looking in-car USB charger, but what it lacks in visual pizazz, it more than makes up for in sturdiness.
@@ -101,10 +88,10 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Fast charging for demanding devices**
@@ -117,6 +104,13 @@ Lifewire / Nick Jaynes
 
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Middle of the pack**
 
  The list price of $14.99 is positioned in the mid-range of the USB charger market, which ranges from just a few dollars to upwards of $50 for some fancier chargers. However, Anker PowerDrive 2 can be had for a discounted price on some websites. Considering the fact that the Anker PowerDrive 2 includes both the fast-charger and a 3-foot micro USB cable, it is well priced for the marketplace.
@@ -124,10 +118,10 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: A handful of rivals**
@@ -170,20 +164,17 @@ Lifewire / Nick Jaynes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/1716068859242-new-in-2024-2023-browser-snapshot-winners-announced/"><u>[New] In 2024, 2023 Browser Snapshot Winners Announced!</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-key-top-5-ultra-light-action-recording-models-for-2024/"><u>[Updated] Key Top 5 Ultra-Light Action Recording Models for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-professional-take-the-syma-x5c-ideal-first-timers-droning-companion/"><u>[Updated] Professional Take The Syma X5C – Ideal First-Timer's Droning Companion</u></a></li>
-<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-oppo-a59-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Oppo A59 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722656085522-a-closer-look-at-apples-latest-imac-the-stunning-design-meets-the-formidable-m1-technology-reviewed-here/"><u>A Closer Look at Apple's Latest iMac - The Stunning Design Meets the Formidable M1 Technology Reviewed Here!</u></a></li>
-<li><a href="https://android-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-motorola-moto-g23-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Motorola Moto G23</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-vuebell-video-doorbell-top-budget-friendly-home-security-reviews/"><u>Affordable VueBell Video Doorbell - Top Budget-Friendly Home Security Reviews</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-honor-80-pro-straight-screen-edition-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Honor 80 Pro Straight Screen Edition Phone that is Locked?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-infographic-8-ways-to-make-money-on-youtube-for-beginners/"><u>In 2024, Infographic - 8 Ways to Make Money on YouTube for Beginners</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/leading-camera-innovations-revealed-future-edition/"><u>Leading Camera Innovations Revealed - Future Edition</u></a></li>
-<li><a href="https://discover-data.techidaily.com/section-3a-next-concept-ocular-pathophysiology/"><u>Section 3A: Next Concept - Ocular Pathophysiology</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722715049305-sonys-offering-a-comprehensive-review-of-the-65-inch-4k-xbr-65x850f-led-tv-at-a-reasonable-price/"><u>Sony's Offering: A Comprehensive Review of the 65-Inch 4K XBR-65X850F LED TV at a Reasonable Price</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722571073827-the-ultimate-tcl-50s425-50-smart-led-4k-tv-roku-2019-review-for-budget-shoppers/"><u>The Ultimate TCL 50S425 50 Smart LED 4K TV - Roku 2019 Review for Budget Shoppers!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/transition-mechanisms/"><u>Transition Mechanisms</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleashing-aerial-thrills-at-home-an-expert-review-of-the-syma-yali-672-rc-helicopter/"><u>Unleashing Aerial Thrills at Home: An Expert Review of the Syma Yali 672 RC Helicopter</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-gadget-unveiling-top-youtube-channels-to-watch/"><u>[New] Gadget Unveiling Top YouTube Channels to Watch</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-xiaomi-redmi-13c-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Xiaomi Redmi 13C Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-making-sense-of-the-linksys-max-stream-ac1900-features/"><u>Comprehensive Review: Making Sense of the Linksys Max-Stream AC1900 Features</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-popular-photographs-their-narratives-unveiled/"><u>In 2024, Popular Photographs Their Narratives Unveiled</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/natural-luminescence-in-home-interiors-simple-steps-for-2024/"><u>Natural Luminescence in Home Interiors Simple Steps for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pawsome-vision-unpacking-the-features-that-make-furbos-dog-camera-a-top-choice/"><u>Pawsome Vision: Unpacking the Features That Make Furbo’s Dog Camera a Top Choice</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solving-the-mystery-effective-ways-to-eliminate-packet-loss-in-discord/"><u>Solving the Mystery: Effective Ways to Eliminate Packet Loss in Discord</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-gradual-glide-out-technique-for-audio-in-adobe-premiere-pro/"><u>The Gradual Glide Out Technique for Audio in Adobe Premiere Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleash-unprecedented-productivity-on-the-go-with-the-2021-ipad-pro-featuring-apples-newest-m1-chip/"><u>Unleash Unprecedented Productivity On-the-Go with the 2021 iPad Pro Featuring Apple's Newest M1 Chip</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potential-a-detailed-review-of-linksys-wrt1900acs-the-leading-open-source-router/"><u>Unveiling the Potential: A Detailed Review of Linksys WRT1900ACS, the Leading Open-Source Router</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-best-10-free-manga-sites-to-read-online/"><u>Updated In 2024, Best 10 Free Manga Sites to Read Online</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/windows-media-playerm4amp3/"><u>Windows Media Playerで簡単なM4AからMP3への変換手順</u></a></li>
 </ul></div>
 

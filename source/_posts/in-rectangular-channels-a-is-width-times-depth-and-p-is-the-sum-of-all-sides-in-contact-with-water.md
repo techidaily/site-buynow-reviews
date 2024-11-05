@@ -1,7 +1,7 @@
 ---
 title: In Rectangular Channels, A Is Width Times Depth and P Is the Sum of All Sides in Contact with Water.
-date: 2024-10-23T16:27:26.997Z
-updated: 2024-10-30T16:32:46.541Z
+date: 2024-10-31T01:45:20.881Z
+updated: 2024-11-05T04:36:34.851Z
 categories:
   - BestProducts
 description: This Article Describes In Rectangular Channels, A Is Width Times Depth and P Is the Sum of All Sides in Contact with Water.
@@ -47,6 +47,19 @@ Erika Rawes / Lifewire
 
 4.2
 
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Raspberry Pi 400
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/Lx1zPft9GUcm5A0WBJsxvP8fCUM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Raspberry-Pi-400-Mini-PC-1-2e3e0817c1ad4570a7c3a8d70b7e991b.jpg)
@@ -81,13 +94,6 @@ Erika Rawes / Lifewire
 
  The most recent iteration of the Raspberry Pi, the Raspberry Pi 400, has better processing and the Pi computer built right into a keyboard. This allows for an even more compact personal computer, and the Pi 400 kit even includes a microSD card with the OS preloaded. To see how this new Pi compares to previous generation models and other mini PCs, I tested it for a week. Here’s my full review of the Raspberry Pi 400.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design: A PC inside of a keyboard
 
  Previous versions of the Raspberry Pi didn’t exactly come across as accessible to the typical PC user who spends most of their time surfing the web. The older Raspberry Pi models look like a mini motherboard with ports and other components attached. The Raspberry Pi 400 is completely different, as the board is housed inside a keyboard for easier setup and use. It’s reminiscent of those all-in-one PC keyboards from the 80s.
@@ -95,10 +101,10 @@ Erika Rawes / Lifewire
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/7BA0HRUVuCSmbiMi4uyFWkXVuKg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-3-58854ebe9d964ccc984e44f77619fa1a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Erika Rawes / Lifewire
@@ -117,6 +123,13 @@ Erika Rawes / Lifewire
 
  The whole purpose of a Raspberry Pi is to be whatever you want it to be—a personal computer, a smart home controller, a gaming system, or whatever else you can think of.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Projects: Keyboard helps in some ways, hinders in others
 
  One great thing about[Raspberry Pi](https://www.lifewire.com/what-is-raspberry-pi-4042337) is that there’s a community of users to help you out with project ideas, to share terminal commands, and to help with troubleshooting. Pi computers are great for makers, but once I really started experimenting with the Pi 400, I realized the keyboard is beneficial in some areas, but it’s limiting in others.
@@ -128,13 +141,6 @@ Erika Rawes / Lifewire
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/oideXrFtpj_WzRtq1qacMhsc7Dg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-2-6fbd163b7ed849f684963b93ae8b8735.jpg)
 
 Erika Rawes / Lifewire
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Display: Dual mini HDMI ports
 
@@ -151,10 +157,10 @@ Erika Rawes / Lifewire
  The PC-in-a-keyboard design makes the Pi 400 Kit less like a computer you have to build, and more like a PC you can start using right out of the box.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Gaming: Minecraft Pi, RetroPie, and more
@@ -169,33 +175,19 @@ Erika Rawes / Lifewire
 
  The accessories tab includes a PDF viewer and a calculator, as well as a text editor and an SD card copier. You also have a basic web browser—plenty of tools to get you started.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Audio: Bluetooth connectivity
 
  You won’t find built-in speakers, but the Pi 400 will play audio on your monitor’s speakers when you use the HDMI to mini HDMI cable included in the kit. It also has Bluetooth for connecting a pair of wireless headphones. I had no problem connecting a few different types of Bluetooth headphones to the Pi. There’s no audio output jack, but you can connect compatible USB speakers if you launch the appropriate USB commands in the terminal.
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/vAb_0QFg4Uze6uuiSMlTPtkw_CA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-5-b326f92abc1a4349910f0b7b5d0e2d53.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Erika Rawes / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Network: Ethernet or dual-band Wi-Fi
@@ -203,6 +195,13 @@ Erika Rawes / Lifewire
  The Pi 400 has dual-band Wi-Fi, so you can connect it to a 2.4GHz or 5GHz network. It also has Bluetooth, as well as a[Gigabit Ethernet port](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) for wired connectivity.
 
  Here at my home in the Research Triangle in North Carolina, my Wi-Fi speeds max out at 400Mbps. I was able to get respectable speeds on this mini PC, with around 100Mbps upload and 30Mbps download. I did not attempt a hardwired connection.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Camera: No CSI port, but you can use a USB webcam
 
@@ -217,6 +216,13 @@ Erika Rawes / Lifewire
  In addition to a basic office suite, photo processing software, and games, the Pi 400 Kit comes with several coding applications like Scratch, Scratch 2, Scratch 3, Blue Jay Java IDE, Green Foot Java IDE, Geany, Mathematica, Sense HAT Emulator, and more.
 
  Although the Raspberry Pi OS is basic, the included applications make this an ideal computer for a beginner who wants to learn basic computer programming skills. The interface includes a direct connection to the Pi site, where you can find numerous project ideas from 3D print templates to robotics projects.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Price: An amazing value
 
@@ -270,22 +276,16 @@ Erika Rawes / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-elite-mac-graphic-preserver/"><u>[New] 2024 Approved Elite Mac Graphic Preserver</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-beyond-gaming-vr-uses/"><u>[New] Beyond Gaming VR Uses</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-crafting-content-gaining-profits-an-insiders-tale-on-instagram-sponsorship-for-2024/"><u>[Updated] Crafting Content, Gaining Profits An Insider's Tale on Instagram Sponsorship for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-top-11-video-recorders-that-save-money-without-sacrificing-performance/"><u>[Updated] Top 11 Video Recorders That Save Money Without Sacrificing Performance</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-mastering-metadata-title-and-description-for-youtube-traction/"><u>2024 Approved Mastering Metadata Title and Description for YouTube Traction</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-artistic-excellence-with-the-gaomon-pd15n-tablet-a-pen-display-reviewed/"><u>Exploring Artistic Excellence with the Gaomon PD15n Tablet – A Pen Display Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-amazon-echo-show-10-generation-3-the-latest-innovative-roaming-device/"><u>Exploring the Amazon Echo Show 10 (Generation 3) - The Latest Innovative Roaming Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-unbeatable-value-of-the-asus-chromebook-flip-c302ca-a-comprehensive-review/"><u>Exploring the Unbeatable Value of the Asus Chromebook Flip C302CA - A Comprehensive Review</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/flash-through-files-on-your-windows-pc-for-2024/"><u>Flash Through Files on Your Windows PC for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/grab-stellar-offers-must-have-samsung-devices-at-rock-bottom-prices-for-prime-day/"><u>Grab Stellar Offers: Must-Have Samsung Devices at Rock-Bottom Prices for Prime Day</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/guide-to-fixing-diagnostics-policy-service-not-running-problems/"><u>Guide to Fixing 'Diagnostics Policy Service Not Running' Problems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/halo-bolts-bestselling-power-bank-and-jumper-box-analyzed-for-optimal-performance/"><u>Halo Bolt's Bestselling Power Bank and Jumper Box Analyzed for Optimal Performance</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-poco-c50-lock-screen-password-by-drfone-android/"><u>How To Change Poco C50 Lock Screen Password?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/hp-stream-14-in-depth-navigating-the-pros-and-cons-of-an-affordable-windows-notebook/"><u>HP Stream 14 In Depth: Navigating the Pros and Cons of an Affordable Windows Notebook</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/immerse-in-true-picture-quality-in-depth-analysis-of-samsungs-latest-4k-hdr-smart-tv-model-qn55q6f/"><u>Immerse in True Picture Quality: In-Depth Analysis of Samsung's Latest 4K HDR Smart TV Model QN55Q6F</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-tcls-slim-design-32s325-roku-smart-tv-2019-release/"><u>In-Depth Analysis of TCL's Slim Design 32S325 Roku Smart TV (2019 Release)</u></a></li>
-<li><a href="https://win-webster.techidaily.com/step-by-step-guide-transferring-your-exchange-emails-into-a-portable-pst-file/"><u>Step-by-Step Guide: Transferring Your Exchange Emails Into a Portable PST File</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-advanced-shooting-modes-unveiling-the-secrets-of-smart-hdr-3-and-4/"><u>[Updated] In 2024, Advanced Shooting Modes Unveiling the Secrets of Smart HDR 3 & 4</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-income-icons-top-earner-video-stars-for-2024/"><u>[Updated] Income Icons Top Earner Video Stars for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-primary-screening-footage-study-and-off-the-cuff-selections-for-2024/"><u>[Updated] Primary Screening Footage Study and Off-the-Cuff Selections for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2023s-most-effective-sound-isolation-earphones-reviewed-and-ranked/"><u>2023'S Most Effective Sound Isolation Earphones Reviewed and Ranked!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-key-view-figures-for-earning-living-on-youtube/"><u>2024 Approved Key View Figures for Earning Living on YouTube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-most-advanced-and-user-friendly-voip-solutions-choose-wisely/"><u>2024'S Most Advanced and User-Friendly VoIP Solutions - Choose Wisely!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-most-durable-and-stylish-options-for-your-samsung-galaxy-s2/"><u>2024'S Most Durable and Stylish Options for Your Samsung Galaxy S2...</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/25-unique-gift-choices-tailored-for-every-android-fanatic/"><u>25 Unique Gift Choices Tailored for Every Android Fanatic</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-realme-c53-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Realme C53 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Itel A60s? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-wireless-gaming-headsets-for-your-nintendo-switch-the-2024-guide-to-choosing-the-right-pair/"><u>Ultimate Wireless Gaming Headsets for Your Nintendo Switch: The 2024 Guide to Choosing the Right Pair</u></a></li>
 </ul></div>
 

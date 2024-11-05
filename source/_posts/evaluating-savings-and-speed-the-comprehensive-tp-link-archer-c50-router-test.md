@@ -1,7 +1,7 @@
 ---
 title: "Evaluating Savings and Speed: The Comprehensive TP-Link Archer C50 Router Test"
-date: 2024-10-24T16:07:37.736Z
-updated: 2024-10-30T16:41:59.988Z
+date: 2024-10-29T20:45:09.642Z
+updated: 2024-11-05T00:11:22.873Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating Savings and Speed: The Comprehensive TP-Link Archer C50 Router Test"
@@ -42,9 +42,23 @@ Lifewire / Gannon Burgett
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
 ![Max Oak](https://www.lifewire.com/thmb/0sYGw-7sF6j5aqPA13sWjU-Y2b4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -74,13 +88,6 @@ Lifewire / Gannon Burgett
 
 ![Max Oak](https://www.lifewire.com/thmb/SHsB9QkFaBbOrU6sw55TzNOqC7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_4Web-5c8ff4adc9e77c0001ff0b36.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Gannon Burgett
 
  As for the materials, the metal enclosure and place ends give it a fairly solid feel, but the metal doesn't sit perfectly flush with the plastic ends, at least not in our model. It could be a one-off quality control issue or it might simply be the way in which the charger is constructed, but it's definitely noticeable.
@@ -97,31 +104,11 @@ Lifewire / Gannon Burgett
 
  The point of a charger is to have extra battery power on hand when needed so you don't have to carry around unnecessary cables when traveling. Unfortunately, the MaxOak battery pack doesn't use any kind of USB or standardized port. Rather than charging it with a[USB Type-C](https://www.lifewire.com/usb-c-4149490) or even a micro-USB port, the MaxOak battery pack relies on its own proprietary power supply that's nearly as large as most laptop chargers. Sure, the 50000mAh onboard is likely enough that you could leave both the battery pack charger and your laptop charger behind for most events, but eventually you'll run out of juice and rather than reaching for a cable you would probably already have in your bag, you're stuck bringing along a proprietary charger.
 
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Charging Speed and Battery: Slow and steady wins this race**
 
  The MaxOak 50000mAh manages to charge at a decent rate considering its capacity, but we would’ve liked to see more high-powered ports for speedier charging. We charged and fully drained the MaxOak power bank five times and charging took roughly six to eight hours per recharge with an average of seven hours and fifteen minutes.
 
 ![Max Oak](https://www.lifewire.com/thmb/FlP4JZUVLoJ3DjKoSRUIFuf1peY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_6Web-5c8ff3e6c9e77c0001a926ff.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -140,10 +127,10 @@ Lifewire / Gannon Burgett
  The MaxOak 50000mAh power bank comes in at $135.99 at the time of this review. This is a reasonable price when taking into consideration how much battery capacity you're getting with it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: One in the same**
@@ -167,6 +154,13 @@ Lifewire / Gannon Burgett
 * [Jackery PowerBar Battery Pack](https://www.lifewire.com/jackery-powerbar-battery-pack-review-4589480)
 * [ChargeTech 27000mAh Battery Pack](https://www.lifewire.com/chargetech-27000mah-battery-pack-review-4589409)
 * [Anker PowerCore+ 26800 Battery Pack Bundle](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -198,19 +192,18 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-how-to-turn-off-suggested-posts-on-instagram/"><u>[New] How to Turn Off Suggested Posts on Instagram?</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-the-complete-guide-to-iphone-7-screen-recordings-for-2024/"><u>[New] The Complete Guide to iPhone 7 Screen Recordings for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-navigating-zoom-effectively-on-chrome-devices-for-2024/"><u>[Updated] Navigating Zoom Effectively on Chrome Devices for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-disseminate-your-tiktok-on-twitter-effectively/"><u>2024 Approved Disseminate Your TikTok on Twitter Effectively</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/aria-hearing-review-boldly-different/"><u>Aria Hearing Review: Boldly Different</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/arlo-unleashed-master-your-personalized-smart-home-safety-solution/"><u>Arlo Unleashed: Master Your Personalized Smart Home Safety Solution</u></a></li>
-<li><a href="https://techtrends.techidaily.com/bring-back-the-twilight-interface-fixes-for-missing-dark-mode-on-facebook/"><u>Bring Back the Twilight Interface: Fixes for Missing Dark Mode on Facebook</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comparing-apples-tablets-key-differences-between-the-ipad-and-ipad-air/"><u>Comparing Apple's Tablets: Key Differences Between the iPad and iPad Air</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-fongo-voip-solution-evaluation-in-canada/"><u>Comprehensive Fongo VoIP Solution Evaluation in Canada</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/comprehensive-solutions-for-dealing-with-the-windows-bsod-error/"><u>Comprehensive Solutions for Dealing with the Windows BSOD Error</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-tp-link-archer-c80-assessment-exceptional-speed-in-under-100-routers/"><u>Comprehensive TP-Link Archer C80 Assessment: Exceptional Speed in Under $100 Routers</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-touch-screen-on-oneplus-ace-2-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on OnePlus Ace 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-ideas-for-creating-sequences-of-iphone-burst-images/"><u>In 2024, Ideas for Creating Sequences of iPhone Burst Images</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/photo-fables-the-best-ios-and-android-text-apps-for-pictures/"><u>Photo Fables The Best iOS & Android Text Apps for Pictures</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-techs-elite-selection-the-top-10-video-recorders-online/"><u>[New] 2024 Approved Tech's Elite Selection The Top 10 Video Recorders Online</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-historical-imagery-unleashed-from-copyrights/"><u>[New] Historical Imagery Unleashed From Copyrights</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-learn-ipads-screen-sharing-basics/"><u>2024 Approved Learn iPad's Screen Sharing Basics</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/blue-freestyle2-mac-reviews-the-ultimate-choice-for-apple-enthusiasts/"><u>Blue Freestyle2 Mac Reviews: The Ultimate Choice for Apple Enthusiasts</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782268-9781620554814-encyclopedia-of-norse-and-germanic-folklore-mythology-and-magic/"><u>Encyclopedia of Norse and Germanic Folklore, Mythology, and Magic | Free Book</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-i-home-zenergy-sleep-therapy-bedside-device-rejuvenate-your-mornings/"><u>Expert Analysis of the I-Home Zenergy Sleep Therapy Bedside Device: Rejuvenate Your Mornings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/from-standard-setup-to-elite-configuration-in-windows-10/"><u>From Standard Setup to Elite Configuration in Windows 10</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-the-best-methods-to-unlock-the-iphone-locked-to-owner-for-apple-iphone-7-plus-drfone-by-drfone-ios/"><u>In 2024, The Best Methods to Unlock the iPhone Locked to Owner for Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/limostudio-lms103-lighting-kit-review/"><u>LimoStudio LMS103 Lighting Kit Review</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/solution-guide-restoring-lost-documents-post-system-restart/"><u>Solution Guide: Restoring Lost Documents Post-System Restart</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegrams-data-trail-your-actions-secure-lifelinas/"><u>Telegram's Data Trail: Your Actions Secure Lifelinas</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-motorola-edgeplus-unveiled-striving-for-flagship-status-but-missing-the-mark/"><u>The Motorola Edge+ Unveiled: Striving for Flagship Status but Missing the Mark</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-aukey-usb-hub-30-straightforward-usage-exceptional-speed/"><u>The Ultimate Guide to the Aukey USB Hub 3.0: Straightforward Usage, Exceptional Speed</u></a></li>
 </ul></div>
 

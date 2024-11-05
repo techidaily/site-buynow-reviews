@@ -1,7 +1,7 @@
 ---
 title: "Value Meets Innovation in the ArcShell AR-5: A Full Performance Breakdown"
-date: 2024-10-23T16:34:38.195Z
-updated: 2024-10-30T16:12:31.683Z
+date: 2024-10-29T03:05:09.454Z
+updated: 2024-11-04T19:55:52.378Z
 categories:
   - BestProducts
 description: "This Article Describes Value Meets Innovation in the ArcShell AR-5: A Full Performance Breakdown"
@@ -42,13 +42,6 @@ Lifewire / Jordan Provost
 
 4.9
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Apple iPad Pro 11-Inch (2018)
 
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/SgNIbLZ961-p9WD7at7-M5m8Tuk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_HeroSquare-b5f2405776244188aa59f67503531baf.jpg)
@@ -84,19 +77,19 @@ Lifewire / Jordan Provost
 ![IPad Pro 11-Inch](https://www.lifewire.com/thmb/jYGLTeSXEAGonvbdFrussmvvPDU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_2-74153fdc1da44cbba893312f82da0547.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design and Features: Cutting edge**
@@ -108,6 +101,13 @@ Lifewire / Jordan Provost
  Perhaps one of the most striking decisions Apple has made here is the inclusion of a USB-C port, which replaces the Lightning port at the bottom of the device. This opens up a world of possibilities for most creative types, from easily connecting the iPad to a monitor, or even uploading photos you want to edit directly from your DSLR camera.
 
 ![Ipad Pro 11-Inch](https://www.lifewire.com/thmb/TpucPEgB2OHgSplLwk2Q6sbI6Yo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_5-a6f20cf2b7b84caf8a6290fcb5e9fb5f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
@@ -130,6 +130,13 @@ Lifewire / Jordan Provost
  Following this, we used our iPhone to scan the visual code on the screen which quickly linked the devices and ensured a smooth setup. If you don't own any other Apple products, you are led through a short set of screens where you pick your time zone, sign into your Apple ID, and connect to your WiFi. As part of the setup process, you also have to orient your head around the camera to ensure Face ID can set you up properly for the multiple viewing angles. Once everything has updated, you simply swipe up and are let loose into the Apple home screen from where you can start downloading and installing your apps.
 
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/GV44W9kKlQd3SXT_XaWI-tjo6Cw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_6-2bcb5b2009154c92931411045a9b6ddc.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
@@ -155,13 +162,6 @@ Lifewire / Jordan Provost
 
  Lifewire / Jordan Provost
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Productivity: Not a laptop replacement just yet**
 
  The 2018 iPad Pro is an absolute force of nature as far as productivity is concerned. With the brilliant viewing angles, and options to attach both a nimble Apple Pencil and a Smart Keyboard to the device with relative ease, this tablet will suit the needs of many modern creatives and workers looking for an all-in-one device.
@@ -174,6 +174,13 @@ Lifewire / Jordan Provost
 
  Outside of that, you can’t connect some external drives, Thunderbolt devices or use a mouse. Split View is also certainly a compromise to professionals used to using more than three programs at once.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Audio: Thunderous sound**
 
  One of the major upgrades to the Pro is the stereo effect audio playback with four powerful speakers, two on either side of the device. The iPad Pro has truly stunning audio, and if you crank it up it could easily act as a party speaker. There is absolutely no need for anything external when watching video content. Amazingly, the fidelity of the audio never seems to suffer, even at full volume. Apple ditching the headphone jack poses an interesting problem in that you’re going to need a pair of Bluetooth headphones or buy an adapter to receive audio on the go.
@@ -185,13 +192,6 @@ Lifewire / Jordan Provost
  We received 72Mbps download speed and 6Mbps upload on our 100Mbps plan, a very respectable result. Downloading apps was quick and painless, and thanks to the incredible processor, there was very limited buffering time when booting up YouTube videos, Twitch streams and streaming video content on Netflix.
 
 ![IPad- Pro 11 Inch](https://www.lifewire.com/thmb/D-1-WC_wIDqzRZLb8mDOgpjal6c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_3-e425a67865fc461fb805e648294dadf8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
@@ -228,10 +228,16 @@ Lifewire / Jordan Provost
  Luckily, the 11-inch iPad Pro is such a revolutionary upgrade on most tablets that you do truly get what you pay for here. The A12X Bionic puts it leagues ahead of the competition, making it the most powerful productivity machine for professional creatives on the market. There is nothing really competing at this price range beyond.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Hard to beat**
@@ -247,10 +253,10 @@ Lifewire / Jordan Provost
  With utterly seamless navigation and playback, fantastic speakers and world-class accessories and performance, this is a beautifully designed piece of hardware. Unfortunately, whilst the power is there, it is held back by its own operating system, forcing you into busywork or compromising missteps. It cannot replace your laptop just yet, but it may well make it redundant based on your use case.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -260,10 +266,10 @@ Lifewire / Jordan Provost
 * [Apple iPad Mini (2019)](https://www.lifewire.com/apple-ipad-mini-2019-review-4688991)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -294,18 +300,22 @@ Lifewire / Jordan Provost
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-top-ranked-apps-for-video-conferencing-and-collaboration/"><u>[New] Top-Ranked Apps for Video Conferencing and Collaboration</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-boosting-channel-success-scaling-for-a-million-viewers-for-2024/"><u>[Updated] Boosting Channel Success Scaling for a Million Viewers for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-spotlight-on-zdsoft-screen-capture-for-pros/"><u>[Updated] In 2024, Spotlight on ZDSoft Screen Capture for Pros</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-classic-elegance-with-cutting-edge-features-in-the-withings-move-smartwatch/"><u>Experience Classic Elegance with Cutting-Edge Features in the Withings Move Smartwatch</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-elite-selection-of-advanced-smart-frames-available/"><u>Exploring the Elite Selection of Advanced Smart Frames Available</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-performance-of-the-samsung-cf591-as-a-dedicated-gaming-display/"><u>Exploring the Performance of the Samsung CF591 as a Dedicated Gaming Display</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-versatility-and-performance-of-the-new-samsung-galaxy-tab-s4/"><u>Exploring the Versatility and Performance of the New Samsung Galaxy Tab S4</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fitbit-sense-vs-apple-watch-the-ultimate-guide-to-choosing-a-health-conscious-smartwatch/"><u>Fitbit Sense Vs. Apple Watch: The Ultimate Guide to Choosing a Health-Conscious Smartwatch</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-cerebral-sanctuaries-exploring-elite-room-escapes/"><u>In 2024, Cerebral Sanctuaries Exploring Elite Room Escapes</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-oneplus-nord-ce-3-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change OnePlus Nord CE 3 5G Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-samsung-galaxy-s23plus-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Samsung Galaxy S23+ Like A Pro 5 Easy Ways</u></a></li>
-<li><a href="https://fox-that.techidaily.com/iphone-woes-here-are-7-methods-to-resolve-non-syncing-of-icloud-pictures/"><u>IPhone Woes? Here Are 7 Methods to Resolve Non-Syncing of iCloud Pictures</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/solve-printing-errors-on-the-hp-officejet-pro-6978-with-easy-driver-fixes/"><u>Solve Printing Errors on the HP OfficeJet Pro 6978 with Easy Driver Fixes</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-total-locomotion-survey-2023/"><u>[Updated] 2024 Approved Total Locomotion Survey 2023</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bloodborne-game-analysis-exploring-a-sinister-realm/"><u>Bloodborne Game Analysis: Exploring a Sinister Realm</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-spider-man-miles-morales-narrow-scope-delivers-grand-effect/"><u>Comprehensive Analysis of Spider-Man: Miles Morales - Narrow Scope Delivers Grand Effect</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/high-speed-home-networking-with-tp-link-av2000-an-in-depth-product-analysis-and-review/"><u>High-Speed Home Networking with TP-Link AV2000: An In-Depth Product Analysis and Review</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-can-i-unlock-my-apple-iphone-12-mini-after-forgetting-my-pin-code-by-drfone-ios/"><u>How Can I Unlock My Apple iPhone 12 mini After Forgetting my PIN Code?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-cricket-apple-iphone-6s-for-free-by-drfone-ios/"><u>How To Unlock Cricket Apple iPhone 6s for Free</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-flash-share-sharing-playlists-in-a-snap/"><u>In 2024, Flash-Share Sharing Playlists in a Snap</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-honor-x50i-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Honor X50i Location by Number | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Huawei P60 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ipad-pro-vs-macbook-pro-showdown-exploring-their-main-features/"><u>IPad Pro vs MacBook Pro Showdown: Exploring Their Main Features</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/most-popular-image-stickering-apps-iosandroid-edition-for-2024/"><u>Most Popular Image Stickering Apps – iOS/Android Edition for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nintendo-3ds-online-how-to-establish-a-user-profile-with-ease/"><u>Nintendo 3DS Online: How to Establish a User Profile with Ease</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stanley-j5c09-compact-crawler-saw-overview-big-on-performance/"><u>Stanley J5C09 Compact Crawler Saw Overview: Big on Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/testing-the-syma-107-gs-dual-controls-drone-an-economical-way-to-soar-indoors/"><u>Testing the Syma 107 GS Dual Controls Drone - An Economical Way to Soar Indoors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-pick-the-omnicharge-omni-20-reviewed-portable-power-solutions-for-all-your-devices/"><u>Top Pick: The Omnicharge Omni 20 Reviewed – Portable Power Solutions for All Your Devices</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-the-nonfunctioning-webcam-in-your-hp-device-with-windows-11/"><u>Troubleshooting the Nonfunctioning Webcam in Your HP Device with Windows 11</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-realme-11-proplus-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Realme 11 Pro+ Offline? Troubleshooting Guide | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Tascam CD-200BT Review: Cutting-Edge Music Production for Professionals"
-date: 2024-09-04T18:46:57.410Z
-updated: 2024-09-05T18:46:57.410Z
+date: 2024-11-03T10:09:37.307Z
+updated: 2024-11-05T02:19:08.337Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate Tascam CD-200BT Review: Cutting-Edge Music Production for Professionals"
@@ -36,6 +36,13 @@ Lifewire / Yoona Wagener
 [View On Best Buy $201](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6450037.p) [View On Macy's](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.macys.com%2Fshop%2Fproduct%2Fmichael-kors-access-gen-5e-mkgo-black-rubber-smartwatch-43mm%3FID%3D11867918%26pla%255Fcountry%3DUS%26CAGPSPN%3Dpla) [View On Michaelkors.com](https://www.michaelkors.com/michael-kors-access-gen-5e-mkgo-pink-tone-and-logo-rubber-smartwatch/%5F/R-US%5FMKT5116)
 
 4.2
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Michael Kors Access Gen 5E MKGO
 
@@ -75,12 +82,6 @@ Lifewire / Yoona Wagener
 
  New Wear OS users will appreciate the guided instructions that appear after pairing the watch to walk you through the various menus and swiping navigations. Even without this guidance, most menus are intuitive to use. My favorite menu was the quick-access menu that appears with a swipe-down motion. It contains a handy collection of shortcuts for basics like adjusting battery mode settings. It’s also home to the Theater Mode option, which turns the display off with a tap—especially convenient for dimming the screen at bedtime.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Comfort: Best outside of exercise
 
  Though it’s a slight contrast to the high-end details of the face, the MKGO version of the Access Gen 5E comes with a comfortable and flexible Michael Kors branded rubber strap. This added touch offers practicality and comfort without taking away from the upscale design fit for fancier occasions, too.
@@ -88,11 +89,12 @@ Lifewire / Yoona Wagener
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/Al5yHGgflExrdPzuv1O8nFyRL0M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_03-4a139c21df9b44ce8a0a5b5604859b26.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
  While it would be difficult to dress this watch down, the rubber band and water resistance make the Access Gen 5E device suitable for exercise or wearing in the shower or pool, for which it’s rated safe up to 30 meters. I didn’t swim with it, but it held up well to showering, and the band dried quickly.
@@ -101,12 +103,6 @@ Lifewire / Yoona Wagener
 
  This feature made clasping the band speedy, but I still experienced a slightly loose fit overall. During normal wear, while relaxing, sleeping, or working at a desk, this wasn’t an issue. While running, the case’s considerable weight—which comes in at a hefty 54.6 grams—felt a little too bulky for high-impact activity.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Performance: Good for the essentials
 
  The Access Gen 5E performs all of the usual smartwatch essentials with ease. Day-to-day connectivity features include Bluetooth-enabled calling, smartphone notifications, social media alerts, weather and calendar updates, and the convenience of Google Assistant.
@@ -120,6 +116,19 @@ Lifewire / Yoona Wagener
  The Access Gen 5E offers solid fitness tracking tools, but accuracy is less reliable.
 
  Without onboard GPS, the only way to measure distance is to use a tethered GPS connection with a smartphone. Acquiring a signal was generally fast, but unfortunately, the watch’s summary was more than a little off. Compared with a Garmin, the Access Gen 5E overshot by 1 mile, and the pace registered at about 90 seconds faster. However, for walking workouts, step count differed only slightly compared with a Garmin smartwatch and the iOS Health app.
+
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Software: Friendliest to Android users
 
@@ -135,12 +144,6 @@ Lifewire / Yoona Wagener
 
  Regardless of your operating system, you’ll need a Google account to get this watch paired and activated and to take advantage of contactless pay through Google Pay. And if you’re married to Google Fit for health insights, you’ll need that app too.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Battery: Potential for multi-day longevity
 
  The manufacturer suggests that this smartwatch battery should last up to 24 hours, depending on usage, and provides several battery modes to work with to help make the most of the battery. Daily mode lived up to its name and lasted about a whole day, while the multi-day Extended mode, which turns off most smart features, lasted only about a day and a half for me.
@@ -151,6 +154,13 @@ Lifewire / Yoona Wagener
 
  Regardless of the mode you choose, the watch will automatically enter a time-only mode once the battery hits 9 percent. This thoughtful touch allows this device to function as a straightforward watch as well. When you charge up, the handy magnetic USB charging cable is easy to attach to the device and provides quick charging: just a little over an hour, maximum.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: Luxury style at a friendlier entry point
 
  At about $250, the Access Gen 5E doesn’t require a premium buy-in like some of the latest, feature-loaded smartwatches from the Fossil and Michael Kors partnership. It’s also available from some retailers for less than $200, which adds even more value, given its solid smartwatch feature set.
@@ -158,11 +168,18 @@ Lifewire / Yoona Wagener
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/wVQl98NhNnzvvYRzkBP9Uzgvfw4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_04-a6c2bd0b7bdd422d81b96dde2c213f72.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
  When comparing this device to other fashion smartwatches, it’s challenging to find a competitor outside of the Michael Kors/Fossil sphere that differs in any notable way. If you’re looking for something comparably priced with more of a fitness bent, the Samsung Galaxy Watch Active2 is worth a look.
@@ -183,18 +200,6 @@ Lifewire / Yoona Wagener
 
  The Michael Kors Access Gen 5E MKGO is an upscale smartwatch with luxury looks and a slightly sporty sensibility. Its Wear OS and Fossil Gen 5E foundation provide a solid foundation for everyday ease with features like Bluetooth calling, Google Assistant, and battery modes. And while it offers some fitness tracking, this wearable dazzles primarily as a lifestyle accessory.
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Apple Watch Series 6](https://www.lifewire.com/apple-watch-series-6-review-5087552)
@@ -224,8 +229,6 @@ Lifewire / Yoona Wagener
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -233,4 +236,26 @@ Lifewire / Yoona Wagener
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-expert-tips-for-removing-persistent-youtube-channels-mobilepc/"><u>[New] 2024 Approved Expert Tips for Removing Persistent Youtube Channels (Mobile/PC)</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-transforming-viral-tiktok-sounds-into-personalized-calls/"><u>[New] Transforming Viral TikTok Sounds Into Personalized Calls</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/oyage-to-viral-fame-crafting-high-quality-content-as-a-travel-vlogger/"><u>[New] Voyage to Viral Fame Crafting High-Quality Content as a Travel Vlogger</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-digital-dynamos-youtubes-most-watched-videos-in-a-day-for-2024/"><u>[Updated] Digital Dynamos YouTube’s Most-Watched Videos in a Day for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-navigating-video-streaming-tools-a-focus-on-zoom-with-youtube-for-2024/"><u>[Updated] Navigating Video Streaming Tools A Focus on Zoom with YouTube for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/canon-powershot-the-efficient-sx620-hs-explores-photography/"><u>Canon PowerShot: The Efficient SX620 HS Explores Photography</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-lg-k51-attractive-aesthetics-overshadowed-by-processing-speed/"><u>Comprehensive Analysis of the LG K51: Attractive Aesthetics Overshadowed by Processing Speed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-does-your-apple-watch-stack-up-gps-vs-cellular-variants-explained/"><u>How Does Your Apple Watch Stack Up? GPS Vs. Cellular Variants Explained</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Oppo F23 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-ring-wireless-smart-doorbell-pros-and-cons/"><u>In-Depth Analysis: Ring Wireless Smart Doorbell Pros & Cons</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-scoop-on-the-mohu-blade-how-this-non-traditional-tv-antenna-delivers-excellent-signal-quality-indoors/"><u>Inside Scoop on the Mohu Blade – How This Non-Traditional TV Antenna Delivers Excellent Signal Quality Indoors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-features-of-the-budget-friendly-nintendo-switch-lite-handheld-system/"><u>Navigating the Features of the Budget-Friendly Nintendo Switch Lite Handheld System</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/optimize-workflow-effective-methods-of-capturing-macs-screen-via-shortcut-keys/"><u>Optimize Workflow Effective Methods of Capturing Mac’s Screen via Shortcut Keys</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-amazon-fire-tv-cube-next-level-speed-for-ultimate-streaming-experience/"><u>Review of the Amazon Fire TV Cube – Next-Level Speed for Ultimate Streaming Experience</u></a></li>
+<li><a href="https://win11.techidaily.com/straightforward-approach-set-up-outlook-preview-on-winos/"><u>Straightforward Approach: Set Up Outlook Preview on WinOS</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-honor-magic-6-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-in-depth-review-of-samsungs-latest-galaxy-s2n-ultra-smartphone/"><u>Unveiling: In-Depth Review of Samsung's Latest Galaxy S2n Ultra Smartphone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/your-go-to-guide-to-the-most-efficient-key-finders-on-the-market/"><u>Your Go-To Guide to the Most Efficient Key Finders on the Market</u></a></li>
+</ul></div>
 

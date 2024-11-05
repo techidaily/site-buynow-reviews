@@ -1,7 +1,7 @@
 ---
 title: In-Depth Review of Microsoft's Ergonomic Keyboard - A Look at Quality, Features, and User Experience
-date: 2024-10-26T16:16:58.801Z
-updated: 2024-10-30T16:42:35.370Z
+date: 2024-11-01T09:25:02.129Z
+updated: 2024-11-04T21:27:26.603Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Review of Microsoft's Ergonomic Keyboard - A Look at Quality, Features, and User Experience
@@ -47,10 +47,10 @@ Lifewire / Emily Isaacs
 4.4
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Microsoft Sculpt Ergonomic Keyboard
@@ -83,6 +83,13 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  One unique feature of the Sculpt we loved was the function switch. Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key. Options include refreshing the active page, navigating to the home page in web, opening up the computer’s settings, a play/pause button, switching between active windows, and increasing or decreasing volume.
@@ -92,10 +99,10 @@ Lifewire / Emily Isaacs
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Batteries required**
@@ -104,23 +111,9 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
@@ -149,6 +142,13 @@ Lifewire / Emily Isaacs
 [Microsoft Surface Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-surface-ergonomic-keyboard-review-4780282)
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -192,16 +192,21 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-top-transcoding-approaches-to-boost-zoom-videos/"><u>[New] In 2024, Top Transcoding Approaches to Boost Zoom Videos</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-top-12-game-choices-for-the-ultimate-pc-clicking-journey/"><u>[Updated] In 2024, Top 12 Game Choices for the Ultimate PC Clicking Journey</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-audio-accentuation-tunes-for-visual-projects/"><u>2024 Approved Audio Accentuation Tunes for Visual Projects</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-instagrams-video-spin-what-causes-it/"><u>2024 Approved Instagram's Video Spin What Causes It?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/boost-your-wi-fi-range-with-confidence-a-thorough-evaluation-of-the-netgear-ex6200-ac1200-extender/"><u>Boost Your Wi-Fi Range with Confidence - A Thorough Evaluation of the Netgear EX6200 AC1200 Extender</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/inside-the-apc-back-ups-pro-1500va-robust-power-reserve-numerous-connection-ports-and-hot-swappable-battery-system/"><u>Inside the APC Back-UPS Pro 1500VA - Robust Power Reserve, Numerous Connection Ports & Hot Swappable Battery System</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/solution-a-non-responsive-result-could-be-due-to-transient-pulpal-changes-from-trauma-and-further-evaluation-or-repeat-testing-may-be-necessary-once-the-pul63/"><u>Solution: A Non-Responsive Result Could Be Due to Transient Pulpal Changes From Trauma, and Further Evaluation or Repeat Testing May Be Necessary Once the Pulp Has Recovered.</u></a></li>
-<li><a href="https://fox-http.techidaily.com/taking-your-photos-to-new-heights-mastering-ios-11s-features/"><u>Taking Your Photos to New Heights Mastering iOS 11'S Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-differences-between-iphone-15-pro-and-iphone-15-pro-max-models/"><u>Unveiling Differences Between iPhone 15 Pro and iPhone 15 Pro Max Models</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-features-of-the-49-inch-ultra-hd-smart-led-sony-bravia-in-depth-review/"><u>Unveiling the Features of the 49-Inch Ultra HD Smart LED Sony Bravia: In-Depth Review</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1726224298999-mp4ogv-movavi/"><u>オンラインでのフリーMP4とOGV形式変換 - Movavi</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-discovering-underrated-gems-this-year-films/"><u>[Updated] Discovering Underrated Gems This Year (Films)</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-elevate-video-production-quality-by-integrating-luts-in-your-obs-setup/"><u>[Updated] In 2024, Elevate Video Production Quality by Integrating LUTs in Your OBS Setup</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-struggling-youtuber-to-industry-leader-the-hub-of-creator-studios-wisdom/"><u>[Updated] In 2024, From Struggling Youtuber to Industry Leader The Hub of Creator Studio's Wisdom</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-revolutionizing-movie-magic-with-the-4k-31mu97-b-from-lg/"><u>[Updated] Revolutionizing Movie Magic with the 4K 31MU97-B From LG</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-streamlining-access-to-subscriber-information/"><u>2024 Approved Streamlining Access to Subscriber Information</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-premier-pc-companies-of-2/"><u>Discover the Premier PC Companies of 2</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-how-the-corsair-one-pro-reignites-creativity-in-efficient-pc-gaming/"><u>Expert Review: How the Corsair One Pro Reignites Creativity in Efficient PC Gaming</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/from-standard-to-superior-upgrading-from-home-to-pro-win11/"><u>From Standard to Superior: Upgrading From Home to Pro Win11</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-pictures-from-nubia-red-magic-9-pro-by-fonelab-android-recover-pictures/"><u>How to recover deleted pictures from Nubia Red Magic 9 Pro.</u></a></li>
+<li><a href="https://driver-install.techidaily.com/how-to-update-and-reinstall-astro-drivers-on-windows/"><u>How to Update and Reinstall Astro Drivers on Windows</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-the-journey-to-origin-how-to-utilize-reverse-image-functionality-on-instagram/"><u>In 2024, The Journey to Origin How to Utilize Reverse Image Functionality on Instagram</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/protecting-wallets-and-homes-expert-insight-into-the-best-remobell-doorbells-under-100/"><u>Protecting Wallets and Homes: Expert Insight Into the Best RemoBell Doorbells Under $100</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/six-must-have-antivirus-programs-to-enhance-security-on-your-iphone/"><u>Six Must-Have Antivirus Programs to Enhance Security on Your iPhone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-rated-high-capacity-battery-for-travelers-and-professionals-with-the-unicharger-maxprotect-design/"><u>The Best Rated High Capacity Battery for Travelers and Professionals with the UniCharger MaxProtect Design.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/whats-lacking-in-your-new-samsung-galaxy-tab-a-2020-an-essential-review/"><u>What's Lacking in Your New Samsung Galaxy Tab A (2020)? An Essential Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-the-xiaomi-mi-smart-band-4-is-a-game-changer-in-budget-fitness-tracking-a-detailed-review/"><u>Why the Xiaomi Mi Smart Band 4 Is a Game Changer in Budget Fitness Tracking – A Detailed Review</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Top Performance Evaluation: Linksys WRT3200ACM - Leading Open-Source WiFi Router"
-date: 2024-10-24T16:05:47.336Z
-updated: 2024-10-30T16:25:55.429Z
+date: 2024-10-31T01:29:23.600Z
+updated: 2024-11-05T07:51:19.460Z
 categories:
   - BestProducts
 description: "This Article Describes Top Performance Evaluation: Linksys WRT3200ACM - Leading Open-Source WiFi Router"
@@ -46,13 +46,6 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Erika Rawes
 
 [View On Walmart $29](https://www.walmart.com/ip/612208092)
@@ -75,10 +68,10 @@ Lifewire / Erika Rawes
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Reversible faux wood finish**
@@ -101,13 +94,6 @@ Lifewire / Erika Rawes
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Almost two dozen channels**
 
  The Antop AT-127 supports UHF and VHF signals. Overall, it works pretty smoothly, though some channels might have look pixelated for a few seconds when you flip to them or take a second or two to fully load.
@@ -118,6 +104,13 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Range: Could be better**
 
  My test home is in a rural area, and there’s a lot of tree cover on the property. The omnidirectional Antop AT-127 has a 40-mile range, which was enough to pick up local channels from neighboring cities.
@@ -125,6 +118,19 @@ Lifewire / Erika Rawes
  On my first attempt, I used the included stand, and the auto-programming only picked up four channels. When I placed the antenna on a window facing the TV transmitter tower, however, the omnidirectional HD antenna picked up 23 channels, which is a good amount considering the area.
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
+
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Mid-range**
 
@@ -145,10 +151,10 @@ Lifewire / Erika Rawes
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -182,19 +188,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-exploring-better-video-encoding-av1s-challenge-to-vp9/"><u>[New] In 2024, Exploring Better Video Encoding AV1's Challenge to VP9</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-unleashing-your-creative-potential-mastery-of-vocal-overdubs/"><u>[New] In 2024, Unleashing Your Creative Potential Mastery of Vocal Overdubs</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-discover-9-free-whole-film-festive-movie-gems-on-youtube/"><u>[Updated] Discover 9 Free, Whole-Film Festive Movie Gems on Youtube</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-streamlining-your-workflow-with-zooms-pre-meeting-protocol/"><u>[Updated] Streamlining Your Workflow with Zoom's Pre-Meeting Protocol</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-unveiling-the-secrets-of-advanced-camera-settings-for-2024/"><u>[Updated] Unveiling the Secrets of Advanced Camera Settings for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-jaco-smartpro-digital-tire-inflator-assessment-the-ultimate-portable-and-efficient-option/"><u>Comprehensive Jaco SmartPro Digital Tire Inflator Assessment - The Ultimate Portable and Efficient Option</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-lenovo-thinkpad-x1-nano-evaluation-your-go-to-slim-and-powerful-notebook/"><u>Comprehensive Lenovo ThinkPad X1 Nano Evaluation - Your Go-To Slim and Powerful Notebook</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/decoding-marvels-avengers-film-insightful-evaluation-and-reviews/"><u>Decoding Marvel's Avengers Film: Insightful Evaluation and Reviews</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-how-apples-airtag-leads-the-pack-in-smart-tracking-devices-for-ios-enthusiasts/"><u>Discover How Apple's AirTag Leads the Pack in Smart Tracking Devices for iOS Enthusiasts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/elevate-car-entertainment-to-the-next-level-ion-audio-tailgater-plus-delivers-long-lasting-bass-boosted-sound-on-demand/"><u>Elevate Car Entertainment to the Next Level: ION Audio Tailgater Plus Delivers Long-Lasting, Bass Boosted Sound on Demand</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-ultra-hd-with-the-reasonably-priced-sony-xbr65x850f-our-review/"><u>Experience Ultra HD with the Reasonably Priced Sony XBR65X850F - Our Review</u></a></li>
-<li><a href="https://extra-information.techidaily.com/how-to-optimize-your-presence-on-spotify-ads/"><u>How to Optimize Your Presence on Spotify Ads</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-step-by-step-guide-youtube-downloads-for-ios-devices/"><u>In 2024, Step-by-Step Guide YouTube Downloads for iOS Devices</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/still-a-fan-after-ten-years-how-this-trusted-autoandroid-has-evolved-with-me/"><u>Still a Fan After Ten Years: How This Trusted AutoAndroid Has Evolved with Me</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-navigate-effortlessly-how-to-clear-your-browsers-youtube-cache/"><u>[New] In 2024, Navigate Effortlessly How to Clear Your Browser's YouTube Cache</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-mastering-color-palettes-applying-theories-effectively-for-2024/"><u>[Updated] Mastering Color Palettes Applying Theories Effectively for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-prime-ai-graphic-editor-tools-for-2024/"><u>[Updated] Prime AI Graphic Editor Tools for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-navigating-through-an-absent-obs-camera-input/"><u>2024 Approved Navigating Through an Absent OBS Camera Input</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixing-inaccurate-screen-time-reports-on-ios-devices-displaying-misleading-data/"><u>Fixing Inaccurate Screen Time Reports on iOS Devices Displaying Misleading Data</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-final-cut-pros-top-10-must-have-plug-ins-for-professionals/"><u>In 2024, Final Cut Pro’s Top 10 Must-Have Plug-Ins for Professionals</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-simplify-your-reaction-video-creation-a-step-by-step-guide-with-filmora/"><u>New In 2024, Simplify Your Reaction Video Creation A Step-by-Step Guide with Filmora</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-enduring-appeal-of-physical-movies-over-ephemeral-streaming-services-a-comparative-analysis/"><u>The Enduring Appeal of Physical Movies Over Ephemeral Streaming Services: A Comparative Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-persistent-appeal-of-iphone-gaming-a-deep-dive-into-my-personal-experience-and-trends-that-will-continue-to-shape-the-future/"><u>The Persistent Appeal of iPhone Gaming: A Deep Dive Into My Personal Experience and Trends That Will Continue to Shape the Future</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-persistent-appeal-of-print-understanding-magazine-loyalty-in-a-high-tech-era/"><u>The Persistent Appeal of Print: Understanding Magazine Loyalty in a High-Tech Era</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/this-article-shows-you-how-to-do-freeze-frames-and-slow-motion-in-final-cut-pro-x-for-2024/"><u>This Article Shows You How to Do Freeze-Frames and Slow Motion in Final Cut Pro X for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-4-compelling-justifications-for-upgrading-to-the-playstation-5-pro-unleash-next-level-gaming/"><u>Top 4 Compelling Justifications for Upgrading to the PlayStation 5 Pro: Unleash Next-Level Gaming!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-7-fond-memories-of-the-dial-up-era-you-secretly-cherish/"><u>Top 7 Fond Memories of the Dial-Up Era You Secretly Cherish</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-mobile-gaming-controllers-a-comprehensive-guide/"><u>Top-Rated Mobile Gaming Controllers: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-powering-down-refreshing-or-rebooting-your-ps5-console/"><u>Ultimate Guide: Powering Down, Refreshing, or Rebooting Your PS5 Console</u></a></li>
 </ul></div>
 

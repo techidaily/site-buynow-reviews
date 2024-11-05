@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis: Why the Xbox One Elite Series 2 Stands Out Amongst Gaming Controllers"
-date: 2024-09-04T18:47:01.742Z
-updated: 2024-09-05T18:47:01.742Z
+date: 2024-11-03T04:49:18.966Z
+updated: 2024-11-05T04:46:38.211Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis: Why the Xbox One Elite Series 2 Stands Out Amongst Gaming Controllers"
@@ -40,6 +40,13 @@ Lifewire / Zach Sweat
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/JA4MI_SE7Alxl0MLR7rMoIVzKgI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -94,6 +101,13 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/TRrezKVbAUPs2Rud3g4_iOHyxB8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-2-4b3f9d8acd1440089989378253d902f4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 ## **Comfort: Hefty, but darn comfy**
@@ -112,12 +126,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process and Software: Bluetooth, at long last**
 
  One of our biggest gripes with the original Elite controller was that it lacked Bluetooth functionality despite its premium price tag. Seeing how the much cheaper ONE S variant included this, it was even more frustrating. Thankfully, Microsoft listened to our collective rants and added Bluetooth to the Series 2, which drastically improves the number of devices it can be used with.
@@ -139,19 +147,21 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance/Durability: Enhanced performance and durability**
 
  To test the performance of the new Elite Series 2 controller, I put this device through several hours of gaming on both PC and Xbox One platforms running a number of games and layouts. The results were promising, so let’s take a closer look.
@@ -175,11 +185,12 @@ Lifewire / Zach Sweat
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Like buying a brand new console**
 
  Right now, the Elite Series 2 controller retails at an MSRP of $249.99, about $100 more than its predecessor. This price tag makes it not only the most expensive first-party controller around, but also nearly the cost of a brand new Xbox One S console (or three brand new titles). That can be a tough sell for your average gamer.
@@ -192,12 +203,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
 
  Since the Elite controller really is in a league of its own, the biggest competitor to it is the first generation, which can still be purchased from a number of retailers. We’re going to quickly compare the two to see which might be best for you.
@@ -212,12 +217,6 @@ Lifewire / Zach Sweat
 
  Everything we disliked about the original Elite controller has been improved with the second iteration, making it the best first-party controller you can get for XB1 or PC. However, the steep price point might be a hard pill to swallow for users who don’t like to splurge.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Xbox One Elite Series 2 Controller
@@ -235,14 +234,11 @@ Lifewire / Zach Sweat
 * Warranty  90-day warranty
 * Compatibility  All Xbox One Consoles, Windows 10 PCs, Bluetooth devices
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -251,4 +247,26 @@ Lifewire / Zach Sweat
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-unleashing-vrecorders-capabilities-download-and-setup-guide/"><u>[New] In 2024, Unleashing VRecorder's Capabilities – Download & Setup Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-best-sound-transforming-apps-for-youtube-vloggers/"><u>2024 Approved Best Sound Transforming Apps for YouTube Vloggers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-in-game-magic-captured-advanced-methods-for-logging-virtual-realities/"><u>2024 Approved In-Game Magic Captured Advanced Methods for Logging Virtual Realities</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-unraveling-the-secrets-of-inshot-editing-excellence/"><u>2024 Approved Unraveling the Secrets of InShot Editing Excellence</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-top-rated-wi-fi-signal-amplifiers-for-flawless-connectivity/"><u>2024'S Top Rated Wi-Fi Signal Amplifiers for Flawless Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/5-star-selection-of-domestic-atmospheric-sensors-in-2amoyu/"><u>5-Star Selection of Domestic Atmospheric Sensors in 2Amoyu</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-assessment-of-assassins-creed-valhalla-a-grand-norse-saga-in-a-historical-setting/"><u>A Comprehensive Assessment of Assassin's Creed: Valhalla - A Grand Norse Saga in a Historical Setting</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-detailed-look-into-garmin-gpsmap-64st-your-ultimate-handheld-navigation-companion/"><u>A Detailed Look Into Garmin GPSMAP 64St - Your Ultimate Handheld Navigation Companion</u></a></li>
+<li><a href="https://program-issues.techidaily.com/a-step-by-step-guide-resolving-gtfo-related-errors/"><u>A Step-by-Step Guide: Resolving GTFO Related Errors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722592353010-abrasion-resistance-ensures-the-longevity-of-dental-materials-against-wear-and-tear/"><u>Abrasion Resistance Ensures the Longevity of Dental Materials Against Wear and Tear.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/advanced-techniques-for-upgrading-intel-based-imacs/"><u>Advanced Techniques for Upgrading Intel-Based iMacs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-syma-s111g-rc-helicopter-ultimate-guide-and-user-experience/"><u>Affordable Syma S111G RC Helicopter: Ultimate Guide and User Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/analyzing-the-factors-behind-wii-us-popularity-surge/"><u>Analyzing the Factors Behind Wii U's Popularity Surge</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722975986272-fixing-xbox-accessories-drivers-errors-in-windows-11-8-and-7-resolved/"><u>Fixing Xbox Accessories Drivers Errors in Windows 11, 8 & 7 – Resolved</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-detailed-analysis-tunefab-screen-tools/"><u>In 2024, Detailed Analysis Tunefab Screen Tools</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-master-the-art-of-listening-and-viewing-with-best-android-music-vids/"><u>In 2024, Master the Art of Listening and Viewing with Best Android Music Vids</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/in-the-us-climate-change-law-often-operates-under-existing-statutes-like-the-clean-air-act-which-is-enforced-by-federal-agencies-such-as-the-epa-while-state3/"><u>In the U.S., Climate Change Law Often Operates Under Existing Statutes Like the Clean Air Act, Which Is Enforced by Federal Agencies Such as the EPA, While States May Implement Stricter Regulations Independently.</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/tech-spotlight-on-toms-hardware-best-picks-for-gamers-and-enthusiasts/"><u>Tech Spotlight on Tom's Hardware: Best Picks for Gamers & Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722588352134-the-ultimate-guide-to-the-lg-oled-c9-unleashing-the-power-of-a-superior-4k-65-tv-in-our-in-depth-review/"><u>The Ultimate Guide to the LG OLED C9: Unleashing the Power of a Superior 4K, 65 TV in Our In-Depth Review</u></a></li>
+</ul></div>
 

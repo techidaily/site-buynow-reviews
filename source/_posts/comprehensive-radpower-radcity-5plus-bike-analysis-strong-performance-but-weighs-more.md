@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive RadPower RadCity 5+ Bike Analysis: Strong Performance, But Weighs More"
-date: 2024-09-04T18:47:03.139Z
-updated: 2024-09-05T18:47:03.139Z
+date: 2024-11-02T23:57:29.626Z
+updated: 2024-11-04T18:45:10.650Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive RadPower RadCity 5+ Bike Analysis: Strong Performance, But Weighs More"
@@ -64,6 +64,13 @@ Lifewire / Andy Zahn
 
  Fossil has a reputation for making cool watches, both of the traditional and smart variety, and Fossil Sport is no exception. The question is, does it work as well as it looks?
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Classy looks, quality controls**
 
  The Fossil Sport is one slick looking watch, and it’s impressively customizable. There are a number of different colors to choose from, as well as varying colors of extra bands you can buy as accessories. I tested the Smoke Black model and appreciated its understated and elegant appearance. If that’s not your thing, you can go crazy and make the watch as gaudy and unique as you like.
@@ -84,68 +91,47 @@ Lifewire / Andy Zahn
 
 ![Fossil Sport Smartwatch](https://www.lifewire.com/thmb/DdOVg5yJzQTRZs3QPo_qPoBT7mA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fossil-Sport-Smart-Watch-4-653a372a18904e089de460ed88380344.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Comfort: Highly adjustable**
 
  I appreciated that Fossil included a watch band large enough to fit my extra-large 9-inch wrists with room to spare. I found it comfortable to wear all day long; its lightweight prevented it from being overly burdensome on my wrist.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: Accurate stats**
 
  I was impressed by the accuracy of the Fossil Sport’s heart rate sensor and its other fitness tracking features. It read my correct heart rate right off the bat, which is something other smartwatches have failed to do due to my chunky wrists. The GPS and pedometer accurately kept track of my progress on walks and other activities, and these statistics are handled and gamified to some degree through Google Fit. This makes detailed statistics readily available on your phone, though it doesn’t provide quite as much detail and analysis as other fitness tracking software.
 
  The 1.2-inch 390 PPI AMOLED display is wonderfully crisp, clear, and bright enough to see even in strong sunlight. It’s so pretty to look at with deep blacks and bright colors that I found myself occasionally glancing at the watch just to enjoy this startlingly nice screen.
 
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Battery: 24-hour power**
 
  I found that I was easily able to get through a day or two without having to recharge the Fossil Sport. Its 24-hour battery claim is accurate under average daily use conditions. Once you do run the battery down, the watch switches into a battery saver mode where only the time is displayed. In this mode, you can expect a week's worth of battery life.
 
 ![Fossil Sport Smartwatch](https://www.lifewire.com/thmb/a8TojyXavE05a-LRkRQauxY7ChM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fossil-Sport-Smart-Watch-2-cb6ea34d0ed1441c8c0dac4542d0dd1d.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: The Highs and Lows of Wear OS**
 
  Fossil Sport utilizes Google’s[WearOS](https://www.lifewire.com/best-tips-and-tricks-for-wear-os-4583030) , which is something of a double-edged sword. On one hand, WearOS supports a range of devices, which means the Fossil Sport isn’t dependent upon a closed ecosystem. On the other hand, I had some issues with the compatibility of WearOS apps on Fossil Sport.
@@ -173,17 +159,12 @@ Lifewire / Andy Zahn
  The value of Fossil Sport is beyond dispute. Between its capable feature set, excellent design, and bargain price point, this smartwatch is a versatile and good looking companion.
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Fossil Sport
@@ -206,8 +187,6 @@ Lifewire / Andy Zahn
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -215,4 +194,26 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-optimizing-color-depth-and-gradients-for-obs/"><u>[New] Optimizing Color Depth and Gradients for OBS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-premier-karaoke-device-rankings-find-your-perfect-match/"><u>2024'S Premier Karaoke Device Rankings - Find Your Perfect Match!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-buyers-guide-what-you-should-look-for-when-getting-a-new-printer/"><u>A Buyer's Guide: What You Should Look For When Getting a New Printer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-nhl-19-delivering-an-addictive-internet-based-gaming-session/"><u>A Closer Look at NHL 19: Delivering an Addictive Internet-Based Gaming Session</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-step-by-step-strategy-for-efficiently-advertising-on-buyselladscom/"><u>A Step-by-Step Strategy for Efficiently Advertising on BuySellAds.com</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ace-your-networking-game-with-the-top-2024-long-distance-routers-findings-and-ratings/"><u>Ace Your Networking Game with the Top 2024 Long-Distance Routers: Findings and Ratings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/achieving-perfection-unveiling-hitman-3s-lasting-impact-in-our-review/"><u>Achieving Perfection? Unveiling Hitman 3'S Lasting Impact in Our Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/agpteks-innovative-budget-friendly-mp3-solution/"><u>AGPTEK's Innovative, Budget-Friendly MP3 Solution</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/chorus-of-commitment-best-ballads-for-marital-dreaming/"><u>Chorus of Commitment Best Ballads for Marital Dreaming</u></a></li>
+<li><a href="https://article-tips.techidaily.com/crafting-a-combined-video-narrative-on-iphone/"><u>Crafting a Combined Video Narrative on iPhone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/debating-the-need-for-itop-screencasting-for-2024/"><u>Debating the Need for ITop Screencasting for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/diy-fixes-for-overcoming-the-directx-error-in-fifa-19-gameplay/"><u>DIY Fixes for Overcoming the DirectX Error in FIFA 19 Gameplay</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722619314518-exploring-the-capabilities-and-performance-the-2cuative-labs-sound-blaster-zxr-review-from-2013/"><u>Exploring the Capabilities and Performance: The 2Cuative Labs Sound Blaster ZXR Review From 2013</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-smoothly-quitting-facebook-groups/"><u>Guide to Smoothly Quitting Facebook Groups</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-free-up-iphone-xs-max-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Free Up iPhone XS Max Space | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/lg-unveils-new-slimline-gram-laptop-model-a-revolution-in-portability/"><u>LG Unveils New Slimline GRAM Laptop Model: A Revolution in Portability</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576394-9781440128400-moon-dance-the-feminine-dimensions-of-time/"><u>Moon Dance: the Feminine Dimensions of Time | Free Book</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-to-uninstall-quickly-in-windows-11/"><u>Navigating to Uninstall Quickly in Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722764831055-top-reviews-for-like-a-dragon-from-the-yakuza-series-play-this-jrpg-masterpiece/"><u>Top Reviews for 'Like A Dragon' From the Yakuza Series - Play This JRPG Masterpiece!</u></a></li>
+</ul></div>
 

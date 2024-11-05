@@ -1,7 +1,7 @@
 ---
 title: "The Modern Explorer’s Companion: PowerShot G9X2 Camera Reviewed"
-date: 2024-09-04T18:48:47.668Z
-updated: 2024-09-05T18:48:47.668Z
+date: 2024-10-31T03:47:56.014Z
+updated: 2024-11-05T00:44:04.530Z
 categories:
   - BestProducts
 description: "This Article Describes The Modern Explorer’s Companion: PowerShot G9X2 Camera Reviewed"
@@ -41,6 +41,19 @@ Lifewire / Danny Chadwick
 
 ![DDpai mini3](https://www.lifewire.com/thmb/wub4BYqtsTUxBb5FELPfSqcF92w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4062264_HeroSquare-49298d637a2d4aeb9ef1213bafb0ebf7.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Danny Chadwick
 
 [View On Amazon](https://www.amazon.com/dp/B07414XNVW/?tag=lifewire-onsite-prod-20&ascsubtag=4770579%7Cn9133c1b2f39142c5b16b7305ace0668b14%7CB07414XNVW) [View On EBay](https://www.ebay.com/p/7033929574)
@@ -65,18 +78,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: 21st Century Dashcam**
 
  The first thing you notice about the mini3 is that the camera housing is smooth and cylindrical. Other dash cams are very square and bulky, so right out of the box, you know this is a different kind of camera. It’s very sleek and feels like it belongs in the 21st century.
@@ -105,6 +106,13 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Read the manual first**
 
  The user manual for the DDPAI mini3 is detailed enough that you’ll know what everything does and how to use it. It starts you off by prompting you to download the app, which will walk you through the process of connecting to the camera’s Wi-Fi and give you a tour of its features. After that, you’re ready to go—it only takes about 10 minutes to be comfortably familiar with the mini3.
@@ -113,12 +121,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Mobile App: What sets it apart**
 
  What really sets the mini3 apart from other dashcams is its mobile app. The user manual instructs you to download the DDPai app before you use the camera for the first time. Once it’s on your phone and paired with your camera, the app’s “Camera” tab contains all the tools you need to watch the live feed, control the camera, review footage, and adjust settings—all the things that make a car cam useful.
@@ -133,18 +135,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Camera Quality: 4K video with incredible detail**
 
  True to the promise of its design, the camera is par excellence. It can capture footage in 4K resolution as well as 1600p using an f/1.8 aperture that lets in more light. That, along with the camera’s high-capacity processor and image sensor, yields eye-popping detail, richness, and clarity. It is by orders of magnitude the highest-quality picture we’ve seen among the dashcams we’ve tested.
@@ -152,17 +142,18 @@ Lifewire / Danny Chadwick
  It can capture footage in 4K resolution as well as 1600p using an f/1.8 aperture that lets in more light.
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: Always there for you**
 
  Once it was installed and ready to go, we drove this dashcam through the cities, suburbs, mountains, forests, and red rocks of Utah. Because the camera is so well-hidden behind the rearview mirror, we often forgot it was there. But when we passed a particularly scenic lake or rock formation, it was natural to just reach down and push the remote button to snap a picture.
@@ -170,6 +161,13 @@ Lifewire / Danny Chadwick
 ## **Price: Surprising low for what you get**
 
  As of the time of this writing, you can pick up the DDPAI mini3 for about $130\. For what you get out of this camera, we think this is a great value. Similarly-priced models we tested don’t nearly match the quality and utility you get from the mini3.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition** :**DDPAI** **mini3 vs. Z-Edge Z3 Plus**
 
@@ -187,24 +185,12 @@ Lifewire / Danny Chadwick
 
  If you’re a road-tripper, travel vlogger, or plugged-in social media user, then the DDPAI mini3 is made for you. Not only is this dashcam stylish and discreet, it also captures beautiful photos and video of your travels that are perfect for sharing or simply saving to revisit down the road.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Apeman C450 Dashcam](https://www.lifewire.com/apeman-c450-review-4770598)
 * [Rexing V1 DashCam](https://www.lifewire.com/rexing-v1-dashcam-review-4770571)
 * [Anker Roav DashCam C1](https://www.lifewire.com/anker-roav-dashcam-c1-review-4773139)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030370/7443" target="_top" id="2030370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Dash Cam mini3
@@ -224,8 +210,6 @@ Lifewire / Danny Chadwick
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -233,4 +217,23 @@ Lifewire / Danny Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/updated-aural-alchemy-transforming-imovie-videos-with-music/"><u>[Updated] Aural Alchemy Transforming iMovie Videos with Music</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ar-5-augmented-reality-glasses-from-arcshell-outstanding-functionality-at-an-attractive-price-point/"><u>AR-5 Augmented Reality Glasses From ArcShell - Outstanding Functionality at an Attractive Price Point</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/boost-communication-merging-skype-and-zoom-functionality-for-2024/"><u>Boost Communication Merging Skype and Zoom Functionality for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/converting-videos-with-impact-sdr-to-hdr-your-essential-guide-for-2024/"><u>Converting Videos with Impact SDR to HDR - Your Essential Guide for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/decoding-viber-out-features-and-user-satisfaction-a-detailed-report/"><u>Decoding Viber Out Features and User Satisfaction - A Detailed Report</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-seamless-internet-on-the-go-the-mini-yet-mighty-orlink-u631-wireless-usb-adapter/"><u>Experience Seamless Internet on the Go: The Mini, Yet Mighty ORLINK U631 Wireless USB Adapter</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-itel-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on Itel</u></a></li>
+<li><a href="https://windows11.techidaily.com/identifying-superior-video-encoders-for-windows-computing/"><u>Identifying Superior Video Encoders for Windows Computing</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-poco-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Poco</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-usb-wi-fi-dongles-for-optimal-connectivity-2024-edition/"><u>Leading USB Wi-Fi Dongles for Optimal Connectivity - 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/rayman-legends-analysis-stellar-execution-in-a-traditional-2d-adventure-game/"><u>Rayman Legends Analysis: Stellar Execution in a Traditional 2D Adventure Game</u></a></li>
+<li><a href="https://win-docs.techidaily.com/step-by-step-solution-resolving-the-problem-of-unseen-drives-in-seagates-discwizard-software/"><u>Step-by-Step Solution: Resolving the Problem of Unseen Drives in Seagate's DiscWizard Software</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-15-apps-to-hack-wifi-password-on-poco-c55-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Poco C55</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-collection-the-best-13-true-crime-podcasts-you-shouldnt-miss/"><u>Ultimate Collection: The Best 13 True Crime Podcasts You Shouldn't Miss</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-nook-glightplus-review-why-barnes-and-noble-leads-in-e-reader-screen-size/"><u>Unveiling the Nook GlightPlus Review: Why Barnes & Noble Leads in E-Reader Screen Size</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/zombie-survival-guide-a-motorcyclists-review-of-days-gone/"><u>Zombie Survival Guide: A Motorcyclist's Review of 'Days Gone'</u></a></li>
+</ul></div>
 

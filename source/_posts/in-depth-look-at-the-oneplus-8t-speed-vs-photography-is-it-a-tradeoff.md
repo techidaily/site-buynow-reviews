@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Look at the OnePlus 8T: Speed Vs. Photography - Is It a Tradeoff?"
-date: 2024-10-27T16:39:26.983Z
-updated: 2024-10-30T16:08:38.473Z
+date: 2024-10-30T20:00:34.119Z
+updated: 2024-11-04T17:05:53.658Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Look at the OnePlus 8T: Speed Vs. Photography - Is It a Tradeoff?"
@@ -46,22 +46,15 @@ Lifewire / Matthew S. Smith
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Acer Predator Triton 300 SE
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/Coi6EdMOwuyjB7rdhov_hsKrHmo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Acer-Predator-Triton-300-SE-Gaming-Laptop-1-d6f9eeb5a43845a9a328125976c835b0.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -108,22 +101,15 @@ Lifewire / Matthew S. Smith
 
  All the laptop’s ports are placed near the front of the chassis. You’ll have to deal with tangled cables more often than with a laptop that places most ports on the rear. I found this annoying when using an external mouse, as cables jutting from the laptop’s flanks often bumped my hand while playing games.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What’s New: This one is special
 
  The Acer Predator Triton 300 SE has little in common with other Predator Triton or Helios models. A few common design elements can be found in the speaker grill, fans, and PreadtorSense software, but the design is otherwise distinct.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Display: Better than first glance
@@ -160,6 +146,13 @@ Lifewire / Matthew S. Smith
 
  For me, the Triton 300 SE is easily fast enough: it can handle most games at an average of 60 frames per second (fps), and often much higher, at 1080p resolution. I wouldn’t recommend the Triton 300 SE if you plan to use an external 1440p or 4K monitor, however. Pushing a higher pixel count will lead to sub-60fps performance in most demanding games.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Productivity: All business
 
  The Acer Predator Triton 300 SE’s business-like design carries over to the keyboard and mouse. Key feel is good, with significant key travel and firm bottoming action, and the spacious layout will be comfortable for most users.
@@ -175,10 +168,10 @@ Lifewire / Matthew S. Smith
  The touchpad is about four inches wide and two and a half inches deep. That’s not bad for a gaming laptop, but average for a productivity machine, and it can feel cramped. It’s responsive and rejects any quick, unintended brush by a palm or thumb. It’s smooth when using multi-touch gestures like two-finger scroll or pinch-to-zoom.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Audio: Packing a punch
@@ -201,13 +194,6 @@ Lifewire / Matthew S. Smith
 
  Acer’s Predator Triton 300 SE straddles the line between entertainment and productivity in its design, but the camera falls short of its professional aspirations. It’s a tiny 720p pinhole camera that squeezes between the display and the top bezel. Video quality is grainy in all but the brightest rooms and uneven lighting can easily confuse it.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Battery: Ouch
 
  It’s easy to pack the Acer Predator Triton 300 SE in a bag for travel, but keeping it charged is a different story. This is a powerful laptop yet, due to its size, it contains a modest 60 watt-hour battery. That would be fine in a laptop without discrete graphics, but this is a gaming laptop.
@@ -222,6 +208,13 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/RSfl2dEVmErlvh3BUUFcxqsbt9w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-2-c5eed4bfe7e44014952b5503566097d9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
 
 ## Software: Planet what now?
@@ -235,6 +228,13 @@ Lifewire / Matthew S. Smith
 ## Price: An outstanding value
 
  Acer sells the Predator Triton 300 SE for $1,400, and it sometimes sells for $1,350 at Best Buy. This is an outstanding price for a laptop packing Nvidia’s RTX 3060\. There’s only a few competitors with the RTX 3060, such as MSI’s GF65 Thin, that can be purchased for less right now. The MSI GF65 manages to undercut the Triton 300 SE by using an older Intel chip and just 8GB of RAM.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Acer Predator Triton 300 SE vs. Asus ROG Zephyrus G14
 
@@ -254,18 +254,18 @@ Lifewire / Matthew S. Smith
 
  Acer’s Predator Triton 300 SE is an excellent value that has what gamers want: a great gaming experience and a quality display. Its short battery life and mediocre multi-core processor hold it back in everyday use, but the laptop’s competitive price makes these flaws easy to forgive.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
 * [Dell XPS 13 2-in-1 Laptop](https://www.lifewire.com/dell-xps-13-2-in-1-laptop-review-4795686)
 * [Microsoft Surface Laptop 2](https://www.lifewire.com/microsoft-surface-laptop-2-review-4779760)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -301,22 +301,24 @@ Lifewire / Matthew S. Smith
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-pro-techniques-for-professional-iphone-shots/"><u>[New] Pro Techniques for Professional Iphone Shots</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-reel-motivation-a-curated-list-of-top-10-film-titles/"><u>[New] Reel Motivation A Curated List of Top 10 Film Titles</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-video-marketing-how-to-plan-your-strategy-with-10-best-ideas/"><u>[Updated] Instagram Video Marketing How to Plan Your Strategy with 10 Best Ideas</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-conquer-kinemaster-rule-the-meme-world/"><u>2024 Approved Conquer KineMaster, Rule the Meme World</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-the-all-inclusive-and-robust-functionality-of-the-samsung-gear-s3-frontier/"><u>Comprehensive Analysis: The All-Inclusive and Robust Functionality of the Samsung Gear S3 Frontier</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-antioch-at-127-antenna-evaluation-top-features-and-signal-quality/"><u>Comprehensive Antioch AT-127 Antenna Evaluation: Top Features and Signal Quality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/decoding-sonys-ws623-design-paradoxes/"><u>Decoding Sony's WS623 Design Paradoxes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-best-in-darkroom-editing-software-a-deep-dive-into-lightzone-on-multiple-operating-systems/"><u>Discover the Best in Darkroom Editing Software: A Deep Dive Into LightZone on Multiple Operating Systems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-leading-choices-for-cordless-communication-devices/"><u>Discover the Leading Choices for Cordless Communication Devices</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/effortless-organization-with-windows-11s-file-explorer-get-started-today/"><u>Effortless Organization with Windows 11'S File Explorer - Get Started Today!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/elevate-your-gaming-experience-with-the-best-in-class-flight-simulator-microsoft-fsx-gold-edition/"><u>Elevate Your Gaming Experience with the Best-in-Class Flight Simulator: Microsoft FSX Gold Edition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ergohead-cushioned-mat-analysis-sustaining-ease-during-continuous-desk-use/"><u>Ergohead Cushioned Mat Analysis: Sustaining Ease During Continuous Desk Use</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-clever-design-a-comprehensive-review-of-twelve-south-bookbook-v2-case/"><u>Evaluating the Clever Design: A Comprehensive Review of Twelve South BookBook V2 Case</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/exclusive-deal-alert-get-smart-lights-and-switches-for-half-price-with-ge-cync-insider-tips-at-zdnet/"><u>Exclusive Deal Alert! Get Smart Lights & Switches for Half Price with GE Cync | Insider Tips at ZDNET</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-lava-blaze-curve-5g-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Lava Blaze Curve 5G Phones? | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastering-ai-art-with-paint-tool-sai-in-windows-11/"><u>Mastering AI Art with Paint Tool SAI in Windows 11</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/under-the-surface-sound-savers-top-6-stealthy-recorders-iosandroid-for-2024/"><u>Under-the-Surface Sound Savers Top 6 Stealthy Recorders (iOS/Android) for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-the-ultimate-screen-recorder-list-for-mac-devices/"><u>[New] The Ultimate Screen Recorder List for Mac Devices</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-essential-8-android-group-calls-over-4-users/"><u>[Updated] Essential 8 Android Group Calls Over 4 Users</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-how-to-choose-between-filmora-and-democreator/"><u>[Updated] How to Choose Between Filmora and Democreator</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-unlocking-the-potential-of-instagrams-sound-symbols/"><u>[Updated] In 2024, Unlocking the Potential of Instagram's Sound Symbols</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlocking-high-quality-video-sequences-via-gopros-burst/"><u>[Updated] Unlocking High-Quality Video Sequences via GoPro's Burst</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-merging-and-editing-footage-on-iphone/"><u>2024 Approved Merging and Editing Footage on iPhone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-nest-audio-vs-nest-mini-which-smart-speaker-wins/"><u>Comparing Nest Audio Vs. Nest Mini: Which Smart Speaker Wins?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/effortless-fitness-management-with-samsungs-compact-galaxy-fit2-tracker/"><u>Effortless Fitness Management with Samsung's Compact Galaxy Fit2 Tracker</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/embrace-the-rugged-beauty-of-a-55-inch-sunbrite-tv-veranda-with-superior-hdr-capabilities/"><u>Embrace the Rugged Beauty of a 55-Inch SunBrite TV Veranda with Superior HDR Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-moto-g-stylus-impressive-speed-and-satisfactory-battery-endurance-with-handy-stylus/"><u>Expert Analysis of Moto G Stylus: Impressive Speed & Satisfactory Battery Endurance with Handy Stylus</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-and-share-stories-akaso-ek7000s-4k-action-prowess/"><u>Explore and Share Stories: AKASO EK7000's 4K Action Prowess</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-videos-not-playing-with-my-honor-x7b-by-stellar-video-repair-mobile-video-repair/"><u>How to fix videos not playing with my Honor X7b?</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/is-the-moto-watch-100-a-wise-investment-uncovering-disappointments-beneath-the-surface-insights-from-zdnet/"><u>Is the Moto Watch 100 a Wise Investment? Uncovering Disappointments Beneath the Surface | Insights From ZDNET</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/outdoor-rc-fun-with-the-blade-blh4100-your-ultimate-120-s-heli-review-guide/"><u>Outdoor RC Fun with the Blade BLH4100: Your Ultimate 120 S Heli Review Guide</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/seamlessly-watch-flv-content-on-ios-devices-a-simple-tutorial/"><u>Seamlessly Watch FLV Content on iOS Devices - A Simple Tutorial</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-wallet-friendly-wellness-tracker-a-comprehensive-review-of-the-fitbit-versa/"><u>The Wallet-Friendly Wellness Tracker: A Comprehensive Review of the Fitbit Versa</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-your-creative-potential-with-the-anthropics-photo-editor-in-depth-software-critique/"><u>Unlock Your Creative Potential with the Anthropics Photo Editor - In-Depth Software Critique</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-potential-of-flight-a-comprehensive-look-at-the-dji-mavic-air-2s/"><u>Unlocking the Potential of Flight: A Comprehensive Look at the DJI Mavic Air 2S</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-the-best-ways-to-convert-mp4-to-mp3-on-your-iphone-or-android-device-for-2024/"><u>Updated The Best Ways to Convert MP4 to MP3 on Your iPhone or Android Device for 2024</u></a></li>
 </ul></div>
 

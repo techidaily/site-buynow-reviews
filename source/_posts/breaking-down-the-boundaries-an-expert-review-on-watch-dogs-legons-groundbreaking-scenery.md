@@ -1,7 +1,7 @@
 ---
 title: "Breaking Down the Boundaries: An Expert Review on Watch Dogs: Legon's Groundbreaking Scenery"
-date: 2024-09-04T18:46:58.258Z
-updated: 2024-09-05T18:46:58.258Z
+date: 2024-11-01T18:01:11.136Z
+updated: 2024-11-04T21:57:36.919Z
 categories:
   - BestProducts
 description: "This Article Describes Breaking Down the Boundaries: An Expert Review on Watch Dogs: Legon's Groundbreaking Scenery"
@@ -60,11 +60,12 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
  Watch Dogs: Legion is the latest installment in Ubisoft’s[Watch Dogs](https://www.liveabout.com/watch-dogs-2-cheats-codes-and-walkthroughs-4773695) series, and you can literally play as any character you encounter in the open world. Although Watch Dogs: Legion released without online gameplay (it became available in December 2020), you can play the campaign mode on PC or[console](https://www.lifewire.com/best-gaming-consoles-4154610) right now. Is this game worth the time and monetary investment? I played Watch Dogs: Legion for 30 hours to find out, evaluating its story, gameplay, graphics, to see how it compares to other titles.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setting and Plot: Fun, but predictable**
 
  Watch Dogs: Legion is set in a near-future version of London. The game accurately depicts landmarks, as well as the overall vibe of the city, but it’s a fictional version of London with a heavy tech theme. You have a few different enemies — a group consisting of private military, state operatives, and organized crime, as well as a hacker group called Zero Day. Zero Day pulls off a major terrorist operation in London. This causes the government to give power to a military group (Albion), and that group promptly implements a martial law type system of oppression.
@@ -72,6 +73,13 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
  You’re part of a group called DedSec, and you and your associates were framed for the terrorist act, although Zero Day were the real culprits. You now need to rebuild the organization, work to take down the multiple groups, and give London back to the people “V for Vendetta”-style.
 
 ![Watch Dogs: Legion car chase](https://www.lifewire.com/thmb/w01z_qW1xkiYdMVSg0obsvGJ2NU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-3-042727c8603245bfbcde2e3b67ab7ed8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -97,18 +105,6 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
 
 ![Watch Dogs: Legion character creation](https://www.lifewire.com/thmb/fT7PRS6tGlloKdqVFXl8H-TPrVY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-2-ed238e68324c450997c310f225ff57a6.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
  On the plus side, you can play as any character you encounter, and you can switch characters anytime you like, except in the middle of missions. When you do switch, the characters have a conversation that feels kind of like a hand off. I thought this was a nice touch. You can also customize characters with clothes and new masks. However, since I was switching characters so often and I wasn’t playing online, I didn’t have much motivation to customize specific characters. The clothing felt tacked on, like more of an obligatory feature in an open world game rather than an actual benefit.
@@ -121,12 +117,6 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
 
  Most missions wound up feeling pretty redundant, especially after playing for a while. I’d approach a building, hack cameras and set traps, send in the spider drones for some easy knockouts, then go in and complete the area. There were some fun missions along the main story which offered some variety, but most missions are best completed with stealth, which can slow down the game sometimes.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Graphics: Top notch**
 
  Watch Dogs: Legion looks incredible, with great draw distances, and an incredibly detailed world. Everything visually works, and I really enjoyed looking at the people and landmarks in the world.
@@ -135,20 +125,15 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
 
 ![Watch Dogs: Legion mission](https://www.lifewire.com/thmb/K-AWpBjCaRJlrJ0G-xBMEG92pQo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-7-87aeabc18ddb4bca8252d33fcb1f20bf.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Erika Rawes / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: The usual $60**
 
  Watch Dogs: Legions sells for $60 for the standard edition. The Gold Edition sells for $100, and the Ultimate and Collectors Editions sell for $120 and $190, respectively. Everything above the standard edition comes with extra missions and a season pass, but these perks don’t really seem worth the added cost.
@@ -156,6 +141,13 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
  There’s just not enough multiplayer meat on the bone or story to justify paying that much more. The $60 price even feels a little high for this game. If you really love open world games, the $60 price might be worth it to you, especially since you can upgrade at no additional cost to the next-gen version if you buy the game on[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) or[Xbox One](https://www.lifewire.com/xbox-one-buyers-guide-3562291) , but you might not get as much playtime out of Watch Dogs: Legion as you would other $60 titles.
 
  The story kept me interested, although the plot bordered on predictable.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Watch Dogs: Legion vs. Grand Theft Auto Series**
 
@@ -165,18 +157,6 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
 
  Watch Dogs: Legion feels like a missed opportunity, with a “play as anyone” feature that’s cool, but not cool enough to compensate for the lack of novelty. The addition of online play may offer more replayability, but as of launch, there isn’t enough to keep us coming back.
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Watch Dogs: Legion
@@ -191,8 +171,6 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -200,4 +178,26 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-tweeting-tiktoks-made-easy/"><u>[Updated] 2024 Approved Tweeting TikToks Made Easy</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/comment-reprendre-le-controle-sur-lacces-de-votre-logiciel-a-vos-photos/"><u>Comment Reprendre Le Contrôle Sur L’Accès De Votre Logiciel À Vos Photos?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-tp-link-archer-c80-analysis-top-under-100-routers/"><u>Comprehensive TP-Link Archer C80 Analysis - Top Under $100 Routers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/console-contenders-ps5-challenges-the-ps4-pro-status/"><u>Console Contenders: PS5 Challenges the PS4 Pro Status</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/elevate-digital-marketing-strategies-with-the-power-of-cookiebot/"><u>Elevate Digital Marketing Strategies with the Power of Cookiebot</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-realme-narzo-n55-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Realme Narzo N55 If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-samsung-galaxy-xcover-6-pro-tactical-edition-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Samsung Galaxy XCover 6 Pro Tactical Edition FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-any-tecno-spark-10-4g-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Tecno Spark 10 4G Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-optimizing-youtube-presentations-with-precise-times/"><u>In 2024, Optimizing YouTube Presentations with Precise Times</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/iphone-15-pro-max-versus-samsung-s2wo-ultra-a-comprehensive-feature-breakdown/"><u>IPhone 15 Pro Max versus Samsung S2wo Ultra: A Comprehensive Feature Breakdown</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/justifying-expense-iphoneipod-battery-swap-decision/"><u>Justifying Expense: IPhone/iPod Battery Swap Decision</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/masterclass-integrating-meta-artifice-intelligence-with-your-instagram-account/"><u>Masterclass: Integrating Meta Artifice Intelligence with Your Instagram Account</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-a51-5g-exceptional-features-for-an-unbeatable-price/"><u>Samsung Galaxy A51 5G: Exceptional Features for an Unbeatable Price</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-comparison-chromecast-and-firetv-battle-for-supremacy/"><u>The Ultimate Comparison: Chromecast and FireTV Battle for Supremacy</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-ultimate-guide-to-selecting-pc-gaming-inputs/"><u>The Ultimate Guide to Selecting PC Gaming Inputs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-5-ideal-mobile-plans-for-seniors-in-2n34/"><u>Top 5 Ideal Mobile Plans for Seniors in 2N34</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranking-smart-eyewear-options/"><u>Top-Ranking Smart Eyewear Options</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-selection-of-android-compatible-apps-for-a-superior-smartwatch-functionality/"><u>Ultimate Selection of Android-Compatible Apps for a Superior Smartwatch Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-affordable-aerial-thrills-comprehensive-review-of-the-holy-stone-hs170-mini-helicopter/"><u>Unleashing Affordable Aerial Thrills: Comprehensive Review of the Holy Stone HS170 Mini Helicopter</u></a></li>
+</ul></div>
 

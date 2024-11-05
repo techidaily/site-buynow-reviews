@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Review of Microsoft's Ergonomic Surface Keyboard: Top-Tier Craftsmanship Unveiled"
-date: 2024-10-23T16:24:07.625Z
-updated: 2024-10-30T16:00:14.702Z
+date: 2024-10-29T22:35:26.744Z
+updated: 2024-11-04T18:12:17.008Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Review of Microsoft's Ergonomic Surface Keyboard: Top-Tier Craftsmanship Unveiled"
@@ -46,13 +46,6 @@ Lifewire / Emily Isaacs
 
 4.4
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
@@ -92,10 +85,10 @@ Lifewire / Emily Isaacs
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Batteries required**
@@ -108,6 +101,13 @@ Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
  Backlighting—we love it, but the Sculpt doesn’t have it. This is, in large part, thanks to its battery-powered design. It wouldn’t make a great deal of sense for the Sculpt to have backlighting since the two AAA[alkaline batteries](https://www.lifewire.com/best-aa-and-aaa-rechargeable-batteries-4134295) would drain significantly faster, but we sure did miss it. It’s important to note that our love of backlighting is also a matter of personal preference. If it’s important to you, you might want to consider a different model. If you can live without it, the Sculpt still has a lot to offer.
@@ -116,18 +116,24 @@ Lifewire / Emily Isaacs
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -143,6 +149,13 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  The Surface is a high-end keyboard, but that quality comes at a higher price. The Surface tends to retail for around $129, much more than the Sculpt which retails for around $80\. That said, it’s an upgrade in almost every way. If you’re on a budget, the Sculpt is a great option, but if you’re able to splurge, the Surface is our top pick for wireless ergonomic keyboards.
@@ -154,13 +167,6 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -192,19 +198,18 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/updated-filmoras-rival-a-comprehensive-list-of-top-quality-template-collections/"><u>[Updated] Filmora's Rival A Comprehensive List of Top-Quality Template Collections</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-becoming-a-gif-maestro-the-meme-creators-handbook/"><u>2024 Approved Becoming a GIF Maestro The Meme Creator’s Handbook</u></a></li>
-<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-itel-a60-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Itel A60 | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/conversion-video-virtuelle-guide-complet-pour-changer-les-fichiers-mpg-et-mp3-en-mkv-sans-cout-avec-movavi/"><u>Conversion Vidéo Virtuelle : Guide Complet Pour Changer Les Fichiers MPG Et MP3 en MKV Sans Coût Avec Movavi</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-from-apple-iphone-15-plus-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud from Apple iPhone 15 Plus Safe and Legal</u></a></li>
-<li><a href="https://techidaily.com/how-to-repair-ios-system-issues-of-apple-iphone-11-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iOS System Issues of Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-nokia-130-music-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Nokia 130 Music is off? | Dr.fone</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-essential-upgrades-in-gaming-gloves-for-vr/"><u>In 2024, Essential Upgrades in Gaming Gloves for VR</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-infinix-zero-5g-2023-turbo-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Infinix Zero 5G 2023 Turbo</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-chromebook-2-analysis-a-portable-powerhouse-for-workflows/"><u>Samsung Galaxy Chromebook 2 Analysis: A Portable Powerhouse for Workflows</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/scorecard-for-the-apple-watch-se-premium-features-at-a-lower-price-point/"><u>Scorecard for the Apple Watch SE: Premium Features at a Lower Price Point</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/seamless-integration-with-your-devices-exploring-the-chic-and-practical-netatmo-weather-system/"><u>Seamless Integration with Your Devices: Exploring The Chic and Practical Netatmo Weather System</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/seamless-protection-with-arlos-video-doorbell-alarm-solution/"><u>Seamless Protection with Arlo's Video Doorbell Alarm Solution</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sonys-nw-ws623-critical-eye-on-style-choices/"><u>Sony's NW-WS623: Critical Eye on Style Choices</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-microdrama-writers-guide/"><u>[New] Microdrama Writers Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-online-cropping-made-simple-step-by-step-processes-for-2024/"><u>[New] Online Cropping Made Simple - Step by Step Processes for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-amusingscreen-join-the-video-making-party/"><u>[Updated] AmusingScreen Join the Video Making Party</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-iphone-xs-max-review-the-best-and-priciest-iphone/"><u>Apple iPhone XS Max Review: The Best (and Priciest) iPhone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Oppo A56s 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/effective-techniques-to-overcome-kodis-mkv-video-streaming-glitches/"><u>Effective Techniques to Overcome Kodi's MKV Video Streaming Glitches</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elite-list-of-high-quality-document-and-photograph-scanners-2024-edition/"><u>Elite List of High-Quality Document & Photograph Scanners - 2024 Edition</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/end-pc-freezes-enjoy-uninterrupted-fallout-4-play/"><u>End PC Freezes, Enjoy Uninterrupted Fallout 4 Play</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ideal-iphones-for-gaming-a-comprehensive-review/"><u>Ideal iPhones for Gaming: A Comprehensive Review</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/overcoming-social-barriers-using-chatgpt-conversations/"><u>Overcoming Social Barriers Using ChatGPT Conversations</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/prime-top-10-drones-filmmakings-visual-frontiers/"><u>Prime Top 10 Drones Filmmaking's Visual Frontiers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/thermopro-tp67-assessment-budget-friendly-yet-questionable-performance/"><u>ThermoPro TP67 Assessment: Budget-Friendly Yet Questionable Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-the-alienware-aurora-r11-is-the-ultimate-choice-for-gamers-comprehensive-test-and-analysis/"><u>Why the Alienware Aurora R11 Is the Ultimate Choice for Gamers : Comprehensive Test & Analysis</u></a></li>
 </ul></div>
 

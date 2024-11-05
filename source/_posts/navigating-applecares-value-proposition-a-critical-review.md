@@ -1,7 +1,7 @@
 ---
 title: "Navigating AppleCare's Value Proposition: A Critical Review"
-date: 2024-10-28T16:12:22.159Z
-updated: 2024-10-30T16:37:31.209Z
+date: 2024-10-31T02:08:03.342Z
+updated: 2024-11-05T03:48:58.747Z
 categories:
   - BestProducts
 description: "This Article Describes Navigating AppleCare's Value Proposition: A Critical Review"
@@ -70,19 +70,6 @@ _We purchased the Amazfit GTS_   _so our reviewer could put it to the test. Keep
 
  I used this device for a little over a week while sleeping, hiking, and running to see how this stylish tracker delivered. Though tracking data was never an issue, the software and companion app fell short of delivering a truly intuitive, user-friendly experience.
 
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design: Lightweight and a little too familiar
 
  The Amazfit GTS is a super-light device at approximately 24.8 grams but isn’t flimsy. The body is made with aircraft-grade aluminum alloy, and the Corning 3 Gorilla glass covering the display is conveniently smudge-resistant. The back of the display is decidedly more plastic-looking, though the plate is covered in a matte finish with a pleasantly sturdy feel. The square watch face is slightly longer than it is wide, akin to the[Apple Watch](https://www.lifewire.com/apple-watch-se-review-5088223) . In fact, if you don’t look too closely, this device is almost an exact copy of this outsize name in the wearable game.
@@ -94,6 +81,13 @@ _We purchased the Amazfit GTS_   _so our reviewer could put it to the test. Keep
  Along with the crisp and easy-to-read display, the GTS's biggest asset is the flexible and durable silicone with a healthy selection of notches and two tabs to keep the band in place once you’ve latched it. Though it comes in a single size, I was able to find a comfortably close fit on my small 5.5-inch wrist.
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/hMe1Ur0Wtt9LDIiSfC3zvE_5G7E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_02-0b1e98c2de40486b9fea116eb28ccd3c.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -133,13 +127,6 @@ Lifewire / Yoona Wagener
 
  While sleep data is elaborate, it’s presented in a way that requires a lot of scrolling or tapping back and forth across screens. For that reason, I never felt like I received a concise tip for bettering or understanding my sleep habits, which made the data feel a little too overwhelming and repetitive to make it approachable. This is an issue I had with referring to the app for any supplementary information.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Software: More style than substance
 
  The best fitness trackers and[smartwatches](https://www.lifewire.com/best-smartwatches-4048042) also have intuitive companion apps, but that’s not a great strength of the Amazfit GTS. Like most[wearables](https://www.lifewire.com/smart-watches-and-wearables-4781531) , the Zepp app (formerly Amazfit) is required to initially set up the device and view tracked data in more detail.
@@ -156,11 +143,25 @@ Lifewire / Yoona Wagener
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/hqD81eq-Q8n6BPE_n48M4SpkIRA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_03-97749edaabac498bb95b0f8a9f569f0a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
  Certain data points such as PAI, like other areas of the Zepp app, are backed by scientific citations and explanations of importance, but there’s just too much text to make any of it digestible or glanceable.
 
  While I gathered that a PAI of 100 seemed to be ideal for cardiovascular health, the app further complicated things by suggesting, for example, a 120-minute indoor workout to gain 15 PAI. It was difficult to grasp why that would be worth it or realistic, and like many areas of the software, it felt more flashy and underdeveloped than insightful.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Battery: Solid but considerably shy of the 14-day claim
 
@@ -169,10 +170,10 @@ Lifewire / Yoona Wagener
  That’s pretty much the way I used this device, though with maybe an extra workout or two and with the display in always-on mode, and the battery drained by day seven. On the bright side, it recharged quickly in less than the manufacturer’s 2-hour estimate. Amazfit also claims that the battery can last up to 46 days in basic mode without Bluetooth or heart-rate monitoring turned on.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Price: Slightly pricey for what it is
@@ -193,13 +194,6 @@ Lifewire / Yoona Wagener
 
  The Amazfit GTS is comfortable and stylish and performs the basic fitness tracking tasks relatively well, but the confusing ecosystem diminishes the polish. If you love the look of the Apple Watch, this is a budget-friendly look-alike. But if you want a strong balance between performance and looks, the Amazfit GTS may not deliver.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Apple Watch SE](https://www.lifewire.com/apple-watch-se-review-5088223)
@@ -207,10 +201,10 @@ Lifewire / Yoona Wagener
 * [Garmin Vivomove HR](https://www.lifewire.com/garmin-vivomove-hr-review-4843913)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -244,20 +238,14 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-expert-advice-securely-saving-movies-on-windows-11/"><u>[New] In 2024, Expert Advice Securely Saving Movies on Windows 11</u></a></li>
-<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-htc-u23-pro-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My HTC U23 Pro Wont Charge | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-from-parchment-to-paperbacks-the-quintessential-quest-for-classics/"><u>2024 Approved From Parchment to Paperbacks The Quintessential Quest for Classics</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-navigating-the-essence-of-photography-polarrs-edits-revealed/"><u>2024 Approved Navigating the Essence of Photography Polarr’s Edits Revealed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-vive-cosmos-outstanding-vr-experience-among-strong-rivals/"><u>Comprehensive Guide to the Vive Cosmos: Outstanding VR Experience Among Strong Rivals</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/continuous-wellness-monitoring-unveiling-the-features-of-the-fitbit-inspire-hr-tracker/"><u>Continuous Wellness Monitoring: Unveiling the Features of the Fitbit Inspire HR Tracker</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-best-in-outdoor-viewing-the-sealocus-coastal-silver-55-4k-tv-review/"><u>Discover the Best in Outdoor Viewing - The Sealocus Coastal Silver 55 4K TV Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-the-nokia-31-a-comprehensive-review-of-a-perfect-beginners-handset/"><u>Discovering the Nokia 3.1 - A Comprehensive Review of a Perfect Beginner's Handset</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dissecting-the-shortcomings-of-the-pricey-microsoft-surface-duo-device/"><u>Dissecting the Shortcomings of the Pricey Microsoft Surface Duo Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/embrace-change-on-the-move-with-flexible-tripod-12/"><u>Embrace Change on the Move with Flexible Tripod 12</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-microsoft-surface-ergonomic-keyboard-an-examination-of-premium-build-and-functionality/"><u>Evaluating the Microsoft Surface Ergonomic Keyboard: An Examination of Premium Build and Functionality</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-salvage-wet-speakers-on-your-iphone-with-simple-remedies/"><u>How to Salvage Wet Speakers on Your iPhone with Simple Remedies</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/interactive-lessons-expert-video-editing-for-classroom-for-2024/"><u>Interactive Lessons Expert Video Editing for Classroom for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/tips-to-restore-functionality-from-an-iphones-devastating-black-screen-problem/"><u>Tips to Restore Functionality From an iPhone's Devastating Black Screen Problem</u></a></li>
-<li><a href="https://discover-data.techidaily.com/windows-11-0x80240fff/"><u>Windows 11 更新恢復策略 - 解決0x80240FFF 錯誤</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-instacapture-the-ultimate-download-toolkit-unveiled/"><u>2024 Approved InstaCapture The Ultimate Download Toolkit Unveiled</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/cpu-requirement-issues-upgrade-needed-to-run-vanguard-smoothly/"><u>CPU Requirement Issues: Upgrade Needed to Run Vanguard Smoothly</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-how-virtual-reality-makes-mastering-3d-model-sculpting-a-breeze/"><u>Discover How Virtual Reality Makes Mastering 3D Model Sculpting a Breeze!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-best-undiscovered-flicks-a-guide-to-obtaining-non-streamable-movies-online/"><u>Discover the Best Undiscovered Flicks - A Guide to Obtaining Non-Streamable Movies Online</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-driving-experience-with-spotifys-studio-grade-auto-equalization-technology/"><u>Elevate Your Driving Experience with Spotify's Studio-Grade Auto Equalization Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhance-your-engagement-on-youtube-a-guide-to-using-text-effects-in-comments-strikethrough-bold-and-italic/"><u>Enhance Your Engagement on YouTube: A Guide to Using Text Effects in Comments (Strikethrough, Bold & Italic)</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-starting-point-decoding-display-resolution-basics/"><u>In 2024, Starting Point Decoding Display Resolution Basics</u></a></li>
+<li><a href="https://driver-download.techidaily.com/update-your-logitech-g203-for-optimal-performance-on-windows-operating-systems/"><u>Update Your Logitech G203 for Optimal Performance on Windows Operating Systems</u></a></li>
 </ul></div>
 

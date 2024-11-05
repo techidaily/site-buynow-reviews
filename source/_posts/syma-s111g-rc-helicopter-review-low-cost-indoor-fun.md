@@ -1,7 +1,7 @@
 ---
 title: "Syma S111G RC Helicopter Review: Low-Cost Indoor Fun"
-date: 2024-10-24T16:25:24.213Z
-updated: 2024-10-30T16:40:37.904Z
+date: 2024-11-02T03:43:26.852Z
+updated: 2024-11-05T06:18:27.224Z
 categories:
   - BestProducts
 description: "This Article Describes Syma S111G RC Helicopter Review: Low-Cost Indoor Fun"
@@ -50,13 +50,6 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Emily Isaacs
 
 [View On Walmart $138](https://www.walmart.com/ip/Microsoft-Sculpt-Ergonomic-Desktop-Black-Wireless-USB-Keyboard-Keypad-and-Mouse/31390902?slfpid=3) [View On Best Buy $66](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F1818024.p) [View On Newegg.com $169](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.newegg.com%2Fmicrosoft-sculpt-ergonomic-desktop-l5v-00001-usb-rf-wireless%2Fp%2FN82E16823109349%3Fitem%3D9SIA24G28N0197%26slfpid%3D3)
@@ -83,13 +76,6 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  One unique feature of the Sculpt we loved was the function switch. Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key. Options include refreshing the active page, navigating to the home page in web, opening up the computer’s settings, a play/pause button, switching between active windows, and increasing or decreasing volume.
@@ -109,10 +95,10 @@ Lifewire / Emily Isaacs
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
@@ -123,11 +109,25 @@ Lifewire / Emily Isaacs
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -144,10 +144,10 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
@@ -192,22 +192,18 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-convenient-methods-for-video-recording-on-youtube/"><u>[New] Convenient Methods for Video Recording on YouTube</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-punpixel-the-ultimate-tool-for-digital-humor/"><u>[New] PunPixel The Ultimate Tool for Digital Humor</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2670055-9781515408727-byways-to-blessedness/"><u>Byways to Blessedness | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/community-connectivity-accessing-and-using-facebook-groups/"><u>Community Connectivity: Accessing and Using Facebook Groups</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/explore-ioss-premier-choice-in-ps2-gaming-tools/"><u>Explore iOS’s Premier Choice in PS2 Gaming Tools</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-stretching-youtube-videos-to-full-display/"><u>In 2024, Stretching YouTube Videos to Full Display</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-to-oneplus-ace-3-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to OnePlus Ace 3 Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigate-the-best-wearable-workout-devices/"><u>Navigate the Best Wearable Workout Devices</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/our-10-favorite-note-taking-apps-of-2024/"><u>Our 10 Favorite Note Taking Apps of 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/professional-music-studio-solutions-at-your-fingertips-with-tascams-cd-200bt-review/"><u>Professional Music Studio Solutions at Your Fingertips with Tascam's CD-200BT Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-criacr-bluetooth-fm-transmitter-model-cp24-space-saving-design-with-room-for-improvement/"><u>Reviewing the CRIACR Bluetooth FM Transmitter Model CP24: Space-Saving Design with Room for Improvement</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revving-up-style-and-speed-insights-into-the-swagtrn-swagger-electric-scooters-performance/"><u>Revving Up Style and Speed: Insights Into the Swagtrn Swagger Electric Scooter's Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/starlinks-satellite-edge-weighing-in-on-a-technology-shift/"><u>Starlink's Satellite Edge: Weighing In on a Technology Shift</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/taming-titans-an-in-depth-look-at-monster-hunter-worlds-perilous-encounters/"><u>Taming Titans: An In-Depth Look at Monster Hunter: World's Perilous Encounters</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-budget-tech-contender-in-depth-review-and-evaluation-of-the-amazon-fire-hd-8-8th-gen-tablet/"><u>The Budget Tech Contender: In-Depth Review and Evaluation of The Amazon Fire HD 8 (8Th Gen) Tablet</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-showdown-how-does-nintendo-switch-lite-stack-up-to-the-oled-model/"><u>The Showdown: How Does Nintendo Switch Lite Stack Up to the OLED Model?</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/uncovering-unexpected-delight-how-an-apple-store-worker-elevated-my-experience-with-the-vision-pro-insights-from-zdnet/"><u>Uncovering Unexpected Delight: How an Apple Store Worker Elevated My Experience with the Vision Pro - Insights From ZDNet</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-is-optimal-hdr-with-aurora-worth-it/"><u>[New] Is Optimal HDR with Aurora Worth It?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/avigating-youtube-cards-and-tags-for-2024/"><u>[New] Navigating YouTube Cards and Tags for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-the-no-trouble-way-to-start-iphones-screen-snapshots-for-2024/"><u>[New] The No-Trouble Way to Start iPhone's Screen Snapshots for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-essential-strategies-for-effective-use-of-luts-in-video-edits/"><u>[Updated] In 2024, Essential Strategies for Effective Use of LUTs in Video Edits</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-unlocking-the-potential-of-discord-streams/"><u>[Updated] In 2024, Unlocking the Potential of Discord Streams</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/5-most-effective-methods-to-unlock-iphone-x-in-lost-mode-drfone-by-drfone-ios/"><u>5 Most Effective Methods to Unlock iPhone X in Lost Mode | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Poco M6 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-anker-30-usb-hub-analysis-unmatched-connectivity-and-performance/"><u>Comprehensive Anker 3.0 USB Hub Analysis: Unmatched Connectivity & Performance</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/how-to-stop-unwanted-blank-page-issues-on-epson/"><u>How to Stop Unwanted Blank Page Issues on Epson</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nixplays-innovative-frames-a-comprehensive-review/"><u>Nixplay's Innovative Frames: A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/score-great-bargains-on-streaming-technology-get-your-hands-on-affordable-roku-units-now/"><u>Score Great Bargains on Streaming Technology - Get Your Hands on Affordable Roku Units Now!</u></a></li>
+<li><a href="https://windows11.techidaily.com/ultimate-bundle-premier-cost-free-windows-11-assistants/"><u>Ultimate Bundle: Premier Cost-Free Windows 11 Assistants</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-list-of-premium-sketching-pad-displays-for-2pressive-results-2024-edition/"><u>Ultimate List of Premium Sketching Pad Displays for 2Pressive Results, 2024 Edition</u></a></li>
 </ul></div>
 

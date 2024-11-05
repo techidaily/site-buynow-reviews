@@ -1,7 +1,7 @@
 ---
 title: "Retro Meets New Age in Ratchet & Clank Review: An Iconic Journey Reimagined"
-date: 2024-10-23T16:47:06.849Z
-updated: 2024-10-30T16:30:33.523Z
+date: 2024-10-30T04:53:07.258Z
+updated: 2024-11-05T08:54:33.992Z
 categories:
   - BestProducts
 description: "This Article Describes Retro Meets New Age in Ratchet & Clank Review: An Iconic Journey Reimagined"
@@ -45,6 +45,13 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/8XGs9qzQ6hLIBySEKXEvBMfEkq4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Kelsey Simon
 
 [View On Amazon](https://www.amazon.com/dp/B075NFTX36/?tag=lifewire-onsite-prod-20&ascsubtag=4685718%7Cn0dc423de187c40659bf9fd9ffcd5e7ec22%7CB075NFTX36) [View On Walmart](https://www.walmart.com/ip/829171723)
@@ -67,13 +74,6 @@ Lifewire / Kelsey Simon
 
  The Elder Scrolls V: Skyrim is an action role-playing game focused on single-player immersion in a fantasy world. It was originally released in 2011 and has most recently been ported over to the Switch. We took a close look at this game on its newest platform, playing it on the go to test the handheld gameplay experience, along with the plot and graphics.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Simple for all users**
 
  As with other games on the Nintendo Switch, you’ll need to insert the cartridge into your device. Skyrim does take a while to launch, so be patient as it loads up. There shouldn’t be any special downloads required, like with other games, and as soon as things load you’ll be able to play.
@@ -81,6 +81,13 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/uXDVHaBrdIlv5tI-qRgiPK0Iig4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460721-e6a53664e7eb4e65a75bf5cceb928e28.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Plot: A huge world with loads to explore**
 
@@ -100,21 +107,7 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/1fxH7ty_kqxpugJDk2tIQndKvI0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546078-6bdc67e56311473f9c1edeab00d2caa5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Gameplay: Not as smooth as on other platforms**
 
@@ -134,25 +127,18 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/2Fk-UTwglmoCdE7IXrXqlnXs9do=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460712-6cec58625d13430db671be3144451cbc.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Graphics: A bit outdated**
 
  The graphics in Skyrim aren’t awful, but they haven't progressed much since 2011\. If you’ve played any other version of Skyrim, you can overlook it, simply because you know what you’re getting into. Bethesda attempted to make Skyrim look realistic, likely in their desire to give you a fully immersive experience. But these days, Skyrim’s graphics just aren’t as realistic as what other, more recent games have accomplished. In places, the mountains look blocky and the grass a little patchy. Character’s faces sometimes seem deeply sunken around the eyes, with the skin looking more like leather than flesh. It’s not that the graphics are overly bad, they’re just not as good as what you can get with better hardware on the PC.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Platform: Take Skyrim on the go**
 
@@ -166,6 +152,19 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/Iik6f_7RIRMWo5R6zGYxgGeL4n0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546076-8fb741faa7144fa6bafe386d2b7d8296.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 ## **Price: A tad expensive**
@@ -175,6 +174,13 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Other action RPGs**
 
@@ -187,10 +193,10 @@ Lifewire / Kelsey Simon
  Even though The Elder Scrolls V: Skyrim is a great game and the Switch is an amazing platform, our advice is only to buy Skyrim for the Switch if you’re looking to play on the go. Otherwise, we’d suggest purchasing Skyrim for the PC, where you’ll really be able to enjoy superior graphics and customization options.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -221,16 +227,22 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-experience-ultra-clarity-in-xiaomis-screen-capture-technology-for-2024/"><u>[New] Experience Ultra Clarity in Xiaomi's Screen Capture Technology for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-uncover-collective-media-on-messenger-networks/"><u>[New] Uncover Collective Media on Messenger Networks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-detailed-analysis-benefits-and-challenges-associated-with-webex-virtual-meeting-software/"><u>A Detailed Analysis: Benefits and Challenges Associated with Webex Virtual Meeting Software</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-stellar-journey-unpacking-the-outer-worlds-captivating-blend-of-shooter-gameplay-and-sci-fi-thrills/"><u>A Stellar Journey: Unpacking The Outer Worlds' Captivating Blend of Shooter Gameplay and Sci-Fi Thrills</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-entertainment-boosted-with-alexa-integration-the-insignia-ns-43df710na19-fire-tv-edition-explored/"><u>Affordable Entertainment Boosted with Alexa Integration: The Insignia NS-43DF710NA19 Fire TV Edition Explored</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/battle-of-giants-how-iphone-15-pro-max-stacks-up-against-samsung-galaxy-s2n-ultra/"><u>Battle of Giants: How iPhone 15 Pro Max Stacks Up Against Samsung Galaxy S2n Ultra</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/expert-chosen-speeds-modifying-tools-pc-phone/"><u>Expert-Chosen Speeds Modifying Tools (PC, Phone)</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/how-to-get-back-your-accidentally-erased-iphone-notes-guide-and-tools/"><u>How to Get Back Your Accidentally Erased iPhone Notes - Guide & Tools</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Motorola Razr 40 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/navigating-the-world-of-smartwatches-in-depth-analysis-of-the-amazfit-bip/"><u>Navigating the World of Smartwatches: In-Depth Analysis of the Amazfit Bip</u></a></li>
-<li><a href="https://howto.techidaily.com/why-is-my-samsung-galaxy-s24-ultra-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Samsung Galaxy S24 Ultra Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-hot-list-igs-favorite-after-effects-themes/"><u>[New] 2024 Approved Hot List IG's Favorite After Effects Themes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-achieving-cohesion-in-content-with-flv-video-integration/"><u>[Updated] In 2024, Achieving Cohesion in Content with FlV Video Integration</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-iosandroid-playback-silent-youtube-autoplay-tips/"><u>[Updated] IOS/Android Playback Silent YouTube Autoplay Tips</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-the-educators-compendium-of-video-assisted-methods/"><u>2024 Approved The Educator's Compendium of Video-Assisted Methods</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210545413-9781399704748-astrology-self-care-virgo/"><u>Astrology Self-Care: Virgo | Free Book</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-ihome-zenergy-review-transforming-nighttime-rest-into-energized-days/"><u>Comprehensive IHome Zenergy Review: Transforming Nighttime Rest Into Energized Days</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/easy-guide-to-transforming-videos-and-audios-into-different-formats/"><u>Easy Guide to Transforming Videos and Audios Into Different Formats</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-google-nest-wi-fi-fast-and-effortless-mesh-performance/"><u>Expert Analysis of Google Nest Wi-Fi: Fast & Effortless Mesh Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-on-the-anker-tactical-flashlight-a-beacon-for-durability-in-natures-arena/"><u>Expert Analysis on the Anker Tactical Flashlight: A Beacon for Durability in Nature's Arena</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hitmans-grand-finale-a-comprehensive-review-of-hitman-3/"><u>Hitman's Grand Finale: A Comprehensive Review of Hitman 3</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/online-webm-video-shrinking-solutions-for-2024/"><u>Online WebM Video Shrinking Solutions for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pruveeo-f5-full-hd-dashcam-at-a-steal-in-depth-analysis-and-value-for-money/"><u>Pruveeo F5 Full HD Dashcam at a Steal: In-Depth Analysis and Value for Money</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-driving-safety-an-insightful-review-of-the-escort-ix-the-learning-enabled-radar-alert-system/"><u>Revolutionizing Driving Safety: An Insightful Review of the Escort iX, The Learning-Enabled Radar Alert System</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/seamless-video-text-illusion-with-free-tools-for-2024/"><u>Seamless Video Text Illusion with Free Tools for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/soundbots-newest-creation-the-sb210-top-notch-winter-audio-experience-when-active/"><u>Soundbot's Newest Creation, The SB210 - Top Notch Winter Audio Experience When Active</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-ultimate-5-voice-trickery-skills-to-direct-chatgpts-functionality/"><u>The Ultimate 5 Voice Trickery Skills to Direct ChatGPT's Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/use-of-numbers-and-lists/"><u>Use of Numbers and Lists</u></a></li>
 </ul></div>
 

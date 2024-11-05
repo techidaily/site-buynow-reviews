@@ -1,7 +1,7 @@
 ---
 title: "Kobo Forma Assessment: The Devoted E-Reader for Avid Readers"
-date: 2024-10-28T16:39:59.289Z
-updated: 2024-10-30T16:23:08.919Z
+date: 2024-11-04T01:22:56.416Z
+updated: 2024-11-04T22:21:53.228Z
 categories:
   - BestProducts
 description: "This Article Describes Kobo Forma Assessment: The Devoted E-Reader for Avid Readers"
@@ -44,9 +44,23 @@ Lifewire / Rebecca Isaacs
 
 4
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 7 Days to Die
 
 ![7 Days to Die](https://www.lifewire.com/thmb/mKaiRcg5xaWaOPRj0Ph1dRjUbSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4164252-1-e8b8c3eb31dd46e8a63e8e40a5a9d04b.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -72,6 +86,13 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/MW5wYA5ujBjG5LdXn-w9bTJd5WQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-2-a59091cd21c04d99a42270199349fc2a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
 ## **Setup Process: Easy thanks to Steam**
@@ -82,20 +103,14 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/Eq0YCIdbj82yj3lOCWEdZS7jX6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-4-341174c3997543728bd2b024c6e2a309.jpg)
 
- Lifewire / Rebecca Isaacs
-
 <!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Rebecca Isaacs
 
 ## **Plot: Open world horror sandbox**
 
@@ -112,13 +127,6 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/U2XChOqkiQvFhP69V0cQ5mYcYME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-3-d19d9b4d19734cffb022d6e0db90382e.jpg)
 
  Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Gameplay: Could be better, but solid overall**
 
@@ -142,6 +150,13 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Graphics: Outdated, but detailed on optimal**
 
  For a game that was released in 2013 originally, the graphics could be a little better, even if you play on optimal settings. Back in the day, we played on lower settings rather than splurge on a fancy graphics card. If you play on the lower settings, it’s cringeworthy, though not as cringeworthy as the Witcher 3’s lowest settings.
@@ -156,29 +171,9 @@ Lifewire / Rebecca Isaacs
 
  Last time we checked, the company that owned all console rights, Telltale, went bust, and The Fun Pimps (the developer) were in legal limbo trying to reacquire their own rights. There’s a good chance that there will not be an update in the console versions of the game anytime soon as this issue makes its way through the courts. Therefore, we strongly recommend that you purchase the PC version if you decide this is a game you might like to try.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Average for an alpha game**
 
  At around $25, 7 Days isn’t the most expensive zombie game on the market. However, it is the most expensive alpha zombie game out there. Because you can purchase it on[Steam](https://www.lifewire.com/what-is-steam-4177380) or Humble Bumble, we recommend waiting for a Steam sale and getting it for a discount, especially since it’s still in progress. This way, if you decide you don’t like it in the future, you aren’t out the full price.
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Other sandbox shooters**
 
@@ -197,13 +192,6 @@ Lifewire / Rebecca Isaacs
 * The Last of Us Remastered
 * [Days Gone](https://www.lifewire.com/days-gone-review-4778364)
 * [Dying Light](https://www.lifewire.com/dying-light-review-4778324)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -232,24 +220,22 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-guide-to-correct-age-information-for-tiktok-users/"><u>[New] 2024 Approved Guide to Correct Age Information for TikTok Users</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-speed-demos-like-video-duo-for-rapid-growth/"><u>[New] In 2024, Instagram Speed Demos Like-Video Duo for Rapid Growth</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-top-picks-of-firefox-tools-to-streamline-your-facebook-video-experience-2023/"><u>[New] Top Picks of Firefox Tools to Streamline Your Facebook Video Experience, 2023</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dive-into-enhanced-safety-with-your-new-arlo-security-camera-setup/"><u>Dive Into Enhanced Safety with Your New Arlo Security Camera Setup</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-xiaomi-has-native-mkv-support-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Does Xiaomi has native MKV support?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-propella-7s-40-assessment-compact-design-and-budget-friendly/"><u>In-Depth Propella 7S 4.0 Assessment: Compact Design & Budget-Friendly</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/pc-gaming-success-story-eliminating-deathloops-lagging-challenges-once-and-for-all/"><u>PC Gaming Success Story: Eliminating Deathloop's Lagging Challenges Once and For All</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/reversing-gmails-undo-button-mistakes-a-step-by-step-guide/"><u>Reversing Gmail's Undo Button Mistakes: A Step-by-Step Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/speed-and-convenience-on-two-wheels-in-depth-review-of-the-gotrax-gxl-v2-e-scooter/"><u>Speed & Convenience on Two Wheels: In-Depth Review of the Gotrax GXL V2 E-Scooter</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stream-smart-chromecast-vs-roku-determining-the-superior-media-player/"><u>Stream Smart: Chromecast Vs. Roku - Determining the Superior Media Player</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/tech-savvy-strategies-for-harvesting-and-saving-facebooks-most-trendy-gifs/"><u>Tech Savvy Strategies for Harvesting & Saving Facebook's Most Trendy GIFs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-complete-guide-to-mobvois-ticwatch-pro-4g-why-its-your-go-to-for-a-fully-connected-watch-experience/"><u>The Complete Guide to Mobvoi's Ticwatch Pro 4G: Why It's Your Go-To for a Fully Connected Watch Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-finest-6-destinations-for-finding-quality-computing-devices/"><u>The Finest 6 Destinations for Finding Quality Computing Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-new-era-of-ebooks-unveiled-a-detailed-look-at-the-amazon-kindle-paperwhite-2018/"><u>The New Era of Ebooks Unveiled: A Detailed Look at the Amazon Kindle Paperwhite (2018)</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-premier-source-of-no-cost-creative-tools-in-ae/"><u>The Premier Source of No-Cost Creative Tools in AE</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-sony-playstation-5-examined-its-not-only-about-enhanced-strength/"><u>The Sony PlayStation 5 Examined: It's Not Only About Enhanced Strength</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-powerhouse-an-in-depth-review-of-the-netgear-nighthawk-c7000-modem-performance/"><u>Unveiling the Powerhouse: An In-Depth Review of the Netgear Nighthawk C7000 Modem Performance</u></a></li>
-<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-samsung-galaxy-s23-fe-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Samsung Galaxy S23 FE Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/1726029584934-3/"><u>ウェブインターネット上で効果的なウェビナー記録手段：3コツ</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-ultimate-mic-selection-for-online-talent/"><u>[New] In 2024, Ultimate Mic Selection for Online Talent</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-power-of-words-enhancing-viewer-count-with-impressive-description-templates/"><u>[New] The Power of Words Enhancing Viewer Count with Impressive Description Templates</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apples-iphone-se-2020-an-in-depth-analysis-of-the-practical-premium-device/"><u>Apple's iPhone SE (2020): An In-Depth Analysis of the Practical Premium Device</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/exclusive-recording-gadgets-for-windows-10-gamers-for-2024/"><u>Exclusive Recording Gadgets for Windows 10 Gamers for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hewlett-packard-notebook-15-does-its-affordable-amd-chip-deliver/"><u>Hewlett-Packard Notebook 15 - Does Its Affordable AMD Chip Deliver?</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/1723341696920-imaging-techniques-like-oct-may-be-used-postoperatively-to-confirm-the-success-of-surgical-interventions-such-as-retinal-detachment-repair/"><u>Imaging Techniques Like OCT May Be Used Postoperatively to Confirm the Success of Surgical Interventions Such as Retinal Detachment Repair</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-and-review-of-the-mavix-m9-gaming-chair-the-ultimate-comfort-for-extended-game-sessions/"><u>In-Depth Analysis & Review of the Mavix M9 Gaming Chair - The Ultimate Comfort for Extended Game Sessions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-petsafe-automatic-feeder-your-partner-in-maintaining-a-healthy-pet-weight/"><u>In-Depth Review of PetSafe Automatic Feeder – Your Partner in Maintaining a Healthy Pet Weight</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/instantaneous-itinerary-blueprints-the-finest-selection-of-7-budget-friendly-apps/"><u>Instantaneous Itinerary Blueprints – The Finest Selection of 7 Budget-Friendly Apps</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mp3-player-unboxing-agpteks-beginner-model/"><u>MP3 Player Unboxing: AGPTEK's Beginner Model</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/netgear-c3700-dual-functionality-showdown-when-a-modem-meets-a-router-in-one-unit/"><u>Netgear C3700 Dual-Functionality Showdown: When a Modem Meets a Router in One Unit</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/overcoming-usb-detection-challenges-a-users-guide-to-fixing-windows-10-compatibility-issues/"><u>Overcoming USB Detection Challenges: A User's Guide to Fixing Windows 10 Compatibility Issues</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-marvel-avengers-saga-simply-superb-or-subpar-spectacle/"><u>Reviewing the Marvel Avengers Saga: Simply Superb, or Subpar Spectacle?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-updating-the-zoom-client-on-windows-and-macos/"><u>Step-by-Step Guide: Updating the Zoom Client on Windows and macOS</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-2023-line-up-of-best-pro-360cameras-reviewed-for-2024/"><u>The 2023 Line-Up of Best Pro 360°Cameras Reviewed for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-robust-romer-portable-rechargeable-beam-light-reviewed/"><u>The Ultimate Guide to the Robust Romer Portable Rechargeable Beam Light Reviewed</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723015242865-trouble-with-logitechs-video-call-combo-heres-the-fix/"><u>Trouble with Logitech's Video Call Combo? Here's the Fix!</u></a></li>
 </ul></div>
 
