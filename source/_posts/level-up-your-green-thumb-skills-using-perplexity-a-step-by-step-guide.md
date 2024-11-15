@@ -1,7 +1,7 @@
 ---
 title: Level Up Your Green Thumb Skills Using Perplexity - A Step-by-Step Guide
-date: 2024-08-31T14:54:01.888Z
-updated: 2024-09-01T14:54:01.888Z
+date: 2024-11-14T16:12:31.128Z
+updated: 2024-11-15T16:47:13.738Z
 tags:
   - games
   - tv
@@ -25,24 +25,55 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 [Perplexity](http://www.perplexity.ai) is a conversational AI chatbot similar to ChatGPT that validates its answers with curated internet search results. It was the perfect wingman to support me with this spring's new gardening project. I'd grown tomatoes, cucumbers, and a few sunflowers in previous years, but this spring we were dedicating more than half the garden space to buckwheat and popcorn. I had only seen buckwheat as flour added to pancakes, and I'm not sure whether I knew what kind of corn could pop! I have experience researching with AI through my work writing to train [Large Language Models](https://extra-support.techidaily.com/2024-approved-picture-perfect-presentation-software-for-impeccable-photo-framing/). So, I was undeterred by my lack of gardening experience. With Perplexity, I can't become an expert, but I can consult one!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## ![A screenshot of the Perplexity AI user interface showing the prompt box.](https://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/perplexityui.jpeg)An AI-Powered Search Engine
 
 [ChatGPT](https://chatgpt.com) does have a search engine add-on tool, but web searches aren't an add-on or afterthought to Perplexity. It is an AI chatbot built from the ground up to be an AI-powered internet search engine. [ChatGPT and Perplexity have different strengths](https://instagram-video-files.techidaily.com/updated-2024-approved-enhance-your-video-impact-with-slow-motion-on-ig/), but Perplexity's unique response layout may be its most valuable feature.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ###  The List of Sources
 
  Entering the simple prompt, "How to grow buckwheat", provided the sources used to compose the answer. Perplexity uses its own knowledge and the search results to confirm and compose its response. For this prompt, three sources on how to grow buckwheat, one source on the advantages of growing buckwheat in your vegetable garden, and a YouTube video on its uses.
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ![A screen shot of Perplexity AI search results displaying the search prompt, sources, answer, and picture/videos.](https://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/perplexitybuckwheat.jpeg)A Step-By-Step Answer
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  In both the web browser and mobile layout, the row of sources is followed by step-by-step bullets of information. For this prompt, the answer included ideal conditions for growing buckwheat, a description of growth from seed to flower, and the advantages of using it as a cover crop in vegetable gardens. Each step has citations from the source list. However, because Perplexity performs a new search each time, results can vary slightly with each search. Later, the same prompt resulted in information on "planting buckwheat", "growing buckwheat", and "harvesting buckwheat". After that well-organized answer, there's an option to ask a follow-up question.
 
 ###  Pictures and Video
 
  To the right of the sources and answer is an arrangement of pictures of flowering buckwheat. There is also a thumbnail of the YouTube video referenced in the sources that can be played in-app.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  The Focus Feature: For Searching YouTube, Reddit, and More!
 
@@ -56,28 +87,26 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 * Reddit - Search for discussions and opinions
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### ![A screenshot of the Perplexity AI focus feature below the prompt box on the home screen.](https://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/perplexityuifocus-1.jpeg)Focus: Reddit
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Crows began eating our freshly planted popcorn. I allowed my children to construct a scarecrow out of PVC pipe, but I knew there were likely some hacks on Reddit. Perplexity could save me at least an hour of scrolling aimlessly through dozens of posts and provide a summary of suggestions in a moment. This focused Perplexity answer had a list of Reddit posts as the sources and six numbered suggestions. They included hanging distracting shiny objects like wind chimes or pinwheels, placing fake owls or hawks around the garden, or constructing a physical barrier out of bird netting. They did not include a PVC scarecrow named Ted.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ### ![A screenshot of focused Perplexity AI search results displaying sources and the answer.](https://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/perplexityreddit.jpeg)Focus: YouTube
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  While our popcorn is sprouting, I'm planning ahead and trying to learn how to harvest both popcorn and buckwheat. After harvesting, buckwheat must be threshed, and popcorn must be cured. For the prompts, "How to thresh buckwheat" and then "How to harvest popcorn" the sources list five specific YouTube videos. The answer has numbered instructions on harvesting, and each step cites the specific video which the step was sourced from. On the right is a column of the source thumbnails, all playable in-app.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Elephant in the Room: Why Don't You Just Use Google?
 
  As an elder millennial, I recall trying to convince my aunt to join many of our family members on one of the earliest chat programs, AOL Instant Messenger. I told her we could have instant text conversations and see the conversation as it played out. To every single feature I listed, she'd reply, "But I can do that over email!" She talked about chatting her way through the workday with coworkers over email, just the same as this chat program I was pushing.
@@ -90,8 +119,6 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -99,4 +126,21 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-price-point-in-online-advertising/"><u>[New] 2024 Approved The Price Point in Online Advertising</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-affordable-path-to-4k-top-budget-cameras-(1k/"><u>[New] Affordable Path to 4K Top Budget Cameras (<$1K)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-viewership-cost-effectively-with-subscriber-purchase-for-2024/"><u>Boost Viewership Cost-Effectively with Subscriber Purchase for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-bouncie-mobile-tracking-pro-an-economical-choice-for-vehicle-locating-review/"><u>Discovering Bouncie Mobile Tracking Pro: An Economical Choice for Vehicle Locating Review</u></a></li>
+<li><a href="https://windows11.techidaily.com/easing-through-policy-restrictions-in-admin-blocked-installations/"><u>Easing Through Policy Restrictions in Admin-Blocked Installations</u></a></li>
+<li><a href="https://win11.techidaily.com/embrace-the-past-playing-old-pc-games-through-dosbox-x/"><u>Embrace the Past: Playing Old PC Games Through DOSBox-X</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-elgoogs-reflection-a-detailed-analysis-of-the-unrivaled-mirror-site/"><u>Exploring ElgooG's Reflection: A Detailed Analysis of the Unrivaled Mirror Site</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/highlight-exclusivity-and-uniqueness-the-use-of-words-like-exclusive-unique-one-of-a-kind-etc-adds-value-to-the-magic-tricks-by-making-customers-believe-the69/"><u>Highlight Exclusivity and Uniqueness: The Use of Words Like 'Exclusive', 'Unique', 'One-of-a-Kind', Etc., Adds Value to the Magic Tricks by Making Customers Believe They Are Accessing Something Special that Not Many Have Experienced Before.</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-tecno-is-unlocked-by-drfone-android/"><u>How To Check if Your Tecno Is Unlocked</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-any-oppo-reno-11f-5g-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Oppo Reno 11F 5G Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/movavis-aiff-to-flac-free-online-conversion-tool-effortless-audio-file-changing/"><u>Movavi's AIFF to FLAC Free Online Conversion Tool - Effortless Audio File Changing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/travel-smart-with-mokos-multi-functional-folding-bluetooth-keyboard-reliable-and-user-friendly/"><u>Travel Smart with MoKo's Multi-Functional Folding Bluetooth Keyboard - Reliable & User-Friendly</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/vuebells-value-proposition-in-video-doorbells-a-detailed-overview-and-review/"><u>VueBell's Value Proposition in Video Doorbells - A Detailed Overview & Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/your-ultimate-pool-and-beach-gadgets-catalog/"><u>Your Ultimate Pool & Beach Gadgets Catalog</u></a></li>
+</ul></div>
 

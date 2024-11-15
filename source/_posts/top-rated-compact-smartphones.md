@@ -1,7 +1,7 @@
 ---
 title: Top Rated Compact Smartphones
-date: 2024-09-04T18:47:07.986Z
-updated: 2024-09-05T18:47:07.986Z
+date: 2024-11-09T16:53:55.805Z
+updated: 2024-11-15T16:38:55.973Z
 tags:
   - buying-guides
 categories:
@@ -51,6 +51,13 @@ Best Small Flip Phone
 
  Aside from the above, you'll want to consider all the usual factors when shopping for a smartphone. This includes battery life, processing power, display quality, and camera quality..
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  Best Small Phone Overall: [iPhone 15 Pro](https://www.apple.com/shop/buy-iphone/iphone-15-pro) 
 
 ![iPhone 15 Pro showing the titanium back.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/53214028421_22760ef745_o.jpg) 
@@ -74,6 +81,13 @@ Tyler Hayes / How-To Geek
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Best Small Phone Overall
 
 #####  Apple iPhone 15 Pro
@@ -82,15 +96,16 @@ The Apple iPhone 15 Pro features a titanium design with Action button, A17 Pro c
 
 [See at Apple](https://www.apple.com/shop/buy-iphone/iphone-15-pro) [See at Verizon](https://www.anrdoezrs.net/links/3607085/type/dlg/sid/UUhtgUeUpU2003574/https://www.verizon.com/smartphones/apple-iphone-15-pro/) [See at T-Mobile](https://www.t-mobile.com/devices/new-apple-iphone-15-pro-release) 
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Best Small Budget Phone: [OnePlus Nord N30 5G](https://onepluscom.pxf.io/c/5597632/916678/12532?subId1=UUhtgUeUpU2003574&subId2=ehtg&u=https%3A%2F%2Fwww.oneplus.com%2Fus%2Foneplus-n30-5g) 
 
 ![OxygenOS on the OnePlus Nord N30 5G](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/06/person-holding-the-oneplus-nord-n30-5g-with-the-settings-openjpg_52920102511_o.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _Hannah Stryker / How-To Geek_
 
@@ -109,20 +124,8 @@ _Hannah Stryker / How-To Geek_
 
 ![oneplus-nordn30](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/oneplus-nordn30.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Best Small Budget Phone
 
 #####  OnePlus Nord N30 5G
@@ -138,17 +141,18 @@ The OnePlus Nord N30 might not be the most exciting phone ever built, but for le
 ![Apple iPhone SE](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/apple-iphonese-hero-3up-220308_b.jpg) 
 
 <!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Apple
 
 | Pros                                 | Cons              |
@@ -167,17 +171,12 @@ Apple
 ![black iphone se 2022](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/black-iphone-se-2022-1.png) 
 
 <!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 Smallest iPhone
@@ -209,19 +208,14 @@ Dhruv Bhutani / How-To Geek
 
 ![flip 5-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/flip-5-1.png) 
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Best Small Android Phone
 
@@ -236,6 +230,19 @@ The Samsung Galaxy Z Flip 5 is a flip-fold style foldable with a big outside dis
 ##  Best Small Flip Phone: [Nokia 2780 Flip](https://www.amazon.com/Nokia-2780-Unlocked-Verizon-T-Mobile/dp/B0BLDZDN9R?tag=hotoge-20&ascsubtag=UUhtgUeUpU2003574&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-small-phones%2F&asc%5Fcampaign=Commerce) 
 
 ![Nokia 2780 Flip](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/nokia_2780_flip-dtc-simple_and_e.jpg) 
+
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Nokia
 
@@ -253,20 +260,8 @@ Nokia
 
 ![Nokia Flip](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/nokia-flip.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024329/7443" target="_top" id="2024329">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024329" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024329/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Best Small Flip Phone
 
 #####  Nokia 2780 Flip
@@ -281,8 +276,6 @@ The Nokia 2780 Flip isn't a true smartphone, but its compact size, retro styling
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -290,4 +283,22 @@ The Nokia 2780 Flip isn't a true smartphone, but its compact size, retro styling
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-exploring-the-past-of-social-storytelling-step-by-step-laptopmobile-process-for-2024/"><u>[New] Exploring the Past of Social Storytelling Step-by-Step Laptop/Mobile Process for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-virtual-reality-grips-the-ultimate-selection-for-2024/"><u>[New] Virtual Reality Grips The Ultimate Selection for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streamline-shorter-optimizing-youtube-videos-for-less-time/"><u>[Updated] Streamline Shorter Optimizing YouTube Videos for Less Time</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-kindle-oasis-2019-the-closest-feel-of-real-pages/"><u>Exploring the Kindle Oasis (2019): The Closest Feel of Real Pages</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/extollo-lansocket-extreme-performance-a-deep-dive-into-high-speed-and-low-latency-with-built-in-power-handling/"><u>Extollo LANSocket eXtreme Performance: A Deep Dive Into High Speed & Low Latency with Built-In Power Handling</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-honor-x50-gt-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Honor X50 GT FRP Without Computer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-the-xiaomi-mi-smart-band-4-the-ultimate-choice-for-affordable-health-tracking/"><u>In-Depth Evaluation of the Xiaomi Mi Smart Band 4 - The Ultimate Choice for Affordable Health Tracking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovo-ideapad-130s-laptop-analysis-compact-performance-with-impressive-user-experience/"><u>Lenovo IdeaPad 130S Laptop Analysis: Compact Performance with Impressive User Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-professionalism-blocking-negative-profiles-from-fb/"><u>Maintaining Professionalism: Blocking Negative Profiles From FB</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/master-the-magic-optimize-your-hogwarts-legacy-experience-with-these-6-fixes/"><u>Master the Magic: Optimize Your Hogwarts Legacy Experience with These 6 Fixes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximizing-value-in-gaming-pcs-in-depth-review-and-insights-into-the-dynamic-capabilities-of-the-dell-g5/"><u>Maximizing Value in Gaming PCs: In-Depth Review and Insights Into the Dynamic Capabilities of the Dell G5</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/maximum-memory-accessory-for-sony-a7s-ii/"><u>Maximum Memory Accessory for Sony A7S II</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/professional-audio-connectivity-by-sennheiser/"><u>Professional Audio Connectivity by Sennheiser</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-choosing-the-perfect-ups-our-expert-picks/"><u>Ultimate Guide to Choosing the Perfect UPS : Our Expert Picks!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unlocking-your-network-a-step-by-step-guide-to-finding-wi-fi-passwords-on-windows-11/"><u>Unlocking Your Network: A Step-by-Step Guide to Finding Wi-Fi Passwords on Windows 11</u></a></li>
+</ul></div>
 

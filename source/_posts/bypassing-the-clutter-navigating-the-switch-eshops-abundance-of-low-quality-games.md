@@ -1,7 +1,7 @@
 ---
 title: "Bypassing the Clutter: Navigating the Switch eShop's Abundance of Low-Quality Games"
-date: 2024-08-31T14:53:34.633Z
-updated: 2024-09-01T14:53:34.633Z
+date: 2024-11-10T16:35:12.402Z
+updated: 2024-11-15T16:16:00.795Z
 tags:
   - games
   - tv
@@ -33,46 +33,68 @@ Lucas Gouveia / How-To Geek | [Miguel Lagoa](https://www.shutterstock.com/en/ima
 
  While I cover how to identify shovelware in this article, I'm deliberately not going to call out specific games as examples of shovelware. This is for a few reasons, but mainly because some games that end up being indistinguishable from shovelware are the result of a sincere effort to make a good game. I don't want to put developers who were really trying on blast for publishing something that misses the mark. There are [shovelware lists](https://scott-the-woz.fandom.com/wiki/List%5Fof%5Fshovelware) online, if you're looking for specific names. With that said, here's how you can figure out that you're looking at shovelware.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ##  It Rips Off Popular or Premium Games
 
  While it's perfectly fine for successful and popular games to spawn "clones", there's a big difference between a great game inspired by another great game, and a sloppy cash-grab. Lots of shovelware games will try to capitalize on popular games by pretending to be similar to them in some way, so that people who either liked the original game or perhaps can't afford them yet will buy it. You also see this sort of thing with platform exclusives from other consoles, where there are ripoffs of games like _God of War_ or _The Last of Us_, to name but two examples.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  It’s Insanely Cheap
 
  The hallmark of shovelware games is an extremely low price. If the non-sale price of a game is a dollar, then it's not likely you're buying the most premium of products. With Nintendo, [all sales are final](https://audio-editing.techidaily.com/updated-how-to-use-audio-ducking-in-adobe-premiere-pro-on-mac/), so once the shovelware developer has your dollar, then it's gone forever. Even worse, that game is now stuck in your Switch library forever too!
 
  Lots of shovelware developers tend to have their games on sale constantly at 90% off. So a game listed for $10 might sell for a buck, which also pushes it to the top of the eShop's list if you arrange by discount percentage. Of course, there are plenty of awesome games that get huge discounts like this too, but most games selling for so little money are invariably shovelware.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  There Are No Reviews
 
  I always look for reviews on games before I buy them on the eShop, no matter how cheap they may be. Whether that's a professional review on a dedicated gaming website or a YouTube video review, I need to see something of what a third-party person thinks before even considering handing over my hard-earned cash. If there are no reviews at all, that's a good sign that the game is of such low quality, that it's not even worth writing a review telling you so.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  The Screenshots Look Terrible
 
  Even without seeing the game in action, you can usually tell from the eShop screenshots that the game in question doesn't have much to it. Poor graphics, flipped assets, bad art direction, or exceedingly simple visuals that could be slapped together over a week are all key signs in a screenshot that what you're looking at is more of a scam than an actual game.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  The Cover Art Is Visual Clickbait
 
 ![Amazed shocked caucasian guy holding smartphone in his hand](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/amazed-shocked-caucasian-guy-holding-smartphone-in-his-hand.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 [Kateryna Onyshchuk / Shutterstock.com](https://www.shutterstock.com/image-photo/amazed-shocked-caucasian-guy-holding-smartphone-1960660978)
 
  When browsing the eShop, the first thing that catches your attention is a game's cover art. This is true for all games, of course, but this means the cover is where shovelware developer will actually put in some effort. After all, it's easier to create a nice cover than to make an entire game. Now, in the age of [AI image generators](https://win11.techidaily.com/navigate-to-public-ip-using-windows-command-window/), it's easier than ever to make awesome covers too. It's a little like the old days of Atari games, where the game art would be amazing shots of dragons and robots battling it out, and the actual game is just two colored blocks bumping into each other.
@@ -89,8 +111,6 @@ Lucas Gouveia / How-To Geek | [Miguel Lagoa](https://www.shutterstock.com/en/ima
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -98,4 +118,20 @@ Lucas Gouveia / How-To Geek | [Miguel Lagoa](https://www.shutterstock.com/en/ima
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-streamlining-your-iphones-album-organization-and-icloud-connection/"><u>[Updated] 2024 Approved Streamlining Your iPhone's Album Organization and iCloud Connection</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-freeing-up-your-screen-time-which-video-player-prevails-vlc-or-mpc/"><u>2024 Approved Freeing Up Your Screen Time Which Video Player Prevails, VLC or MPC?</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/accessible-chatgpt-dialogue-for-android-users/"><u>Accessible ChatGPT Dialogue for Android Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apples-revolutionary-m4-chip-unveiled-key-features-and-launch-timeline/"><u>Apple's Revolutionary M4 Chip Unveiled: Key Features & Launch Timeline</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cost-effective-time-alerts-inside-review-of-the-trustworthy-philips-hf3520/"><u>Cost-Effective Time Alerts: Inside Review of the Trustworthy Philips HF3520</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exciting-city-based-game-plummets-onto-martian-surface-creating-stirring-cyclones-and-delight/"><u>Exciting City-Based Game Plummets Onto Martian Surface, Creating Stirring Cyclones and Delight</u></a></li>
+<li><a href="https://app-tips.techidaily.com/how-low-codeno-code-tools-are-evolving-with-the-rise-of-artificial-intelligence-insights-from-zdnet/"><u>How Low-Code/No-Code Tools Are Evolving With the Rise of Artificial Intelligence: Insights From ZDNet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-alienware-aurora-r7-top-performance-meets-hefty-price-tag/"><u>In-Depth Analysis of Alienware Aurora R7 - Top Performance Meets Hefty Price Tag</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-it-time-to-upgrade-experience-the-review-of-chromecast-and-google-tv/"><u>Is It Time to Upgrade? Experience the Review of Chromecast & Google TV.</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-xiaomi-redmi-note-12-5g-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Xiaomi Redmi Note 12 5G FRP Without Computer</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-constant-collapses-in-remnant-the-definitive-edition/"><u>Troubleshooting Constant Collapses in 'Remnant: The Definitive Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-midland-gxt1000vp4-for-unmatched-audio-performance/"><u>Unboxing the Midland GXT1000VP4 for Unmatched Audio Performance</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/writing-vlogs-a-guide-to-persuasive-scripts/"><u>Writing Vlogs A Guide to Persuasive Scripts</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Top Performance Evaluation: Linksys WRT3200ACM - Leading Open-Source WiFi Router"
-date: 2024-10-31T01:29:23.600Z
-updated: 2024-11-05T07:51:19.460Z
+date: 2024-11-08T16:25:14.806Z
+updated: 2024-11-15T16:39:02.829Z
 categories:
   - BestProducts
 description: "This Article Describes Top Performance Evaluation: Linksys WRT3200ACM - Leading Open-Source WiFi Router"
@@ -46,6 +46,19 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 [View On Walmart $29](https://www.walmart.com/ip/612208092)
@@ -67,13 +80,6 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -85,6 +91,13 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup: Easier than most**
 
@@ -102,14 +115,14 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Range: Could be better**
 
@@ -119,19 +132,6 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
@@ -139,6 +139,13 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -149,13 +156,6 @@ Lifewire / Erika Rawes
 **Works great & looks even better.**
 
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -188,20 +188,21 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-navigate-effortlessly-how-to-clear-your-browsers-youtube-cache/"><u>[New] In 2024, Navigate Effortlessly How to Clear Your Browser's YouTube Cache</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-mastering-color-palettes-applying-theories-effectively-for-2024/"><u>[Updated] Mastering Color Palettes Applying Theories Effectively for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-prime-ai-graphic-editor-tools-for-2024/"><u>[Updated] Prime AI Graphic Editor Tools for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-navigating-through-an-absent-obs-camera-input/"><u>2024 Approved Navigating Through an Absent OBS Camera Input</u></a></li>
-<li><a href="https://fox-that.techidaily.com/fixing-inaccurate-screen-time-reports-on-ios-devices-displaying-misleading-data/"><u>Fixing Inaccurate Screen Time Reports on iOS Devices Displaying Misleading Data</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-final-cut-pros-top-10-must-have-plug-ins-for-professionals/"><u>In 2024, Final Cut Pro’s Top 10 Must-Have Plug-Ins for Professionals</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-simplify-your-reaction-video-creation-a-step-by-step-guide-with-filmora/"><u>New In 2024, Simplify Your Reaction Video Creation A Step-by-Step Guide with Filmora</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-enduring-appeal-of-physical-movies-over-ephemeral-streaming-services-a-comparative-analysis/"><u>The Enduring Appeal of Physical Movies Over Ephemeral Streaming Services: A Comparative Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-persistent-appeal-of-iphone-gaming-a-deep-dive-into-my-personal-experience-and-trends-that-will-continue-to-shape-the-future/"><u>The Persistent Appeal of iPhone Gaming: A Deep Dive Into My Personal Experience and Trends That Will Continue to Shape the Future</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-persistent-appeal-of-print-understanding-magazine-loyalty-in-a-high-tech-era/"><u>The Persistent Appeal of Print: Understanding Magazine Loyalty in a High-Tech Era</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/this-article-shows-you-how-to-do-freeze-frames-and-slow-motion-in-final-cut-pro-x-for-2024/"><u>This Article Shows You How to Do Freeze-Frames and Slow Motion in Final Cut Pro X for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-4-compelling-justifications-for-upgrading-to-the-playstation-5-pro-unleash-next-level-gaming/"><u>Top 4 Compelling Justifications for Upgrading to the PlayStation 5 Pro: Unleash Next-Level Gaming!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-7-fond-memories-of-the-dial-up-era-you-secretly-cherish/"><u>Top 7 Fond Memories of the Dial-Up Era You Secretly Cherish</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-mobile-gaming-controllers-a-comprehensive-guide/"><u>Top-Rated Mobile Gaming Controllers: A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-powering-down-refreshing-or-rebooting-your-ps5-console/"><u>Ultimate Guide: Powering Down, Refreshing, or Rebooting Your PS5 Console</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-unveiling-authentic-identity-in-fb-messages/"><u>[New] 2024 Approved Unveiling Authentic Identity in FB Messages</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagrams-peak-performance-with-these-top-8-planning-tools/"><u>[Updated] 2024 Approved Instagram's Peak Performance with These Top 8 Planning Tools</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-artists-roadmap-to-professional-growth/"><u>[Updated] The Artist's Roadmap to Professional Growth</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-the-eufy-t8200-the-ultimate-non-subscription-video-doorbell-reviewed-here/"><u>Expert Insights on the Eufy T8200: The Ultimate Non-Subscription Video Doorbell Reviewed Here</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-features-and-performance-of-hisense-50-4k-tv-model-50h8f-on-a-budget/"><u>Exploring the Features and Performance of Hisense 50 4K TV (Model: #50H8F) on a Budget</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/guide-to-mend-windows-disk-read-problems/"><u>Guide to Mend Windows Disk Read Problems</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/high-quality-capture-the-best-applications-reviewed-for-2024/"><u>High-Quality Capture The Best Applications Reviewed for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-test-a-microphone-on-windows-pc/"><u>How to Test a Microphone on Windows PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/performance-analysis-lenovos-thinkpad-x1n-detachable-ultrabook-the-best-of-both-worlds-with-highly-praised-keyboard-design/"><u>Performance Analysis: Lenovo's ThinkPad X1n Detachable Ultrabook - The Best of Both Worlds with Highly Praised Keyboard Design</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Xiaomi Redmi Note 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sony-dsc-w800-dissection-where-excellence-and-economy-intersect/"><u>Sony DSC-W800 Dissection: Where Excellence and Economy Intersect</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/speak-with-synthetic-voices-chromebooks-leading-online-text-to-speech-apps/"><u>Speak with Synthetic Voices Chromebook's Leading Online Text-to-Speech Apps</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-cat-s42-rugged-device-examined-unmatched-protection-yet-restrictive-velocity/"><u>The CAT S42 Rugged Device Examined: Unmatched Protection Yet Restrictive Velocity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/truecaller-uncovered-a-detailed-app-assessment-for-improved-call-management/"><u>Truecaller Uncovered: A Detailed App Assessment for Improved Call Management</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/king-visual-potential-the-9-best-mobile-accessories-for-vloggers-for-2024/"><u>Unlocking Visual Potential The 9 Best Mobile Accessories for Vloggers for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-strengths-and-weaknesses-of-the-dbpower-600a-peak-performance-at-18000mah/"><u>Unveiling the Strengths and Weaknesses of the DBPower 600A - Peak Performance at 18,000mAh</u></a></li>
 </ul></div>
 

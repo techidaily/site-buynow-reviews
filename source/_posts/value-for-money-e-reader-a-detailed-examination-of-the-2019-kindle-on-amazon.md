@@ -1,7 +1,7 @@
 ---
 title: "Value for Money E-Reader: A Detailed Examination of the 2019 Kindle on Amazon"
-date: 2024-11-01T23:06:56.170Z
-updated: 2024-11-05T06:52:41.755Z
+date: 2024-11-09T16:32:31.265Z
+updated: 2024-11-15T17:11:06.154Z
 categories:
   - BestProducts
 description: "This Article Describes Value for Money E-Reader: A Detailed Examination of the 2019 Kindle on Amazon"
@@ -74,19 +74,6 @@ Lifewire / Jeremy Laukkonen
 
  Luna is an impressive service with what seems like solid underlying tech right out of the gate. The biggest questions seem to be how and when Amazon will go about filling holes in the library, how well the service will work when they eventually roll out 4K streaming, and whether we’ll see better Android support in the future.
 
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design and Controls: Decent enough app and a nearly flawless controller
 
  Luna isn’t a traditional game console, so there isn’t much design to speak of in terms of hardware. The two important elements here are the Luna app, which operates as an Android app on Fire TV and a web app in[Chrome](https://www.lifewire.com/what-is-google-chrome-4687647) and[Safari](https://www.lifewire.com/what-is-safari-4173608) , and the controller that’s technically optional.
@@ -104,10 +91,10 @@ Lifewire / Jeremy Laukkonen
 ![Amazon Luna](https://www.lifewire.com/thmb/jNDwaMGOVuF5UIISPsmdb5uQdGU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_04-985a4419a93945d2879b09d61fafae5a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -137,10 +124,10 @@ Lifewire / Jeremy Laukkonen
  After the initial setup process, your Luna controller is ready to go regardless of platform. Power on the controller, launch the Luna app or website, and everything automatically connects without any additional work or input.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Performance: Impressive game streaming, but no 4K
@@ -163,6 +150,13 @@ Lifewire / Jeremy Laukkonen
 
  If you have a slow internet connection or suffer from poor connectivity, then it’s likely that the brief issues I experienced could be amplified to an unacceptable point. If you have a decent connection, live closer to a major metropolitan area than I do, and have more than 10Mbps of downstream bandwidth available, the service should work just fine.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Software: Dozens of games, but the library is a bit thin with a lot of holes
 
  Luna’s biggest issue, and its biggest question mark going forward, is its streaming library. Amazon is taking a page from Microsoft’s book in that they’re trying to function as a Netflix of game streaming, but Amazon just doesn’t have the same deep library as Microsoft.
@@ -176,10 +170,10 @@ Lifewire / Jeremy Laukkonen
 ![Amazon Luna](https://www.lifewire.com/thmb/NBB1N6qtwbtdjrUgwr1YaBaTuBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_02-37837bf860d244d3ab11ff01f37c609c-db472e204ada4ccca88e7510eacfae34.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -193,13 +187,6 @@ Lifewire / Jeremy Laukkonen
  Luna comes with a price tag of $4.95 per month during the beta period, with the insinuation that it will increase later on. It’s uncertain as to whether or not the price will actually go up, but right now it’s a pretty good deal. The only real caveat is that the attractive price tag is balanced by a somewhat thin library. Go ahead and check the library before you sign up. If you see more than a handful of games you’re interested in, then Luna is absolutely worth the price of admission.
 
  The Luna controller has a heftier price tag of $50, but that’s actually pretty reasonable if you compare it to other wireless controllers. It’s cheaper than a lot of the other options, and you can use it via Wi-Fi with Luna, or via Bluetooth or USB-C to play non-Luna games on your PC. All in all, it’s a good controller that’s priced competitively.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Amazon Luna vs. Microsoft Game Pass Ultimate
 
@@ -218,6 +205,13 @@ Lifewire / Jeremy Laukkonen
 **A solid game streaming service.**
 
  Amazon Luna is an impressive game streaming service that works surprisingly well whether or not you buy the optional controller. It isn’t perfect, and you’re likely to experience hiccups here and there, but it’s an extremely affordable way to experience dozens of games, many of which would otherwise require an expensive gaming PC or console, without any kind of initial investment. The future of the service remains uncertain, and the precedent of locking Ubisoft games behind an expensive additional paywall isn’t a great sign, but Amazon has a chance to make a real splash in the gaming world with Luna.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -255,24 +249,24 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-reviews.techidaily.com/numenera-chronicles-torment-edition-a-detailed-critique-on-its-science-fiction-universe-and-gameplay-experience/"><u>'Numenera Chronicles: Torment Edition' - A Detailed Critique on Its Science Fiction Universe and Gameplay Experience</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-videotwitteraudio-direct-conversion/"><u>[New] 2024 Approved VideoTwitterAudio Direct Conversion</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-boosting-youtube-videos-activating-av1-support/"><u>[New] In 2024, Boosting YouTube Videos Activating AV1 Support</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-redefine-twitter-video-panel/"><u>[Updated] 2024 Approved Redefine Twitter Video Panel</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-zooming-ahead-with-the-best-audio-to-text-applications-freepaid/"><u>[Updated] In 2024, Zooming Ahead with the Best Audio to Text Applications (Free/Paid)</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-posting-videos-on-twitter-step-by-step/"><u>[Updated] Posting Videos on Twitter Step-by-Step</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-revamp-photos-essential-color-correction-steps-for-2024/"><u>[Updated] Revamp Photos Essential Color Correction Steps for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unveiling-the-secrets-acquiring-attractive-pexel-photos/"><u>[Updated] Unveiling the Secrets Acquiring Attractive Pexel Photos</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-underwater-cameras-for-kids-and-parents/"><u>Budget Underwater Cameras for Kids & Parents</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/efficient-techniques-saving-google-meets-on-phones/"><u>Efficient Techniques Saving Google Meets on Phones</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ensuring-perfect-presentation-online-check-your-pages-prior-to-upload/"><u>Ensuring Perfect Presentation Online: Check Your Pages Prior to Upload</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/halo-bolts-dual-action-portable-charger-and-jump-starter-review-the-complete-power-companion-for-mobile-devices/"><u>Halo Bolt's Dual Action Portable Charger and Jump Starter Review – The Complete Power Companion for Mobile Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-the-reliability-and-performance-of-googles-wireless-nest-doorbell-with-battery-backup/"><u>In-Depth Review: The Reliability and Performance of Google's Wireless Nest Doorbell with Battery Backup</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-the-samsung-galaxy-s10plus-still-relevant-against-the-new-s20/"><u>Is the Samsung Galaxy S10+ Still Relevant Against the New S20?</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Motorola Moto G73 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-and-review-of-monster-hunter-world-conquer-exotic-beasts/"><u>Ultimate Guide & Review of Monster Hunter: World – Conquer Exotic Beasts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-revamping-and-improving-intel-imac-computers/"><u>Ultimate Guide to Revamping and Improving Intel iMac Computers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unbox-the-eufet8200-video-doorbell-reliable-surveillance-zero-subscription-hassles/"><u>Unbox the EufeT8200 Video Doorbell: Reliable Surveillance, Zero Subscription Hassles!</u></a></li>
-<li><a href="https://techidaily.com/use-device-manager-to-update-drivers-on-windows-7-by-drivereasy-guide/"><u>Use Device Manager to update drivers on Windows 7</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-elevate-youtube-video-quality-minimize-distractions/"><u>[New] In 2024, Elevate YouTube Video Quality, Minimize Distractions</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-professional-handbook-integrating-countdown-mechanisms-into-streaming-tools-for-2024/"><u>[New] Professional Handbook Integrating Countdown Mechanisms Into Streaming Tools for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/besting-rivals-in-performance-a-detailed-review-of-samsung-cf591-monitor/"><u>Besting Rivals in Performance: A Detailed Review of Samsung CF591 Monitor</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-dell-xps-13-2-in-1-evaluation-exceptional-capability-and-functionality/"><u>Comprehensive Dell XPS 13 2-In-1 Evaluation: Exceptional Capability and Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/contemplating-a-swift-transition-old-vs-new-apple-watch-model/"><u>Contemplating a Swift Transition: Old Vs. New Apple Watch Model</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cp685avrg-cyberpower-review-efficient-basic-uninterruptible-power-supply/"><u>CP685AVRG CyberPower Review: Efficient Basic Uninterruptible Power Supply</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/decoding-bose-quietcontrol-30-headphones-performance-paradox/"><u>Decoding Bose QuietControl 30 Headphones' Performance Paradox</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/discover-the-best-deal-high-quality-macbooks-usb-c-charger-available-for-under-70-exclusive-amazon-offer-featured/"><u>Discover the Best Deal: High-Quality MacBook's USB-C Charger Available for Under $70 - Exclusive Amazon Offer Featured !</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-watch-dogs-legions-unique-environment-in-our-comprehensive-review/"><u>Exploring Watch Dogs: Legion's Unique Environment in Our Comprehensive Review</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-vivo-v29-pro-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Vivo V29 Pro Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-restore-lost-fb-watch-video-button/"><u>In 2024, Restore Lost FB Watch Video Button</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-oppo-find-x7-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Oppo Find X7 to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-get-rid-of-hiss-and-hum-advanced-techniques-for-noise-removal-in-fcpx/"><u>New 2024 Approved Get Rid of Hiss and Hum Advanced Techniques for Noise Removal in FCPX</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/protect-your-eyes-from-screen-glare-a-comprehensive-look-at-lensdirects-blue-light-blocking-frames-for-prescription-needs/"><u>Protect Your Eyes From Screen Glare: A Comprehensive Look at LensDirect's Blue Light Blocking Frames for Prescription Needs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revamping-the-undead-a-comprehensive-review-of-7-days-to-die-the-ultimate-zombie-survival-game/"><u>Revamping the Undead: A Comprehensive Review of '7 Days to Die' - The Ultimate Zombie Survival Game</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-picks-for-ultra-hd-tvs-detailed-reviews-on-the-features-of-samsung-qn55q60rafxza-with-hdr10plus-support/"><u>Top Picks for Ultra HD TVs - Detailed Reviews on the Features of Samsung QN55Q60RAFXZA with HDR10+ Support</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-d-link-pl-2000-kit-streamlined-configuration-and-rapid-data-exchange-review/"><u>Unveiling the D-Link PL 2000 Kit: Streamlined Configuration & Rapid Data Exchange Review</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95544227-9780834825703-womens-qigong-for-health-and-longevity/"><u>Women's Qigong for Health and Longevity | Free Book</u></a></li>
 </ul></div>
 

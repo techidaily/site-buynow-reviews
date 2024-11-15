@@ -1,7 +1,7 @@
 ---
 title: Essential PC Gaming Metrics Worth Tracking and Their Importance
-date: 2024-08-31T14:53:58.028Z
-updated: 2024-09-01T14:53:58.028Z
+date: 2024-11-11T16:14:13.048Z
+updated: 2024-11-15T16:15:46.981Z
 tags:
   - games
   - tv
@@ -33,18 +33,12 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
  That said, I don’t monitor each and every stat available. I’ve got a default in-game performance stats suite that I use in most games, which I occasionally tweak for specific bottleneck-hunting scenarios.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  GPU Usage Percentage, Temperature, and Power
 
  GPU usage percentage and frame rate are the most critical in-game performance stats. If your GPU usage is in the high nineties—95% and higher—you’re fine, and your graphics card is working at its optimal maximum. As you can see in the screenshot below, my GPU usage is 97%, which is optimal.
 
 ![Star Wars Jedi: Survivor with various in-game performance metrics shown.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/these-are-the-only-pc-game-performance-stats-i-monitor-here-s-why-001.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  If the GPU usage drops below 90%, something’s wrong. The most likely situation is that your CPU is running at its maximum but cannot keep up with the GPU. In other words, if your GPU usage percentage is below 90%, your CPU is most likely a less-than-ideal pairing for your GPU. The CPU is the bottleneck in this particular case.
 
  The game I’ve used to show which in-game stats I monitor is _Star Wars Jedi: Survivor_. I specifically chose this game because it has highly unstable performance and a bunch of stuttering of various origins. The game also hits the CPU pretty hard, especially in larger, semi-open-world levels such as _Koboh_.
@@ -59,6 +53,13 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Jedi Survivor with an RTSS in-game performance overlay.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/these-are-the-only-pc-game-performance-stats-i-monitor-here-s-why-003.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Other causes of low GPU usage include not having enough system RAM, limiting the GPU power (accidentally or purposefully), your GPU cooler having issues leading to GPU [thermal throttling](https://buynow-help.techidaily.com/leading-titles-to-unlock-on-google-play-pass-a-ranking-of-the-8-greatest-games/), and others.
 
  Aside from the GPU usage percentage, I also monitor the GPU temperature and power used. The former is handy in my case because I’ve got a hotbox of an enclosure, also known as the NZXT H510\. The case looks great, which is the main reason I purchased it. Conversely, the H510 has pretty poor airflow that results in much higher GPU and CPU thermals compared to [the best PC cases](https://tech-revival.techidaily.com/interactive-ai-duo-unveiling-3-approaches-to-chatgpt-and-wolframalliance/). This is why I like to have my GPU temperature always shown on the in-game performance overlay.
@@ -67,9 +68,6 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
  GPU power, measured in watts, and thermals, are handy to check after you've undervolted your GPU to see if undervolting it reduced the heat buildup and power used. They're also nice to have in case the game slows down unexpectedly, like when your GPU memory buffer overflows. If you see that your GPU usage dropped along with GPU power, and you notice that your GPU memory usage is running close to your GPU memory size, you can infer that you probably need to lower texture quality or turn off ray tracing effects since these use a ton of video memory.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  GPU Memory Used
 
  GPU memory is yet another in-game stat I always have on. It’s mostly because I own an 8GB GPU—an RTX 3070—and those 8 gigs of memory often fill up with max texture quality in many recent AAA games. This is especially true when running those games at the native, 3440x1440 resolution of my monitor, instead of [streaming them](https://visual-screen-recording.techidaily.com/new-2024-approved-utilizing-internal-screen-recording-on-huaweis-mate-1020-and-p-models-p20-p10/) to my ROG Ally's 1080p screen.
@@ -77,6 +75,13 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
  As shown in the screenshot below, you’ve got the total memory used and the memory used by the current process, in this case, _Jedi Survivor_. If this goes near or surpasses 8000MB for the total memory used, it means I should drop some visual option that uses a lot of GPU memory. In most cases, this is texture quality, but sometimes I can keep high textures but drop shadows to medium or turn off RT effects if I have them on.
 
 ![Jedi Survivor with the RTSS performance overlay on, with VRAM usage in focus.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/these-are-the-only-pc-game-performance-stats-i-monitor-here-s-why-005.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You don’t have to have both the "VRAM" and "VRAM Usage/Process" stats shown, but I like to have both because a too-high discrepancy between the two values might reveal that I have my browser or some other app that uses lots of video memory open and running in the background.
 
@@ -88,12 +93,22 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Jedi Survivor with the RTSS performance overlay enabled.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/these-are-the-only-pc-game-performance-stats-i-monitor-here-s-why-007.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
  As you can see below, _Jedi Survivor_ can punish your CPU. That said, my RTX 3070 is not powerful enough for my Ryzen 5600X to become the bottleneck, at least in _Jedi Survivor_, since the GPU usage sits at 97%.
 
 ![Star Wars Jedi: Survivor with the RTSS performance overlay with the CPU and GPU usage in focus.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/these-are-the-only-pc-game-performance-stats-i-monitor-here-s-why-006.png) 
+
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  In _Marvel’s Spider-Man Remastered_, on the other hand, my Ryzen 5600X was maxed out with RT reflections enabled, and RT quality set to 8 or higher. This led to performance drops when swinging around the city. So, when I had turned on per-core CPU monitoring, I noticed that when web swinging around Manhattan my CPU usage went north of 90% and my GPU usage dropped below 80%. This is a clear sign that my CPU is the main bottleneck.
 
@@ -108,9 +123,20 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 ![Jedi Survivor with the RTSS Performance overlay.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/these-are-the-only-pc-game-performance-stats-i-monitor-here-s-why-008.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Since I have 32GB of RAM, this isn’t an important stat for me personally. However, if you’ve got a gaming PC with 16GB of memory or less, this stat can show when the game you’re playing is using too much of your system RAM.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  Real-Time and Average Frame Rate
 
@@ -118,11 +144,15 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Star Wars Jedi: Survivor with the RTSS performance overlay and real-time and average FPS marked in red.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/these-are-the-only-pc-game-performance-stats-i-monitor-here-s-why-009.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The average frame rate is not that helpful, especially in the example above where the game runs at unlimited frame rates in the menus, resulting in a crazy high average fps value, but I like having it just because.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ##  Frame Time Graph
 
  Lastly, we’ve got the frame time graph. This is a super important in-game stat to monitor, especially since more and more PC games seem to display frame pacing issues.
@@ -131,48 +161,23 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Jedi Survivor with unlocked frame rate and the RTSS performance overlay.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/these-are-the-only-pc-game-performance-stats-i-monitor-here-s-why-010.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If you lock your fps to 60, as I did below, your frame time graph should be completely flat. This is a perfect-case scenario that happens only if you lock the frame rate or have a PC powerful enough to always run the game at the maximum refresh rate of your monitor.
 
 ![Jedi Survivor with its frame rate locked to 60fps.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/these-are-the-only-pc-game-performance-stats-i-monitor-here-s-why-011.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
  What you don’t want to see is the example below. Those massive spikes on the frame time graph represent traversal stuttering that plagues _Jedi Survivor_. The graph below shows the moment when Cal goes from the main settlement in Koboh to the wilderness, with the game loading the next portion of the level in the background, resulting in quite noticeable traversal stuttering.
 
 ![Traversal stutters in Jedi Survivor shown on the frame time graph.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/these-are-the-only-pc-game-performance-stats-i-monitor-here-s-why-012.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
  The frame time graph is helpful in situations like these; when you notice that your game is stuttery, but your performance metrics show high average frame rates and high CPU and GPU usage.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Picking the Right Stat Monitor Tool
 
  In-game performance stats monitoring is a great way to not only optimize in-game settings depending on the performance you’re after, but also to identify CPU and GPU bottlenecks, check whether your GPU has enough memory to run the game with max textures, and investigate why your game runs poorly or unevenly, and why it feels stuttery even though the average frame rate is high.
@@ -185,8 +190,6 @@ Key features:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -194,4 +197,18 @@ Key features:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-step-into-vr-wonderland-youtubes-finest-vr-content-list/"><u>[Updated] 2024 Approved Step Into VR Wonderland YouTube's Finest VR Content List</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-fascination-on-screen-top-6-engaging-video-categories/"><u>2024 Approved Fascination on Screen Top 6 Engaging Video Categories</u></a></li>
+<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-era-of-commerce-could-a-friendly-face-be-among-us/"><u>A New Era of Commerce: Could a Friendly Face Be Among Us?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/breakdown-of-features-in-the-latest-microsoft-surface-laptop-setting-new-standards/"><u>Breakdown of Features in the Latest Microsoft Surface Laptop - Setting New Standards</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-razer-portals-web-connectivity-best-wireless-laptop-for-gamers/"><u>Evaluating the Razer Portal's Web Connectivity: Best Wireless Laptop for Gamers</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/forgotten-the-voicemail-password-of-vivo-t2-pro-5g-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Vivo T2 Pro 5G? Try These Fixes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/innovative-chargeless-illumination-evaluating-the-robustness-of-romers-rechargeable-lantern/"><u>Innovative Chargeless Illumination: Evaluating the Robustness of Romer's Rechargeable Lantern</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/prime-capture-device-your-ally-in-youtube-ventures-for-2024/"><u>Prime Capture Device Your Ally in YouTube Ventures for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-perfect-blend-of-style-and-convenience-a-detailed-look-at-swagtrons-chic-and-swift-swagger-electric-scooter-for-urban-travelers/"><u>The Perfect Blend of Style and Convenience: A Detailed Look at Swagtron's Chic and Swift Swagger Electric Scooter for Urban Travelers</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-t2-5g-by-fonelab-android-recover-video/"><u>The way to get back lost videos from T2 5G</u></a></li>
+</ul></div>
 

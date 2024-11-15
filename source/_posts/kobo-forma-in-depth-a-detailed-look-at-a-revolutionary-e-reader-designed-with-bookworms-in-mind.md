@@ -1,7 +1,7 @@
 ---
 title: "Kobo Forma In Depth: A Detailed Look at a Revolutionary E-Reader Designed with Bookworms in Mind"
-date: 2024-10-31T18:52:16.043Z
-updated: 2024-11-04T18:50:51.386Z
+date: 2024-11-10T16:17:42.547Z
+updated: 2024-11-15T17:02:32.137Z
 categories:
   - BestProducts
 description: "This Article Describes Kobo Forma In Depth: A Detailed Look at a Revolutionary E-Reader Designed with Bookworms in Mind"
@@ -41,16 +41,16 @@ Lifewire / Jordan Oloman
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Netgear Powerline PL1200
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/rYExgRawgStvNWLyEyCyiiEqyOI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_HeroSquare-d40232740fc34cdbb9b7197a7bda177d.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jordan Oloman
 
@@ -76,14 +76,14 @@ Lifewire / Jordan Oloman
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/pTY-hBlPDWY0Ns6j4BVyAl75U-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_04-cd509045b4a3477fab85fdf3c69cacb4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jordan Oloman
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Sharp edges and frustration**
 
@@ -99,14 +99,14 @@ Lifewire / Jordan Oloman
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LMrQEcpONDZxLUfoMW6U8sX4dQw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_02-a8557f722ac84f29b6efb2a763d22a3c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jordan Oloman
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Delightfully quick and efficient**
 
@@ -121,13 +121,6 @@ Lifewire / Jordan Oloman
  The only unfortunate thing to note is that the Ethernet cables supplied in the box are tiny, and will not stretch very far. We’d go so far as to say that you should purchase longer Ethernet cables in advance. It seems short-sighted to offer the promise of an expanded network without the cables that are long enough to enable it. We ended up swapping them out with some we had laying around the house.
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LvSmrJJnFItVzQEAPCzBexfSn2M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_03-8fb5af44f82449b49fc780fd23bcb2af.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Jordan Oloman
 
@@ -161,6 +154,19 @@ Lifewire / Jordan Oloman
 
  The Netgear Powerline 1200 is incredibly reliable, albeit poorly designed. It is obstructive in the design department, fairly ugly to look at and comes with just one connection and awfully short Ethernet cables. Yet it has a true plug and play setup process with no compromises, and offers a reliable upgrade to your home network speeds. If you can look past the strange design choices this is the perfect introductory kit for Powerline beginners that does everything you need it to.
 
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Powerline PL1200
@@ -185,18 +191,14 @@ Lifewire / Jordan Oloman
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/updated-ideal-editing-tools-best-phones-options-for-gopro-videos/"><u>[Updated] Ideal Editing Tools Best Phones' Options for GoPro Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-webm-transformation-from-tweeted-visuals/"><u>[Updated] In 2024, WebM Transformation From Tweeted Visuals</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1-top-5-free-video-editing-software-of-2024-best-choices-for-creators/"><u>1. Top 5 Free Video Editing Software of 2024: Best Choices for Creators</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-sovereigns-youtubes-number-one-tens-for-2024/"><u>Cyber Sovereigns YouTube’s Number One Tens for 2024</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/decoding-the-cause-of-prolonged-charging-for-googles-pixel-6-smartphone/"><u>Decoding the Cause of Prolonged Charging for Google’s Pixel 6 Smartphone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-logitech-c615-webcam-striking-a-perfect-blend-of-price-and-quality/"><u>Evaluating the Logitech C615 Webcam: Striking a Perfect Blend of Price and Quality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fun-filled-family-adventure-our-in-depth-review-of-plants-vs-zombies-battle-for-neighborville/"><u>Fun-Filled Family Adventure! Our In-Depth Review of Plants Vs. Zombies: Battle for Neighborville</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-lava-blaze-2-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Lava Blaze 2 to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-moto-g-play-impressive-endurance-and-satisfactory-speed/"><u>In-Depth Analysis of Moto G Play: Impressive Endurance & Satisfactory Speed</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/soaring-past-competitors-mastering-drone-racing-and-best-fpv-drones/"><u>Soaring Past Competitors Mastering Drone Racing and Best FPV Drones</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tiny-titans-of-tech-an-in-depth-analysis-of-the-razer-book-13/"><u>Tiny Titans of Tech: An In-Depth Analysis of the Razer Book 13</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlocking-potential-an-in-depth-look-at-the-affordable-and-capable-google-pixel-4a-5g/"><u>Unlocking Potential: An In-Depth Look at the Affordable and Capable Google Pixel 4a 5G</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-excellence-of-the-asus-ax600-rt-ax88u-your-go-to-wi-fi-customername/"><u>Unveiling the Excellence of the Asus AX6#00 RT-AX88U: Your Go-To Wi-Fi # Customer_name!</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-optibackup-insider-opinions/"><u>[New] In 2024, OptiBackup Insider Opinions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/gotrax-gxl-v2-e-scooter-the-perfect-blend-for-speed-and-city-commuting-reviews/"><u>Gotrax GXL V2 E-Scooter: The Perfect Blend for Speed and City Commuting Reviews</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-does-chatgpt-utilize-interactions-with-users-for-learning/"><u>How Does ChatGPT Utilize Interactions with Users for Learning?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-tecno-spark-10-4g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on Tecno Spark 10 4G</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/in-depth-analysis-and-review-of-the-corsair-dominator-platinum-rgb-ddr5-6400-c38-kit-with-2x16gb-memory-sticks/"><u>In-Depth Analysis & Review of the Corsair Dominator Platinum RGB DDR5-6400 C38 Kit with 2X16GB Memory Sticks</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/monthly-income-on-youtubes-revenue-model-in-2024/"><u>Monthly Income on YouTube's Revenue Model, In 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/moto-g-plus-motorola-reviewed-admirable-execution-power-and-acceptable-battery-life-enhanced-by-a-precise-stylus/"><u>Moto G Plus (Motorola) Reviewed: Admirable Execution Power and Acceptable Battery Life Enhanced by a Precise Stylus</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pros-and-cons-of-amazon-fire-vs-samsung-which-one-fits-your-needs/"><u>Pros & Cons of Amazon Fire Vs. Samsung - Which One Fits Your Needs?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-aeiusy-solar-power-solution-review-of-the-perfect-inverter-for-fragile-healthcare-equipment/"><u>Top-Rated Aeiusy Solar Power Solution: Review of the Perfect Inverter for Fragile Healthcare Equipment</u></a></li>
 </ul></div>
 

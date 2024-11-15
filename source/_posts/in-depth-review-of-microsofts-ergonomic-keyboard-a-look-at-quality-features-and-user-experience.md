@@ -1,7 +1,7 @@
 ---
 title: In-Depth Review of Microsoft's Ergonomic Keyboard - A Look at Quality, Features, and User Experience
-date: 2024-11-01T09:25:02.129Z
-updated: 2024-11-04T21:27:26.603Z
+date: 2024-11-13T16:34:28.062Z
+updated: 2024-11-15T16:03:43.829Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Review of Microsoft's Ergonomic Keyboard - A Look at Quality, Features, and User Experience
@@ -47,10 +47,10 @@ Lifewire / Emily Isaacs
 4.4
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Microsoft Sculpt Ergonomic Keyboard
@@ -84,10 +84,10 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
@@ -98,22 +98,29 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
@@ -142,13 +149,6 @@ Lifewire / Emily Isaacs
 [Microsoft Surface Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-surface-ergonomic-keyboard-review-4780282)
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -192,21 +192,24 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-discovering-underrated-gems-this-year-films/"><u>[Updated] Discovering Underrated Gems This Year (Films)</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-elevate-video-production-quality-by-integrating-luts-in-your-obs-setup/"><u>[Updated] In 2024, Elevate Video Production Quality by Integrating LUTs in Your OBS Setup</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-struggling-youtuber-to-industry-leader-the-hub-of-creator-studios-wisdom/"><u>[Updated] In 2024, From Struggling Youtuber to Industry Leader The Hub of Creator Studio's Wisdom</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-revolutionizing-movie-magic-with-the-4k-31mu97-b-from-lg/"><u>[Updated] Revolutionizing Movie Magic with the 4K 31MU97-B From LG</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-streamlining-access-to-subscriber-information/"><u>2024 Approved Streamlining Access to Subscriber Information</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-premier-pc-companies-of-2/"><u>Discover the Premier PC Companies of 2</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-how-the-corsair-one-pro-reignites-creativity-in-efficient-pc-gaming/"><u>Expert Review: How the Corsair One Pro Reignites Creativity in Efficient PC Gaming</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/from-standard-to-superior-upgrading-from-home-to-pro-win11/"><u>From Standard to Superior: Upgrading From Home to Pro Win11</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-pictures-from-nubia-red-magic-9-pro-by-fonelab-android-recover-pictures/"><u>How to recover deleted pictures from Nubia Red Magic 9 Pro.</u></a></li>
-<li><a href="https://driver-install.techidaily.com/how-to-update-and-reinstall-astro-drivers-on-windows/"><u>How to Update and Reinstall Astro Drivers on Windows</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-the-journey-to-origin-how-to-utilize-reverse-image-functionality-on-instagram/"><u>In 2024, The Journey to Origin How to Utilize Reverse Image Functionality on Instagram</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/protecting-wallets-and-homes-expert-insight-into-the-best-remobell-doorbells-under-100/"><u>Protecting Wallets and Homes: Expert Insight Into the Best RemoBell Doorbells Under $100</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/six-must-have-antivirus-programs-to-enhance-security-on-your-iphone/"><u>Six Must-Have Antivirus Programs to Enhance Security on Your iPhone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-best-rated-high-capacity-battery-for-travelers-and-professionals-with-the-unicharger-maxprotect-design/"><u>The Best Rated High Capacity Battery for Travelers and Professionals with the UniCharger MaxProtect Design.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/whats-lacking-in-your-new-samsung-galaxy-tab-a-2020-an-essential-review/"><u>What's Lacking in Your New Samsung Galaxy Tab A (2020)? An Essential Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-the-xiaomi-mi-smart-band-4-is-a-game-changer-in-budget-fitness-tracking-a-detailed-review/"><u>Why the Xiaomi Mi Smart Band 4 Is a Game Changer in Budget Fitness Tracking – A Detailed Review</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-streamlining-post-editing-the-art-of-vimeos-final-screens/"><u>[New] In 2024, Streamlining Post-Editing The Art of Vimeo's Final Screens</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-premium-no-cost-vectors-and-graphic-hubs-roundup/"><u>[New] Premium No-Cost Vectors & Graphic Hubs Roundup</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/yans-wealth-wonders-a-kids-fortune-in-the-streaming-space-for-2024/"><u>[New] Ryan’s Wealth Wonders A Kid's Fortune in the Streaming Space for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-personal-narratives-for-online-connection-and-growth/"><u>[Updated] 2024 Approved Personal Narratives for Online Connection and Growth</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-pixel-perfect-fun-unveiling-the-secrets-of-snapchats-filters/"><u>[Updated] 2024 Approved Pixel Perfect Fun Unveiling the Secrets of Snapchat's Filters</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-mastering-alias-update-on-google-meet-devices-for-2024/"><u>[Updated] Mastering Alias Update on Google Meet Devices for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-lamicall-tablet-support-reviews-prioritizing-practicality-and-convenience/"><u>Comprehensive Lamicall Tablet Support Reviews: Prioritizing Practicality and Convenience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/crucial-aspects-to-weigh-when-investing-in-a-dash-camera/"><u>Crucial Aspects to Weigh When Investing in a Dash Camera</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/decoding-cyberpunk-nk2077s-legacy-a-potent-idea-with-a-rocky-launch-experience/"><u>Decoding Cyberpunk Nk2077's Legacy: A Potent Idea with a Rocky Launch Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-anker-powercoreplus-26800-charge-station-kit-a-modern-marvel-in-portability/"><u>In-Depth Analysis of the Anker PowerCore+ 26800 Charge Station Kit - A Modern Marvel in Portability</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-hurdles-with-windows-1011s-missing-search-output/"><u>Overcoming Hurdles with Windows 10/11'S Missing Search Output</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-featherlight-laptop-contender-unveiling-lenovo-thinkpad-x1-nano/"><u>Review of the Featherlight Laptop Contender: Unveiling Lenovo ThinkPad X1 Nano</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/setting-up-your-first-zoom-call-on-android-for-2024/"><u>Setting Up Your First Zoom Call on Android for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-understanding-the-power-behind-the-luxury-samsung-galaxy-s10-unleashed/"><u>The Ultimate Guide to Understanding the Power Behind the Luxury: Samsung Galaxy S10 Unleashed</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/top-ten-skype-capture-devices-reviewed-for-2024/"><u>Top Ten Skype Capture Devices Reviewed for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/troubleshooting-windows-update-issues-for-essential-security-patch-installation/"><u>Troubleshooting Windows Update Issues for Essential Security Patch Installation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/understanding-the-real-value-of-subscribing-to-spotify/"><u>Understanding the Real Value of Subscribing to Spotify</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unmissable-benq-offers-during-prime-day-high-quality-monitors-and-projectors/"><u>Unmissable BenQ Offers During Prime Day - High-Quality Monitors & Projectors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-samsung-un65ru80txfa-a-review-of-its-smart-features-on-a-luxurious-display-unit/"><u>Unveiling the Samsung UN65RU80TXFA: A Review of Its Smart Features on a Luxurious Display Unit</u></a></li>
 </ul></div>
 

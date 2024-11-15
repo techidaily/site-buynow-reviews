@@ -1,7 +1,7 @@
 ---
 title: Why Nintendo's Decision Against Integrating Generative AI Into Their Games Is Beneficial
-date: 2024-08-31T14:53:52.958Z
-updated: 2024-09-01T14:53:52.958Z
+date: 2024-11-08T16:22:02.307Z
+updated: 2024-11-15T16:15:47.075Z
 tags:
   - games
   - tv
@@ -20,6 +20,13 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 * [Generative AI Is Expensive](https://facebook-video-files.techidaily.com/updated-fb-sounds-unlimited-grab-and-go/)
 * [It’s Good to See a Big Company Standing Its Ground](https://on-screen-recording.techidaily.com/updated-which-should-you-use-obs-studio-or-bandicam-for-2024/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Nintendo won't use generative AI, primarily due to copyright concerns.
@@ -29,8 +36,12 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
  AI-adjacent technologies are nothing new in video games. Enemies dubbed "artificial intelligence" have existed in games as old as _Space Invaders_ and _Pac-Man_, but because of generative AI, it's now a matter of contention for game developers. Nintendo, for one, won't be jumping on the AI bandwagon just yet.
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Generative AI Raises Serious Ethical Concerns
 
  Nintendo president Shuntaro Furukawa explained in a [shareholder Q&A](https://www.tweaktown.com/news/99109/nintendo-wont-use-generative-ai-in-its-first-party-games/index.html) that the company won't use generative AI because of potential copyright issues: "Generative AI, which is becoming a big topic recently, can be used in creative ways, but we recognize that it may also raise issues with intellectual property rights." Because of how generative AI learns, [vast amounts of (potentially copyrighted) data](https://youtube-docs.techidaily.com/approved-mastering-timeliness-using-current-events-to-your-advantage/) has been used to understand, recognize, and recreate common patterns.
@@ -41,9 +52,6 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Nintendo Switch console with green and pink JoyCon controllers.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/nintendo_switch_green_pink.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 Tim Brookes / How-To Geek
 
  Another ethical concern over the use of generative AI is the fact that it's potentially taking away jobs from real people. The video game industry has seen massive layoffs over the last few years, which resulted in [over 20,000 people](https://www.eurogamer.net/games-industry-layoffs-surpass-10000-for-2024-so-far) losing their livelihoods in 2023 and 2024 due to the post-pandemic slowdown, high-profile mergers and acquisitions, and rising video game development costs.
@@ -61,9 +69,12 @@ Tim Brookes / How-To Geek
 ![A ChatGPT AI tutor robot helping a boy.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/a-chatgpt-ai-tutor-robot-helping-a-boy.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
   
 Lucas Gouveia / How-To Geek | [Stock-Asso](https://www.shutterstock.com/en/image-photo/innovative-ai-robot-tutor-helping-teenage-2271198751) / Shutterstock
 
@@ -75,9 +86,6 @@ Lucas Gouveia / How-To Geek | [Stock-Asso](https://www.shutterstock.com/en/image
 
  To be fair to generative AI, the technology is still in its infancy, so it'll only get better over time. Machine learning algorithms help developers make more realistic graphics, environments, and physics. Additionally, clever AI in enemies can make combat more immersive—think of NPCs running for cover when a shootout starts or drivers avoiding collisions to stay in the race.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ##  Generative AI Is Expensive
 
  While generative AI has the potential to cut down on costs and the time it takes to develop a game significantly, the current situation tells us otherwise. [LLMs](https://extra-support.techidaily.com/2024-approved-picture-perfect-presentation-software-for-impeccable-photo-framing/) need a ton of processing power provided by powerful hardware. Moreover, developers have to adapt and train the LLM to suit their needs, so it takes a lot of money and human work before an AI model can be effectively used in a game.
@@ -86,17 +94,17 @@ Lucas Gouveia / How-To Geek | [Stock-Asso](https://www.shutterstock.com/en/image
 
 ![An AI chip with a video game controller above it.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/an-ai-chip-with-a-video-game-controller-above-it.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lucas Gouveia / How-To Geek | Best Buy
 
  Even though generative AI can assist game development in major ways and potentially reduce labor costs, it's unlikely to reduce video game development costs. According to a [Bain & Company report](https://www.bain.com/about/media-center/press-releases/2023/generative-ai-will-contribute-to-more-than-half-of-video-game-development-within-next-5-to-10-years-finds-bain--company), only 20% of gaming executives believe that generative AI will reduce development costs.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  It’s Good to See a Big Company Standing Its Ground
 
  Nintendo isn't a perfect video game company by any measure, but it's good to see a company worth [$63 billion](https://companiesmarketcap.com/nintendo/marketcap/) say "no" to the generative AI craze. If Nintendo keeps up the good work, retains its reputation among gamers, and sees a market cap increase, its reliance on traditional human talent can have a significant influence on the whole video game industry.
@@ -109,8 +117,6 @@ Lucas Gouveia / How-To Geek | Best Buy
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -118,4 +124,26 @@ Lucas Gouveia / How-To Geek | Best Buy
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-boost-professional-look-adding-borders-to-instagram-content-for-2024/"><u>[New] Boost Professional Look Adding Borders to Instagram Content for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-the-compre-written-documentation-and-examples-for-recording-sims-4-games-in-a-way-that-is-clear-concise-and-easy-to-understand-with-each-new-title-c/"><u>[Updated] The Compre Written Documentation and Examples for Recording Sims 4 Games in a Way that Is Clear, Concise, and Easy to Understand, with Each New Title Conveying Similar Meanings While Adhering to the Maximum Character Limit of 156 Characters</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-sons-of-midgard-unite-epic-release/"><u>2024 Approved Sons of Midgard Unite! Epic Release</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/apples-recent-accessory-releases-brimming-with-charm-spotted-this-week-insights-from-zdnet-news/"><u>Apple's Recent Accessory Releases Brimming with Charm - Spotted This Week | Insights From ZDNET News</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-and-durable-fellowes-microban-wireless-keyboard-comprehensive-review/"><u>Budget-Friendly & Durable: Fellowes Microban Wireless Keyboard Comprehensive Review</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/o-perfection-premier-android-editing-software/"><u>Cut to Perfection Premier Android Editing Software</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exciting-fortnite-chapter-update-unboxing-the-thrills-of-a-fresh-season/"><u>Exciting Fortnite Chapter Update: Unboxing the Thrills of a Fresh Season</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-durability-and-features-that-keep-me-fond-of-the-huawei-p30-pro/"><u>Exploring the Durability and Features That Keep Me Fond of the Huawei P30 Pro</u></a></li>
+<li><a href="https://win11.techidaily.com/fixing-no-signs-on-screen-when-booting-windows/"><u>Fixing No Signs on Screen When Booting Windows</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/gemini-15-and-its-innovative-leap-a-closer-look-at-handling-one-million-token-contexts-for-enhanced-understanding/"><u>Gemini 1.5 and Its Innovative Leap: A Closer Look at Handling One Million Token Contexts for Enhanced Understanding</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/ideal-film-equipment-for-novice-cinematographers-35mm-to-pands/"><u>Ideal Film Equipment for Novice Cinematographers (35Mm to P&S)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-samsung-55-inch-ru7300-a-cut-above-with-its-4k-and-smart-features-in-depth-review/"><u>Is the Samsung 55-Inch RU7300 a Cut Above with Its 4K and Smart Features? In-Depth Review!</u></a></li>
+<li><a href="https://win-answers.techidaily.com/master-tips-eliminating-crashes-in-risk-of-rain-2-a-comprehensive-guide/"><u>Master Tips: Eliminating Crashes in Risk of Rain 2 – A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/premium-performance-analyzed-the-microsoft-surface-studio-2-examined/"><u>Premium Performance Analyzed: The Microsoft Surface Studio 2 Examined</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsungs-latest-gem-a-comprehensive-look-at-the-chromebook-2-for-ultimate-productivity-on-the-go/"><u>Samsung's Latest Gem - A Comprehensive Look at the Chromebook 2 for Ultimate Productivity On-the-Go</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/seamless-movements-and-reliable-connections-discover-the-power-of-sabrents-premium-travel-mouse/"><u>Seamless Movements and Reliable Connections - Discover the Power of Sabrent's Premium Travel Mouse</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-to-selecting-the-perfect-phone-case/"><u>The Ultimate Guide to Selecting the Perfect Phone Case</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-convenience-reduced-size-the-all-in-one-review-of-amazons-echo-dot-3rd-gen/"><u>Ultimate Convenience, Reduced Size: The All-in-One Review of Amazon's Echo Dot (3Rd Gen).</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-premier-tech-giants-of-computing/"><u>Unveiling the Premier Tech Giants of Computing</u></a></li>
+</ul></div>
 

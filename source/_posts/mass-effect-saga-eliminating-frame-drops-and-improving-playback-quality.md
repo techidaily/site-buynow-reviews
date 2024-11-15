@@ -1,7 +1,7 @@
 ---
 title: Mass Effect Saga - Eliminating Frame Drops and Improving Playback Quality
-date: 2024-11-01T20:40:23.008Z
-updated: 2024-11-05T02:04:12.081Z
+date: 2024-11-13T16:39:49.582Z
+updated: 2024-11-15T17:04:18.294Z
 tags:
   - win11
   - win10
@@ -63,10 +63,10 @@ thumbnail: https://thmb.techidaily.com/d021ea19d35ef3673abfe0bc9bdff457eb34791e5
 3. Click the**Update** button next to the flagged video card to automatically download the correct version of their driver (you can do this with the**FREE** version). Then install it in your computer.  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Or click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click**Update All** ).  
@@ -76,13 +76,6 @@ thumbnail: https://thmb.techidaily.com/d021ea19d35ef3673abfe0bc9bdff457eb34791e5
 Open Word of Warcraft and see if the crashing issue has been resolved.
 
  If WOW keeps crashing, don’t worry. There is something else to try.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 3: Run Scan and Repair for your game
 
@@ -95,16 +88,29 @@ Open Word of Warcraft and see if the crashing issue has been resolved.
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b8fa6fe36d60.jpg)
 4. Click**Begin Scan** , and follow the on-screen instructions to finish. It may take a while.  
 
-![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b8fa7275b199.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
+![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b8fa7275b199.jpg)
+
 Once finish, restart your game and see if it works properly.
+
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 4: Disable DVR app in Xbox
 
@@ -117,16 +123,23 @@ Here’s what you can do:
 1. Search**Xbox** from the search box on your desktop, and click**Xbox** to open it.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bd6b3940d874.jpg)
 2. You’ll need to log into your Microsoft account if it’s the first time you open it. If that’s the case, enter your Microsoft account to log in.
+
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3. Click the**Gear** button on the left to open**Settings** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bd6b3bdbf4aa.jpg)
 4. Click the**Game DVR** tab, and turn it**off** .  
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bd6b3e5954b9.png)
 5. Restart your computer and open World of Warcraft to see if it stops crashing.
@@ -140,15 +153,21 @@ Here’s what you can do:
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b8fab18ae4d5.jpg)
 3. Click**Game DVR** on the left, and make sure to turn off**Record** **in the background while I’m playing a game** .  
 
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bd6b4223cc30.jpg)
 4. Restart your computer and launch World of Warcraft and see if it works.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  INFORMATION: If you don’t use Xbox in your computer, try uninstalling Xbox application to run your game properly.
 
@@ -172,24 +191,24 @@ Here’s what you can do:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-essential-audio-enhancement-apps-for-youtubers-videos/"><u>[Updated] In 2024, Essential Audio Enhancement Apps for YouTubers' Videos</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-unlocking-obs-studios-full-creative-potential-with-top-methods/"><u>[Updated] In 2024, Unlocking OBS Studio's Full Creative Potential with Top Methods</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/11-best-free-ais-enhancing-email-structure-and-content/"><u>11 Best Free AIs Enhancing Email Structure and Content</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2023s-leading-smart-speakers-ranked-for-ultimate-home-integration/"><u>2023'S Leading Smart Speakers Ranked for Ultimate Home Integration</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/apple-tv-4k-vs-roku-ultra/"><u>Apple TV 4K vs Roku Ultra</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-amazonbasics-hdtv-antenna-guide-and-reviews-accessing-free-over-the-air-channels/"><u>Budget-Friendly AmazonBasics HDTV Antenna Guide & Reviews: Accessing Free Over-the-Air Channels</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-hydrophobic-cameras-for-young-explorers/"><u>Budget-Friendly Hydrophobic Cameras for Young Explorers</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/direct-to-digital-webcam-capture-through-vlc-media-player/"><u>Direct-to-Digital Webcam Capture Through VLC Media Player</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-convenience-a-closer-look-at-mods-newly-launched-sidecar-easy-e-bike-feature/"><u>Discover the Convenience: A Closer Look at Mod's Newly Launched Sidecar Easy E-Bike Feature</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fitbit-charge-3-a-comprehensive-review-for-health-enthusiasts-seeking-value/"><u>Fitbit Charge 3: A Comprehensive Review for Health Enthusiasts Seeking Value</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-xiaomi-redmi-note-12t-pro-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Xiaomi Redmi Note 12T Pro to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/hp-omnibook-x-assessment-enhanced-performance-with-a-16-hour-battery-life/"><u>HP OmniBook X Assessment: Enhanced Performance with a 16-Hour Battery Life</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-locked-apple-id-on-apple-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, How to Fix Locked Apple ID on Apple iPhone 11 Pro Max</u></a></li>
-<li><a href="https://sound-optimizing.techidaily.com/new-2024-approved-discovering-the-most-advanced-online-tools-for-mp3-file-tagging-and-categorization/"><u>New 2024 Approved Discovering the Most Advanced Online Tools for MP3 File Tagging and Categorization</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/step-by-step-guide-viewing-your-website-online-prior-to-publishing/"><u>Step-by-Step Guide: Viewing Your Website Online Prior to Publishing</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/things-you-should-know-when-unlocking-total-wireless-of-apple-iphone-12-pro-max-by-drfone-ios/"><u>Things You Should Know When Unlocking Total Wireless Of Apple iPhone 12 Pro Max</u></a></li>
-<li><a href="https://fox-that.techidaily.com/top-6-persistent-problems-with-iphone-13-and-effective-solutions-for-each-issue/"><u>Top 6 Persistent Problems with iPhone 13 & Effective Solutions for Each Issue</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-vpn-providers-ranked-a-comprehensive-guide/"><u>Top Rated VPN Providers Ranked : A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-most-competitive-smartphone-contracts-industry-rankings-and-reviews/"><u>Unveiling the Most Competitive Smartphone Contracts : Industry Rankings and Reviews</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-gamers-guide-to-high-quality-in-game-broadcasts/"><u>[Updated] 2024 Approved Gamers' Guide to High-Quality In-Game Broadcasts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-optimize-your-online-presence-youtube-to-dailymotion-video-migration/"><u>[Updated] Optimize Your Online Presence YouTube to Dailymotion Video Migration</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/crafting-quick-edits-in-photoshop-using-the-freeze-mask-feature/"><u>Crafting Quick Edits in Photoshop Using the Freeze Mask Feature</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-unveiling-the-features-of-ankers-compact-and-chic-powercore-plus26800-battery-pack-duo/"><u>Expert Review: Unveiling the Features of Anker's Compact and Chic PowerCore +26800 Battery Pack Duo</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-apple-id-from-iphone-se-2020-without-password-by-drfone-ios/"><u>How to Remove Apple ID from iPhone SE (2020) without Password?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-xiaomi-13-ultra-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Xiaomi 13 Ultra Phone? Unlock It Now</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/kobo-clara-hd-unveiled-a-perfect-travel-buddy-for-avid-readers-detailed-review-inside/"><u>Kobo Clara HD Unveiled: A Perfect Travel Buddy for Avid Readers - Detailed Review Inside!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/logitech-g-pro-x-review-game-on-a-new-level-with-surround-sound/"><u>Logitech G Pro X Review: Game on a New Level with Surround Sound</u></a></li>
+<li><a href="https://win11.techidaily.com/overcoming-windows-login-block-after-failure/"><u>Overcoming Windows Login Block After Failure</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/scrutinizing-nw-ws623s-unique-design-traits/"><u>Scrutinizing NW-WS623's Unique Design Traits</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sonys-dsc-w800-blending-robustness-and-reasonable-pricing-across-markets/"><u>Sony's DSC-W800: Blending Robustness & Reasonable Pricing Across Markets</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/sound-sleuths-unite-free-beats-tracking-tools-for-2024/"><u>Sound Sleuths Unite! Free Beats-Tracking Tools for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/top-6-drawbacks-of-the-new-apple-vision-pro-could-these-flaws-stop-you/"><u>Top 6 Drawbacks of the New Apple Vision Pro - Could These Flaws Stop You?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-deal-roundup-acers-must-have-discounts-for-the-2024-prime-shopping-event/"><u>Ultimate Deal Roundup: Acer's Must-Have Discounts for the 2024 Prime Shopping Event</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/uncovering-the-features-that-make-lamicall-tablet-stands-highly-practical/"><u>Uncovering the Features that Make Lamicall Tablet Stands Highly Practical</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-infinix-smart-7-hd-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Infinix Smart 7 HD Phones</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Motorola Edge+ (2023) | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-11-zoom-correction-for-error-1132/"><u>Windows 11 Zoom Correction for Error 1132</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/z7-masterclass-nikons-pinnacle-in-mirrorless-photography/"><u>Z7 Masterclass: Nikon's Pinnacle in Mirrorless Photography</u></a></li>
 </ul></div>
 

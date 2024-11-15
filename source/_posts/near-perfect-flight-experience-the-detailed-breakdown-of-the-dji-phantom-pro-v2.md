@@ -1,7 +1,7 @@
 ---
 title: "Near-Perfect Flight Experience: The Detailed Breakdown of the DJI Phantom Pro V2"
-date: 2024-10-29T18:46:04.900Z
-updated: 2024-11-05T00:45:27.070Z
+date: 2024-11-12T16:58:25.105Z
+updated: 2024-11-15T16:54:43.066Z
 categories:
   - BestProducts
 description: "This Article Describes Near-Perfect Flight Experience: The Detailed Breakdown of the DJI Phantom Pro V2"
@@ -42,16 +42,22 @@ Lifewire / Bill Thomas
 
 3.4
 
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Netgear C3700 Cable Modem Router
 
 ![Netgear C3700](https://www.lifewire.com/thmb/CWSAqFXf9klr-Fs5mU-YkCpwF9Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-5-1-668cca140a8e4c1ba59c13f4f2a8d8ec.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Bill Thomas
 
@@ -77,6 +83,13 @@ Lifewire / Bill Thomas
 
  We got our hands on the Netgear C3700 for testing and put it through the wringer to see whether or not it’s worth your cash, and what kind of performance you can expect.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Small and inconspicuous
 
  With a device that packs[both a cable modem and a wireless router](https://www.lifewire.com/best-cable-modem-router-combos-to-buy-4082541) , you might expect the Netgear C3700 to be a bulky device, but that’s not the case. It’s actually quite small, measuring just 7.6 inches high and weighing a scant 0.77 pounds. This, combined with the low-key black finish and lack of external antennas means that it won’t stick out, no matter where you put it.
@@ -89,29 +102,9 @@ Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/sNdotwRQaaANrcOOFjoNRrlmeak=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-3-24f328c303ef44929cc9f49334ac5fb8.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/zfaMhW3pqkYXVuVTQM9Swnx9cQk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-5-a204a239cbd549c9b5949b2536b49ff8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
@@ -124,13 +117,6 @@ Lifewire / Bill Thomas
  Once everything is set up, you can go through the online management portal to change wireless settings. This is an optional step since the wireless network works right out of the box using the information printed on the side of the modem.
 
  We weren’t impressed with the wireless performance, but the wired performance surprised us.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Connectivity: Everything a small home needs
 
@@ -151,10 +137,10 @@ Lifewire / Bill Thomas
 ![Netgear C3700](https://www.lifewire.com/thmb/lPF7EXzNUljkXFySwthTmhwRbiY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-6-1c4a748dd9b644c39d8bd8c47180c74f.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
@@ -184,10 +170,24 @@ Lifewire / Bill Thomas
  **A solid modem, but the poor wireless performance undermines its appeal as a combo device.**
  The cable modem’s performance is great, but the wireless performance is just not there. If all you want is the cheapest possible modem with built-in dual-band Wi-Fi, then the Netgear C3700 checks those boxes. But we think you’re better off spending more for better performance or just buying two standalone devices.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Motorola MG7700](https://www.lifewire.com/motorola-mg7700-review-4589346)
 * [Netgear Nighthawk C7000](https://www.lifewire.com/netgear-nighthawk-c7000-review-4686068)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -224,24 +224,20 @@ Lifewire / Bill Thomas
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-how-to-survive-and-thrive-on-the-streak-frontier/"><u>[Updated] 2024 Approved How to Survive and Thrive on the Streak Frontier</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-synchronizing-melodies-with-inshot-clips/"><u>[Updated] 2024 Approved Synchronizing Melodies with InShot Clips</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-comprehensive-guide-to-capturing-lol-showdowns/"><u>[Updated] Comprehensive Guide to Capturing LOL Showdowns</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-how-to-reverse-youtube-video-in-creative-ways-for-2024/"><u>[Updated] How to Reverse YouTube Video in Creative Ways for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-the-complete-blueprint-for-screen-capture-excellence-with-adobe-captivity/"><u>[Updated] In 2024, The Complete Blueprint for Screen Capture Excellence with Adobe Captivity</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/a-comprehensive-guide-to-chatgpt-enterprise-understanding-its-offerings-and-differentiators/"><u>A Comprehensive Guide to ChatGPT Enterprise: Understanding Its Offerings and Differentiators</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/bose-qc30-review-silence-vs-user-experience/"><u>Bose QC30 Review: Silence Vs. User Experience</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/bypassing-system-error-5-on-your-pc-effective-strategies-for-all-generations-of-windows-operating-systems/"><u>Bypassing System Error 5 on Your PC: Effective Strategies for All Generations of Windows Operating Systems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-gimp-the-premier-free-cross-platform-photo-editing-tool/"><u>Comprehensive Analysis of GIMP - The Premier FREE Cross-Platform Photo Editing Tool</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-battery-powered-google-nest-doorbell-analysis/"><u>Comprehensive Battery Powered Google Nest Doorbell Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-champion-of-value-a-comprehensive-guide-to-fellowes-microban-wireless-keyboard/"><u>Discover the Champion of Value: A Comprehensive Guide to Fellowes Microban Wireless Keyboard</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/essential-tips-for-efficiently-finding-variance-with-excel-spreadsheets/"><u>Essential Tips for Efficiently Finding Variance with Excel Spreadsheets</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-the-eufy-t8200-video-doorbell-changes-home-security-without-subscriptions/"><u>How the Eufy T8200 Video Doorbell Changes Home Security Without Subscriptions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-amazon-fire-hd-10-kids-edition-and-its-exceptional-safety-settings/"><u>In-Depth Analysis: Amazon Fire HD 10 Kids Edition and Its Exceptional Safety Settings</u></a></li>
-<li><a href="https://driver-error.techidaily.com/resolved-bsod-in-windows-unfair-irql/"><u>Resolved BSOD in Windows: Unfair IRQL</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/roadwise-insight-assessing-the-capabilities-of-the-anker-roav-dashcam-c1-model/"><u>Roadwise Insight: Assessing the Capabilities of the Anker Roav DashCam C1 Model</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-amplifi-hd-say-goodbye-to-unreliable-wi-fi-with-superior-mesh-networking/"><u>The Ultimate Guide to Amplifi HD: Say Goodbye to Unreliable Wi-Fi with Superior Mesh Networking</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-power-of-preview-on-your-mac-a-beginners-guide-to-masterful-imagery/"><u>Unlocking the Power of Preview on Your Mac: A Beginner's Guide to Masterful Imagery</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/unlocking-the-secret-strategies-of-instagram-influencers/"><u>Unlocking the Secret Strategies of Instagram Influencers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-a-visual-journey-to-crafting-a-user-friendly-subscribe-link-for-2024/"><u>[New] A Visual Journey to Crafting a User-Friendly Subscribe Link for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-10-must-watch-historical-channels-for-students/"><u>[New] In 2024, 10 Must-Watch Historical Channels for Students</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-efficiently-producing-quality-videos-on-the-latest-windows-os/"><u>[Updated] 2024 Approved Efficiently Producing Quality Videos on the Latest Windows OS</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-prime-racing-lineup-the-quintet-of-choice/"><u>[Updated] 2024 Approved Prime Racing Lineup The Quintet of Choice</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-professional-grade-8-filters-for-live-feeds/"><u>[Updated] Professional-Grade 8 Filters for Live Feeds</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/audews-handy-travel-friendly-air-compressor-evaluation-features-quality-in-a-compact-design/"><u>Audew's Handy Travel-Friendly Air Compressor Evaluation: Features Quality in a Compact Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-ipad-pro-and-macbook-pro-key-features-and-distinctions/"><u>Comparing iPad Pro and MacBook Pro: Key Features & Distinctions</u></a></li>
+<li><a href="https://fox-access.techidaily.com/explore-new-horizons-mobile-videography-beyond-periscope-for-2024/"><u>Explore New Horizons Mobile Videography Beyond Periscope for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-motorola-moto-g34-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Motorola Moto G34 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ng-started-on-youtube-broadcasts-using-obs-for-2024/"><u>Getting Started on YouTube Broadcasts Using OBS for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-samsung-galaxy-note-9-leading-the-charge-among-large-screen-smartphones/"><u>In-Depth Review of Samsung Galaxy Note 9: Leading the Charge Among Large Screen Smartphones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/oneplus-nord-n100-review/"><u>OnePlus Nord N100 Review</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-the-dilemma-a-step-by-step-guide-to-correcting-error-0x800f081f-on-net-framework-35-setup/"><u>Resolving the Dilemma: A Step-by-Step Guide to Correcting Error 0X800F081F on .NET Framework 3.5 Setup</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/taking-a-closer-look-at-the-new-generation-of-amazon-echo-show-the-portable-display-device-for-your-home/"><u>Taking a Closer Look at the New Generation of Amazon Echo Show - The Portable Display Device for Your Home</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-score-amazing-prices-on-samsung-tech-your-essential-companion-for-prime-day-shopping/"><u>Ultimate Guide to Score Amazing Prices on Samsung Tech - Your Essential Companion for Prime Day Shopping</u></a></li>
 </ul></div>
 

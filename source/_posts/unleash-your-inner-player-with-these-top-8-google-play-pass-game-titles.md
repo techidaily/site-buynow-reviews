@@ -1,7 +1,7 @@
 ---
 title: Unleash Your Inner Player with These Top 8 Google Play Pass Game Titles
-date: 2024-11-02T05:12:26.118Z
-updated: 2024-11-05T09:40:06.229Z
+date: 2024-11-12T16:10:59.932Z
+updated: 2024-11-15T16:16:40.972Z
 categories:
   - BestProducts
 description: This Article Describes Unleash Your Inner Player with These Top 8 Google Play Pass Game Titles
@@ -45,6 +45,19 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/0gXsFyigpZzsnNAEj3tIrKImB8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jonno Hill
 
 [View On Amazon $35](https://www.amazon.com/dp/B01HQ4BRIG/?tag=lifewire-onsite-prod-20&ascsubtag=4843098%7Cnd0143d72158b4d609e6ef9a213c7445e18%7CB01HQ4BRIG) [View On Walmart $33](https://www.walmart.com/ip/Antennas-Direct-ECL-Clear-Stream-Eclipse-Sure-Grip-Indoor-HDTV-Antenna/146091443?slfpid=3)
@@ -74,13 +87,6 @@ Lifewire / Jonno Hill
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: Simple and easy**
 
  The ClearStream Eclipse Antenna has the simplest setup of all the HDTV antennas I’ve tested. There is no mounting hardware, no power adapter, and nothing else to worry about. The antenna comes with a strip of adhesive that can be used to affix it directly to a wall or other preferred surface.
@@ -90,22 +96,15 @@ Lifewire / Jonno Hill
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Above average**
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Range: Fair to middling**
 
@@ -115,15 +114,34 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
@@ -163,21 +181,24 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-crafting-captivating-edu-videos-essential-techniques-and-tips-for-youtube-success/"><u>[Updated] In 2024, Crafting Captivating Edu-Videos Essential Techniques and Tips for YouTube Success</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-unfreezing-photo-booth-recordings-a-guide-to-smoother-playback/"><u>[Updated] In 2024, Unfreezing Photo Booth Recordings A Guide to Smoother Playback</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazing-results-how-clearing-my-over-ten-years-youtube-history-made-me-feel/"><u>Amazing Results: How Clearing My Over Ten Years YouTube History Made Me Feel</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/choosing-the-right-type-of-3d-printer-material-a-comprehensive-guide/"><u>Choosing the Right Type of 3D Printer Material: A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/classic-atari-the400-mini-revived-nostalgic-retro-gaming-hits-the-modern-market/"><u>Classic Atari THE400 Mini Revived: Nostalgic Retro Gaming Hits the Modern Market</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comparing-sling-orange-and-sling-blue-features-accessories-and-user-preferences/"><u>Comparing Sling Orange and Sling Blue - Features, Accessories, and User Preferences</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enhancing-retro-console-display-for-todays-hdtvs-understanding-issues-and-remedies/"><u>Enhancing Retro Console Display for Today's HDTVs: Understanding Issues & Remedies</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enjoy-unlimited-views-of-us-formula-e-racing-events-the-ultimate-guide-to-watch-them-for-free/"><u>Enjoy Unlimited Views of U.S. Formula E Racing Events - The Ultimate Guide to Watch Them for Free</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-itel-p55t-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Itel P55T | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-oneplus-12r-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For OnePlus 12R? | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-credit-card-on-your-apple-iphone-13-pro-max-apple-id-and-apple-pay-by-drfone-ios/"><u>In 2024, How to Change Credit Card on Your Apple iPhone 13 Pro Max Apple ID and Apple Pay</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/mastering-facebook-live-sharing-your-desktop-display/"><u>Mastering Facebook Live Sharing Your Desktop Display</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/overcooked-2-examined-where-culinary-skills-meet-comical-havoc/"><u>Overcooked! ˈ2 Examined - Where Culinary Skills Meet Comical Havoc</u></a></li>
-<li><a href="https://windows11.techidaily.com/remedy-for-windows-update-failure-at-error-0xca00a009/"><u>Remedy for Windows Update Failure at Error 0xCA00A009</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-embracing-retro-gaming-is-a-blast-discover-the-incredible-perks/"><u>Why Embracing Retro Gaming Is a Blast: Discover the Incredible Perks!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-unmarked-stock-a-beginners-guide-to-clear-content/"><u>[New] In 2024, Unmarked Stock A Beginner's Guide to Clear Content</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-mastering-3d-luts-complete-guide/"><u>[New] Mastering 3D LUTs Complete Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-ultimate-guide-to-reverse-playbacks-on-instavids-for-2024/"><u>[New] The Ultimate Guide to Reverse Playbacks on InstaVids for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-concluding-an-online-journey-in-a-discord-server-for-2024/"><u>[Updated] Concluding an Online Journey in a Discord Server for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-elite-e-learning-leader-labeler/"><u>[Updated] Elite E-Learning Leader Labeler</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-evaluating-itop-as-a-screen-recording-solution/"><u>[Updated] Evaluating ITop as a Screen Recording Solution?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-elite-video-streamer-software-array/"><u>2024 Approved Elite Video Streamer Software Array</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-pioneer-bdr-xd05b-blu-ray-disc-recorder-assessment-unveiling-potential-flaws/"><u>Comprehensive Pioneer BDR-XD05B Blu-Ray Disc Recorder Assessment: Unveiling Potential Flaws</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/economical-nikon-coolpix-beautiful-photos-with-usability-snags/"><u>Economical Nikon COOLPIX - Beautiful Photos with Usability Snags</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-picks-best-cell-phone-reception-amplifiers/"><u>Expert Picks: Best Cell Phone Reception Amplifiers</u></a></li>
+<li><a href="https://games-able.techidaily.com/game-pass-unveiled-what-this-means-for-xbox-gold-subscribers/"><u>Game Pass Unveiled: What This Means for Xbox Gold Subscribers</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210562032-9780593435885-guided-tarot-for-teens/"><u>Guided Tarot for Teens | Free Book</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-samsung-qn55q6f-revolutionary-hdr-technology-in-a-smart-tv/"><u>In-Depth Look at the Samsung QN55Q6F: Revolutionary HDR Technology in a Smart TV</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ipad-102-inch-7th-edition-boosting-productivity-with-the-latest-ipados-innovations/"><u>IPad 10.2-Inch, 7Th Edition – Boosting Productivity with the Latest IPadOS Innovations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ipados-transformations-for-enhanced-productivity-a-look-at-the-updated-102-inch-model/"><u>IPadOS Transformations for Enhanced Productivity: A Look at the Updated 10.2-Inch Model</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-it-worth-buying-an-in-depth-look-at-the-apple-iphone-ses-reasonable-approach-to-smartphones-in-2020/"><u>Is It Worth Buying? An In-Depth Look at The Apple iPhone SE's Reasonable Approach to Smartphones in 2020</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pro-list-best-free-video-subtitles-and-downloader/"><u>Pro List Best Free Video Subtitles & Downloader</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-style-and-listening-experience-with-the-stylish-blueear-beanie-hat-a-detailed-critique/"><u>Revolutionize Your Style & Listening Experience with the Stylish Blueear Beanie Hat - A Detailed Critique</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/seamless-home-coverage-with-the-eero-pro-mesh-router-a-thorough-review/"><u>Seamless Home Coverage with the Eero Pro Mesh Router - A Thorough Review</u></a></li>
 </ul></div>
 

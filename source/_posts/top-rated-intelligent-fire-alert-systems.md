@@ -1,7 +1,7 @@
 ---
 title: Top-Rated Intelligent Fire Alert Systems
-date: 2024-09-04T18:47:06.842Z
-updated: 2024-09-05T18:47:06.843Z
+date: 2024-11-14T16:47:46.578Z
+updated: 2024-11-15T16:12:27.592Z
 tags:
   - buying-guides
 categories:
@@ -48,6 +48,13 @@ Best Smart Smoke Detector for Google Home
 Best Smart Smoke Detector for Homekit  
 [$143 at Amazon](https://www.amazon.com/Onelink-Detector-Monoxide-First-Alert/dp/B07HYZZKRN?tag=hotoge-20&ascsubtag=UUhtgUeUpU201952&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F888457%2Fbest-smart-smoke-detectors%2F&asc%5Fcampaign=Commerce)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  What to Look for in a Smart Smoke Detector in 2024
 
  A regular smoke detector is all well and good, but there are several advantages to going smart and investing in a smoke detector that offers a little more.
@@ -71,16 +78,17 @@ Best Smart Smoke Detector for Homekit
 
  How-To Geek's product recommendations come from the same team of experts that have helped people fix their gadgets over one billion times. We only recommend the best products based on our research and expertise. We never accept payment to endorse or review a product. [Read More »](https://win-howtos.techidaily.com/resolving-unresponsive-mousepad-problems-on-windows-systems-windows-7810/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  Best Smart Smoke Detector Overall: [Google Nest Protect](https://www.amazon.com/S3000BWES-Protect-Carbon-Monoxide-Battery/dp/B00XV1RCRY?tag=hotoge-20&ascsubtag=UUhtgUeUpU201952&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F888457%2Fbest-smart-smoke-detectors%2F&asc%5Fcampaign=Commerce) 
 
 ![Person setting up google nest protect](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/05/google-nest-protect.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Google
 
 | Pros                                     | Cons                          |
@@ -101,32 +109,8 @@ Google
 
 ![google nest protect](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/google-nest-protect.png) 
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Best Smart Smoke Detector Overall
 
 #####  Google Nest Protect
@@ -165,12 +149,6 @@ X-Sense
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Best Budget Smart Smoke Detector
 
 #####  X-Sense XS01-WX Smart Smoke Detector
@@ -179,12 +157,6 @@ The X-Sense XS01-WX smart smoke detector uses a photoelectric sensor to detect s
 
 [$40 at Amazon](https://www.amazon.com/X-Sense-Replaceable-Notifications-Professional-XS01-WX/dp/B0BN32RMQH?tag=hotoge-20&ascsubtag=UUhtgUeUpU201952&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F888457%2Fbest-smart-smoke-detectors%2F&asc%5Fcampaign=Commerce) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Best Smart Smoke Detector for Alexa: [Ring Alarm Smoke & Co Listener](https://www.amazon.com/Ring-Alarm-Smoke-Co-Listener/dp/B07M93Z1NT?tag=hotoge-20&ascsubtag=UUhtgUeUpU201952&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F888457%2Fbest-smart-smoke-detectors%2F&asc%5Fcampaign=Commerce) 
 
 ![Ring Alarm Smoke & Co Listener](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/ring-alarm-smoke-co-listener.png) 
@@ -209,7 +181,21 @@ _Ring_
 
 ![Ring Alarm Smoke & Co Listener Tag](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/ring-alarm-smoke-co-listener-tag.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Best Smart Smoke Detector for Alexa
 
@@ -220,21 +206,16 @@ Upgrade your existing non-smart smoke alarm with the Ring Alarm Smoke & Co Liste
 [$35 at Amazon](https://www.amazon.com/Ring-Alarm-Smoke-Co-Listener/dp/B07M93Z1NT?tag=hotoge-20&ascsubtag=UUhtgUeUpU201952&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F888457%2Fbest-smart-smoke-detectors%2F&asc%5Fcampaign=Commerce) 
 
 <!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Best Smart Smoke Detector for Google Home: [Kidde Hardwired Smart Smoke Detector](https://www.walmart.com/ip/XCF2C3HEJM2PHNXP/1723611225) 
 
 ![Person setting up Kidde smart smoke detector](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/05/kidde-smart-smoke-detector.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Kidde
 
 | Pros                                        | Cons                          |
@@ -257,18 +238,6 @@ Kidde
 
 ![kidde dectector](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/kidde-dectector.png) 
 
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 Best Smart Smoke Detector for Google Home
@@ -282,6 +251,13 @@ Google's battery-powered Nest Protect alarm detects both smoke and carbon monoxi
 ##  Best Smart Smoke Detector for Homekit: [Onelink Smoke and Carbon Monoxide Detector](https://www.amazon.com/Onelink-Detector-Monoxide-First-Alert/dp/B07HYZZKRN?tag=hotoge-20&ascsubtag=UUhtgUeUpU201952&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F888457%2Fbest-smart-smoke-detectors%2F&asc%5Fcampaign=Commerce) 
 
 ![Online smoke detector on grey background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/05/onelink-smoke-detector.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Onelink
 
@@ -305,20 +281,15 @@ Onelink
 
 ![onelink detector](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/onelink-detector.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Best Smart Smoke Detector for Homekit
 
 #####  Onelink Smoke Detector and Carbon Monoxide Detector
@@ -328,17 +299,12 @@ Need a smart smoke detector compatible with Apple Homekit? he Onelink Smoke Dete
 [$143 at Amazon](https://www.amazon.com/Onelink-Detector-Monoxide-First-Alert/dp/B07HYZZKRN?tag=hotoge-20&ascsubtag=UUhtgUeUpU201952&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F888457%2Fbest-smart-smoke-detectors%2F&asc%5Fcampaign=Commerce) [See at Target](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.target.com%2Fp%2Ffirst%255Falert%255Fonelink%255F%2F-%2FA-78871755) 
 
 <!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## FAQ
 
 ### How many smoke detectors do I need?
@@ -349,22 +315,10 @@ Need a smart smoke detector compatible with Apple Homekit? he Onelink Smoke Dete
 
  It's a good idea to place smoke detectors in circulation areas of your home, such as landings or hallways. Consider placing a smoke alarm within 3 meters of each bedroom in the household too, to ensure they can be heard clearly if residents are asleep. 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030391/7443" target="_top" id="2030391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030391/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How often should I replace a smart smoke detector?
 
  Most smoke detectors have a lifespan of 10 years or thereabouts, and should be replaced after this time. 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Can smart smoke detectors be disabled?
 
  Battery powered smart smoke detectors can be disabled by removing the batteries and pressing and holding the test button. For hardwired smart smoke detectors, you will need to remove the smoke detector from its bracket and then disconnect the power cable. Once you have done this, pressing and holding the test button should silence the alarm.
@@ -375,8 +329,6 @@ Need a smart smoke detector compatible with Apple Homekit? he Onelink Smoke Dete
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -384,4 +336,20 @@ Need a smart smoke detector compatible with Apple Homekit? he Onelink Smoke Dete
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-synchronized-device-tutorial-for-efficient-movie-logging-for-2024/"><u>[New] Synchronized Device Tutorial for Efficient Movie Logging for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-onoff-switch-windows-11s-auto-hdr-feature/"><u>[Updated] 2024 Approved On/Off Switch Windows 11'S Auto-HDR Feature</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/best-15-tiktok-inspired-reading-picks-for-avid-readers/"><u>Best 15 TikTok-Inspired Reading Picks for Avid Readers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-hisense-40h5590f-smart-tv-comprehensive-user-reviews/"><u>Budget-Friendly Hisense 40H5590F Smart TV - Comprehensive User Reviews</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/capturing-desktop-image-on-windows-editions-for-2024/"><u>Capturing Desktop Image on Windows Editions for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-the-newest-apple-watch-series-with-gps-and-cellular-connectivity/"><u>Comparing the Newest: Apple Watch Series with GPS and Cellular Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-new-features-on-the-stylishly-retro-samsung-galaxy-watch3/"><u>Exploring the New Features on The Stylishly Retro Samsung Galaxy Watch3</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/home-office-essentials-the-comprehensive-review-of-the-fujitsu-scansnap-ix1400-scanner/"><u>Home Office Essentials: The Comprehensive Review of the Fujitsu ScanSnap iX1400 Scanner</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-oppo-find-x6-pro-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Oppo Find X6 Pro Phones? | Dr.fone</u></a></li>
+<li><a href="https://fox-making.techidaily.com/how-to-save-your-favorite-shows-from-uktv-play-as-high-quality-mp4avi-files/"><u>How to Save Your Favorite Shows From UKTV Play as High-Quality MP4/AVI Files</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sound-on-a-stick-the-affordable-trucker-focused-hearing-device-selection/"><u>Sound on a Stick: The Affordable, Trucker-Focused Hearing Device Selection</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-honor-x9a-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Honor X9a FRP Bypass</u></a></li>
+<li><a href="https://techidaily.com/video-file-repair-how-to-fix-corrupted-video-files-of-13t-by-stellar-video-repair-mobile-video-repair/"><u>Video File Repair - How to Fix Corrupted video files of 13T?</u></a></li>
+</ul></div>
 

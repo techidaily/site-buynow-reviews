@@ -1,7 +1,7 @@
 ---
 title: Top 5 Essentials for Prospective Buyers of Pre-Owned iPads
-date: 2024-11-02T09:10:59.910Z
-updated: 2024-11-04T16:25:14.808Z
+date: 2024-11-10T16:09:05.722Z
+updated: 2024-11-15T16:12:33.425Z
 categories:
   - BestProducts
 description: This Article Describes Top 5 Essentials for Prospective Buyers of Pre-Owned iPads
@@ -46,22 +46,16 @@ Lifewire / Emily Isaacs
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fellowes Microban Split Design Keyboard
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/R-TJH8gjH_22LNpYu9lLA2lDwyg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_HeroSquare-bca4a6a05ceb40108462ddaf4575d3ed.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -84,18 +78,18 @@ Lifewire / Emily Isaacs
 
  The Fellowes Microban Split Design Wired Keyboard is one of several Fellowes’ products geared towards businesses, thanks to its comfortable, ergonomic design and budget-friendly pricing. The inclusion of Microban antimicrobial protection technology, designed to prolong the life of your computer hardware by preventing damaging microbes from building up over time and causing deterioration, is an added bonus for the price. We tested this keyboard for over a week so read on to see what we discovered.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Cleaner than the rest**
 
  Ergonomic keyboards are designed to encourage natural, neutral movements that put less strain on wrists and shoulders,[preventing repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) over time. This is especially important for people who spend large portions of their day in a home or office setting tethered to their computer.
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/WPjeQmKmzof_KVFE5_fIwN92cXc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_05-24f7f07146ae45cd86d2c5bdd4791ee5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -115,16 +109,16 @@ Lifewire / Emily Isaacs
 
  Lifewire / Emily Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Features: Multimedia hotkeys for ease of use**
 
  The Fellowes features seven hotkeys for multimedia playback. These keys are located along the top of the keyboard and offer such functionality as mute, volume up, volume down, sleep, email, search, and one-touch internet access. We were disappointed that it didn’t include hotkeys for pausing, skipping forward, or skipping backward in multimedia.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: A wired connection for reliability**
 
@@ -135,13 +129,6 @@ Lifewire / Emily Isaacs
 ## **Price: A budget-friendly ergonomic keyboard**
 
  Ergonomic keyboards tend to retail anywhere from $50-$200\. The Fellowes Microban Split Wired Keyboard tends to retail for around $50, which puts this well at the budget end. Its low price point makes it a great introductory ergonomic keyboard, particularly if you’re unsure of what you want and are experimenting with different design choices.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Fellowes Microban Split Design Wired Keyboard vs. Microsoft Sculpt Ergonomic Keyboard**
 
@@ -166,6 +153,19 @@ Lifewire / Emily Isaacs
  **A great keyboard with microbial protection for office workers.**
 
  The Fellowes Microban Split Design Wired Keyboard is a good, albeit bulky, ergonomic keyboard designed to last. Its antimicrobial protection not only keeps germs, fungi, and bacteria at bay, but ensures the keyboard won’t deteriorate over time. While it may not be our first pick for home use, it’s a great choice if you’re on a budget or are an office working facing down cold and flu season.
+
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -194,24 +194,24 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-efficient-chroma-removal-in-kinemaster/"><u>[New] In 2024, Efficient Chroma Removal in KineMaster</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-the-ultimate-guide-to-organizing-fb-giveaways/"><u>[New] In 2024, The Ultimate Guide to Organizing FB Giveaways</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-yt-buzz-top-music-video-responses-and-why-they-roar/"><u>[New] In 2024, YT Buzz Top Music Video Responses & Why They Roar</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unlock-the-full-potential-of-group-video-conferencing-on-your-android-device-zoom/"><u>[New] Unlock the Full Potential of Group Video Conferencing on Your Android Device (Zoom)</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-full-reveal-on-camstudios-recording-capabilities/"><u>[Updated] In 2024, Full Reveal on CamStudio's Recording Capabilities</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-powerhouse-apple-ipad-air-2020-vs-ipad-pro-a-comparative-review/"><u>Budget-Friendly Powerhouse: Apple iPad Air (2020) Vs. IPad Pro – A Comparative Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-extollos-lansocket-1500-boasting-impressive-speed-minimal-lag-and-power-throughput-features/"><u>Comprehensive Analysis of Extollo's LANSocket 1500 - Boasting Impressive Speed, Minimal Lag & Power Throughput Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/diving-into-tech-showdown-discovering-how-ipad-pro-stands-against-microsoft-surface-pro/"><u>Diving Into Tech Showdown: Discovering How iPad Pro Stands Against Microsoft Surface Pro</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-kooteeck-cooling-pad-for-laptops-a-robust-and-versatile-choice/"><u>Evaluating Kooteeck Cooling Pad for Laptops – A Robust and Versatile Choice</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/free-communication-with-tango-in-depth-review-of-texts-audio-and-video-features/"><u>Free Communication with Tango: In-Depth Review of Texts, Audio & Video Features</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-oppo-k11-5g-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Oppo K11 5G Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-mobile-audio-enhancers-for-swift-soundplay/"><u>In 2024, Mobile Audio Enhancers for Swift Soundplay</u></a></li>
-<li><a href="https://win-blog.techidaily.com/mastering-city-skylines-2-expert-solutions-to-avoid-pc-disruptions-and-crashes/"><u>Mastering City Skylines 2 - Expert Solutions to Avoid PC Disruptions and Crashes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/spotify-plus-is-paid-access-a-smart-move/"><u>Spotify Plus: Is Paid Access a Smart Move?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-allure-of-timeless-style-with-smart-functionality-in-the-withings-move-evaluation/"><u>The Allure of Timeless Style with Smart Functionality in the Withings Move Evaluation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-for-fitbit-charge-6-smartwatch/"><u>The Ultimate Review for Fitbit Charge 6 Smartwatch</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-ranked-fitness-wearables-a-comprehensive-guide/"><u>Top-Ranked Fitness Wearables : A Comprehensive Guide</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/updated-best-video-translator-app-for-pc-cannot-miss/"><u>Updated Best Video Translator App for PC Cannot Miss</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-your-budget-deserves-an-m3-macbook-air/"><u>Why Your Budget Deserves an M3 MacBook Air</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-quick-share-of-pics-heres-how-you-do-it-right/"><u>[New] 2024 Approved Quick Share of Pics? Here's How You Do It Right</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-amplify-impact-strategies-for-growing-youtube-fans-for-2024/"><u>[New] Amplify Impact Strategies for Growing YouTube Fans for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-fb-video-to-mp3-digital-audio-extraction-guide-for-2024/"><u>[New] FB Video to MP3 Digital Audio Extraction Guide for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-luminary-pixels-masterful-lighting-secrets-unveiled/"><u>[New] Luminary Pixels Masterful Lighting Secrets Unveiled</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-intricacies-of-crafting-a-virtual-experience/"><u>[Updated] The Intricacies of Crafting a Virtual Experience</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/windows-11-108/"><u>歸零隨身碟空間：重新取得Windows 11, 10及8的硬碟分區</u></a></li>
+<li><a href="https://win11.techidaily.com/bridge-the-gap-between-avi-and-imovie-a-step-by-step-guide-to-compatible-video-formats/"><u>Bridge the Gap Between AVI and iMovie: A Step-by-Step Guide to Compatible Video Formats</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/deciphering-the-value-proposition-of-m3-macbook-air/"><u>Deciphering the Value Proposition of M3 MacBook Air</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-aesthetic-and-functionality-of-taotronics-tt-dl16-modern-led-lamp-reviewed/"><u>Evaluating the Aesthetic & Functionality of TaoTronic's TT-DL16 Modern LED Lamp - Reviewed</u></a></li>
+<li><a href="https://network-issues.techidaily.com/fixed-and-fortified-comwins-new-era/"><u>Fixed and Fortified: ComWin's New Era</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/future-proof-your-home-with-elite-robotic-tools-showcased-at-ces-2024-expert-review-on-vacuums-mops-and-automated-lawn-care-by-zdnet/"><u>Future-Proof Your Home with Elite Robotic Tools Showcased at CES 202^4 - Expert Review on Vacuums, Mops and Automated Lawn Care by ZDNET</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/galaxy-watch-active2-unveiled-a-detailed-look-at-its-superior-connectivity-and-control-options/"><u>Galaxy Watch Active2 Unveiled: A Detailed Look at Its Superior Connectivity & Control Options</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/outstanding-value-and-speed-in-depth-analysis-of-the-oneplus-6t-smartphone/"><u>Outstanding Value & Speed - In-Depth Analysis of the OnePlus 6T Smartphone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/professional-guide-replacing-your-old-graphics-chip-for-better-visuals/"><u>Professional Guide: Replacing Your Old Graphics Chip for Better Visuals</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/revolutionizing-photo-quality-with-auto-and-smart-hdr-features-for-2024/"><u>Revolutionizing Photo Quality with Auto and Smart HDR Features for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-road-warriors-guide-to-revolutionary-cars-best-reviews-and-books-for-everyone-who-loves-the-drive/"><u>The Road Warriors' Guide to Revolutionary Cars – Best Reviews and Books for Everyone Who Loves the Drive</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-selection-leading-speech-recognition-tools-for-2n24/"><u>The Ultimate Selection: Leading Speech Recognition Tools for 2N24</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-servers-and-cabinets-for-your-it-needs-the-ultimate-guide/"><u>Top-Rated Servers & Cabinets for Your IT Needs - The Ultimate Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-real-hd-video-capabilities-in-our-in-depth-logitech-c920-pro-webcam-evaluation/"><u>Unveiling Real HD Video Capabilities in Our In-Depth Logitech C920 Pro Webcam Evaluation</u></a></li>
 </ul></div>
 

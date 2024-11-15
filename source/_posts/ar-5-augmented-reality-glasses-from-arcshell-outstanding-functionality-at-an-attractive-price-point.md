@@ -1,7 +1,7 @@
 ---
 title: AR-5 Augmented Reality Glasses From ArcShell - Outstanding Functionality at an Attractive Price Point
-date: 2024-10-30T07:30:39.100Z
-updated: 2024-11-04T21:57:29.241Z
+date: 2024-11-12T16:35:45.344Z
+updated: 2024-11-15T16:58:07.375Z
 categories:
   - BestProducts
 description: This Article Describes AR-5 Augmented Reality Glasses From ArcShell - Outstanding Functionality at an Attractive Price Point
@@ -47,13 +47,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/KabMCV8f8k1Pxtd-vhM86zkedrw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-HeroSquare-41f20e9c72b84bfd92f578807ae1edaf.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jeremy Laukkonen
 
 [View On Amazon](https://www.amazon.com/Extollo-Powerline-LANSocket-1500-HomePlug/dp/B00Y3XRRI8/?tag=lifewire-onsite-prod-20&ascsubtag=4778158%7Cneae2cae292c94a2b9373551f10cd366c17%7CB00Y3XRRI8)
@@ -82,6 +75,13 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Big, bulky, and basic, with a filtered pass-through**
 
  Extollo won’t win any awards for the basic, blocky design of the LANSocket 1500 adapters. They’re big, plastic, white, and take up a lot of space. That’s somewhat mediated by the inclusion of a pass-through electrical socket, which is a really nice touch.
@@ -96,14 +96,14 @@ Lifewire / Jeremy Laukkonen
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/Ahhqweppp7LoE4s2gervkZuyOS8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-04-e086de486a5a4e16ac16cff8ae813b22.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Pain-free plug and play**
 
@@ -118,19 +118,19 @@ Lifewire / Jeremy Laukkonen
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/BvO_NJ8pdby7NqO2Fq-orJ_NbFI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-02-40358222569c4a55b4d04e7aadf01af7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: MIMO with beamforming**
@@ -140,6 +140,13 @@ Lifewire / Jeremy Laukkonen
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/B7pek1jOL0gtn-sl7QsuHcO3_CU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-03-04f860db31f049e1a2ecb40196f7aaf7.jpg)
 
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network Performance: Blazing fast and low latency**
 
@@ -168,13 +175,6 @@ Lifewire / Jeremy Laukkonen
  You can also use the sync button on each LANSocket 1500 adapter to encrypt the data that passes between them, but that prevents you from using any other HomePlug compatible adapters in your network.
 
  The embedded Linux distro does open up some security concerns, but they can be mostly erased if you connect through a firewalled router. You can find cheaper options, but the bottom line is that you won’t find a cheaper alternative that provides the same high speed, low latency, video buffering, and pass-through socket that you get with the LANSocket 1500.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Decent price for such good performance**
 
@@ -234,17 +234,22 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-sculpt-your-story-in-fb-coverspace/"><u>[New] 2024 Approved Sculpt Your Story in FB Coverspace</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-ultimate-actions-replay-analysis/"><u>[New] In 2024, Ultimate Actions Replay Analysis</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-innovative-vertical-video-editing-for-instagrams-igtv/"><u>[New] Innovative Vertical Video Editing for Instagram's IGTV</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-giggle-galore-curating-the-funniest-10-short-form-web-series-ideas/"><u>[Updated] In 2024, Giggle Galore Curating the Funniest 10 Short-Form Web Series Ideas</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-list-of-ai-named-generators-for-podcasters/"><u>[Updated] The Ultimate List of AI Named Generators for Podcasters</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-unbeatable-bike-sims-showcase/"><u>[Updated] Unbeatable Bike Sims Showcase</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-spellbinding-tones-validity-of-the-vocal-transformation-app-questioned-check-out-more/"><u>In 2024, Spellbinding Tones Validity of the Vocal Transformation App Questioned - Check Out More</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-the-powerful-hp-zbook-firefly-15-g8-workstation-notebook/"><u>In-Depth Review of the Powerful HP ZBook Firefly 15 G8 Workstation Notebook</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-power-of-galaxys-rc-ford-f-150-trucks-a-reviewers-perspective/"><u>Navigating the Power of Galaxy's RC Ford F-150 Trucks: A Reviewer’s Perspective</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/precision-in-playback-premier-cd-players-and-changers-24/"><u>Precision in Playback: Premier CD Players & Changers '24</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/razer-blade-pro-17-laptop-assessment-ultimate-mobility-meets-performance/"><u>Razer Blade Pro 17 Laptop Assessment: Ultimate Mobility Meets Performance</u></a></li>
-<li><a href="https://win11.techidaily.com/strategies-to-resuscitate-non-responsive-spotify-app-in-win11/"><u>Strategies to Resuscitate Non-Responsive Spotify App in Win11</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-techniques-for-emptying-youtubes-keep-queue/"><u>[New] 2024 Approved Techniques for Emptying YouTube's Keep Queue</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-precision-photography-leading-tripods-for-smartphones/"><u>[New] Precision Photography Leading Tripods for Smartphones</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-the-art-of-perfect-sound-recording-zooming-into-excellence-for-podcasts/"><u>[New] The Art of Perfect Sound Recording Zooming Into Excellence for Podcasts</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-maximizing-collaboration-zoom-session-setup-and-management/"><u>[Updated] Maximizing Collaboration Zoom Session Setup and Management</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-microrecorder-assessment-onscreen-snaps-for-2024/"><u>[Updated] MicroRecorder Assessment Onscreen Snaps for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-practices-for-an-immersive-streaming-experience/"><u>Best Practices for an Immersive Streaming Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/decoding-jabra-talk-45-high-definition-sound-and-enduring-battery-lifespan/"><u>Decoding Jabra Talk 45: High-Definition Sound & Enduring Battery Lifespan</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722714155382-freeze-time-on-a-shoestring-top-cameras-100/"><u>Freeze Time on a Shoestring: Top Cameras, $100!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/from-sizzle-to-burnout-a-comprehensive-review-of-the-chaos-in-overcooked/"><u>From Sizzle to Burnout: A Comprehensive Review of the Chaos in Overcooked!</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-12-to-other-iphone-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 12 to other iPhone devices? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-madden-19-superior-aspects-but-feeling-a-bit-stale/"><u>In-Depth Look at Madden 19: Superior Aspects But Feeling a Bit Stale</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/innovation-in-your-hands-the-sonic-experience-of-xperia-xz/"><u>Innovation in Your Hands The Sonic Experience of Xperia XZ</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sonys-sonic-revolution-hearing-3d/"><u>Sony's Sonic Revolution: Hearing 3D</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/starlinks-satellite-symphony-an-orchestra-of-connectivity-advantages/"><u>Starlink’s Satellite Symphony: An Orchestra of Connectivity Advantages</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-go-anywhere-tp-link-travel-router-stylish-and-powerful-wi-fi-companion/"><u>The Go-Anywhere TP-Link Travel Router: Stylish and Powerful Wi-Fi Companion</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-breakdown-of-stellaris-conquering-stars-and-civilizations/"><u>The Ultimate Breakdown of Stellaris: Conquering Stars and Civilizations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/upgrade-guide-turn-your-windows-11-home-into-pro/"><u>Upgrade Guide: Turn Your Windows 11 Home Into Pro</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Huawei MediaPad M5 Tablet Showdown: A Device Built Around Optimal Display and Audio Quality"
-date: 2024-11-03T22:22:14.653Z
-updated: 2024-11-04T18:04:13.903Z
+date: 2024-11-08T16:49:14.174Z
+updated: 2024-11-15T16:56:14.750Z
 categories:
   - BestProducts
 description: "This Article Describes Huawei MediaPad M5 Tablet Showdown: A Device Built Around Optimal Display and Audio Quality"
@@ -71,10 +71,16 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
  Though Sony panels are sometimes on the expensive end of the spectrum, there are some older Sony 4K TVs that can be had for a nice little discount. One such TV is Sony’s XBR65X850F from their X850F series. This specific model has now been replaced by the X850G, but that doesn’t mean you necessarily need to go with the most current model. In fact, snagging one of these earlier generation sets can save you some cash without forcing you to compromise too much.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Standard Sony**
@@ -82,6 +88,13 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
  The XBR65X850F's design is a combination of sleek and workmanlike. The stand on this Sony is pretty common for TVs these days, with two V-shaped feet that stick out to either side. While they look aluminum, these are actually plastic too, with merely an aluminum finish. They are decently steady, but we noticed a bit of wobble if you move the TV around. It should be plenty sturdy for most, though you will need a fairly wide stand for them to rest on since they stick out so far. There’s also no room for adjusting the unit up or down, but they’re tall enough to fit a soundbar underneath if you want. They also flip open on the top if you want to use them for some clever cable management.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/v7wi7isxu06LAoWNZK3dJ908mCk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-4-cb1a370bd78244b383c802010a570313.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -97,18 +110,18 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
  On the front of the screen, the bezels are a little thicker than some of the 4K TVs we’ve reviewed, but they’re pretty thin and shouldn’t distract. There’s your standard anti-glare coating found on the screen here too.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Stick to the on-screen instructions**
 
  Setting up pretty much any modern-day smart TV is an easy process, so just stick to the on-screen instructions and you’ll be golden. Go ahead and unpack it all, tear off that plastic film, plug in the power cable, and turn on the device.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vvIZMf3BNAr8JmiDAVdv4o3ceHg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-2-7eabd63fb6c0415ab75fd927d664a841.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -124,13 +137,6 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/r5reh9LkA7QvieX1JzBg5J8qNjY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-5-00a73edbf91c48c6aa2718ab211f2e5d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
  However, IPS panels are notoriously bad for black uniformity and backlight bleed, which can cause clouding around the edges. We found this to be the case on our XBR65X850F, and while not unusable, it’s probably not the best option for viewing in dark environments because of this. The TV does have solid gray uniformity however, with no dirty screen effect. This is a huge boon if you’re a big sports fan.
@@ -145,13 +151,20 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Audio Quality: Loud, but distorted**
@@ -173,13 +186,6 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
  Browsing through the interface, we did find it to be a bit laggy and choppy at times, which can be quite frustrating. Hopefully, this can be fixed down the line when new versions of Android TV make their way to the device.
 
  One last thing, your phone can also be used as a remote if you so choose. All you need to do is download the app and connect it to the TV. This works with both Android and iOS devices (thanks Google). While it’s not a good as the regular remote, it works fine enough if you’re too lazy to get up and find the standard remote.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Not bad for the size, but not the cheapest**
 
@@ -236,16 +242,20 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-full-review-of-razers-high-definition-webcam-for-2024/"><u>[Updated] Full Review of Razer's High Definition Webcam for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/accelerating-streamed-instagram-content-mobile-hacks/"><u>Accelerating Streamed Instagram Content Mobile Hacks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/beyond-the-limits-how-starlink-satellites-can-transform-your-life/"><u>Beyond The Limits: How Starlink Satellites Can Transform Your Life</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-photo-challenger-nikon-a10-shot-user-slammed/"><u>Budget Photo Challenger: Nikon A10 Shot, User Slammed</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722975944545-effortless-updates-how-to-download-latest-drivers-for-your-dell-monitors-today/"><u>Effortless Updates: How to Download Latest Drivers for Your Dell Monitors Today!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-unique-blend-of-baseball-and-rpg-in-mlb-the-show-19-a-review-for-gamers/"><u>Exploring the Unique Blend of Baseball and RPG in 'MLB The Show 19': A Review for Gamers</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/fix-guide-for-windows-bluetooth-headphones-with-music-only-option/"><u>Fix Guide for Windows Bluetooth Headphones with Music Only Option</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-does-the-ipad-pro-stack-up-against-the-macbook-pro-exploring-key-contrasts/"><u>How Does the iPad Pro Stack Up Against the MacBook Pro? Exploring Key Contrasts</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-x-to-pc-via-usb-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone X to PC via USB? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-unveiling-the-powerful-performance-and-intelligent-features-of-the-asus-ax6000-rt-ax88u-wi-fi-6-router/"><u>The Ultimate Review: Unveiling the Powerful Performance and Intelligent Features of the Asus AX6000 (RT-AX88U) Wi-Fi 6 Router</u></a></li>
-<li><a href="https://fox-that.techidaily.com/understanding-and-troubleshooting-phone-numbers-instead-of-names-in-messages/"><u>Understanding and Troubleshooting Phone Numbers Instead of Names in Messages</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-apple-m1-pro-versus-m1-max-unveiling-variations/"><u>[Updated] Apple M1 Pro Versus M1 Max Unveiling Variations</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-capture-and-convert-photos-into-dynamic-videos-in-pixiz/"><u>[Updated] Capture and Convert Photos Into Dynamic Videos in Pixiz</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-elevating-audio-fidelity-on-obs/"><u>2024 Approved Elevating Audio Fidelity on OBS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/can-you-trust-the-fitbit-charge-3-for-your-fitness-needs-expert-reviews-and-comparisons/"><u>Can You Trust the Fitbit Charge 3 for Your Fitness Needs? Expert Reviews & Comparisons</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-oneplus-eight-t-evaluation-a-quick-device-hindered-by-flawed-photography-features/"><u>Comprehensive OnePlus Eight T Evaluation: A Quick Device Hindered by Flawed Photography Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/endospores-can-survive-extreme-conditions-that-would-kill-the-vegetative-cell-the-active-growing-state-of-a-bacterium/"><u>Endospores Can Survive Extreme Conditions that Would Kill the Vegetative Cell (the Active Growing State of a Bacterium).</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-google-stadias-current-state-and-future-upgrades/"><u>Evaluating Google Stadia's Current State and Future Upgrades</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/forgotten-the-voicemail-password-of-nokia-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Nokia? Try These Fixes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/important-topics-on-purchasing-a-dash-cam/"><u>Important Topics on Purchasing a Dash Cam</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Vivo Y200e 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/seize-unbeatable-gaming-deals-in-october-24-last-chance-for-huge-savings-up-to-1000-exclusive-listing/"><u>Seize Unbeatable Gaming Deals in October '24: Last Chance for Huge Savings up to $1,000 Exclusive Listing</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-troubleshooting-for-the-winhttpdll-file-not-detected-problems/"><u>Step-by-Step Troubleshooting for the winhttp.dll File Not Detected Problems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/testing-the-asus-rt-ac88u-router-does-it-meet-gamer-expectations/"><u>Testing the ASUS RT-AC88U Router: Does It Meet Gamer Expectations?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-selection-best-cordless-phones-for-home-and-office-2024-edition/"><u>The Ultimate Selection: Best Cordless Phones for Home and Office - 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/timeless-gameplay-meets-contemporary-graphics-a-deep-dive-into-demons-souls-remastered-review/"><u>Timeless Gameplay Meets Contemporary Graphics: A Deep Dive Into Demon's Souls Remastered Review</u></a></li>
 </ul></div>
 

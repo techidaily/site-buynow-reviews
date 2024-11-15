@@ -1,7 +1,7 @@
 ---
 title: "Dell XPS 13 Gen 8 (7390) 2-in-1 Laptop Evaluation: Stunning & Versatile Ultralight Design"
-date: 2024-11-03T07:03:52.237Z
-updated: 2024-11-04T21:37:01.610Z
+date: 2024-11-14T17:01:20.576Z
+updated: 2024-11-15T16:45:13.397Z
 categories:
   - BestProducts
 description: "This Article Describes Dell XPS 13 Gen 8 (7390) 2-in-1 Laptop Evaluation: Stunning & Versatile Ultralight Design"
@@ -46,10 +46,10 @@ Lifewire / Andrew Hayward
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## LG Gram 15.6-inch (2018)
@@ -85,13 +85,6 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/radDS_2IRuzjTlZxUS5og2a3PIM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Top_04-b051e3660efc406ab97f92df654d3762.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 ## **Design: Amazingly light, but not wholly convincing**
@@ -118,9 +111,23 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Just follow the directions**
 
  There's little reason to worry about getting the LG Gram 15.6-inch laptop up and running quickly. It has Windows 10 pre-installed, so you'll simply follow the onscreen prompts to enter your Wi-Fi info, check for updates, select a few options, and ultimately find yourself ready to roll on the desktop. It shouldn't take more than a handful of minutes.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Display: Large and capable enough**
 
@@ -132,32 +139,13 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/TFbt9G36hk5JyrBL8cIdIuYQ66E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Keyboard_03-fd7e355ac5944f12a8107746d0afbf24.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Solid power for everyday tasks**
@@ -176,6 +164,13 @@ Lifewire / Andrew Hayward
 
  You won't see the speakers when the LG Gram is standing up as normal, but you'll hear them loud and clear. The stereo speakers are tucked underneath the laptop at the left and right edges near where your wrists rest, and thanks to the slight elevation from the rubbery feet on the bottom of the laptop, they're given enough space for the output to shine. Audio playback sounds robust and clear—not quite to the level of Apple's current MacBook Air and MacBook Pro, but very close. We were pleased with it.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Network: Connects as expected**
 
  The LG Gram had no problem connecting to a few different networks, including a home Wi-Fi network, the Google Wi-Fi network at Starbucks, and a mobile hotspot. The connection always seemed speedy and downloads ran at a steady clip. Testing it on a home Wi-Fi network during peak evening hours, we saw a download speed of about 30Mbps and an upload speed of 13Mbps. We tested the network on an iPhone XS Max immediately after and saw comparable speeds there, as well. You can connect to both 2.4Ghz and 5Ghz networks with ease.
@@ -186,13 +181,6 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery: Seriously amazing**
 
  The battery is undoubtedly one of the key highlights of the LG Gram 15.6-inch (2018) experience. This massive 72Wh cell is estimated to provide upwards of 19 hours of uptime, according to LG—but as is usually the case with[laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) , that estimate isn't reflective of typical use cases. Even so, with max brightness, the fact that we could get about half that amount still makes for a long-lasting experience.
@@ -202,10 +190,10 @@ Lifewire / Andrew Hayward
  With our typical workflow of browsing the web, chatting on Slack, typing up documents, and streaming a little bit of media, we typically saw 8-9 hours of uptime at 100% brightness.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Hello, Windows (but no Windows Hello)**
@@ -270,24 +258,24 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-enhancing-facebook-viewership-with-obs-broadcasts/"><u>[New] Enhancing Facebook Viewership with OBS Broadcasts</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-seamless-screen-capture-in-snapchat-for-beginners-and-pros/"><u>[New] In 2024, Seamless Screen Capture in Snapchat for Beginners and Pros</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-the-real-world-usability-of-photoshops-motion-reduction-for-2024/"><u>[Updated] The Real-World Usability of Photoshop’s Motion Reduction for 2024</u></a></li>
-<li><a href="https://ai-video.techidaily.com/2024-approved-step-by-step-guide-how-to-translate-tiktok-videos/"><u>2024 Approved Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-nokia-c02-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Nokia C02 | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/common-solutions-for-players-facing-issues-with-the-elder-scrolls-online-startup/"><u>Common Solutions for Players Facing Issues with The Elder Scrolls Online Startup</u></a></li>
-<li><a href="https://win-updates.techidaily.com/deciphering-and-deleting-fake-apple-safety-notifications-with-expert-tips-from-malwarefox/"><u>Deciphering and Deleting Fake Apple Safety Notifications with Expert Tips From MalwareFox</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-efficiency-and-resilience-in-the-charge-time-of-jabra-talk-25-microphone/"><u>Discover Efficiency and Resilience in the Charge Time of Jabra Talk 25 Microphone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-8-most-engaging-and-fun-mobile-games-available-today/"><u>Discover the 8 Most Engaging and Fun Mobile Games Available Today</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dive-into-reading-waters-with-the-kobo-libra-h2o-review-the-ultimate-waterproof-e-reader/"><u>Dive Into Reading Waters with the Kobo Libra H2O Review: The Ultimate Waterproof E-Reader</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-advice-on-where-to-place-your-ps4-camera-for-the-best-experience/"><u>Expert Advice on Where to Place Your PS4 Camera for the Best Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-fujitsu-scansnap-ix1600-a-revolutionary-approach-to-high-quality-desk-scanning/"><u>Expert Analysis of the Fujitsu ScanSnap iX1600: A Revolutionary Approach to High-Quality Desk Scanning</u></a></li>
-<li><a href="https://facebook.techidaily.com/interactive-timelines-for-greater-user-retention-on-fb/"><u>Interactive Timelines for Greater User Retention on FB</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-cellular-reception-enhancers-reviewed-2024s-ultimate-selection/"><u>Leading Cellular Reception Enhancers Reviewed - 2024'S Ultimate Selection</u></a></li>
-<li><a href="https://extra-information.techidaily.com/mastering-digital-conversion-old-photos-to-video/"><u>Mastering Digital Conversion Old Photos to Video</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revamped-ratchet-and-clank-experience-an-in-depth-game-review/"><u>Revamped Ratchet & Clank Experience: An In-Depth Game Review</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/ultimate-list-of-free-mkv-to-mp4-conversion-software-compatible-with-windows-and-macos/"><u>Ultimate List of Free MKV-to-MP4 Conversion Software Compatible with Windows & macOS</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-brilliance-of-android-with-a-comprehensive-google-pixel-3-review/"><u>Unveiling the Brilliance of Android with a Comprehensive Google Pixel 3 Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-brilliance-of-global-flight-simulation-in-x-plane-11-with-stunning-visual-fidelity/"><u>Unveiling the Brilliance of Global Flight Simulation in X-Plane 11 with Stunning Visual Fidelity</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-inspiration-on-a-plate-top-20-instagram-food-photos/"><u>[New] 2024 Approved Inspiration on a Plate Top 20 Instagram Food Photos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-comprehensive-techniques-for-iphones-in-virtual-space-for-2024/"><u>[New] Comprehensive Techniques for iPhones in Virtual Space for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-excellent-screen-capture-apps-for-linux-enthusiasts-for-2024/"><u>[New] Excellent Screen Capture Apps for Linux Enthusiasts for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-dodgingdullnessaftermycam/"><u>[New] In 2024, DodgingDullnessAfterMyCam</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-the-ultimate-screencast-blueprint-tools-and-techniques-mastery/"><u>[Updated] 2024 Approved The Ultimate Screencast Blueprint Tools & Techniques Mastery</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/chatgpt-plus-is-it-a-must-have-top-5-benefits-of-joining-now/"><u>ChatGPT Plus: Is It a Must-Have? Top 5 Benefits of Joining Now</u></a></li>
+<li><a href="https://win-able.techidaily.com/clearing-up-visual-glitches-a-comprehensive-guide-to-fixing-directdraw-failures/"><u>Clearing Up Visual Glitches: A Comprehensive Guide to Fixing DirectDraw Failures</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/error-free-pc-tackling-missing-or-unavailable-mfc42ddll-problems-today/"><u>Error-Free PC: Tackling Missing or Unavailable mfc42d.dll Problems Today</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-take-on-fujitsu-scansnap-ix1400-perfect-for-boosting-productivity-in-small-scale-operations/"><u>Expert Take on Fujitsu ScanSnap iX1400: Perfect for Boosting Productivity in Small-Scale Operations</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-vivo-s18-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Vivo S18 to iPad | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-streamline-conferencing-top-tactics-using-zoom-coder/"><u>In 2024, Streamline Conferencing Top Tactics Using Zoom Coder</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-stanley-j5c09-powerful-and-spacious/"><u>In-Depth Analysis of the Stanley J5C09: Powerful and Spacious</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovos-latest-innovation-the-thinkpad-x1-titanium-yoga-reviewed-perfect-2-in-1-solution-for-the-most-dedicated-thinkpad-adherents/"><u>Lenovo's Latest Innovation - The ThinkPad X1 Titanium Yoga Reviewed: Perfect 2-in-1 Solution for the Most Dedicated ThinkPad Adherents</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/simplify-mealtime-using-the-arf-automated-pet-dish-convenience-at-paws-reach/"><u>Simplify Mealtime Using the Arf Automated Pet Dish – Convenience at Paw's Reach!</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/slow-fade-to-action/"><u>Slow Fade to Action</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-10-best-games-for-steam-deck/"><u>The 10 Best Games for Steam Deck</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-cat-s42-phone-reviewed-sturdy-armor-yet-lagging-speed-dynamics/"><u>The Cat S4^2 Phone Reviewed: Sturdy Armor, Yet Lagging Speed Dynamics</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-complete-guide-to-wonder-workshop-dash-a-revolutionary-to-go-robot-ready-for-adventure/"><u>The Complete Guide to Wonder Workshop Dash - A Revolutionary To-Go Robot Ready for Adventure</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-powerful-artistry-in-apples-215-inch-4k-imac-style-meets-strength/"><u>Unveiling the Powerful Artistry in Apple's 21.5-Inch 4K iMac: Style Meets Strength</u></a></li>
 </ul></div>
 

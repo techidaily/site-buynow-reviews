@@ -1,7 +1,7 @@
 ---
 title: Graphics Card Considerations
-date: 2024-09-04T18:47:07.642Z
-updated: 2024-09-05T18:47:07.642Z
+date: 2024-11-11T16:20:31.706Z
+updated: 2024-11-15T17:00:02.113Z
 tags:
   - buying-guides
 categories:
@@ -99,26 +99,15 @@ LG
 
 ![lg-c3-small-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/lg-c3-small-1.png) 
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Best Gaming TV Overall
 
 #####  LG C3 OLED
@@ -129,12 +118,6 @@ The LG C3 is loaded with gaming-related features that make it ideal for making t
 
 [$1397 at Amazon](https://www.amazon.com/dp/B0BVXF72HV?tag=hotoge-20&ascsubtag=UUhtgUeUpU208970&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749603%2Fbest-gaming-tvs%2F&asc%5Fcampaign=Commerce) [See at B&H Photo Video](https://www.bhphotovideo.com/c/product/1757497-REG/lg%5Foled55c3pua%5Fc3%5F55%5F4k%5Fhdr.html/BI/22163/KBID/28708/SID/UUhtgUeUpU208970) [See at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Flg-55-class-c3-series-oled-4k-uhd-smart-webos-tv%2F6535933.p) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Best Budget Gaming TV: [Hisense U7K](https://www.amazon.com/dp/B0C6XRRNM7/?tag=hotoge-20&ascsubtag=UUhtgUeUpU208970&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749603%2Fbest-gaming-tvs%2F&asc%5Fcampaign=Commerce) 
 
 ![hisense u7k](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/hisense-u7k.jpg) 
@@ -160,12 +143,6 @@ Hisense
 
 ![hisense u7k](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/hisense-u7k-small.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 Best Budget Gaming TV
@@ -177,17 +154,12 @@ The Hisense U7K punches above its weight class by offering a 144Hz display, Mini
 [See at Amazon](https://www.amazon.com/dp/B0C6XRRNM7/?tag=hotoge-20&ascsubtag=UUhtgUeUpU208970&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749603%2Fbest-gaming-tvs%2F&asc%5Fcampaign=Commerce) 
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Best TV for PC Gaming: [LG C3](https://www.amazon.com/dp/B0BVXK9N6X/?tag=hotoge-20&ascsubtag=UUhtgUeUpU208970&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749603%2Fbest-gaming-tvs%2F&asc%5Fcampaign=Commerce) 
 
 ![lg c3](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/lg_c3_pc.jpg) 
@@ -208,20 +180,15 @@ LG
 
 ![lg-c3-small-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/lg-c3-small-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024347/7443" target="_top" id="2024347">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024347/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Best TV for PC Gaming
 
 #####  LG C3 OLED
@@ -232,18 +199,6 @@ The LG C3 shines as your gaming PC companion. It has no trouble working with AMD
 
 [$1397 at Amazon](https://www.amazon.com/dp/B0BVXF72HV?tag=hotoge-20&ascsubtag=UUhtgUeUpU208970&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749603%2Fbest-gaming-tvs%2F&asc%5Fcampaign=Commerce) [See at B&H Photo Video](https://www.bhphotovideo.com/c/product/1757497-REG/lg%5Foled55c3pua%5Fc3%5F55%5F4k%5Fhdr.html/BI/22163/KBID/28708/SID/UUhtgUeUpU208970) [See at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Flg-55-class-c3-series-oled-4k-uhd-smart-webos-tv%2F6535933.p) 
 
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Best TV for PS5 and Xbox Series X: [Sony A95L](https://www.amazon.com/dp/B0BYPT328K/?tag=hotoge-20&ascsubtag=UUhtgUeUpU208970&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749603%2Fbest-gaming-tvs%2F&asc%5Fcampaign=Commerce) 
 
 ![sony a95l](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/sony-a95l.jpg) 
@@ -283,18 +238,6 @@ The Sony A95L is an impressive 4K TV that supports all the features of PS5 and X
 
 ![samsung qn90c](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/samsung-qn90c.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Samsung
 
 | Pros                                    | Cons            |
@@ -316,7 +259,21 @@ Samsung
 
 ![samsung qn90c](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/samsung-qn90c.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Best LED TV for Gaming
 
@@ -331,11 +288,12 @@ The QN90C is a fantastic gaming TV as it supports 4K 120Hz gaming, has VRR suppo
 ![samsung qn900c 8k tv](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/samsung-qn900c-8k-tv.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Samsung
 
 | Pros                                | Cons                       |
@@ -356,12 +314,6 @@ Samsung
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Best 8K TV for Gaming
 
 #####  Samsung QN900C
@@ -372,36 +324,32 @@ Samsung’s QN900C shines as an 8K gaming TV. It has a native 144Hz refresh rate
 
 ## FAQ
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### What is better for gaming, a monitor or a TV?
 
  Both monitors and TVs have positives and negatives when it comes to gaming. While the refresh rates on some monitors can [reach up to 360Hz](https://instagram-video-recordings.techidaily.com/updated-2024-approved-how-to-upside-down-your-instagram-videos-complete-manual/) (500Hz ones are coming), only select high-end TVs have [a 144Hz or 120Hz refresh rate](https://printer-issues.techidaily.com/speedy-release-from-print-lineup/). But it's cheaper to get 4K resolution on a large screen via a TV compared to a monitor. On the other hand, monitors typically have a better port selection and are more ergonomic.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Can you connect a PC to a TV for gaming?
 
  You can connect a PC to your TV for gaming if both have HDMI ports. Otherwise, you'll need an adapter to convert the video signal from your PC to match the available ports on your TV.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Which type of HDMI port is best for gaming on a TV?
 
  If you have [HDMI ports](https://extra-lessons.techidaily.com/new-color-space-comparison-srgb-vs-rgb/) with different capabilities on your TV, such as [HDMI 2.1](https://screen-mirror.techidaily.com/apple-iphone-12-pro-screen-mirroring-you-must-know-drfone-by-drfone-ios/) and HDMI 2.0 or HDMI 2.0 and HDMI 1.4, then it's ideal to use the newer generation port, which is represented by the higher number. But if you aren't sure about a port's generation, consult the TV manual or specifications for help.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Do I need VRR for my gaming TV?
 
 [Variable refresh rate](https://instagram-videos.techidaily.com/new-2024-approved-quick-guide-sharing-igtv-in-the-world-of-insta-stories/) or VRR support helps TVs avoid [screen tearing](https://tech-haven.techidaily.com/unpacking-the-preloaded-features-of-chatgpt-functions-and-implementation-tips/), which can impact your gaming experience. So VRR is a helpful feature to have on your TV. But you can game without VRR. You'll just have to deal with screen tearing, which can vary from mild annoyance to a big distraction.
@@ -412,8 +360,6 @@ Samsung’s QN900C shines as an 8K gaming TV. It has a native 144Hz refresh rate
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -421,4 +367,17 @@ Samsung’s QN900C shines as an 8K gaming TV. It has a native 144Hz refresh rate
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-explore-6-alternative-platforms-for-high-quality-youtube-graphics/"><u>[New] 2024 Approved Explore 6 Alternative Platforms for High-Quality YouTube Graphics</u></a></li>
+<li><a href="https://article-helps.techidaily.com/balancing-ambient-sound-on-windowsos-x-machines-for-2024/"><u>Balancing Ambient Sound on Windows/OS X Machines for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-google-pixel-6-featuring-cutting-edge-camera-tech/"><u>Comprehensive Analysis of the Google Pixel 6 - Featuring Cutting-Edge Camera Tech</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-mix-fold-3-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Xiaomi Mix Fold 3 Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On OnePlus Ace 3? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/nvidias-revolutionary-approach-to-faster-video-rendering-using-cuda-and-nvenc-for-superior-gpu-acceleration/"><u>NVIDIA's Revolutionary Approach to Faster Video Rendering Using CUDA and NVENC for Superior GPU Acceleration</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sturdy-design-and-peak-performance-in-the-430ex-iii-rt-flash/"><u>Sturdy Design & Peak Performance in the 430EX III-RT Flash</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-guide-to-memorable-anime-opens-for-2024/"><u>The Ultimate Guide to Memorable Anime Opens for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-truecallers-capabilities-thorough-examination-and-insights-from-our-review-process/"><u>Unveiling TrueCaller's Capabilities: Thorough Examination & Insights From Our Review Process</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/your-pathway-to-ios-15-enlightenment/"><u>Your Pathway to iOS 15 Enlightenment</u></a></li>
+</ul></div>
 

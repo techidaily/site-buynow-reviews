@@ -1,7 +1,7 @@
 ---
 title: Essential Guide to Microsoft Sculpt Keyboard - Superior Value Unveiled
-date: 2024-10-29T22:33:59.541Z
-updated: 2024-11-04T22:44:31.425Z
+date: 2024-11-09T16:39:45.296Z
+updated: 2024-11-15T16:54:53.329Z
 categories:
   - BestProducts
 description: This Article Describes Essential Guide to Microsoft Sculpt Keyboard - Superior Value Unveiled
@@ -50,6 +50,19 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Emily Isaacs
 
 [View On Walmart $138](https://www.walmart.com/ip/Microsoft-Sculpt-Ergonomic-Desktop-Black-Wireless-USB-Keyboard-Keypad-and-Mouse/31390902?slfpid=3) [View On Best Buy $66](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F1818024.p) [View On Newegg.com $169](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.newegg.com%2Fmicrosoft-sculpt-ergonomic-desktop-l5v-00001-usb-rf-wireless%2Fp%2FN82E16823109349%3Fitem%3D9SIA24G28N0197%26slfpid%3D3)
@@ -84,29 +97,22 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
@@ -116,6 +122,19 @@ Lifewire / Emily Isaacs
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
@@ -123,6 +142,13 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
@@ -136,19 +162,6 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  The Surface is a high-end keyboard, but that quality comes at a higher price. The Surface tends to retail for around $129, much more than the Sculpt which retails for around $80\. That said, it’s an upgrade in almost every way. If you’re on a budget, the Sculpt is a great option, but if you’re able to splurge, the Surface is our top pick for wireless ergonomic keyboards.
@@ -160,13 +173,6 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -198,22 +204,24 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-guide-to-producing-effective-youtube-promo-videos/"><u>[New] 2024 Approved Guide to Producing Effective YouTube Promo Videos</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-tips-and-hacks-for-using-instagram-filters-effectively/"><u>[New] In 2024, Tips & Hacks for Using Instagram Filters Effectively</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-your-step-by-step-path-to-a-top-facebook-music-video/"><u>[New] Your Step-by-Step Path to a Top Facebook Music Video</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-unveiling-the-secrets-to-professional-youtube-content-creation/"><u>[Updated] Unveiling the Secrets to Professional YouTube Content Creation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/driving-smart-with-sound-the-economical-truckers-wireless-earpiece-guide/"><u>Driving Smart with Sound: The Economical Truckers' Wireless Earpiece Guide</u></a></li>
-<li><a href="https://common-error.techidaily.com/failed-to-initialize-battleye-service-generic-error-fixed/"><u>Failed to Initialize BattlEye Service: Generic Error [FIXED]</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Lava Blaze 2 5G? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-x-plane-11-review-a-cutting-edge-global-flight-experience-with-stunning-graphics/"><u>In-Depth X-Plane 11 Review: A Cutting-Edge Global Flight Experience with Stunning Graphics</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/j5-tactical-v1-pro-flashlight-assessment-unbeatable-durability-and-miniature-design/"><u>J5 Tactical V1-Pro Flashlight Assessment: Unbeatable Durability & Miniature Design</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/marvels-avengers-critique-striving-for-greatness-with-some-shortcomings/"><u>Marvel's Avengers Critique: Striving for Greatness with Some Shortcomings</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-skies-with-dji-mavic-2-pro-the-elite-choice-amongst-professionals/"><u>Mastering Skies with DJI Mavic 2 Pro - The Elite Choice Amongst Professionals</u></a></li>
-<li><a href="https://fox-tips.techidaily.com/schneller-einrichten-windows-11-mit-mbr-installieren/"><u>Schneller Einrichten: Windows 11 Mit MBR Installieren</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tech-meets-fashion-discovering-the-best-smart-glasses-trends-for-202-cuffs/"><u>Tech Meets Fashion: Discovering the Best Smart Glasses Trends for 202 Cuffs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-top-contender-in-ultrabooks-a-close-up-review-of-microsoft-surface-laptop-4/"><u>The Top Contender in Ultrabooks: A Close-Up Review of Microsoft Surface Laptop 4</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-verdict-on-lgs-basic-budget-49-inch-4k-um730aster-tv-performance-test-and-value-insights/"><u>The Ultimate Verdict on LG's Basic Budget 49-Inch 4K UM730aster TV - Performance Test & Value Insights</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/transform-your-footage-a-step-by-step-guide-to-ken-burns-effect-in-final-cut-pro-for-2024/"><u>Transform Your Footage A Step-by-Step Guide to Ken Burns Effect in Final Cut Pro for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/uhd-precision-converter-clearer-sharper-visuals-for-2024/"><u>UHD Precision Converter Clearer, Sharper Visuals for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-professional-shooters-guide-to-stability/"><u>[New] 2024 Approved Professional Shooters' Guide to Stability</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-exclusive-free-mcb-visual-tools/"><u>[New] In 2024, Exclusive Free MCB Visual Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-hero5-users-blueprint-for-incredible-time-lapse-videos/"><u>[Updated] In 2024, The Hero5 User's Blueprint for Incredible Time-Lapse Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsches-neugier-uber-10-grusse-ohne-hallo/"><u>Deutsches Neugier: Über 10 Grüße Ohne 'Hallo'</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dissecting-the-merit-of-applecare-plus-extended-plan/"><u>Dissecting the Merit of AppleCare Plus Extended Plan</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/driving-into-the-future-mercedes-voice-and-chatgpt-fusion/"><u>Driving Into the Future: Mercedes Voice & ChatGPT Fusion</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/empires-at-stake-in-depth-offworld-trading-company-analysis-mastering-ruthless-trade-strategies/"><u>Empires at Stake: In-Depth Offworld Trading Company Analysis - Mastering Ruthless Trade Strategies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-picks-for-the-ultimate-mesh-wireless-systems-of-2024/"><u>Expert Picks for the Ultimate Mesh Wireless Systems of 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-xiaomi-redmi-note-12-pro-5g-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Xiaomi Redmi Note 12 Pro 5G to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-beat-the-bounds-of-voice-modification-the-leading-chrome-apps-unveiled/"><u>In 2024, Beat the Bounds of Voice Modification The Leading Chrome Apps Unveiled</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/is-the-decline-in-zooms-performance-on-your-end/"><u>Is the Decline in Zoom's Performance on Your End?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-your-tablet-experience-the-pros-and-cons-of-samsung-galaxy-tab-s6-including-s-pen-and-dex-functionality/"><u>Mastering Your Tablet Experience: The Pros and Cons of Samsung Galaxy Tab S6, Including S Pen & DeX Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-future-with-apple-tv-4ks-smart-features-and-unmatched-clarity-an-insightful-2021-analysis/"><u>Navigating the Future with Apple TV 4K's Smart Features & Unmatched Clarity - An Insightful 2021 Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/open-source-triumphs-a-detailed-look-at-the-linksys-wrt1900acs-router-capabilities/"><u>Open Source Triumphs: A Detailed Look at the Linksys WRT1900ACS Router Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/performance-vs-price-an-in-depth-look-at-the-logitech-c615-video-camera/"><u>Performance vs Price: An In-Depth Look at the Logitech C615 Video Camera</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/professional-tips-for-blurring-your-backdrop-during-google-meet-sessions/"><u>Professional Tips for Blurring Your Backdrop During Google Meet Sessions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-creativity-a-review-of-makeblocks-mbot-robotic-kit-for-aspiring-diy-engineers/"><u>Unleashing Creativity: A Review of Makeblock’s mBot Robotic Kit for Aspiring DIY Engineers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-powerhouse-tri-band-connectivity-with-the-netgear-nighthawk-x6-ac3200-router-for-high-speed-internet-experience/"><u>Unveiling the Powerhouse - Tri-Band Connectivity with the Netgear Nighthawk X6 AC3200 Router for High-Speed Internet Experience</u></a></li>
+<li><a href="https://change-location.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Samsung Galaxy S23+? | Dr.fone</u></a></li>
 </ul></div>
 

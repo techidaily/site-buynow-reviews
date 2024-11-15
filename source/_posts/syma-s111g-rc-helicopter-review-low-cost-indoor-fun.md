@@ -1,7 +1,7 @@
 ---
 title: "Syma S111G RC Helicopter Review: Low-Cost Indoor Fun"
-date: 2024-11-02T03:43:26.852Z
-updated: 2024-11-05T06:18:27.224Z
+date: 2024-11-11T16:47:04.609Z
+updated: 2024-11-15T17:00:54.356Z
 categories:
   - BestProducts
 description: "This Article Describes Syma S111G RC Helicopter Review: Low-Cost Indoor Fun"
@@ -46,9 +46,23 @@ Lifewire / Emily Isaacs
 
 4.4
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -84,6 +98,13 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
@@ -95,10 +116,10 @@ Lifewire / Emily Isaacs
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
@@ -109,25 +130,11 @@ Lifewire / Emily Isaacs
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -142,13 +149,6 @@ Lifewire / Emily Isaacs
 [Microsoft Surface Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-surface-ergonomic-keyboard-review-4780282)
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -192,18 +192,24 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-is-optimal-hdr-with-aurora-worth-it/"><u>[New] Is Optimal HDR with Aurora Worth It?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/avigating-youtube-cards-and-tags-for-2024/"><u>[New] Navigating YouTube Cards and Tags for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-the-no-trouble-way-to-start-iphones-screen-snapshots-for-2024/"><u>[New] The No-Trouble Way to Start iPhone's Screen Snapshots for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-essential-strategies-for-effective-use-of-luts-in-video-edits/"><u>[Updated] In 2024, Essential Strategies for Effective Use of LUTs in Video Edits</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-unlocking-the-potential-of-discord-streams/"><u>[Updated] In 2024, Unlocking the Potential of Discord Streams</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/5-most-effective-methods-to-unlock-iphone-x-in-lost-mode-drfone-by-drfone-ios/"><u>5 Most Effective Methods to Unlock iPhone X in Lost Mode | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Poco M6 5G? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-anker-30-usb-hub-analysis-unmatched-connectivity-and-performance/"><u>Comprehensive Anker 3.0 USB Hub Analysis: Unmatched Connectivity & Performance</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/how-to-stop-unwanted-blank-page-issues-on-epson/"><u>How to Stop Unwanted Blank Page Issues on Epson</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/nixplays-innovative-frames-a-comprehensive-review/"><u>Nixplay's Innovative Frames: A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/score-great-bargains-on-streaming-technology-get-your-hands-on-affordable-roku-units-now/"><u>Score Great Bargains on Streaming Technology - Get Your Hands on Affordable Roku Units Now!</u></a></li>
-<li><a href="https://windows11.techidaily.com/ultimate-bundle-premier-cost-free-windows-11-assistants/"><u>Ultimate Bundle: Premier Cost-Free Windows 11 Assistants</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-list-of-premium-sketching-pad-displays-for-2pressive-results-2024-edition/"><u>Ultimate List of Premium Sketching Pad Displays for 2Pressive Results, 2024 Edition</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-step-by-step-screen-recording-snapshots-on-mobile/"><u>2024 Approved Step-by-Step Screen Recording Snapshots on Mobile</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/alexa-and-google-assistant-face-off-discovering-which-fits-your-needs-better/"><u>Alexa and Google Assistant Face-Off: Discovering Which Fits Your Needs Better</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-test-of-the-havit-gaming-laptop-chiller-a-5-fan-system-for-optimal-performance-and-temperature-control/"><u>Comprehensive Test of the HAVIT Gaming Laptop Chiller: A 5-Fan System for Optimal Performance and Temperature Control</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/decoding-photoscapes-capabilities-insights-into-an-accessible-budget-friendly-image-editor/"><u>Decoding PhotoScape's Capabilities: Insights Into an Accessible, Budget-Friendly Image Editor</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/ensuring-compliance-key-points-for-successful-legal-email-marketing-campaigns-with-massmail/"><u>Ensuring Compliance: Key Points for Successful Legal Email Marketing Campaigns with MassMail</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-the-fusion-stylish-appeal-with-clear-music-from-teac-pd-301/"><u>Explore the Fusion: Stylish Appeal with Clear Music From Teac PD-301</u></a></li>
+<li><a href="https://article-tips.techidaily.com/grasping-basics-your-guide-to-av1-encoding/"><u>Grasping Basics Your Guide to AV1 Encoding</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/handling-the-sound-a-closer-look-at-the-new-samsung-galaxy-budsplus/"><u>Handling the Sound: A Closer Look at the New Samsung Galaxy Buds+</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Honor 90 Pro? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Samsung Galaxy S24 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Oppo Find X6 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-imperfect-and-pricey-microsoft-surface-duo-experience/"><u>In-Depth Look at the Imperfect and Pricey Microsoft Surface Duo Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-the-dreambot-l10-pro-a-lidar-enhanced-cleansing-marvel-for-modern-homes/"><u>In-Depth Review of the DreamBot L10 Pro: A LiDAR-Enhanced Cleansing Marvel for Modern Homes</u></a></li>
+<li><a href="https://win-able.techidaily.com/pc-gamers-rejoice-as-rainbow-six-extraction-stability-improvements-confirmed/"><u>PC Gamers Rejoice as Rainbow Six Extraction Stability Improvements Confirmed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-superzoom-revolution-introducing-the-powershot-sx70-camera-review/"><u>The Superzoom Revolution: Introducing the PowerShot SX70 Camera Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-reviews-of-the-samsung-q60r-4k-smart-qled-tv-perfect-for-gamers/"><u>Top Reviews of the Samsung Q60R 4K Smart QLED TV Perfect for Gamers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/us-debut-of-nickwatch-at-the-exciting-kids-choice-awards/"><u>U.S. Debut of NickWatch at the Exciting Kids' Choice Awards</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-value-contender-apple-ipad-air-4-as-an-alternative-to-ipad-pro-explored/"><u>Unveiling the Value Contender: Apple iPad Air 4 as an Alternative to iPad Pro Explored</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-honor-x8b-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Honor X8b Hard Reset | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Unleash Creativity: An In-Depth Look at the Makeblock mBot Engineering Toy for Kids"
-date: 2024-10-31T05:51:17.370Z
-updated: 2024-11-04T17:32:20.984Z
+date: 2024-11-14T16:43:32.735Z
+updated: 2024-11-15T16:28:54.007Z
 categories:
   - BestProducts
 description: "This Article Describes Unleash Creativity: An In-Depth Look at the Makeblock mBot Engineering Toy for Kids"
@@ -42,13 +42,6 @@ Lifewire / Yoona Wagener
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Amazfit GTS Smartwatch
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/A_Lpmewuqg5_v_xhsfuydQ5zl6E=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_HeroSquare-067af9089d9c4269979450e8963726c9.jpg)
@@ -77,13 +70,6 @@ _We purchased the Amazfit GTS_   _so our reviewer could put it to the test. Keep
 
  I used this device for a little over a week while sleeping, hiking, and running to see how this stylish tracker delivered. Though tracking data was never an issue, the software and companion app fell short of delivering a truly intuitive, user-friendly experience.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design: Lightweight and a little too familiar
 
  The Amazfit GTS is a super-light device at approximately 24.8 grams but isn’t flimsy. The body is made with aircraft-grade aluminum alloy, and the Corning 3 Gorilla glass covering the display is conveniently smudge-resistant. The back of the display is decidedly more plastic-looking, though the plate is covered in a matte finish with a pleasantly sturdy feel. The square watch face is slightly longer than it is wide, akin to the[Apple Watch](https://www.lifewire.com/apple-watch-se-review-5088223) . In fact, if you don’t look too closely, this device is almost an exact copy of this outsize name in the wearable game.
@@ -97,15 +83,22 @@ _We purchased the Amazfit GTS_   _so our reviewer could put it to the test. Keep
 ![Amazfit GTS](https://www.lifewire.com/thmb/hMe1Ur0Wtt9LDIiSfC3zvE_5G7E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_02-0b1e98c2de40486b9fea116eb28ccd3c.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
  I was unable to test this device’s 50-meter water resistance for swimming or other aquatic workouts, but I did wear it in the shower without experiencing any issue. The manufacturer does note, however, that this wearable isn’t safe for hot showers or other water sports such as scuba diving, diving, and high-speed water sports, generally.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Comfort: Easy to wear but not as user-friendly
 
@@ -120,13 +113,6 @@ Lifewire / Yoona Wagener
  One standout example is putting this device in sleep mode. Unlike most wearables that deactivate the display with a tap of a sleep icon, the Amazfit GTS presents several do-not-disturb options that aren’t clearly explained by the onboard descriptions. This felt like a severe limitation to the out-of-the-box comfort of this device, which extends to other areas such as viewing sleep and fitness data.
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/BCJ0gqS-gzR_dq3WSGazLqPMNCk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_05-9f844a14ab734d9291e338b6fa2519da.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -143,13 +129,6 @@ Lifewire / Yoona Wagener
  This device is also capable of tracking sleep data in a relatively extensive way, complete with sleep phases, times awake when you fell asleep and woke up. The watch never failed to track data and as far as I could tell, sleep and wake times were accurate, but reading the data was a little less straightforward.
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/lrymbZEsmkXZy1YnjpGE5QutCbA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_04-109baf1e43444eff9789d9c02e2b2e77.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -177,11 +156,25 @@ Lifewire / Yoona Wagener
 
  While I gathered that a PAI of 100 seemed to be ideal for cardiovascular health, the app further complicated things by suggesting, for example, a 120-minute indoor workout to gain 15 PAI. It was difficult to grasp why that would be worth it or realistic, and like many areas of the software, it felt more flashy and underdeveloped than insightful.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Battery: Solid but considerably shy of the 14-day claim
 
  The manufacturer bills the battery longevity at an impressive 14 days with typical usage in smartwatch mode, which includes continuous heart rate and sleep monitoring and logging workouts three times a week.
 
  That’s pretty much the way I used this device, though with maybe an extra workout or two and with the display in always-on mode, and the battery drained by day seven. On the bright side, it recharged quickly in less than the manufacturer’s 2-hour estimate. Amazfit also claims that the battery can last up to 46 days in basic mode without Bluetooth or heart-rate monitoring turned on.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Price: Slightly pricey for what it is
 
@@ -200,6 +193,13 @@ Lifewire / Yoona Wagener
  **A stylish fitness tracker with more potential than polish.**
 
  The Amazfit GTS is comfortable and stylish and performs the basic fitness tracking tasks relatively well, but the confusing ecosystem diminishes the polish. If you love the look of the Apple Watch, this is a budget-friendly look-alike. But if you want a strong balance between performance and looks, the Amazfit GTS may not deliver.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -238,18 +238,22 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-essential-guide-best-screencasting-apps-at-no-cost/"><u>[Updated] 2024 Approved Essential Guide Best Screencasting Apps at No Cost</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-avoid-story-filler-how-to-use-multiple-images-wisely-on-insta/"><u>[Updated] Avoid Story Filler How to Use Multiple Images Wisely on Insta</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-enhancing-visual-quests-hunt-for-pristine-pexels-images-for-2024/"><u>[Updated] Enhancing Visual Quests Hunt for Pristine Pexels Images for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-essential-screen-recording-tips-for-windows-8-pros-for-2024/"><u>[Updated] Essential Screen Recording Tips for Windows 8 Pros for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-elite-templates-for-premiere-pro-free/"><u>2024 Approved Elite Templates for Premiere Pro - FREE</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-examination-of-pixel-slates-challenges-with-chromeos/"><u>Comprehensive Examination of Pixel Slate's Challenges with ChromeOS</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-samsung-un6e-55un8000fxza-overpriced-and-underwhelming-smart-tv/"><u>Expert Analysis of Samsung UN6e 55UN8000FXZA - Overpriced and Underwhelming Smart TV</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/free-to-view-performances-film-cast-permissions-for-2024/"><u>Free-to-View Performances Film Cast Permissions for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/news-on-the-apple-m4-chip-unveiling-when-it-drops-and-what-to-expect-in-terms-of-specs/"><u>News on the Apple M4 Chip Unveiling: When It Drops & What To Expect in Terms of Specs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-gamers-companhren-expert-review-on-nvidia-shield-tv-pro/"><u>The Ultimate Gamer's Companhren: Expert Review on Nvidia Shield TV Pro</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-value-for-artists-in-depth-look-at-the-monoprice-graphic-drawing-pad-on-a-shoestring-budget/"><u>Top Value for Artists: In-Depth Look at the Monoprice Graphic Drawing Pad on a Shoestring Budget</u></a></li>
-<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-motorola-edge-40-pro-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Motorola Edge 40 Pro FRP Bypass</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-wi-fi-6-with-the-stylish-and-efficient-netgear-nighthawk-rax80/"><u>Unveiling the Power of Wi-Fi 6 with the Stylish and Efficient Netgear Nighthawk RAX80</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-ultimate-checklist-for-efficiently-uploading-tracks-on-youtube/"><u>[New] 2024 Approved The Ultimate Checklist for Efficiently Uploading Tracks on YouTube</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-beyond-gaming-vr-uses/"><u>[New] Beyond Gaming VR Uses</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-vllevaluation-insight-into-app-quality/"><u>[Updated] In 2024, VLLEvaluation Insight Into App Quality</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-vrs-current-creative-conundrum-latest-insights/"><u>[Updated] In 2024, VR's Current Creative Conundrum - Latest Insights</u></a></li>
+<li><a href="https://article-helps.techidaily.com/capturing-photos-from-moving-frames-on-windows-11/"><u>Capturing Photos From Moving Frames on Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-radpower-radcity-5-plus-bike-assessment-strengths-and-weights/"><u>Comprehensive RadPower RadCity 5 Plus Bike Assessment: Strengths and Weights</u></a></li>
+<li><a href="https://article-posts.techidaily.com/crafting-podcast-descriptions-that-stick-strategies-and-samples-for-2024/"><u>Crafting Podcast Descriptions That Stick Strategies and Samples for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dell-inspiron-3671-desktop-analysis-an-unpretentious-midrange-computer-system-overview/"><u>Dell Inspiron 3671 Desktop Analysis: An Unpretentious Midrange Computer System Overview</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/durability-and-ease-with-ergoheads-anti-fatigue-mats-an-in-depth-review/"><u>Durability and Ease with ErgoHead's Anti-Fatigue Mats - An In-Depth Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/glion-dolly-electric-scooter-overview-premium-pricing-stylish-design-and-acceleration-insights/"><u>Glion Dolly Electric Scooter Overview - Premium Pricing, Stylish Design & Acceleration Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-the-hisense-40-inch-h5590f-set-redefines-affordable-smart-viewing-experience/"><u>How the Hisense 40-Inch H5590F Set Redefines Affordable Smart Viewing Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/introducing-the-hp-stream-11-ultimate-compact-laptop-for-essential-tasks/"><u>Introducing the HP Stream 11: Ultimate Compact Laptop for Essential Tasks</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-top-10-free-video-rotators-to-rotateflip-videos-for-2024/"><u>New Top 10 Free Video Rotators to Rotate/Flip Videos for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/portable-energy-revolutionized-expert-insight-on-the-acclaimed-maxoak-battery-unit/"><u>Portable Energy Revolutionized: Expert Insight on the Acclaimed MaxOak Battery Unit</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-hp-chromebook-11-ideal-for-learning-working-and-leisure-activities/"><u>The Ultimate Guide to the HP Chromebook 11: Ideal for Learning, Working & Leisure Activities</u></a></li>
+<li><a href="https://win-special.techidaily.com/top-ranked-open-source-vm-hosting-solutions-how-to-select-the-right-one-for-you/"><u>Top Ranked Open-Source VM Hosting Solutions: How To Select the Right One For You</u></a></li>
+<li><a href="https://article-tips.techidaily.com/upgrading-made-simple-a-compreomedmacsierra-guide-for-2024/"><u>Upgrading Made Simple A CompreomedmacSierra Guide for 2024</u></a></li>
 </ul></div>
 

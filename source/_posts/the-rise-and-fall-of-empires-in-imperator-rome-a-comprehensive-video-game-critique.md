@@ -1,7 +1,7 @@
 ---
 title: "The Rise and Fall of Empires In Imperator: Rome – A Comprehensive Video Game Critique"
-date: 2024-10-29T05:30:09.528Z
-updated: 2024-11-04T19:16:16.790Z
+date: 2024-11-08T16:38:12.992Z
+updated: 2024-11-15T16:20:04.264Z
 categories:
   - BestProducts
 description: "This Article Describes The Rise and Fall of Empires In Imperator: Rome – A Comprehensive Video Game Critique"
@@ -42,13 +42,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
@@ -75,6 +68,13 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -97,18 +97,18 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: T-minus one minute**
 
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
 
  Lifewire / Jeffrey Daniel Chadwick
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
 
@@ -130,16 +130,16 @@ Lifewire / Jeffrey Daniel Chadwick
 
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
@@ -156,10 +156,10 @@ Lifewire / Jeffrey Daniel Chadwick
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -187,24 +187,24 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-10-online-photo-editing-tools-to-unblur-photos/"><u>[New] In 2024, 10 Online Photo Editing Tools to Unblur Photos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-accessible-archives-downloading-everyday-facebook-feed/"><u>[New] In 2024, Accessible Archives Downloading Everyday Facebook Feed</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-purchasing-options-choosing-premium-vs-standard-fixtures-and-whether-they-are-integrated-or-retrofit-options-can-alter-costs/"><u>[Updated] 2024 Approved __Purchasing Options__ Choosing Premium Vs. Standard Fixtures and Whether They Are Integrated or Retrofit Options Can Alter Costs</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-selecting-your-next-travel-cinema-device/"><u>2024 Approved Selecting Your Next Travel Cinema Device</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/5-best-free-online-video-editors-similar-to-imovie-updated-2023/"><u>5 Best Free Online Video Editors Similar to iMovie (Updated 2023)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-garmin-vivomove-hr-watch-review-elegant-design-meets-fitness-tracking/"><u>Comprehensive Garmin Vivomove HR Watch Review - Elegant Design Meets Fitness Tracking</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-unparalleled-internet-speed-in-depth-review-of-the-netgear-nighthawk-x10-ad7200-router/"><u>Experience Unparalleled Internet Speed: In-Depth Review of the Netgear Nighthawk X1^0 (AD7200) Router</u></a></li>
-<li><a href="https://win-studio.techidaily.com/extending-your-laptops-endurance-top-9-power-saving-tweaks-in-windows-11-for-enhanced-battery-performance/"><u>Extending Your Laptop's Endurance: Top 9 Power-Saving Tweaks in Windows 11 for Enhanced Battery Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/future-of-play-a-guide-to-the-premier-gaming-concolements/"><u>Future of Play: A Guide to the Premier Gaming Concolements</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-your-oneplus-nord-ce-3-lite-5g-lock-screen-password-by-drfone-android/"><u>How to Reset your OnePlus Nord CE 3 Lite 5G Lock Screen Password</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-honor-100-pro-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Honor 100 Pro Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-netgear-powerline-av-1200-evaluating-performance-vs-bulky-aesthetics/"><u>In-Depth Analysis of the Netgear Powerline AV 1200: Evaluating Performance vs Bulky Aesthetics</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigate-the-future-top-rated-computing-brands-to-watch/"><u>Navigate the Future: Top-Rated Computing Brands to Watch</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/pictureperfect-connect-quality-vs-price-tag-battle/"><u>PicturePerfect Connect: Quality Vs. Price Tag Battle</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stylishly-streaming-to-your-tv-discover-the-benefits-of-antops-at-127-antenna-comprehensive-review/"><u>Stylishly Streaming to Your TV? Discover the Benefits of Antop's AT-127 Antenna - Comprehensive Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/terramat-cubefit-assessment-enhance-fitness-with-an-innovative-standing-exercise-device/"><u>TerraMat CubeFit Assessment: Enhance Fitness with an Innovative Standing Exercise Device</u></a></li>
-<li><a href="https://solve-help.techidaily.com/top-2024-hevc-h265-video-converters-for-pc-and-mac-compare-free-and-premium-options/"><u>Top 2024 HEVC / H.265 Video Converters for PC & Mac: Compare Free and Premium Options</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleashing-potential-an-insiders-view-on-the-razer-book-13-laptop/"><u>Unleashing Potential: An Insider’s View on the Razer Book 13 Laptop</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-ions-pro-3-vision-cutting-edge-action-video-recording-for-2024/"><u>[Updated] ION's Pro 3 Vision Cutting-Edge Action Video Recording for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-uncover-hidden-youtube-discussions/"><u>2024 Approved Uncover Hidden YouTube Discussions</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-locked-or-disabled-from-iphone-14-plus-7-mehtods-you-cant-miss-by-drfone-ios/"><u>Apple ID Locked or Disabled From iPhone 14 Plus? 7 Mehtods You Cant-Miss</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/are-camera-shakes-less-troublesome-after-photostable-effects/"><u>Are Camera Shakes Less Troublesome After PhotoStable Effects?</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-canon-ip110-printer-installation-guide-with-downloadable-drivers-for-various-windows-os-including-7/"><u>Easy Canon iP110 Printer Installation Guide with Downloadable Drivers for Various Windows OS (Including 7)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/get-up-close-with-the-revolutionary-new-cycwagen-cargo-e-bike-features/"><u>Get Up Close with the Revolutionary New CycWagen Cargo E-Bike Features</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-how-to-create-or-schedule-a-google-meet/"><u>In 2024, How to Create or Schedule A Google Meet?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-lenovo-tab-m10-fhd-plus-2020-assessment-exceptional-screen-quality-for-an-affordable-tablet/"><u>In-Depth Lenovo Tab M10 FHD Plus 2020 Assessment: Exceptional Screen Quality for an Affordable Tablet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/master-your-internet-experience-in-depth-review-of-the-universal-google-wifi-solution/"><u>Master Your Internet Experience: In-Depth Review of the Universal Google Wifi Solution</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/quick-and-easy-how-to-transform-your-mobile-device-into-a-vr-headset/"><u>Quick and Easy How to Transform Your Mobile Device Into a VR Headset</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/read-by-the-moon-barnes-and-noble-nook-glowlight-3-a-comprehensive-evaluation-for-late-night-bookworms/"><u>Read by the Moon: Barnes & Noble Nook GlowLight 3 - A Comprehensive Evaluation for Late-Night Bookworms</u></a></li>
+<li><a href="https://app-tips.techidaily.com/repeated-security-incidents-at-lastpass-latest-update-from-zdnet/"><u>Repeated Security Incidents at LastPass - Latest Update From ZDNet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-shadows-behind-tropico-n-gameplay-ruling-over-a-utopias-undoing/"><u>Reviewing the Shadows Behind Tropico N Gameplay: Ruling Over a Utopia's Undoing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smooth-transition-to-a-cloud-ready-photography-experience/"><u>Smooth Transition to a Cloud-Ready Photography Experience</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/top-screener-solution-for-flawless-youtube-content-creation-for-2024/"><u>Top Screener Solution For Flawless YouTube Content Creation for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outube-film-series-collections/"><u>Top YouTube Film Series Collections</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-led-softboxes-2024-edition/"><u>Top-Rated LED Softboxes: 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-2019-kindle-oasis-an-exceptionally-realistic-paper-feel-for-book-lovers/"><u>Unveiling the 2019 Kindle Oasis - An Exceptionally Realistic Paper Feel for Book Lovers!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-most-effective-location-keys-of-2eplust-year/"><u>Unveiling the Most Effective Location Keys of 2E+t Year</u></a></li>
 </ul></div>
 

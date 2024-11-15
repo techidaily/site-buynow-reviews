@@ -1,7 +1,7 @@
 ---
 title: The 7 Most Absurdly Impractical Game Complements Throughout Video Game Evolution
-date: 2024-08-31T14:53:46.044Z
-updated: 2024-09-01T14:53:46.044Z
+date: 2024-11-12T16:32:41.807Z
+updated: 2024-11-15T16:27:18.476Z
 tags:
   - games
   - tv
@@ -35,12 +35,16 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
  The truth is that (by all accounts, it wouldn't fit me) the glove just didn't work very well. You'd be better off just using the NES pad instead. It was (and is) undeniably cool, but also 1000% silly.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ## 2  Nintendo R.O.B (Robotic Operating Buddy) 
 
 ![Nintendo ROB from the original 1980s commercial.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/nintendo-rob.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Nintendo
 
@@ -50,21 +54,22 @@ Nintendo
 
  R.O.B is a toy robot that can be integrated into a limited number of games. This helped sell the NES as a toy rather than a video game system, but as a gaming accessory it's pretty high up on the silly-O-meter. As a Trojan horse to get NES consoles into US households, it's less silly, and probably did help Nintendo get a foothold, but I suspect most kids probably got bored of R.O.B quickly despite my boss here at HTG insisting everyone thought it was cool. I wouldn't know, since R.O.B. is one year older than I am. I guess you had to be there!
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3  Resident Evil Chainsaw Controller 
 
 ![Chainsaw controller in its original packaging.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/chainsaw-controller.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 [Pete Barr-Watson from the UK., CC BY-SA 2.0](https://commons.wikimedia.org/wiki/File:Re%5Fcontroller.jpg)
 
  Resident Evil is one of the greatest game franchises of all time, and from [Jill Sandwiches](https://residentevil.fandom.com/wiki/Jill%5FSandwich) to [punching boulders](https://gamerant.com/resident-evil-chris-redfield-memes-punch-boulder/) it's never been afraid to revel in silliness. However, the peak of RE madness might not even be in any of its games. The chainsaw controller takes the cake, shreds it, and gets icing all over the room.
 
  It's a special controller manufactured by NubyTech for Resident Evil 4, widely considered to be the best game in the franchise. Designed more to be a collectible than an actual controller you'd want to play with, this is nonetheless a fully-functional game controller, and so we have to judge it as such. Ergonomics? That's for little babies. You'll have to embrace the pain if you want your hands to conform to this monstrosity. As a collector's item it's pretty cool, as an actual controller it's ridiculous.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4  The Wii Bowling Ball and Tennis Racket 
 
@@ -76,25 +81,40 @@ CTA Digital
 
  These really didn't do much, and you had the ever-present issue of things[flying off and smashing your very expensive flat panel TV](https://www.youtube.com/watch?v=7BQjMglrHW4), which, ironically, the Wii didn't even need, since it wasn't an HD console. Those plastic toys would just have bounced off a CRT.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ## 5  Tony Hawk’s Skateboard Controller 
 
 ![The Tony Hawks Ride Board.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/tony-hawks-ride-board.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Activision
 
  Video games and skateboarding are a match made in heaven. It's certainly made a certain Mr. Hawk a wealthy household name. However, in an attempt to bring real skateboarding and video game skating a little closer to each other, we unfortunately got the skateboard controller for Tony Hawks: Ride. The idea was that you'd control your on-screen skater by mimicking real-world skating movements.
 
  This sounds reasonable, except it feels silly, looks silly, and apparently didn't work all that well. Even full-on VR skating games today aren't really nailing it, so this tiny surfboard was never going to be what it promised.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6  The SEGA Activator 
 
 ![An advert for the SEGA activator.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/sega-activator1-1024x662.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 SEGA
 
@@ -102,9 +122,6 @@ SEGA
 
  In practice, few games worked with the Activator and even those that did were unreliable. So while it might have helped kids burn a few calories while playing their games, they'd go back to just punching buttons sooner or later.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7  Azeron Cyborg One-Handed Keyboard 
 
 ![The Azeron Cyborg controller.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/azeron-cyborg.jpg) 
@@ -125,8 +142,6 @@ Azeron
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -134,4 +149,18 @@ Azeron
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-unraveling-instagrams-video-time-restrictions/"><u>[Updated] In 2024, Unraveling Instagram's Video Time Restrictions</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-art-of-revisiting-historical-facebook-posts-mobilelaptop-for-2024/"><u>[Updated] The Art of Revisiting Historical Facebook Posts (Mobile/Laptop) for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/bypassing-itunes-for-apple-music-access-on-your-computer/"><u>Bypassing iTunes for Apple Music Access on Your Computer</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-installupdate-razer-graphics-and-input-driver-in-windows-xp-10/"><u>How to Install/Update Razer Graphics & Input Driver in Windows (XP - 10)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-entertainment-for-minimal-cost-insider-tips-and-tricks-from-our-roku-streaming-box-review/"><u>Maximizing Entertainment for Minimal Cost: Insider Tips and Tricks From Our Roku Streaming Box Review</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-d3derrnotavailable-error-a-comprehensive-guide/"><u>Resolving 'D3DERR_NOT_AVAILABLE' Error: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stadia-by-google-an-in-depth-look-at-its-strengths-and-weaknesses/"><u>Stadia by Google - An In-Depth Look at Its Strengths & Weaknesses</u></a></li>
+<li><a href="https://common-error.techidaily.com/ultimate-guide-resolving-the-windows-11-update-hurdle-error-0x800f0922-fixes/"><u>Ultimate Guide: Resolving the Windows 11 Update Hurdle – Error 0X800f0922 Fixes</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unleash-your-games-true-potential-with-the-best-immersive-sound-system-available-for-a-bargain-at-amazon-featured-and-reviewed/"><u>Unleash Your Game's True Potential with the Best Immersive Sound System - Available for a Bargain at Amazon, Featured and Reviewed !</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-benefits-of-google-wifi-your-ultimate-mesh-wi-fi-solution/"><u>Unveiling the Benefits of Google Wifi - Your Ultimate Mesh Wi-Fi Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-play-an-exhaustive-review-of-the-asus-zephyrus-g14-gaming-laptop/"><u>Unveiling the Power of Play: An Exhaustive Review of the Asus Zephyrus G14 Gaming Laptop</u></a></li>
+</ul></div>
 

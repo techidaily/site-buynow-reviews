@@ -1,7 +1,7 @@
 ---
 title: "Holy Stone HS170 Predator Mini: The Wallet-Wise RC Helicopter You Can't Miss - Expert Review Inside"
-date: 2024-11-04T04:19:29.111Z
-updated: 2024-11-05T06:32:14.900Z
+date: 2024-11-12T16:29:41.058Z
+updated: 2024-11-15T17:12:02.609Z
 categories:
   - BestProducts
 description: "This Article Describes Holy Stone HS170 Predator Mini: The Wallet-Wise RC Helicopter You Can't Miss - Expert Review Inside"
@@ -45,16 +45,16 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/o0LkMzwRLq9UDT8tBDJerDIsp8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -75,6 +75,13 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer C80 is an affordable[long range router](https://www.lifewire.com/best-long-range-routers-4122554) that should be ideal for medium-sized homes. With 3x3[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , parental controls, and remote control using TP-Link’s Tether app, the Archer C80 has a few admirable features for a router under $100, but it also lacks some of the things we’ve come to expect in a router in this price range (like smart assistant compatibility and no USB port). I tested the TP-Link Archer C80 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment when compared to other budget routers on the market.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Basic, but effective**
 
  The Archer C80 is an exceptionally small router, with a body that measures only 4.6 inches tall, 8.5 inches wide, and 1.26 inches in depth. Since its body is smaller than a paperback book, the router can sit inconspicuously on a table or desk. It also has two keyhole mounts on the back for mounting on a wall.
@@ -82,13 +89,6 @@ Lifewire / Erika Rawes
  The matte black color scheme allows it to blend in with other devices, so you’ll barely notice it on a desk or workstation. The surface is textured, with recesses to hide the venting. The texturing is both a blessing and a curse because it causes the C80 to collect a little extra dust, but it also hides fingerprints and smudges.
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/Ep4Dk2l5q44AgM0S3cs9My3AE3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_03-a367c45b39474785856cb986e82c88dc.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -103,6 +103,13 @@ Lifewire / Erika Rawes
  On the bright side, the C80 has beamforming, which promotes a more concentrated signal and a longer range. It has 3 x 3 MU-MIMO technology, which means it can transmit and receive three data streams simultaneously. This helps the router provide a faster signal when you’re watching shows, gaming, or using a 3 x 3 capable computer. It has smart connect, which makes it possible for your router to switch devices between bands, and airtime fairness, which helps reduce lag caused by older or slower devices by distributing airtime more equally. This way, a slow device is less likely to bog down the network.
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/tXeiVJNqjtwMg97as87xxtsMwhc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_04-375b5f92ce9d44f4af109c8f6bfada16.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -123,10 +130,16 @@ Lifewire / Erika Rawes
  Every closet, bathroom, and bedroom maintained a signal, and I experienced no dead zones whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: TP-Link Tether app**
@@ -139,20 +152,13 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Around 100 bucks**
@@ -204,24 +210,22 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-bring-life-to-your-instagram-posts-with-branded-graphics-and-icons-for-2024/"><u>[New] Bring Life to Your Instagram Posts with Branded Graphics & Icons for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/experience-a-stable-dive-into-the-depths-with-fixed-subnautica-below-zero-on-your-desktop-computer/"><u>Experience a Stable Dive Into the Depths with [FIXED] Subnautica: Below Zero on Your Desktop Computer</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-elite-an-evaluation-of-microsofts-surface-studio-2-masterpiece/"><u>Exploring the Elite: An Evaluation of Microsoft's Surface Studio 2 Masterpiece</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-windows-7-hdmi-audio-issues-solutions-guide/"><u>Fixing Windows 7 HDMI Audio Issues - Solutions Guide</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-after-deleting-from-recently-deleted-on-iphone-15-pro-max-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to recover deleted photos after deleting from Recently Deleted on iPhone 15 Pro Max | Stellar</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-lava-blaze-curve-5g-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Lava Blaze Curve 5G PC | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-from-apple-iphone-8-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock From Apple iPhone 8 Online</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-samsung-galaxy-m34-5g-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Samsung Galaxy M34 5G to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-the-new-microsoft-surface-studio-2-a-smart-investment-review-inside/"><u>Is the New Microsoft Surface Studio 2 a Smart Investment? Review Inside</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/motorolas-marvel-the-elegant-moto-g-power-with-its-unmatched-battery-endurance-reviewed/"><u>Motorola's Marvel: The Elegant Moto G Power with Its Unmatched Battery Endurance Reviewed</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2603841-9781785353239-pagan-portals-the-cailleach/"><u>Pagan Portals - The Cailleach | Free Book</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-blade-e-flite-mcx2-rc-helicopter-reviewed-is-it-really-the-best-value-in-the-sky/"><u>The Blade E-Flite mCX2 RC Helicopter Reviewed - Is It Really the Best Value in the Sky?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-lenovo-tab-4-unveiled-cost-effective-tablet-potential-drawbacks-explored/"><u>The Lenovo Tab 4 Unveiled: Cost-Effective Tablet, Potential Drawbacks Explored</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-modern-stylish-solution-for-your-workspace-detailed-review-of-the-flexispot-theodore-adjustable-standing-desk/"><u>The Modern, Stylish Solution for Your Workspace: Detailed Review of the Flexispot Theodore Adjustable Standing Desk</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-motorola-moto-g-stylus-an-economical-phone-with-impressive-writing-capabilities/"><u>The Ultimate Guide to the Motorola Moto G Stylus - An Economical Phone with Impressive Writing Capabilities.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-iphone-models-a-comprehensive-guide-to-choosing-the-ultimate-gamers-phone/"><u>Top iPhone Models: A Comprehensive Guide to Choosing the Ultimate Gamer's Phone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-google-nest-doorbells-a-complete-guide-to-your-battery-options/"><u>Top Rated Google Nest Doorbells – A Complete Guide to Your Battery Options</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-samsung-55-ru7300-models-performance-in-a-full-4k-tv-review-do-the-curves-matter/"><u>Top Samsung 55 RU7300 Model's Performance in a Full 4K TV Review: Do The Curves Matter?</u></a></li>
-<li><a href="https://win-forum.techidaily.com/your-guide-to-popular-online-communities-facebook-twitter-instagram-and-youtube/"><u>Your Guide to Popular Online Communities: Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-an-easy-to-use-youtube-subscription-tagline/"><u>[Updated] In 2024, Crafting an Easy-to-Use YouTube Subscription Tagline</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/complete-evaluation-of-anker-roav-dashcam-c1-why-it-stands-out-in-its-class/"><u>Complete Evaluation of Anker Roav DashCam C1: Why It Stands Out in Its Class</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enjoying-every-moment-a-comprehensive-guide-to-pokemon-diamond-and-pearl/"><u>Enjoying Every Moment: A Comprehensive Guide to 'Pokemon Diamond and Pearl'</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-efficient-storage-of-androidmac-snaps-for-longevity/"><u>In 2024, Efficient Storage of Android/Mac Snaps for Longevity</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-the-fundamentals-a-complete-srt-overview/"><u>In 2024, Mastering the Fundamentals A Complete SRT Overview</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-retroactive-video-mastery-for-android-users/"><u>In 2024, Retroactive Video Mastery for Android Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-your-wifi-signal-with-tp-link-ac1200-range-extender-re305-a-comprehensive-test-report/"><u>Maximizing Your WiFi Signal with TP-Link AC1200 Range Extender RE305 – A Comprehensive Test Report</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/never-farewell-pets-global-bonding-with-petcube-bites-2/"><u>Never Farewell: Pets’ Global Bonding with Petcube Bites 2</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Motorola Moto G Stylus (2023)? | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721470930546-tablet-touch-issues-demystified-follow-our-8-essential-fixes/"><u>Tablet Touch Issues Demystified: Follow Our 8 Essential Fixes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/testing-the-blh4100-120rc-from-blade-a-complete-assessment-for-aerial-hobbyists/"><u>Testing the BLH4100 120R/C From Blade - A Complete Assessment for Aerial Hobbyists</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-excellence-of-samsung-galaxy-s10-a-high-end-smartphone-reviewed/"><u>Unveiling the Excellence of Samsung Galaxy S10: A High-End Smartphone Reviewed</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unveiling-the-power-of-luminance-in-hdr-landscapes-for-2024/"><u>Unveiling the Power of Luminance in HDR Landscapes for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unveiling-the-power-of-picture-in-picture-on-apple-devices-for-2024/"><u>Unveiling the Power of Picture-in-Picture on Apple Devices for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-top-performers-a-look-at-2024s-best-cordless-phones-on-the-market/"><u>Unveiling the Top Performers: A Look at 2024'S Best Cordless Phones on the Market</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/windows-11-10-and-8/"><u>Windows 11, 10 & 8專業磁碟克隆軟件：最佳選擇</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/zoomed-in-on-greatness-powershot-sx70-camera-examined-and-evaluated/"><u>Zoomed in on Greatness - PowerShot SX70 Camera Examined & Evaluated!</u></a></li>
 </ul></div>
 

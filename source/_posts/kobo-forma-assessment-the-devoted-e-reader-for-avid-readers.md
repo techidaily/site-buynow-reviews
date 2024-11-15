@@ -1,7 +1,7 @@
 ---
 title: "Kobo Forma Assessment: The Devoted E-Reader for Avid Readers"
-date: 2024-11-04T01:22:56.416Z
-updated: 2024-11-04T22:21:53.228Z
+date: 2024-11-10T17:02:11.952Z
+updated: 2024-11-15T17:13:46.142Z
 categories:
   - BestProducts
 description: "This Article Describes Kobo Forma Assessment: The Devoted E-Reader for Avid Readers"
@@ -44,22 +44,15 @@ Lifewire / Rebecca Isaacs
 
 4
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 7 Days to Die
 
 ![7 Days to Die](https://www.lifewire.com/thmb/mKaiRcg5xaWaOPRj0Ph1dRjUbSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4164252-1-e8b8c3eb31dd46e8a63e8e40a5a9d04b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
@@ -87,10 +80,10 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/MW5wYA5ujBjG5LdXn-w9bTJd5WQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-2-a59091cd21c04d99a42270199349fc2a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -104,10 +97,10 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/Eq0YCIdbj82yj3lOCWEdZS7jX6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-4-341174c3997543728bd2b024c6e2a309.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -150,13 +143,6 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Graphics: Outdated, but detailed on optimal**
 
  For a game that was released in 2013 originally, the graphics could be a little better, even if you play on optimal settings. Back in the day, we played on lower settings rather than splurge on a fancy graphics card. If you play on the lower settings, it’s cringeworthy, though not as cringeworthy as the Witcher 3’s lowest settings.
@@ -175,6 +161,19 @@ Lifewire / Rebecca Isaacs
 
  At around $25, 7 Days isn’t the most expensive zombie game on the market. However, it is the most expensive alpha zombie game out there. Because you can purchase it on[Steam](https://www.lifewire.com/what-is-steam-4177380) or Humble Bumble, we recommend waiting for a Steam sale and getting it for a discount, especially since it’s still in progress. This way, if you decide you don’t like it in the future, you aren’t out the full price.
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Competition: Other sandbox shooters**
 
  It’s hard to compare 7 Days to other sandboxes out there because of the significant focus on crafting and building.[Minecraft](https://www.minecraft.net/en-us/download/) has expansive crafting and arguably good graphics with its classic blocky appearance. Terraria also boasts zombies and crafting and building capabilities, though they’re 2D instead of 3D like in 7 Days. And all of them can guarantee hours of gameplay with fun twists and turns.
@@ -186,6 +185,13 @@ Lifewire / Rebecca Isaacs
  **If you love smart zombies, you’ll love this game.**
 
  Despite flaws in graphics, there’s a lot to love about 7 Days to Die. The challenging skill tree system and dangerous intelligent zombies add an element that’s not typically found in zombie shooters. If you want a game to commit to for hours on end, building bases and exploring dungeon-like homes while slaying zombie cheerleaders, then 7 Days to Die could be a fun way to ease some stress after a long day of work.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -220,22 +226,18 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-ultimate-mic-selection-for-online-talent/"><u>[New] In 2024, Ultimate Mic Selection for Online Talent</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-the-power-of-words-enhancing-viewer-count-with-impressive-description-templates/"><u>[New] The Power of Words Enhancing Viewer Count with Impressive Description Templates</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/apples-iphone-se-2020-an-in-depth-analysis-of-the-practical-premium-device/"><u>Apple's iPhone SE (2020): An In-Depth Analysis of the Practical Premium Device</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/exclusive-recording-gadgets-for-windows-10-gamers-for-2024/"><u>Exclusive Recording Gadgets for Windows 10 Gamers for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/hewlett-packard-notebook-15-does-its-affordable-amd-chip-deliver/"><u>Hewlett-Packard Notebook 15 - Does Its Affordable AMD Chip Deliver?</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/1723341696920-imaging-techniques-like-oct-may-be-used-postoperatively-to-confirm-the-success-of-surgical-interventions-such-as-retinal-detachment-repair/"><u>Imaging Techniques Like OCT May Be Used Postoperatively to Confirm the Success of Surgical Interventions Such as Retinal Detachment Repair</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-and-review-of-the-mavix-m9-gaming-chair-the-ultimate-comfort-for-extended-game-sessions/"><u>In-Depth Analysis & Review of the Mavix M9 Gaming Chair - The Ultimate Comfort for Extended Game Sessions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-petsafe-automatic-feeder-your-partner-in-maintaining-a-healthy-pet-weight/"><u>In-Depth Review of PetSafe Automatic Feeder – Your Partner in Maintaining a Healthy Pet Weight</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/instantaneous-itinerary-blueprints-the-finest-selection-of-7-budget-friendly-apps/"><u>Instantaneous Itinerary Blueprints – The Finest Selection of 7 Budget-Friendly Apps</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mp3-player-unboxing-agpteks-beginner-model/"><u>MP3 Player Unboxing: AGPTEK's Beginner Model</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/netgear-c3700-dual-functionality-showdown-when-a-modem-meets-a-router-in-one-unit/"><u>Netgear C3700 Dual-Functionality Showdown: When a Modem Meets a Router in One Unit</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/overcoming-usb-detection-challenges-a-users-guide-to-fixing-windows-10-compatibility-issues/"><u>Overcoming USB Detection Challenges: A User's Guide to Fixing Windows 10 Compatibility Issues</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-marvel-avengers-saga-simply-superb-or-subpar-spectacle/"><u>Reviewing the Marvel Avengers Saga: Simply Superb, or Subpar Spectacle?</u></a></li>
-<li><a href="https://techtrends.techidaily.com/step-by-step-guide-updating-the-zoom-client-on-windows-and-macos/"><u>Step-by-Step Guide: Updating the Zoom Client on Windows and macOS</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-2023-line-up-of-best-pro-360cameras-reviewed-for-2024/"><u>The 2023 Line-Up of Best Pro 360°Cameras Reviewed for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-robust-romer-portable-rechargeable-beam-light-reviewed/"><u>The Ultimate Guide to the Robust Romer Portable Rechargeable Beam Light Reviewed</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723015242865-trouble-with-logitechs-video-call-combo-heres-the-fix/"><u>Trouble with Logitech's Video Call Combo? Here's the Fix!</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-expedite-visuals-drawing-and-enhancing-with-windows-photos-app/"><u>[New] Expedite Visuals Drawing & Enhancing with Windows Photos App</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-chucklebox-top-meme-generator/"><u>[New] In 2024, ChuckleBox - Top Meme Generator</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-from-concept-to-cut-tape-imovie-steps-for-optimizing-youtube-edits/"><u>2024 Approved From Concept to Cut-Tape IMovie Steps for Optimizing YouTube Edits</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-hack-the-youtube-timeline-increase-or-decrease-sound/"><u>2024 Approved Hack the YouTube Timeline Increase or Decrease Sound</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-blueprint-for-incorporating-dynamic-narrations-in-media/"><u>2024 Approved The Blueprint for Incorporating Dynamic Narrations in Media</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-xiaomi-redmi-note-12-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/beat-iphone-x-irritations-discover-your-fixes-here/"><u>Beat iPhone X Irritations: Discover Your Fixes Here</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/capture-oceanic-vistas-with-the-versatile-insta360-one-x2/"><u>Capture Oceanic Vistas with the Versatile Insta360 One X2</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-perfect-travel-companion-for-readers-in-depth-review-of-the-kobo-clara-hd/"><u>Discover the Perfect Travel Companion for Readers: In-Depth Review of the Kobo Clara HD</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-benefits-and-drawbacks-a-comprehensive-look-at-the-samsung-galaxy-s21-ultra-as-the-prime-choice-for-android-users/"><u>Exploring the Benefits and Drawbacks: A Comprehensive Look at the Samsung Galaxy S21 Ultra as the Prime Choice for Android Users</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-troubleshooting-error-connecting-to-the-apple-id-server-on-iphone-12-by-drfone-ios/"><u>In 2024, Troubleshooting Error Connecting to the Apple ID Server On iPhone 12</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/in-depth-evaluation-of-the-beloved-sandbox-title-minecraft-perfect-for-all-generations/"><u>In-Depth Evaluation of the Beloved Sandbox Title, Minecraft: Perfect for All Generations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-network-performance-a-thorough-evaluation-of-the-renowned-linksys-wrt3200acm/"><u>Mastering Network Performance: A Thorough Evaluation of the Renowned Linksys WRT3200ACM</u></a></li>
 </ul></div>
 

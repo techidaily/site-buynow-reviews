@@ -1,7 +1,7 @@
 ---
 title: "Furbo’s Triumph in Tails: A Comprehensive Review for Canine Camera Enthusiasts"
-date: 2024-11-02T19:52:49.584Z
-updated: 2024-11-05T02:02:53.218Z
+date: 2024-11-08T16:04:15.311Z
+updated: 2024-11-15T16:16:24.085Z
 categories:
   - BestProducts
 description: "This Article Describes Furbo’s Triumph in Tails: A Comprehensive Review for Canine Camera Enthusiasts"
@@ -41,23 +41,9 @@ Lifewire / Kelsey Simon
 
 2.7
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -77,11 +63,25 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -111,13 +111,6 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -127,6 +120,13 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Only worth it if you’re keen on the story**
 
@@ -149,10 +149,10 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -178,20 +178,18 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-flavorful-friends-top-gastronomy-guides-online-for-2024/"><u>[New] Flavorful Friends Top Gastronomy Guides Online for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-insider-advice-efficiently-amassing-stock-visuals-for-use/"><u>[New] Insider Advice Efficiently Amassing Stock Visuals for Use</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-capturing-games-in-plain-sight-choose-between-obs-and-shadowplay/"><u>[Updated] 2024 Approved Capturing Games in Plain Sight Choose Between OBS and ShadowPlay</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/ending-epson-misprint-mistake/"><u>Ending Epson Misprint Mistake</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-revealed-power-meets-size-in-the-apple-ipad-mini/"><u>Expert Review Revealed: Power Meets Size in the Apple iPad Mini</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/explore-the-beauty-and-sound-of-teac-pd-301/"><u>Explore the Beauty & Sound of Teac PD-301</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-moto-g-play-exceptional-battery-endurance-combined-with-solid-operating-capabilities/"><u>Exploring the Moto G Play: Exceptional Battery Endurance Combined with Solid Operating Capabilities</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-to-master-hunting-alien-monsters-an-in-depth-review-of-monster/"><u>How to Master Hunting Alien Monsters: An In-Depth Review of Monster</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-troubleshoot-and-fix-your-laptops-mute-speakers-problem-easily/"><u>How to Troubleshoot and Fix Your Laptop's Mute Speakers Problem Easily</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/less-than-a-hundred-more-security-in-depth-analysis-of-remobells-top-rated-video-doorbells/"><u>Less Than a Hundred, More Security: In-Depth Analysis of RemoBell's Top-Rated Video Doorbells</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/pinnacle-10-tools-for-masterful-online-subtitle-edits-for-2024/"><u>Pinnacle 10 Tools for Masterful Online Subtitle Edits for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/secrets-unveiled-gaining-access-to-amazon-prime-at-student-rates-a-comprehensive-walkthrough/"><u>Secrets Unveiled: Gaining Access to Amazon Prime at Student Rates - A Comprehensive Walkthrough</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-checklist-5-critical-factors-for-choosing-the-right-fitness-tracker/"><u>The Ultimate Checklist: 5 Critical Factors for Choosing the Right Fitness Tracker</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-netgear-orbi-stands-out-as-the-ideal-mesh-router-solution/"><u>Why Netgear Orbi Stands Out as the Ideal Mesh Router Solution</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211108921-9781401976774-you-are-a-channel/"><u>You Are a Channel | Free Book</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-eco-filmmaking-simplified-youtubes-green-screen-wonders/"><u>[New] In 2024, Eco-Filmmaking Simplified YouTube's Green Screen Wonders</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-streamlined-video-download-from-linkedin-using-this-top-6-app-selection/"><u>[New] Streamlined Video Download From LinkedIn Using This Top 6 App Selection</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-best-online-companion-for-customizing-your-video-branding/"><u>[New] The Best Online Companion for Customizing Your Video Branding</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-closing-with-panache-free-youtubes-1-six/"><u>[Updated] Closing with Panache Free YouTube's #1 Six!</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/activating-scanner-on-latest-win11-release/"><u>Activating Scanner on Latest Win11 Release</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-radpower-radcity-5-plus-test-ride-strong-performance-with-a-weighty-frame/"><u>Comprehensive RadPower RadCity 5 Plus Test Ride: Strong Performance with a Weighty Frame</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-the-full-array-of-apps-on-your-iphone-a-guide-to-unhiding-them/"><u>Discover the Full Array of Apps on Your iPhone: A Guide to Unhiding Them</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/effective-strategies-utilizing-chatgpts-ai-expertise-for-personalized-automotive-customization-guidance/"><u>Effective Strategies: Utilizing ChatGPT's AI Expertise for Personalized Automotive Customization Guidance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/effortless-nourishment-with-arf-pets-auto-feeder-hands-off-mealtime-solutions/"><u>Effortless Nourishment with Arf Pet's Auto-Feeder: Hands-Off Mealtime Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-seamless-web-browsing-with-the-ourlink-u631-usb-wifi-nano-adapter-portable-and-powerful/"><u>Experience Seamless Web Browsing with the Ourlink U631 USB Wifi Nano Adapter: Portable & Powerful</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fellowess-best-budget-choice-reviewed-the-trustworthy-microban-wired-keyboard-experience/"><u>Fellowes's Best Budget Choice Reviewed: The Trustworthy Microban Wired Keyboard Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/kobo-libra-h2o-unveiled-revolutionizing-reading-in-any-liquid-environment/"><u>Kobo Libra H2O Unveiled: Revolutionizing Reading in Any Liquid Environment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transforming-your-rest-with-the-ihome-zenergy-an-in-depth-review-of-this-morning-elixir/"><u>Transforming Your Rest With The IHome Zenergy - An In-Depth Review of This Morning Elixir</u></a></li>
 </ul></div>
 

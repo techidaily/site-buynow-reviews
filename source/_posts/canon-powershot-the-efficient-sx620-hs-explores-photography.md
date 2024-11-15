@@ -1,7 +1,7 @@
 ---
 title: "Canon PowerShot: The Efficient SX620 HS Explores Photography"
-date: 2024-11-03T21:03:39.004Z
-updated: 2024-11-04T22:57:41.078Z
+date: 2024-11-11T16:26:49.644Z
+updated: 2024-11-15T16:27:20.950Z
 categories:
   - BestProducts
 description: "This Article Describes Canon PowerShot: The Efficient SX620 HS Explores Photography"
@@ -44,10 +44,10 @@ Lifewire / Nick Jaynes
 4.5
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Anker PowerDrive 2 24W Dual USB Car Charger
@@ -75,6 +75,13 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: All-plastic, but sturdy and subtle**
 
  The Anker PowerDrive 2 might not be the sharpest or most cutting-edge looking in-car USB charger, but what it lacks in visual pizazz, it more than makes up for in sturdiness.
@@ -87,13 +94,6 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Fast charging for demanding devices**
 
  The best part of the Anker PowerDrive 2 is its charging. It has the ability to charge iPads simultaneously without getting overheated thanks to its PowerIQ and VoltageBoost technology. Each USB port can output a maximum 5V/2.4A, for a total of 24W. That’s in line with other car[chargers](https://www.lifewire.com/best-wireless-phone-chargers-4138571) we tested, but the PowerIQ technology can help identify device and deliver the fastest possible charge. This also gives you some overvoltage protection to make sure something like a smartwatch doesn’t fry when you plug it in.
@@ -105,10 +105,10 @@ Lifewire / Nick Jaynes
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Middle of the pack**
@@ -118,10 +118,10 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: A handful of rivals**
@@ -164,17 +164,24 @@ Lifewire / Nick Jaynes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-gadget-unveiling-top-youtube-channels-to-watch/"><u>[New] Gadget Unveiling Top YouTube Channels to Watch</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-xiaomi-redmi-13c-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Xiaomi Redmi 13C Phone Using PC | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-making-sense-of-the-linksys-max-stream-ac1900-features/"><u>Comprehensive Review: Making Sense of the Linksys Max-Stream AC1900 Features</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-popular-photographs-their-narratives-unveiled/"><u>In 2024, Popular Photographs Their Narratives Unveiled</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/natural-luminescence-in-home-interiors-simple-steps-for-2024/"><u>Natural Luminescence in Home Interiors Simple Steps for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/pawsome-vision-unpacking-the-features-that-make-furbos-dog-camera-a-top-choice/"><u>Pawsome Vision: Unpacking the Features That Make Furbo’s Dog Camera a Top Choice</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solving-the-mystery-effective-ways-to-eliminate-packet-loss-in-discord/"><u>Solving the Mystery: Effective Ways to Eliminate Packet Loss in Discord</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-gradual-glide-out-technique-for-audio-in-adobe-premiere-pro/"><u>The Gradual Glide Out Technique for Audio in Adobe Premiere Pro</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleash-unprecedented-productivity-on-the-go-with-the-2021-ipad-pro-featuring-apples-newest-m1-chip/"><u>Unleash Unprecedented Productivity On-the-Go with the 2021 iPad Pro Featuring Apple's Newest M1 Chip</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potential-a-detailed-review-of-linksys-wrt1900acs-the-leading-open-source-router/"><u>Unveiling the Potential: A Detailed Review of Linksys WRT1900ACS, the Leading Open-Source Router</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-best-10-free-manga-sites-to-read-online/"><u>Updated In 2024, Best 10 Free Manga Sites to Read Online</u></a></li>
-<li><a href="https://win-ratings.techidaily.com/windows-media-playerm4amp3/"><u>Windows Media Playerで簡単なM4AからMP3への変換手順</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-join-jargon-free-youtube-chats/"><u>[New] In 2024, Join Jargon-Free YouTube Chats</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-unveiling-excellent-video-creatives/"><u>[Updated] Unveiling Excellent Video Creatives</u></a></li>
+<li><a href="https://fox-that.techidaily.com/airdrop-not-working-fix-it-fast-with-these-16-tips/"><u>AirDrop Not Working? Fix It Fast With These 16 Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/broadcasting-ig-live-silent-mute-is-fine/"><u>Broadcasting IG Live: Silent, Mute Is Fine</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/compact-travel-wireless-router-tp-link-tl-wr902ac-perfect-portability/"><u>Compact Travel Wireless Router (TP-Link TL-WR902AC): Perfect Portability</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-the-highs-and-lows-in-the-motorola-one-hyper-review-a-robust-phone-with-exceptional-presence/"><u>Discovering the Highs and Lows in the Motorola One Hyper Review: A Robust Phone with Exceptional Presence</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-dji-phantom-4-pro-version-20-nearly-unmatched-performance/"><u>Expert Analysis of the DJI Phantom 4 Pro Version 2.0 - Nearly Unmatched Performance</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-unresponsive-touch-and-stylus-controls-on-displays/"><u>Fixing Unresponsive Touch and Stylus Controls on Displays</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-apple-iphone-xs-to-chromecast-drfone-by-drfone-ios/"><u>How to Cast Apple iPhone XS to Chromecast? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-ios-17-worth-my-money/"><u>Is iOS 17 Worth My Money?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/masterclass-building-an-interactive-story-rich-rpg-with-chatgpt-technology/"><u>Masterclass: Building an Interactive, Story-Rich RPG with ChatGPT Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-data-centers-a-look-at-the-top-server-racks-and-enclosures/"><u>Mastering Data Centers: A Look at the Top Server Racks & Enclosures</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-imessage-not-delivered-errors-on-iphone-effective-methods/"><u>Overcoming iMessage Not Delivered Errors on iPhone: Effective Methods</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/snowy-seasonings-sharing-apps-from-microsofts-marketplace/"><u>Snowy Seasonings: Sharing Apps From Microsoft's Marketplace</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-good-the-bad-and-the-ugly-unveiling-the-issues-with-pioneer-bdr-xd05b-blu-ray-playerwriter/"><u>The Good, The Bad & The Ugly: Unveiling the Issues with Pioneer BDR-XD05B Blu-Ray Player/Writer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-elite-server-racks-and-enclosures-of-2024-industry-experts-weigh-in/"><u>Unveiling the Elite Server Racks and Enclosures of 2024 – Industry Experts Weigh In</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/what-changes-come-with-monterey-on-my-mac/"><u>What Changes Come with Monterey on My Mac?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-you-should-consider-getting-the-samsung-galaxy-tab-s3-a-comprehensive-guide/"><u>Why You Should Consider Getting the Samsung Galaxy Tab S3 - A Comprehensive Guide</u></a></li>
 </ul></div>
 
