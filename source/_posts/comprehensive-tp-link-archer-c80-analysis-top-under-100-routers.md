@@ -1,7 +1,7 @@
 ---
 title: Comprehensive TP-Link Archer C80 Analysis - Top Under $100 Routers
-date: 2024-11-11T16:51:22.828Z
-updated: 2024-11-15T16:00:54.309Z
+date: 2024-11-18T20:38:41.071Z
+updated: 2024-11-24T18:17:14.942Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive TP-Link Archer C80 Analysis - Top Under $100 Routers
@@ -42,13 +42,6 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
@@ -85,13 +78,14 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup: Easier than most**
 
@@ -100,6 +94,10 @@ Lifewire / Erika Rawes
  Once you connect the antenna’s cable to your TV, you’ll need to find the best placement. This is perhaps the most difficult part of the setup process. My test home is in a wooded area, and I found the best placement was near or directly on the window. However,[to improve your antenna’s reception](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) , it’s usually a good idea to place the antenna high up in a room close to the home’s exterior (and nearest to the transmitter towers) and to avoid obstacles like walls and tree cover.
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels**
 
@@ -111,6 +109,10 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Range: Could be better**
 
  My test home is in a rural area, and there’s a lot of tree cover on the property. The omnidirectional Antop AT-127 has a 40-mile range, which was enough to pick up local channels from neighboring cities.
@@ -118,13 +120,6 @@ Lifewire / Erika Rawes
  On my first attempt, I used the included stand, and the auto-programming only picked up four channels. When I placed the antenna on a window facing the TV transmitter tower, however, the omnidirectional HD antenna picked up 23 channels, which is a good amount considering the area.
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Mid-range**
 
@@ -145,10 +140,7 @@ Lifewire / Erika Rawes
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -182,19 +174,17 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-digital-game-chronicles-snappy-screenshots-for-every-moment/"><u>[New] 2024 Approved Digital Game Chronicles Snappy Screenshots for Every Moment</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-breaking-down-anonymous-instagram-streaming-techniques-for-2024/"><u>[New] Breaking Down Anonymous Instagram Streaming Techniques for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-linkedin-learning-courses/"><u>Best LinkedIn Learning Courses</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/boost-your-nintendo-entertainment-systems-titles-a-step-by-step-approach/"><u>Boost Your Nintendo Entertainment System's Titles: A Step-By-Step Approach</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-garmin-forerunner-265-watch-analysis/"><u>Comprehensive Guide: Garmin Forerunner 265 Watch Analysis</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/echoes-of-elation-international-independence-day/"><u>Echoes of Elation: International Independence Day</u></a></li>
-<li><a href="https://games-able.techidaily.com/economical-gaming-inputs-for-console-and-pc-gamers/"><u>Economical Gaming Inputs for Console and PC Gamers</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/expert-guide-to-eliminating-red-eye-on-your-iphone-shots-for-free-for-2024/"><u>Expert Guide to Eliminating Red Eye on Your iPhone Shots for Free for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-oppo-reno-10-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Oppo Reno 10 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-to-pick-your-ideal-tablet-a-comprehensive-look-at-sizing-and-weight-factors/"><u>How to Pick Your Ideal Tablet: A Comprehensive Look at Sizing & Weight Factors</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-samsung-galaxy-m14-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Samsung Galaxy M14 5G FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/silent-g435-wireless-headset-heres-how-you-can-restore-audio/"><u>Silent G435 Wireless Headset? Here's How You Can Restore Audio!</u></a></li>
-<li><a href="https://techidaily.com/three-methods-to-recover-lost-data-on-itel-s23-by-fonelab-android-recover-data/"><u>Three methods to recover lost data on Itel S23</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/transforming-ps3-with-a-mega-hard-drive/"><u>Transforming PS3 with a Mega-Hard Drive</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-pocket-sized-worlds-googles-cardboard-meets-samsungs-gear/"><u>[New] Pocket-Sized Worlds Google's Cardboard Meets Samsung's Gear</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-essential-recording-steps-for-youtube-audio-extraction/"><u>[Updated] 2024 Approved Essential Recording Steps for YouTube Audio Extraction</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/a-comprehensive-guide-to-picking-perfect-smartwatches-5-must-know-tips/"><u>A Comprehensive Guide to Picking Perfect Smartwatches – 5 Must-Know Tips</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/audio-enhancement-for-online-video-creators/"><u>Audio Enhancement for Online Video Creators</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-setup-canon-mf4500-printer-official-drivers-available-here/"><u>Download and Setup Canon MF4500 Printer - Official Drivers Available Here</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-savings-and-speed-the-comprehensive-tp-link-archer-c50-router-test/"><u>Evaluating Savings and Speed: The Comprehensive TP-Link Archer C50 Router Test</u></a></li>
+<li><a href="https://win-info.techidaily.com/fixing-power-off-issues-for-vms-on-vmware-four-effective-esxi-command-solutions-explored/"><u>Fixing Power Off Issues for VMs on VMware: Four Effective ESXi Command Solutions Explored</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/must-have-apple-bargains-prime-day-exclusive-deals/"><u>Must-Have Apple Bargains: Prime Day Exclusive Deals</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-real-face-of-the-nikon-coolpix-l340/"><u>The Real Face of the Nikon Coolpix L340</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-success-story-behind-wii-u-why-it-captivated-gamers-worldwide/"><u>The Success Story Behind Wii U: Why It Captivated Gamers Worldwide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-features-iphone-15-pro-max-against-samsung-s2eus-24-ultra-showdown/"><u>Unpacking the Features: IPhone 15 Pro Max Against Samsung S2eus 24 Ultra Showdown</u></a></li>
+<li><a href="https://win-dash.techidaily.com/update-your-nvidia-geforce-mx150-graphics-card-free-windows-compatible-software/"><u>Update Your Nvidia GeForce MX150 Graphics Card - Free Windows-Compatible Software</u></a></li>
 </ul></div>
 

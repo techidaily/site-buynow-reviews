@@ -1,7 +1,7 @@
 ---
 title: Stream Content Using Plex While Wearing the Meta Quest Headset - A Step-by-Step Tutorial
-date: 2024-08-31T14:56:01.965Z
-updated: 2024-09-01T14:56:01.965Z
+date: 2024-11-20T01:29:32.252Z
+updated: 2024-11-25T02:06:24.037Z
 tags:
   - games
   - tv
@@ -13,6 +13,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ## Stream Content Using Plex While Wearing the Meta Quest Headset - A Step-by-Step Tutorial
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Quick Links
 
 * [First You Need Plex (Free)](https://www.howtogeek.com/you-can-watch-plex-in-vr-on-your-meta-quest-heres-how/#first-you-need-plex-free)
@@ -21,6 +25,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 * [How to Navigate Your VR Plex Theater](https://extra-guidance.techidaily.com/2024-approved-step-by-step-tips-for-turning-gopro-into-professionals-best-work/)
 
  Plex is a great way to stream your personal media collection to every device in your house, but its even better now that you can stream it straight to the virtual cinema that lives inside your Meta Quest headset. Let's look at how to do it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  First You Need Plex (Free)
 
@@ -35,8 +43,9 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
  Now, while the Plex server software is free, you do need to pay for the client software, such as the iPad app I use most often. There's an option to pay for the app once-off, or you can pay for a Plex subscription, which comes with a few other perks, such as streaming your stuff while you're away from home. In order to watch Plex on your Meta Quest, you'll need to buy a specialized client app.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Next, Get Movie Deck for Quest (Not Free)
 
  The app you'll need on your Quest is not made by Plex. Instead, it's a third-party application called [Movie Deck](https://www.oculus.com/deeplink/?action=view&path=/app/6664246617031653&ref=oculus%5Fdesktop) and as of this writing it's still in the "App Lab." That's Meta's version of early access. All you have to do is buy the app and download it. This will allow you to access your Plex library from within the app.
@@ -56,32 +65,25 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 ![The Movie Deck browsing method selection screen.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/mpvie-deck-select-plex.jpeg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Choose your login method. I prefer to use a code.
 
 ![Movie Deck Login Method selection screen.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/movie-deck-login-method.jpeg) 
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Once you've selected it, you'll be asked to enter a one-time pin to verify access, just as you would when setting up any Plex client.
 
 ![Movie Deck Plex Code.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/movie-deck-plex-code.jpeg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Once you've followed the instructions and entered the code, you should see your Plex library appear, and the viewing can begin!
 
 ![Movie Deck showing Ghost in the Shell.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/movie-deck-gits.jpeg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ##  How to Navigate Your VR Plex Theater
 
  While Movie Deck works great in my experience so far, it does feel a little counterintuitive to use. There are a _lot_ of things you can tweak in this app, including exact screen size, shape, and placement. You can adjust the audio, even the colors of the video. Of course, it supports 3D video as well!
@@ -96,8 +98,6 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -105,4 +105,18 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-oppo-reno-11-5g-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/how-the-little-giant-acers-predator-triton/"><u>How the Little Giant, Acer's Predator Triton</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-craft-your-narrative-implementing-inshot-transitions-professionally/"><u>In 2024, Craft Your Narrative Implementing Inshot Transitions Professionally</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-mastering-snapchat-shots-select-best-20-filters-and-effects/"><u>In 2024, Mastering Snapchat Shots Select Best 20 Filters & Effects</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/prime-selection-the-best-12-pc-games-for-click-enthusiasts-for-2024/"><u>Prime Selection The Best 12 PC Games for Click Enthusiasts for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/remobell-subcompact-video-doorbell-budget-friendly-security-device-below-100/"><u>RemoBell Subcompact Video Doorbell - Budget-Friendly Security Device Below $100</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revamp-your-workout-routine-with-the-chic-garmin-vivomove-hr-smartwatch-reviewed/"><u>Revamp Your Workout Routine with the Chic Garmin Vivomove HR Smartwatch Reviewed</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-easy-download-of-geforce-gt-730-drivers-by-nvidia-speedy-setup/"><u>Step-by-Step: Easy Download of GeForce GT 730 Drivers by NVIDIA - Speedy Setup!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/syma-107g-remote-control-helicopter-evaluation-budget-friendly-sky-adventures/"><u>Syma 107G Remote Control Helicopter Evaluation: Budget-Friendly Sky Adventures</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-essential-breakdown-of-dells-inspiron-3671-an-examination-of-an-average-performing-computer-system/"><u>The Essential Breakdown of Dell's Inspiron 3671: An Examination of an Average-Performing Computer System</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-ultimate-guide-to-melodic-content-on-instagram-for-2024/"><u>The Ultimate Guide to Melodic Content on Instagram for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Review: Unveiling the Value and Usability of Microsoft's Ergonomic Keyboard"
-date: 2024-11-12T17:06:42.840Z
-updated: 2024-11-15T16:25:33.193Z
+date: 2024-11-20T21:42:14.261Z
+updated: 2024-11-24T16:07:58.574Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate Review: Unveiling the Value and Usability of Microsoft's Ergonomic Keyboard"
@@ -48,6 +48,10 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Surface Ergonomic Keyboard](https://www.lifewire.com/thmb/OTYRC4PtfZO9h5RTG8oHiroYrDg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_4LW4147386_HeroSquare-3ef573df092942b58b61bf36ce218fb3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Emily Isaacs
 
 [View On Amazon $160](https://www.amazon.com/Microsoft-3RA-00022-Surface-Ergonomic-Keyboard/dp/B01MFCTRZM/?tag=lifewire-onsite-prod-20&ascsubtag=4780282%7Cn5d92c3a566b34e0ab250914e6a064c0806%7CB01MFCTRZM) [View On Walmart $108](https://www.walmart.com/ip/Microsoft-Surface-Ergonomic-Keyboard/516908599) [View On Best Buy $130](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fmicrosoft-surface-ergonomic-keyboard-silver%2F5689821.p%3FskuId%3D5689821)
@@ -86,10 +90,7 @@ Lifewire / Emily Isaacs
  Unlike some ergonomic keyboards that can hog space, forcing users to overreach for mice which can lead to shoulder injuries in place of wrist injuries, the Surface is wide enough that your hands sit comfortably but small enough that it’s easy to reach for your mouse when you want it. It’s the Goldilocks of keyboards with a fit that feels just right.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easy for PCs**
@@ -106,35 +107,19 @@ Lifewire / Emily Isaacs
 
  The Surface has function keys for pausing multimedia, skipping forward or backward in multimedia, increasing or decreasing volume, muting volume, increasing brightness or decreasing brightness, and several others. It really feels like Microsoft thought of every way their users interact with keyboards and tried to meet their needs.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery Life: Excellent, but at the expense of backlighting**
 
  The keyboard[features Bluetooth 4.0 technology](https://www.lifewire.com/what-is-bluetooth-2377412) , so it’s able to establish a wireless connection of up to 32 feet with Bluetooth-capable devices. It’s worth noting that it does use two AAA[alkaline batteries](https://www.lifewire.com/best-aa-and-aaa-rechargeable-batteries-4134295) . These offer a shelf life of up to 12 months, so you’re not likely to run out of power anytime soon. If you do need to change them, it’s easy to press the battery compartment lid down so that it pops out to replace them. One drawback to this design, however, is that the keyboard doesn’t feature backlighting. While this isn’t the end of the world by any means, it is something we definitely missed when using it.
 
  The keyboard features Bluetooth 4.0 technology, so it’s able to establish a wireless connection of up to 32 feet with Bluetooth-capable devices.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Expensive, but worth it for the quality**
 
  Retailing for $129 (MSRP) or around $99 on Amazon, the Surface is a pricey little keyboard. Between the quality of the build materials, the comfort of the keyboard’s design, its wireless capabilities, and its great battery life, the Surface is a worthwhile investment for people who spend a significant amount of time in front of a PC. If you don’t spend much time on your PC, however, a cheaper, non-ergonomic model may be a better fit.
-
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Microsoft Surface Ergonomic Keyboard vs. Microsoft Sculpt Ergonomic Keyboard**
 
@@ -143,6 +128,10 @@ Lifewire / Emily Isaacs
 [Microsoft Sculpt Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-sculpt-ergonomic-keyboard-review-4780274)
 
 ![Microsoft Surface Ergonomic Keyboard](https://www.lifewire.com/thmb/V-eFQKJrpei_UnaKMYDEWLLNsYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_4LW4147386_02-4fa6aa53c9d249a6900cb4058b084301.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -161,10 +150,7 @@ Lifewire / Emily Isaacs
  The Microsoft Surface Ergonomic Keyboard is a quality, wireless ergonomic keyboard that’s well worth the investment if you spend a significant portion of your time typing on your computer. It’s a splurge to be sure, but it’s worth the price for the quality you receive.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -198,22 +184,24 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-bypassing-errors-in-facebook-story-postings-and-viewing/"><u>[New] Bypassing Errors in Facebook Story Postings & Viewing</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-the-filmmakers-guide-to-professional-gopro-cinematography-for-2024/"><u>[New] The Filmmaker’s Guide to Professional Gopro Cinematography for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-eclipsing-fears-in-your-first-10-videos/"><u>[Updated] Eclipsing Fears in Your First 10 Videos</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/amd-driver-installation-optimizing-performance-across-multiple-windows-versions/"><u>AMD Driver Installation: Optimizing Performance Across Multiple Windows Versions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ausdom-m06-wireless-headphones-review-solid-connectivity/"><u>Ausdom M06 Wireless Headphones Review: Solid Connectivity</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-small-trackers-revealed-primetrackings-review-guide-to-choose-the-right-size-for-maximum-safety-and-ease-of-use/"><u>Best Small Trackers Revealed - PrimeTracking's Review Guide to Choose The Right Size For Maximum Safety and Ease Of Use</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/bose-qc35-ii-insider-the-best-sound-quieting-gear/"><u>Bose QC35 II Insider: The Best Sound Quieting Gear</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-choice-unveiling-the-new-features-of-ipad-air-4/"><u>Budget-Friendly Choice: Unveiling the New Features of iPad Air 4</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/compare-and-contrast-the-creme-de-la-creme-of-free-edits/"><u>Compare and Contrast The Crème De La Crème of Free Edits</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-unleashing-online-music-potential-with-imovie-and-youtube/"><u>In 2024, Unleashing Online Music Potential with iMovie & YouTube</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/mastering-sports-viewership-in-the-digital-age-for-2024/"><u>Mastering Sports Viewership in the Digital Age for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-the-art-of-intel-imac-rejuvenation-expert-guide-to-system-upgrades/"><u>Mastering the Art of Intel iMac Rejuvenation: Expert Guide to System Upgrades</u></a></li>
-<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/step-by-step-tutorial-installing-the-newest-amd-vega-64-drivers-on-windows-problem-solved-solved/"><u>Step-by-Step Tutorial: Installing the Newest AMD Vega 64 Drivers on Windows - Problem Solved [SOLVED]</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tech-review-spotlight-unveiling-the-enhanced-capabilities-of-the-new-10n-generation-apple-ipad-air/"><u>Tech Review Spotlight: Unveiling the Enhanced Capabilities of the New 10.n Generation Apple iPad Air</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-surprising-performance-of-the-portable-and-potent-xbox-series-s/"><u>The Surprising Performance of the Portable and Potent Xbox Series S</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/thrifty-tech-in-depth-tcls-2019-50-roku-tv-model-50s425-4k-smart-led-screen-assessment-and-value-breakdown/"><u>Thrifty Tech: In-Depth TCL's 2019 50 Roku TV Model 50S425 4K Smart LED Screen Assessment and Value Breakdown.</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-elite-10-royale-combat-titles/"><u>[New] 2024 Approved Elite 10 Royale Combat Titles</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-63-chuckle-factory-on-tiktok/"><u>[New] 63 Chuckle Factory on TikTok</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-3d-worlds-on-your-android-mastering-vr-and-360-videos/"><u>[New] In 2024, 3D Worlds on Your Android Mastering VR & 360 Videos</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-speech-reader-feedback-summary/"><u>[New] Speech Reader Feedback Summary</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-free-youtube-revenue-predictor-tools/"><u>[Updated] In 2024, Free YouTube Revenue Predictor Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-streamlined-approach-to-validate-your-yt-identity/"><u>[Updated] Streamlined Approach to Validate Your YT Identity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-protection-an-in-depfth-analysis-of-the-procase-macbook-pro-13-sleeve/"><u>Affordable Protection: An In-Depfth Analysis of the ProCase MacBook Pro 13 Sleeve</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/analyzing-the-lg-k51-review-beautiful-appearance-overshadowed-by-slow-processor-speed/"><u>Analyzing the LG K51 Review: Beautiful Appearance Overshadowed by Slow Processor Speed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-ipad-air-4-review/"><u>Apple iPad Air 4 Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/before-you-buy-a-gaming-console-check-out-these-5-must-know-insights-first/"><u>Before You Buy a Gaming Console, Check Out These 5 Must-Know Insights First</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/decoding-6-common-pitfalls-in-chatgpt-expert-fix-strategies-revealed/"><u>Decoding 6 Common Pitfalls in ChatGPT: Expert Fix Strategies Revealed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722612873528-discover-the-leading-home-theater-pcs-for-2t24s-best-viewing-experience/"><u>Discover the Leading Home Theater PCs for 2T24's Best Viewing Experience!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-pictures-from-huawei-nova-y71-by-fonelab-android-recover-pictures/"><u>How to Rescue Lost Pictures from Huawei Nova Y71?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/integrated-upload-sending-vids-to-twitter-and-tumblr/"><u>Integrated Upload Sending Vids to Twitter and Tumblr</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sony-wma-nw78-superior-audio-acclaim/"><u>Sony WMA-NW78 - Superior Audio Acclaim</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-upgraded-features-of-the-apple-watch-series-4/"><u>The Ultimate Guide to the Upgraded Features of the Apple Watch Series 4</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-using-omotons-t1-tablet-holder-robust-and-budget-friendly/"><u>The Ultimate Guide to Using Omoton's T1 Tablet Holder – Robust & Budget-Friendly!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveil-cinematic-thrills-with-these-top-7-trailer-hubs-online/"><u>Unveil Cinematic Thrills with These Top 7 Trailer Hubs Online</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unwanted-tv-bloat-consider-before-a-dvr-purchase/"><u>Unwanted TV Bloat? Consider Before a DVR Purchase</u></a></li>
 </ul></div>
 

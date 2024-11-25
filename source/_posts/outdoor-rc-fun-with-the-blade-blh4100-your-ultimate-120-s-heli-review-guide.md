@@ -1,7 +1,7 @@
 ---
 title: "Outdoor RC Fun with the Blade BLH4100: Your Ultimate 120 S Heli Review Guide"
-date: 2024-08-27T11:13:35.938Z
-updated: 2024-08-28T11:13:35.938Z
+date: 2024-11-24T00:18:11.084Z
+updated: 2024-11-25T00:35:52.831Z
 categories:
   - BestProducts
 description: "This Article Describes Outdoor RC Fun with the Blade BLH4100: Your Ultimate 120 S Heli Review Guide"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/fe074f06665304f02bb44d59a2cf2f7a7e742cf6a
 ## Sealoc Outdoor TV Full Weatherized 55" UHD Smart Weatherproof LED Television
 
 ![SkyVue 55-inch Sealoc Costal Silver TV](https://www.lifewire.com/thmb/uyIYN745zw-UJZ8sDjpcxk5bhqA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_HERO_Square-a5f526f61e0641158a8503d02b6058b1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -35,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/fe074f06665304f02bb44d59a2cf2f7a7e742cf6a
 [View On Amazon](https://www.amazon.com/Sealoc-EcoView-Outdoor-nits-Brightness/dp/B098GQDML4/?tag=lifewire-onsite-prod-20&ascsubtag=5077335%7Cn322ca5b212d44e2293bc4c171617475d19%7CB098GQDML4)
 
 4.5
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Sealoc Outdoor TV Full Weatherized 55" UHD Smart Weatherproof LED Television
 
@@ -61,9 +69,6 @@ thumbnail: https://thmb.techidaily.com/fe074f06665304f02bb44d59a2cf2f7a7e742cf6a
 
  Outdoor TVs like the Sealoc Coastal Silver are designed to take on the elements without batting an eye and provide a great viewing experience in nearly any environment you can throw their way. In this review, I share my experience with[Sealoc’s](https://www.sealoctvs.com/) outdoor TV after spending more than 40 hours testing it over the course of two months throughout the ever-changing conditions of Michigan’s springtime.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ## **Design: Slim and sleek**
 
  Unlike other outdoor TV manufacturers, Sealoc doesn’t simply form a box around a[standard TV,](https://www.lifewire.com/best-tvs-to-buy-4061107) seal a few areas and call it a day. No, instead they opt to strip down the TV as it is and quite literally waterproof it from the inside out, resulting in an ultra-thin outdoor TV that you’d barely recognize was weather-sealed.
@@ -82,9 +87,6 @@ thumbnail: https://thmb.techidaily.com/fe074f06665304f02bb44d59a2cf2f7a7e742cf6a
 
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## **Durability: It can handle it all**
 
  The 55-inch Coastal Silver TV is part of Sealoc’s full exposure weatherproof series, which means it’s designed to take on nearly anything you can throw at it. As mentioned above, Sealoc doesn’t just slap a weatherproof case around the TV inside and call it a day. Instead, Sealoc strips down the TV and waterproofs even the internal electronic components using a proprietary “nano-coating” that helps to shed moisture away in the event it somehow manages to make it past the other sealing elements.
@@ -99,11 +101,11 @@ thumbnail: https://thmb.techidaily.com/fe074f06665304f02bb44d59a2cf2f7a7e742cf6a
 
 ![SkyVue 55-inch 4K Outdoor TV](https://www.lifewire.com/thmb/GJ1StKRMx12EggdPfSJWCSSS7aY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_02_Horiz-1df71300a60d421f848d96050a856fbe-d93884cf38ee40188089dc6d114570d3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 Lifewire / Gannon Burgett
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Not much to it**
 
@@ -113,14 +115,12 @@ Lifewire / Gannon Burgett
 
 ![SkyVue 55-inch 4K Outdoor TV](https://www.lifewire.com/thmb/OnY0-xZAailZsOzbKDqy1Zy3Gaw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_03_Horiz-65682943818f4cb49f1fe614eaeb18e6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Image and Audio Quality: Fantastic, rain or shine**
 
  While this particular TV is branded as a full-sun Sealoc unit, underneath the branding and weather-sealing it’s an LG 6-series 4K HDR TV that’s been custom calibrated by Sealoc to offer specialized adjustments for optimized viewing in bright or direct-sun environments.
@@ -138,8 +138,9 @@ Lifewire / Gannon Burgett
  Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: You get what you pay for**
 
  I’ll get straight to the point—this TV isn’t cheap. At $3,000, you could go through at least four of the standard LG 6-series units this model is based on. But not a single one of those would last through more than a single downpour.
@@ -182,14 +183,11 @@ Lifewire / Gannon Burgett
 * Connectivity Options  Wi-Fi, Ethernet
 * Warranty  One Year Limited Warranty
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -198,4 +196,20 @@ Lifewire / Gannon Burgett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/updated-how-to-use-the-blending-modes-to-composite-clips-for-2024/"><u>[Updated] How to Use The Blending Modes To Composite Clips for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-vivo-t2-pro-5g-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Vivo T2 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-leading-8-sites-offering-free-access-to-3d-text-psdfiles/"><u>2024 Approved Leading 8 Sites Offering Free Access to 3D Text PSDFiles</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-the-ultimate-high-definition-showdown-comparing-8k-tvs/"><u>2024 Approved The Ultimate High-Definition Showdown Comparing 8K TVs</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/comprehensive-insight-into-chatgpt-and-its-multifaceted-uses-with-advanced-generative-ai-techniques/"><u>Comprehensive Insight Into ChatGPT and Its Multifaceted Uses with Advanced Generative AI Techniques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/decoding-amazon-primes-merit-join-now/"><u>Decoding Amazon Prime's Merit – Join Now!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-scenes-with-canons-g9x-mark-ii/"><u>Discovering Scenes with Canon's G9X Mark II</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/prestigious-websites-elevating-youtube-content/"><u>Prestigious Websites Elevating YouTube Content</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/surprising-features-and-tricks-uncover-hidden-functions-of-the-steam-platform/"><u>Surprising Features & Tricks: Uncover Hidden Functions of the Steam Platform</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-best-ispoofer-alternative-to-try-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Vivo V30 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/topmate-c302-desktop-cooling-system-reviewed-combining-affordability-and-efficiency/"><u>TopMate C302 Desktop Cooling System Reviewed: Combining Affordability and Efficiency</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-future-of-entryway-security-a-detailed-examination-of-ring-battery-doorbells/"><u>Unveiling the Future of Entryway Security: A Detailed Examination of Ring Battery Doorbells</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/variations-in-windows-movie-maker-clones/"><u>Variations in Windows Movie Maker Clones</u></a></li>
+</ul></div>
 

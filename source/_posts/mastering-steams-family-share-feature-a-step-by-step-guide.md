@@ -1,7 +1,7 @@
 ---
 title: "Mastering Steam's Family Share Feature: A Step-by-Step Guide"
-date: 2024-08-31T14:57:38.492Z
-updated: 2024-09-01T14:57:38.492Z
+date: 2024-11-21T22:47:50.412Z
+updated: 2024-11-24T18:26:25.591Z
 tags:
   - games
   - tv
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/5b8a360ae2beb8ae28dded746595b2ec0252b7304
 * [How to Hide Games Using Steam Families](https://on-screen-recording.techidaily.com/new-2024-approved-guide-to-top-8-linux-screenshot-solutions/)
 * [Revoke Access to Games with Steam Families](https://fox-friendly.techidaily.com/in-2024-vector-art-basics-for-newcomers-diverse-forms-and-tools/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Steam Families allows sharing of game libraries with up to 6 people, each retaining progress made on their own account.
@@ -29,8 +33,9 @@ thumbnail: https://thmb.techidaily.com/5b8a360ae2beb8ae28dded746595b2ec0252b7304
  Steam Family Sharing evolved from carte blanche sharing of a Steam library into a system that allows you to decide which shared titles are seen by whom. Here's how to get your Steam Families set up properly. 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  What Is Steam Families?
 
  Steam Families is a feature in Valve's Steam game distribution client that allows you to share your personal game library (the games you have purchased from the Steam service) with friends and family.
@@ -45,9 +50,6 @@ thumbnail: https://thmb.techidaily.com/5b8a360ae2beb8ae28dded746595b2ec0252b7304
 
  Originally, Family Sharing and Family Options didn't play nice together either. This meant that library sharing and parental restrictions couldn't be used in tandem. But Valve has updated Steam to fix this functionality, which means you're given full control over a child's account when logged into your parental Steam account. 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  How to Enable Steam Families Beta
 
  Setting up Steam Families is relatively easy, though you do have to jump through a few hoops to get the latest version. The old method still works, but if you want all of the new features, every person who wants to be in your Steam Family needs to go to Steam > Settings > Interface > Client Beta Participation and ensure that "Steam Families Beta" is enabled. At some point, the new Steam Families will come out of beta and this will no longer be necessary, but for now, it is.
@@ -73,13 +75,15 @@ Close
 ![A Steam Families shared library.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/steam-family-sharing-library-1.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Whenever the primary account holder is using their library, the secondary account holder will be given the option to purchase the game so they can continue playing it.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  How to Hide Games Using Steam Families
 
  Also, as part of the new Steam Families beta, you're able to [hide games from family members](https://facebook-record-videos.techidaily.com/updated-2024-approved-building-blocks-of-a-well-structured-youtube-video/). There's two different ways to do this. The first way hides a game from all family members at one time. This is done by right-clicking on a game, hovering over "Manage," and then clicking "Mark As Private." This will hide the game from the entire Steam network outside of your computer as well as hide it from being shared with Steam Family members. 
@@ -90,9 +94,6 @@ Close
 
  This list is different for each child account and allows you to give your youngest children access to age-appropriate games while your teenager can have another library of games to play as well. There are other functions of the parental controls too, like access to the Steam Store, playtime limits, access to friends and group chats, and much more.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Revoke Access to Games with Steam Families
 
  Finally, if you'd like to revoke access to library sharing with any account, the process is simple. Just go to Store > Your Store > Preferences > Family Management, then click on the account you'd like to remove and select "Remove Member." This is all it takes to remove a member that you're sharing a library with, and then you'll be able to add someone else since the maximum number of accounts to share with is six.
@@ -100,8 +101,9 @@ Close
 ![Removing a member from Steam Families library sharing.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/steam-family-sharing-remove-member.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ---
 
  Since Steam updated to Steam Families Beta, a lot of our gripes with the previous process have been resolved. It's nice that you no longer have to double log into accounts on recipient computers, and it's also great that Steam has worked out Parental Controls to work with Steam Families now, as that was a big issue with the previous implementation. I
@@ -116,8 +118,6 @@ Close
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -125,4 +125,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-thrifty-pc-display-saving-programs/"><u>[New] 2024 Approved Thrifty PC Display Saving Programs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-backtracking-live-on-twitch-fifteen-ingenious-ways-to-revamp-streams-for-2024/"><u>[New] Backtracking Live on Twitch Fifteen Ingenious Ways to Revamp Streams for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-quintessential-5-add-ons-for-sea-cameras/"><u>[New] Quintessential 5 Add-Ons for Sea Cameras</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-masterful-methods-to-log-lol-bouts/"><u>[Updated] 2024 Approved Masterful Methods to Log LOL Bouts</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-image-ingenuity-optimal-apps-and-platforms-for-frames-to-photos-for-2024/"><u>[Updated] Image Ingenuity Optimal Apps and Platforms for Frames to Photos for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-importance-of-diversity-and-inclusion-in-market-research-samples/"><u>[Updated] In 2024, The Importance of Diversity & Inclusion in Market Research Samples</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/barnes-and-noble-revolutionizes-reading-with-nook-glowlight-plus-the-e-reader-featuring-the-largest-display/"><u>Barnes & Noble Revolutionizes Reading with Nook GlowLight Plus - The E-Reader Featuring the Largest Display</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-top-streamers-chromecast-and-roku-reviewed/"><u>Comparing Top Streamers: Chromecast and Roku Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-streamlined-intelligence-with-the-2019-tcl-32s325-roku-smart-led-reviewed-the-ultimate-guide/"><u>Experience Streamlined Intelligence with the 2019 TCL 32S325 Roku Smart LED Reviewed – The Ultimate Guide</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/guide-to-repairing-realtek-lan-drivers-on-windows-11-windows-10-and-windows-n7/"><u>Guide to Repairing Realtek LAN Drivers on Windows 11, Windows 10 & Windows N7</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mobvoi-ticwatch-pro-4g-review/"><u>Mobvoi Ticwatch Pro 4G Review</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/quick-steps-to-assemble-a-bootable-usb-flash-drive-for-windows-server-2019/"><u>Quick Steps to Assemble a Bootable USB Flash Drive for Windows Server 2019</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ready-for-takeoff-discover-why-the-blade-e-flite-mcx2-is-leading-the-rc-helicopter-market/"><u>Ready for Takeoff? Discover Why the Blade E-Flite mCX2 Is Leading the RC Helicopter Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smart-streaming-savings-alert-unmissable-prime-day-promotions-for-roku-fans/"><u>Smart Streaming Savings Alert: Unmissable Prime Day Promotions for Roku Fans!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-features-a-detailed-analysis-of-the-oculus-quest-2-elite-accessory-set-with-power-bank-and-travel-bag/"><u>Unveiling the Features: A Detailed Analysis of the Oculus Quest 2 Elite Accessory Set with Power Bank and Travel Bag</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-secrets-behind-acurite-pro-model-01036m-superior-ease-of-installation-meets-robustness/"><u>Unveiling the Secrets Behind AcuRite Pro Model 01036M – Superior Ease of Installation Meets Robustness</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unveiling-the-ultimate-list-of-66-must-follow-travel-bloggers-on-twitter/"><u>Unveiling the Ultimate List of 66 Must-Follow Travel Bloggers on Twitter</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Act Fast: Secure Your Spot Playing Top Video Games Soon Facing Sunset!"
-date: 2024-08-31T14:55:41.859Z
-updated: 2024-09-01T14:55:41.859Z
+date: 2024-11-19T21:23:27.326Z
+updated: 2024-11-25T01:36:58.119Z
 tags:
   - games
   - tv
@@ -40,9 +40,6 @@ thumbnail: https://thmb.techidaily.com/589975317cd54578e2464cf37ff9c3436a24bffda
 
  Play the sequel on Nintendo Switch now. You’ll need a Nintendo Switch Online membership to connect to the internet to play (or upload) levels.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## _Forza Horizon 4_ 
 
 _Forza Horizon 4_ is reaching the end of its life. Due to expiring licensing agreements, the game will be delisted from various storefronts and Game Pass on December 15, 2024\. If you buy the game before this date you’ll still be able to play it, but it won’t be available for purchase after (and it won’t be on Game Pass either).
@@ -53,9 +50,6 @@ _Forza Horizon 4_ is reaching the end of its life. Due to expiring licensing agr
 
  You should expect a similar fate to befall _Forza Horizon 5,_ eventually.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## _Tetris 99_ and _F-Zero 99_ 
 
  Nintendo’s _99_ formula reimagines the Battle Royale concept with beloved franchises like _Tetris_ and _F-Zero_. These titles are free-to-play with a Nintendo Switch Online membership, pitting you against 98 other players to be the last person standing in a knockout tournament.
@@ -67,8 +61,9 @@ _99_ games are dependent entirely on online multiplayer. There is no offline mod
  Nintendo already shut down _Super Mario 35_, a time-limited iteration of the formula released to celebrate the 35th anniversary of the _Super Mario_ franchise. As the name suggests, this was a 35-player scramble to the end of a level. The game lasted six months from release.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## _The Crew 2_ 
 
 _The Crew 2_ might not be a particularly good game (according to [OpenCritic](https://opencritic.com/game/6014/the-crew-2)), but it’s a game, and you can play it right now. Looking at publisher Ubisoft’s track record puts the game’s future in doubt. This is because the servers for prequel _The Crew_ were [switched off](https://www.ubisoft.com/en-us/game/the-crew/the-crew/news-updates/mOR3tviszkxfeQCUKxhOV/an-update-on-the-crew) on April 1, 2024.
@@ -89,9 +84,6 @@ _The Crew 2_ was released in 2018, which means it’s six years old at the time 
 
  Whatever you’re playing, be it _Brawlhalla_, _Roller Champions_, _Paladins_, _The Finals_ or something far more obscure, enjoy it while the servers are hot.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  Classic _Battlefield_ Games
 
  Did you know that the servers for _Battelfield Bad Company_, _Bad Company 2_, and _Battlefield 1943_ were retired by EA in 2023? These old-but-gold multiplayer shooters will be sorely missed, particularly since we haven’t had a _Bad Company_ game in three generations.
@@ -102,10 +94,6 @@ _The Crew 2_ was released in 2018, which means it’s six years old at the time 
 
  One day, only [a massive LAN party](https://win11-tips.techidaily.com/how-to-resolve-windows-upgrade-failures-and-errors/) will allow you to experience the carnage that is 64 players on classic _Battlefield_ map.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ## _Dreams_ 
 
  Sony released _Dreams_ in early 2020, a game that promised to democratize game development by providing players with user-friendly tools and a platform on which to share. While it never worked out as well as many hoped, _Dreams_ remains one of the most unique experiences in gaming.
@@ -113,6 +101,10 @@ _The Crew 2_ was released in 2018, which means it’s six years old at the time 
  In April 2023, developers Media Molecule [announced](https://docs.indreams.me/en-US/whats-happening/news/dreams-support-update) that live support for _Dreams_ was ending. Creations were to remain online and users would still be able to create and share as they had before. Though the main _Dreams_ era has come to an end, the game persists for now.
 
  Much like _Super Mario Maker_, this is a game that depends on user-generated content. With so many weird and wonderful creations available to download and experience, you should give _Dreams_ a shot while you still can. The PlayStation 4 version works via [backward compatibility on the PlayStation 5](https://screen-mirroring-recording.techidaily.com/updated-shrouded-screen-images-techniques-for-redacting-info-for-2024/), and the game is available in the PlayStation Plus Extra catalog too.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  A Whole Heap of MMOs
 
@@ -122,6 +114,10 @@ _The Crew 2_ was released in 2018, which means it’s six years old at the time 
 
  It’s hard to see heavy hitters like _World of Warcraft_ or _Elder Scrolls Online_ going away any time soon, but smaller MMOs that limp on with a small following of dedicated fans face less certainty. One member of the _City of Heroes_ forum [tallied up the daily player counts](https://forums.homecomingservers.com/topic/42567-homecoming-player-count-a-year-in-review/) amid concern about the health of the game, and though things were better than many first thought, there were significant differences in the populations of various servers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## _Overwatch 2_ 
 
  It’s no secret that _Overwatch_ isn’t what it used to be. When the game first crashed onto the scene, it took the world by storm. Not only was it _the_ multiplayer game of 2016 (and beyond), the game amassed an eSports following and a fanbase that seemed to adore its colorful cast.
@@ -129,6 +125,10 @@ _The Crew 2_ was released in 2018, which means it’s six years old at the time 
  The game was criticized for being left to stagnate over the next few years, but that was nothing compared to the bombshell that was _Overwatch 2_. Not only was the sequel free-to-play, but Blizzard saw fit to switch off the original _Overwatch_ servers to force fans to move to the sequel to keep playing.
 
  The _Overwatch 2_ story is [long and complicated](https://www.pcgamer.com/overwatch-2-is-a-failed-idea/), but the game manages to limp by. Who knows what the future holds for the series, particularly now that Blizzard is owned by Microsoft? One thing’s for sure, if you want to experience the game, you'd better do it quick.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## _Splatoon 2_ and _Splatoon 3_ 
 
@@ -145,8 +145,9 @@ _The Crew 2_ was released in 2018, which means it’s six years old at the time 
  Other examples include the original _Dead Island_ and its sequel _Riptide_, _Dark Souls: Prepare to Die Edition_ on the PC, _Assassin’s Creed 3_, and fan-favorite _Warcraft 3_. It’s not a certainty, but if you notice that beloved old title is due for a coat of paint, consider grabbing the original while you still can.
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Make Hay While the Sun Shines
 
  Any game that depends on a healthy player base can fall by the wayside. Even if the game is available for sale with active servers, if nobody wants to play then the game is as good as gone.
@@ -161,8 +162,6 @@ _The Crew 2_ was released in 2018, which means it’s six years old at the time 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -170,4 +169,24 @@ _The Crew 2_ was released in 2018, which means it’s six years old at the time 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-breaking-the-mold-revolutionary-methods-to-boost-your-fb-page-rank/"><u>[New] 2024 Approved Breaking the Mold Revolutionary Methods to Boost Your FB Page Rank</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-minute-video-crafters-for-2024/"><u>[Updated] Minute Video Crafters for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/affordable-ultra-hd-viewing-with-the-lg-um7300-49-tv-a-detailed-review/"><u>Affordable Ultra HD Viewing with the LG UM7300 49 TV - A Detailed Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-ipad-and-ipad-air-key-features-and-distinctions/"><u>Comparing iPad and iPad Air: Key Features & Distinctions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-test-of-amplifi-hd-wi-fi-coverage-solutions-without-boundaries/"><u>Comprehensive Test of Amplifi HD - Wi-Fi Coverage Solutions without Boundaries</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/enhance-your-pc-gaming-on-windows-11-by-disabling-mouse-acceleration/"><u>Enhance Your PC Gaming on Windows 11 by Disabling Mouse Acceleration</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/first-in-the-field-pro-level-powerful-stand/"><u>First in the Field: Pro-Level, Powerful Stand</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Infinix Hot 40i | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-jackery-powerbar-unit-featuring-an-embedded-household-outlet/"><u>In-Depth Analysis of the Jackery PowerBar Unit: Featuring an Embedded Household Outlet</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-sending-a-steam-gift-card-with-ease/"><u>Step-by-Step Guide: Sending a Steam Gift Card with Ease</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-tutorial-on-connecting-mac-to-tv-with-airplay-technology/"><u>Step-by-Step Tutorial on Connecting Mac to TV with AirPlay Technology</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-poco-m6-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-perfect-blend-of-affordability-and-features-tcls-50s425-roku-tv-review-2019/"><u>The Perfect Blend of Affordability and Features: TCL's 50S425 Roku TV Review (2019)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-xp-pen-artist-16-pro-tablet-showdown-features-performance-and-user-experience-evaluation/"><u>The XP-Pen Artist 16 Pro Tablet Showdown: Features, Performance & User Experience Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-lightning-fast-netgear-nighthawk-rax120-a-must-have-for-tech-enthusiasts/"><u>Ultimate Guide to the Lightning-Fast Netgear Nighthawk RAX120: A Must-Have for Tech Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/utility-mapping-and-relocation/"><u>Utility Mapping and Relocation</u></a></li>
+</ul></div>
 

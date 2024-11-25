@@ -1,7 +1,7 @@
 ---
 title: The Mighty Compact Gaming Machine - A Detailed Look at Xbox Series S Specs and Packaging
-date: 2024-11-13T16:21:32.115Z
-updated: 2024-11-15T16:06:42.552Z
+date: 2024-11-22T00:40:05.624Z
+updated: 2024-11-24T22:12:25.555Z
 categories:
   - BestProducts
 description: This Article Describes The Mighty Compact Gaming Machine - A Detailed Look at Xbox Series S Specs and Packaging
@@ -46,13 +46,6 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/RIxQYWLMnyHkO9IcguCoRX11EbY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
 
 [View On Amazon](https://www.amazon.com/Bit-Android-phones-Storage-leather/dp/B071VZMBH9/?tag=lifewire-onsite-prod-20&ascsubtag=4773105%7Cn9405fb50cb804e70a7f30ec502e40d9b21%7CB071VZMBH9)
@@ -76,20 +69,11 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/8rMhc1Lk5yFRFW4Zlt2K9cmPdFo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-4-01d7e5ff51aa47008d803513064f4a7a.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design and Software: A surprising amount of features in this chunky watch**
 
@@ -101,26 +85,20 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
  While it doesn’t have[NFC](https://www.lifewire.com/what-is-nfc-832715) or GPS, it does have a speaker, and you can send basic messages with the watch. The Bitwatch S1 is surprisingly robust for those who want to dip their toes into the smartwatch experience, with many of the features that mid-tier smartwatches possess.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Easy, but unexplained**
 
  Setting up the Bitwatch works as you’d expect. Pair it via the Bluetooth on your phone and download the Beantech app. It works with both Android and iOS, so you should have no difficulty. Alerts will show up in the remote notifier app, and apps such as the calendar are not synced with your phone’s calendar apps, so keep that in mind if you’d like to add any events, notifications, or alarms to your watch.
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/O7xHfA9sKsBdC0nmqNXbFky-Dm4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-2-3b838f1124184bbd9452b79bb8449c2b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: You get what you pay for**
@@ -135,6 +113,10 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/7GtX2IU-w4sJA-BTqQtHQThxaJo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-3-ade31135cd9d4fe0b6b01286941d2652.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
 ## **Battery: It last longer than most flagship smartwatches**
@@ -146,6 +128,10 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
  The Bitwatch costs about $50, which is reasonable for its features and performance. You get reliable notifications and a passable heart rate monitor, as well as some basic functions like alarms and a speaker. If you want a cheap smartwatch, then the Bitwatch isn’t a bad pick, but $30 more can get you GPS and smarter notifications. If you are after a solid fitness tracker, both Garmin and[Fitbit](https://www.lifewire.com/what-is-fitbit-4176010) have[fantastic wearables](https://www.lifewire.com/phone-accessory-reviews-4102587) for under $100.
 
  The Beantech Bitwatch is not a groundbreaking smartwatch, but it provides a lot of essential features for $50.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: If you want more, it will cost more**
 
@@ -188,17 +174,18 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-ultimate-chromebook-snapshot-tool/"><u>[New] In 2024, Ultimate Chromebook Snapshot Tool</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-dive-into-av1-a-simple-guide-for-neophytes/"><u>[Updated] In 2024, Dive Into AV1 A Simple Guide for Neophytes</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/2024-approved-master-the-art-of-sharing-gaming-moments-xboxfb-livestream/"><u>2024 Approved Master the Art of Sharing Gaming Moments Xbox/FB Livestream</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-in-class-networking-server-frameworks-2024s-top-picks-unveiled/"><u>Best-In-Class Networking Server Frameworks: 2024'S Top Picks Unveiled</u></a></li>
-<li><a href="https://techtrends.techidaily.com/college-life-made-easier-with-youtube-premium-tips-for-students-seeking-a-discounted-subscription/"><u>College Life Made Easier with YouTube Premium: Tips for Students Seeking a Discounted Subscription</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-test-drive-unveiling-the-corsair-one-pros-creative-gaming-edge/"><u>Comprehensive Test Drive: Unveiling the Corsair One Pro's Creative Gaming Edge</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/decoding-svchostexe-netsvcs-how-to-fix-excessive-bandwidth-usage-and-improve-your-pcs-efficiency/"><u>Decoding svchost.exe (NETsvcs) - How to Fix Excessive Bandwidth Usage & Improve Your PC's Efficiency</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/elevate-your-play-why-the-asus-vg245h-is-a-game-changer-for-gamers/"><u>Elevate Your Play: Why the Asus VG245H Is a Game-Changer for Gamers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-overcoming-obscured-viewing-fix-for-youtube/"><u>In 2024, Overcoming Obscured Viewing Fix for Youtube</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ion-audio-tailgater-plus-reviewed-immerse-in-continuous-high-quality-audio-with-emphasized-bass-and-button-activated-playback-convenience/"><u>Ion Audio Tailgater Plus Reviewed: Immerse in Continuous, High-Quality Audio with Emphasized Bass and Button-Activated Playback Convenience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/island-innovators-handbook-a-new-era-of-habitat-happiness/"><u>Island Innovators' Handbook: A New Era of Habitat Happiness</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-htc-u23-pro-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends HTC U23 Pro without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-regular-software-updates/"><u>[New] Regular Software Updates</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-efficiently-add-your-own-look-to-youtube-shorts-via-simple-steps/"><u>[Updated] 2024 Approved Efficiently Add Your Own Look to YouTube Shorts via Simple Steps</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-netgear-nighthawk-c7000-top-rated-wireless-modem-unveiled/"><u>Comprehensive Analysis of the Netgear Nighthawk C7000 - Top Rated Wireless Modem Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-assessment-of-the-anker-super-bright-outdoor-flashlight-ideal-for-harsh-conditions/"><u>Comprehensive Assessment of the Anker Super Bright Outdoor Flashlight – Ideal for Harsh Conditions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-netatmo-weather-station-ideal-for-tech-savvy-individuals/"><u>Comprehensive Review of the Netatmo Weather Station - Ideal for Tech Savvy Individuals</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/decoding-the-value-of-a-spotify-plus-membership/"><u>Decoding the Value of a Spotify Plus Membership</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/dells-direct-methods-easy-screenshot-solutions/"><u>Dell's Direct Methods Easy Screenshot Solutions</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722959830776-download-and-troubleshoot-your-intel-optane-drivers-on-windows-complete-solution/"><u>Download and Troubleshoot Your Intel Optane Drivers on Windows - Complete Solution!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/fixing-vcompdll-errors-in-windows-a-step-by-step-guide-to-resolve-not-detected-or-absent-messages/"><u>Fixing vcomp.dll Errors in Windows: A Step-by-Step Guide to Resolve Not Detected or Absent Messages</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-honor-x7b-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Honor X7b Devices | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-superior-pcmacos-users-choice-best-8-uhd-video-player/"><u>In 2024, Superior PC/MacOS Users' Choice Best 8 UHD Video Player</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/stylish-and-swift-a-comprehensive-review-of-the-swagtron-swagger-electric-scooter/"><u>Stylish and Swift: A Comprehensive Review of the Swagtron Swagger Electric Scooter</u></a></li>
+<li><a href="https://fox-making.techidaily.com/windows-mac-androidsd5/"><u>Windows, Mac, Android之间转换:简易指南解密SD卡（5种方法）</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Creating the Ultimate Hybrid Gaming Setup: Merging Smartphone, Augmented Reality Glasses & Cloud Technology"
-date: 2024-08-31T14:57:02.612Z
-updated: 2024-09-01T14:57:02.612Z
+date: 2024-11-17T22:52:48.981Z
+updated: 2024-11-24T16:30:49.791Z
 tags:
   - games
   - tv
@@ -31,20 +31,18 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 
  I can game in the car while I wait to pick up my kids without having to first remember to grab a bulky carrying case. I can play something chill while my wife and I are curled up with each other and our screens. I can drop my phone on a dock and use a Bluetooth controller. I can connect to an external display when I can go for a more immersive experience. And I can go all in with AR glasses, combined with cloud gaming, to create a shockingly good hybrid setup.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Here's The Hardware I Use Instead
 
 ![Galaxy Z Fold 5 with Xreal Air 2 Pro glasses and case](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/06/1000062151.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Bertel King/ How-To Geek 
 
  These are the specific devices I've purchased to make my hybrid gaming setup work.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ###  Samsung Galaxy Z Fold 5
 
  My current phone is the [Galaxy Z Fold 5](https://extra-skills.techidaily.com/in-2024-perfecting-the-art-of-compelling-mosaic-imagery/). My previous one was the Motorola Edge+ 2023\. Both offer desktop modes and, by extension, have the ability to display video on an external display when you connect via a USB-C cable. The Galaxy Z Fold 5 has a large screen for tablet-style gaming while also [supporting compatibility with lapdocks](https://apple-account.techidaily.com/in-2024-how-to-reset-apple-id-and-apple-password-from-apple-iphone-15-plus-by-drfone-ios/), external monitors, and AR glasses---no additional setup or software required.
@@ -55,22 +53,24 @@ Bertel King/ How-To Geek
 
 ![XREAL Air 2 Pro AR glasses resting on a desk.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/05/1000061027.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Bertel King / How-To Geek
 
  I haven't used many AR glasses, so I can only go off reviews like almost everyone else. Many reviewers have called XReal's glasses the best in their class, so I figured I'd most likely have a good experience by going with these (though our own [XReal Air 2 review](https://facebook-video-recording.techidaily.com/new-in-2024-understanding-the-technicalities-of-fb-360-streaming/) is a bit more reserved). XReal also explicitly lists my phone as a supported model, not that I had much concern even if it didn't. The Z Fold 5 can cast video to anything I've thrown at it.
 
  The most important bit was that the glasses function out of the box as a basic external display with no app required, though there is an app with added features for those who want to take things further.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ###  8BitDo Pro 2 Bluetooth Controller
 
 ![8BitDo Pro 2 Bluetooth gaming controller on a hardware floor](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/06/1000062150-1.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Bertel King / How-To Geek
 
  The 8BitDo Pro 2 is my favorite Bluetooth controller. It's comfortable to hold, works great with both D-Pad and joystick-based games, looks elegant, and feels like it could survive being chucked out a window (note: at my house it would land on grass, not concrete).
@@ -82,15 +82,13 @@ Bertel King / How-To Geek
 ![Logitech Pebble Bluetooth mouse on a mouse pad](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/06/1000062149.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Bertel King/ How-To Geek 
 
  When you're connected to an external display, a cursor mimics touch input. That means you can play most Android games with AR glasses on, as long as the game doesn't require multitouch. Gestures like pinch-to-zoom can't be replicated with a mouse.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  I Play Both Mobile and PC Games
 
  I primarily play mobile games. These are the games that are easiest to launch regardless of my internet connection and what peripherals I have with me. I either purchase games outright, get them as part of a Play Pass subscription, or enjoy the games that come with Netflix. It's difficult sifting through all the subpar cash grabs in the Play Store, but there are still many excellent options to choose from, enough to be considered a respectable library on a game console.
@@ -119,6 +117,10 @@ Bertel King / How-To Geek
 
 ![Galaxy Z Fold 5 on a wireless charger with AR glasses plugged in](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/06/1000062148.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Bertel King/ How-To Geek 
 
  In spite of the charging issues, the experience has been good enough that I've [used these same AR glasses to replace my computer monitor for work](https://youtube-docs.techidaily.com/approved-expert-insights-where-to-invest-in-youtube-creator-revenue/).
@@ -135,8 +137,6 @@ Bertel King/ How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -144,4 +144,18 @@ Bertel King/ How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-expertise-in-making-screen-captures-on-ios-easier-for-2024/"><u>[New] Expertise in Making Screen Captures on iOS Easier for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-how-to-add-motion-blur-to-photos-in-adobe-illustrator/"><u>[Updated] 2024 Approved How to Add Motion Blur to Photos In Adobe Illustrator</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-how-to-host-a-webinar-on-youtube-for-free/"><u>[Updated] In 2024, How to Host a Webinar on YouTube for Free</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/analyzing-the-samsung-cf591-a-potent-choice-for-gamers-today/"><u>Analyzing the Samsung CF591: A Potent Choice for Gamers Today</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assessing-the-cost-effective-apple-watch-se/"><u>Assessing the Cost-Effective Apple Watch SE</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-capabilities-of-dreame-bot-l1-0-pro-the-ultimate-mopping-and-vacuuming-automaton-with-precision-lidar-guidance/"><u>Discover the Capabilities of Dreame Bot L1 0 Pro - The Ultimate Mopping & Vacuuming Automaton with Precision LiDAR Guidance</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-samsung-galaxy-a25-5g-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Samsung Galaxy A25 5G? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/streamline-your-sound-recording-on-windows-11/"><u>Streamline Your Sound Recording on Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/taking-it-up-a-notch-exploring-the-enhanced-connectivity-controls-and-insights-in-the-new-samsung-galaxy-watch-active-tvo/"><u>Taking It Up a Notch: Exploring the Enhanced Connectivity, Controls & Insights in the New Samsung Galaxy Watch Active ˈtvo</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-evolution-of-watch-dogs-series-a-comprehensive-review-of-legion/"><u>The Evolution of Watch Dogs Series: A Comprehensive Review of 'Legion'</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-6-criteria-integrating-chatgpt-into-psychological-care-routines/"><u>Top 6 Criteria: Integrating ChatGPT Into Psychological Care Routines</u></a></li>
+</ul></div>
 

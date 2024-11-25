@@ -1,7 +1,7 @@
 ---
 title: Top 8 Insights Nintendo Must Embrace to Enhance Their Switch Console Experience
-date: 2024-08-31T14:55:08.810Z
-updated: 2024-09-01T14:55:08.810Z
+date: 2024-11-18T20:18:15.397Z
+updated: 2024-11-25T01:46:22.203Z
 tags:
   - games
   - tv
@@ -39,8 +39,9 @@ Tim Brookes / How-To Geek
  It's also worth noting that backward compatibility makes for a great “day one” experience. New users will have immediate access to one of the most expansive online gaming storefronts and former Switch owners will be able to continue their progress in games they’re already invested in. Since it’s likely that there will be gaps between Switch 2 exclusives, this would largely eliminate the issue.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2  Give Our Games a One-Up 
 
 ![The Legend of Zelda: Breath of the Wild running on a Nintendo Switch.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/06/shutterstock_1454397305.jpg) 
@@ -54,8 +55,9 @@ Tim Brookes / How-To Geek
  I’d be happy to pay a small fee for a substantial upgrade, as I did for deluxe upgrades of PlayStation 4 games. This shouldn’t be the day one precedent, though. It would be a compelling reason for people to pick up a Switch 2 at launch if it makes their old games immediately look and feel brand new.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3  Exclusive Killer Apps Make the Case 
 
 ![Person playing MarioKart on a Nintendo Switch with the USB wireless dongle of the JBL Quantum TWS Air plugged in.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/05/52872394896_a556b54ca4_o-1.jpg) 
@@ -72,9 +74,17 @@ Hannah Stryker / How-To Geek
 
  As part of this plan, Nintendo should learn from the long trail of cross-platform releases by Sony and Microsoft that have left many still wondering what the PlayStation 5 and Xbox Series X uniquely have to offer years into their lifespan. The long-term sustained success of the Switch line would override the short-term success of keeping people playing on their original Switches.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4  Don’t Reset the Clock on Retro Games 
 
 ![Playing Mario Kart for SNES on a Nintendo Switch.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2017/12/nintendo-switch-online.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Nintendo
 
@@ -85,15 +95,17 @@ Nintendo
  Adding new consoles to the fold like the GameCube would also get people excited, though I wouldn’t hold it against Nintendo to keep that card in their back pocket for a dry season. What’s most important for the Switch 2’s launch is that they simply let us keep what we already have.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5  Improved Online Paves the Way 
 
 ![Coral Nintendo Switch Lite with the game library open.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/05/52766764240_abf3c0d339_o.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Kris Henges / How-To Geek
 
 [Nintendo’s online services get the job done](https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/) for most of their games, but it could be so much better. Improved netcode would make genres like shooters and fighting games far more viable, while integrated voice chat and an expanded set of social features would reduce the current need for third-party solutions. And yes, this functionality needs to be integrated into the system, not a phone app.
@@ -102,9 +114,6 @@ Kris Henges / How-To Geek
 
  I’d be remiss if I didn’t also mention the potential to bring MMOs to a portable system. The likes of _Final Fantasy XIV_ and _World of Warcraft_ don’t currently have dedicated handheld ports, but could massively benefit from the form-factor. I can only imagine how much less of a hassle it would feel like to grab a Switch 2 for my daily Mini Cactpot log-in, or to complete a few side-quests before bed.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6  Give the UI a Facelift 
 
 ![A game is highlit with the cursor on the Nintendo Switch home screen.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2020/05/game_highlit.png) 
@@ -121,9 +130,6 @@ Kris Henges / How-To Geek
 
 ![Nintendo Switch Pro Controller.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/02/032b2cc9-4.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Nintendo
 
  It’s no secret that the Pro Controller market has been profitable for Nintendo given that many players don’t find Joy-Cons suitable for docked play. Garroting this market would be a big risk, but the statement it would make would help cement its dominance in the gaming landscape.
@@ -132,9 +138,6 @@ Nintendo
 
  Additionally, we’ve talked about backward compatibility for games, and I believe that should also apply to controllers. Unless there’s a substantial new feature that warrants a refresh, Nintendo should continue supporting Switch controllers. I’d go as far as to say this support outweighs any gimmicks they could add. That said, new models that [fix stick drift issues](https://instagram-video-files.techidaily.com/new-discreet-insta-story-enthusiasts-best-5-tools/) would be appreciated.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ## 8  Don’t Muddle the Message 
 
 ![Nintendo Switch Joy Cons.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/52659706170_2192629c1a_o.jpg) 
@@ -157,8 +160,6 @@ Corbin Davenport / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -166,4 +167,26 @@ Corbin Davenport / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-best-full-screen-recorder-for-pc-and-mac/"><u>[New] 2024 Approved Best Full Screen Recorder for PC and Mac</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-precision-in-upload-a-deep-dive-into-youtube-video-size-settings/"><u>[New] In 2024, Precision in Upload A Deep-Dive Into YouTube Video Size Settings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-step-up-your-mobile-filmmaking-with-these-9-must-have-tools/"><u>[New] In 2024, Step Up Your Mobile Filmmaking with These 9 Must-Have Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-troubleshooting-apple-tv-for-facebook-content/"><u>[Updated] Troubleshooting Apple TV for Facebook Content</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unleash-artistic-talent-with-these-best-rated-chrome-sketches-apps/"><u>[Updated] Unleash Artistic Talent with These Best-Rated Chrome Sketches Apps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-caption-implementation-essentials-for-2024/"><u>[Updated] YouTube Caption Implementation Essentials for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-exceptional-energy-storage-insights-into-maxoaks-megapower-a-185wh-50k-mah-review-for-the-modern-user/"><u>Experience Exceptional Energy Storage - Insights Into MaxOak's MegaPower: A 185Wh / 50K mAh Review for the Modern User</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/holy-stone-hs170-predator-minimal-rc-helicopter-drone-top-budget-friendly-choice-reviewed/"><u>Holy Stone HS1,70 Predator Minimal RC Helicopter Drone: Top Budget-Friendly Choice Reviewed</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-phone-number-from-your-apple-id-on-your-iphone-7-by-drfone-ios/"><u>How To Remove Phone Number From Your Apple ID on Your iPhone 7?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-best-tablet-on-the-market-apple-ipad-pro-11-reviewed-in-2018-edition/"><u>In-Depth Analysis of the Best Tablet on the Market: Apple iPad Pro 11 Reviewed in 2018 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-insights-on-dells-revolutionary-alienware-aurora-r9-redefining-tomorrows-gaming-experience/"><u>In-Depth Insights on Dell's Revolutionary Alienware Aurora R9: Redefining Tomorrow's Gaming Experience</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ative-responses-the-ultimate-guide-to-youtube-reacts-for-2024/"><u>Innovative Responses The Ultimate Guide to YouTube Reacts for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-look-barnes-and-nobles-nook-glowlight-plus-with-maximum-screen-real-estate/"><u>Inside Look: Barnes & Noble's Nook GlowLight Plus with Maximum Screen Real Estate</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovos-2020-tablet-game-changer-the-tab-m10-with-a-stunning-full-hd-display-and-wallet-friendly-price/"><u>Lenovo's 2020 Tablet Game Changer: The Tab M10 with a Stunning Full HD Display and Wallet-Friendly Price</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/media-software-bug-fixed-required-device-driver-is-now-present/"><u>Media Software Bug Fixed: Required Device Driver Is Now Present</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-pictures-from-motorola-edge-40-neo-by-fonelab-android-recover-pictures/"><u>Possible solutions to restore deleted pictures from Motorola Edge 40 Neo.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/taking-shots-where-others-fear-to-dip-insta360s-one-x2/"><u>Taking Shots Where Others Fear to Dip - Insta360's One X2</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-fujitsu-scansnap-ix1400-tailored-for-efficiency-in-home-offices-and-smbs/"><u>The Ultimate Review of Fujitsu ScanSnap iX1400: Tailored for Efficiency in Home Offices and SMBs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/us-debut-of-nickwatch-coincides-with-exciting-kids-choice-event/"><u>U.S. Debut of NickWatch Coincides with Exciting Kids' Choice Event</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Ultimate Guide to Correcting Sticky Joysticks on Xbox Series S/X Controllers
-date: 2024-08-31T14:57:55.251Z
-updated: 2024-09-01T14:57:55.251Z
+date: 2024-11-19T22:55:56.449Z
+updated: 2024-11-24T23:35:09.061Z
 tags:
   - games
   - tv
@@ -13,6 +13,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ## Ultimate Guide to Correcting Sticky Joysticks on Xbox Series S/X Controllers
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Stick drift is a common issue affecting controllers, causing unwanted input and making games unplayable.
@@ -21,20 +25,25 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
  If your Xbox Series controller is making your game character do things you did not tell it to do, you're probably suffering from a common issue known as "drift." It's not the most fun problem to rectify, but there are some things you can do to make it better.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  What Is Stick Drift Exactly?
 
  Stick drift can affect any controller of any brand or type. It presents as input from the controller that wasn't made by you, the player. In other words, your sticks may be in the neutral position, but the game still detects input. This can cause things like the in-game camera constantly spinning, or a character walking forward all the time.
 
  While you can manually counteract drift with your thumbs on the sticks, it's a miserable way to play and in most cases makes a game unplayable. Stick drift happens because something has fouled or otherwise damaged the mechanism in the joystick that reports the stick position to the console. Most controllers today use a wiper mechanism where a contact moves along a conductive rail in each axis, and determines position based on the amount of resistance in the material. This mechanical movement will eventually wear out the mechanism, making it less precise. Any material that affects the conductivity of the mechanism will also cause issues, such as false readings of input.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ##  Tools and Warranties
 
  Opening up an Xbox Series controller is not complicated, and you can do it with a common set of Torx screwdrivers. The [TR6 and TR8](https://www.ifixit.com/Guide/Xbox+Series+X%7CS+Wireless+Controller+%28Model+1914%29+Full+Disassembly/148234) should be all you need to get the job done. Having something like the [iFixit Torx Precision Screwdriver set](https://www.amazon.com/Marlin-Screwdriver-Set-Precision-Screwdrivers/dp/B07BTKDTH2/?tag=hotoge-20&ascsubtag=UUhtgUeUpU2003353&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fhow-to-fix-stick-drift-on-your-xbox-series-sx-controller%2F&asc%5Fcampaign=Evergreen) will always be handy, even if it costs a few bucks now.
 
  While it's not hard to open up a Series S | X controller, you should not do it while the controller is still under warranty. If your controller has started drifting while still under warranty, you should send it back for free repair or replacement. As long as the drifting issue is not caused by abuse, you should be in the clear.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Software Calibration
 
@@ -45,40 +54,33 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 ![The Xbox Series devices and connections menu.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/20240528_145451.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Sydney Louw Butler / How-To Geek
 
  The Xbox Accessories app will open. Select your controller if there's more than one connected, and then select the three dots.
 
 ![Xbox Accessories App](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/xbox-accessories-app.jpeg) 
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Sydney Louw Butler/ How-To Geek
 
  Choose "Recalibration options" and complete the calibration process. While you don't have to calibrate both sticks, you might as well, since it's not much extra effort.
 
 ![Xbox controller calibration screen.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/20240528_145546.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Sydney Louw Butler / How-To Geek
 
  Try your game again, and see whether the drift issue has gone away. Some individual games may also have custom "dead zone" settings in them which works on top of this existing calibration, but those are really meant to fine tune competitive play rather than compensate for drift.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Cleaning Without Disassembly
 
  You may see some advice to try and clean out the stuck of debris without opening the controller using compressed air. I've also seen advice to dribble isopropyl alcohol inside the joystick module through the thumbstick cap's gaps. In my experience this is a waste of time, and the thumbstick caps are doing their job of keeping thing sout of the joystick modules. If your controller has drift and it's out of warranty, you should open it up to clean it.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ##  Internal Cleaning and Thumb Stick Module Replacement
 
  Opening an Xbox Series controller isn't hard, but it is easy to mess things up if you don't know what to expect. I strongly recommend watching this iFixit video in its entirely before you even touch a screwdriver.
@@ -109,8 +111,6 @@ Sydney Louw Butler / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -118,4 +118,21 @@ Sydney Louw Butler / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-quick-ig-post-featuring-podcast-insight-for-2024/"><u>[New] Quick IG Post Featuring Podcast Insight for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-no-budget-no-problem-heres-your-list-of-free-intra-experts/"><u>[Updated] No Budget? No Problem! Here's Your List of Free Intra Experts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-professional-level-youtube-content-via-adobe-premiere/"><u>2024 Approved Professional-Level YouTube Content via Adobe Premiere</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dive-into-the-world-of-high-end-gaming-with-our-in-depth-review-of-the-stylish-and-powerful-dell-alienware-aurora-r9-pc/"><u>Dive Into the World of High-End Gaming with Our In-Depth Review of the Stylish and Powerful Dell Alienware Aurora R9 PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fellowes-microban-wired-keyboard-unveiled-top-value-pick-for-budget-buyers/"><u>Fellowes Microban Wired Keyboard Unveiled - Top Value Pick for Budget Buyers!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hands-on-with-the-arlo-home-security-system/"><u>Hands-On With the Arlo Home Security System</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-6s-to-other-iphone-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 6s to Other iPhone? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On OnePlus Nord 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-outstanding-realism-and-global-capabilities-of-x-plane-11-flight-software/"><u>In-Depth Look at the Outstanding Realism and Global Capabilities of X-Plane 11 Flight Software</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/los-mejores-10-transformadores-de-video-libres-en-pc-un-ranking-definitivo/"><u>Los Mejores 10 Transformadores De Video Libres en PC: Un Ranking Definitivo</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/sonys-roadmap-for-2t4-all-the-latest-tech-news-product-releases-and-insider-info/"><u>Sony's Roadmap for 2T4: All the Latest Tech News, Product Releases, and Insider Info</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-tutorial-mirror-your-android-screen-to-your-fire-stick-in-seconds/"><u>The Ultimate Tutorial: Mirror Your Android Screen to Your Fire Stick in Seconds</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-the-dji-robomasters-an-in-depth-look-at-fun-educational-combat-drones/"><u>Unleashing the DJI Robomasters: An In-Depth Look at Fun, Educational Combat Drones</u></a></li>
+</ul></div>
 

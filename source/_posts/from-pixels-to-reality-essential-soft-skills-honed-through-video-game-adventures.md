@@ -1,7 +1,7 @@
 ---
 title: "From Pixels to Reality: Essential Soft Skills Honed Through Video Game Adventures"
-date: 2024-08-31T14:57:31.709Z
-updated: 2024-09-01T14:57:31.709Z
+date: 2024-11-20T17:11:39.385Z
+updated: 2024-11-25T01:25:51.692Z
 tags:
   - games
   - tv
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/f2cca3b4364396f9937c3705e4296e2973a5931d8
 
  As a writer, I first have to finish the day's tasks before I reward myself with a gaming session. When you think about it, most of what we do in the real world is just grinding. Thankfully, playing a lot of games that require you to grind for rewards has conditioned me to fall in love with the process and appreciate the rewards.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2  Advanced Driving Techniques 
 
  I used to own a racing wheel and played my fair share of racing games over the years. Granted, I spent most of the time playing arcade racers like _Forza Horizon_ rather than more realistic sim racers, but some basic laws of physics still apply in those games.
@@ -42,9 +46,6 @@ thumbnail: https://thmb.techidaily.com/f2cca3b4364396f9937c3705e4296e2973a5931d8
 
 ![Person playing a racing game on a Samsung Odyssey Curved Monitor at CES 2024](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/53451155172_810ba3c12d_o.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 Hannah Stryker / How-To Geek
 
  When I lost control of my car for the first time, my muscle memory kicked in, and I intuitively knew how to get back traction. Instead of panic braking, I feathered the gas pedal and countersteered, which allowed me to regain control. One gamer credits video games for [saving him from a crash at 70 mph](https://www.digitalspy.com/videogames/a793201/racing-games-saved-this-guy-from-a-70mph-car-crash/).
@@ -52,8 +53,9 @@ Hannah Stryker / How-To Geek
  Off-road simulation games like _MudRunner_ and _SnowRunner_ can also develop a feel for traction management and throttle control in off-road conditions. My car once got stuck in gravel, and even though I had only been driving for a couple of months at that point, I knew from games that smashing the accelerator would just result in wheelspin. Instead, I rocked the car back and forth to get out of the hole.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3  It's Easier When You’re Not Alone 
 
  I've always been shy and independent, which means that I never ask for help. In the context of games, I typically do things alone, such as ambushing enemies from behind in first-person shooters or trying to solo dungeons and bosses. However, in multiplayer games, other players often provide assistance without expecting anything in return. This has made me realize that overcoming challenges is so much easier with a little help.
@@ -62,13 +64,14 @@ Hannah Stryker / How-To Geek
 
 ![Young people playing local multiplayer video games in the living room on a gaming console.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/shutterstock_2338423661.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Geber86/Shutterstock.com](https://www.shutterstock.com/image-photo/young-people-playing-video-games-living-2338423661)
 
  This type of helpful collaboration has made me realize that life is much easier if you don't shy away from asking for a helping hand. I no longer hesitate when asking my family members to do something for me, and I actively reach out to my co-workers for whatever questions I have.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## 4  Accept Failure, but Keep Fighting 
 
  Games often add a layer of challenge in the form of a punishing mechanic, such as losing or dying. Some games are notoriously punishing, such as [soulslike games](https://extra-support.techidaily.com/new-iphone-hacks-filming-and-modifying-lengthy-video-sequences/) _Elden Ring_ and _Dark Souls_. I died a lot in these games, so I got used to losing. I could only progress once I overcame the enemies holding me back, which required a lot of patience, resilience, and perseverance.
@@ -79,13 +82,6 @@ FromSoftware
 
  Similarly, I can't always win in life. Some projects will fail no matter how hard I try, and that's okay. The important thing is that I learn from my mistakes and never stop trying.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ## 5  Think Outside the Box 
 
  Adventure games are filled with creative puzzles. _Hogwarts Legacy_ and the _Uncharted_ series first come to mind. Many of these puzzles require you to think outside the box but within the game's limitations—you can't go over a ledge or jump over an obstacle if the game doesn't allow it.
@@ -95,8 +91,9 @@ No advertising on the website.
  It's just as insightful to look at things from a different perspective in the real world. You can solve problems and conflicts much more easily when you consider alternative approaches that work with the tools you already have available to you.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6  Navigating New Places With & Without a Map 
 
  Most games give players a map (and minimap or compass) to help navigate the in-game world. Similarly, we can use Google Maps in the real world, which is surprisingly similar to maps in games. In games, the map can reveal nearby points of interest; similarly, you can find and go to nearby restaurants, cafes, and historical landmarks with Google Maps.
@@ -106,9 +103,9 @@ No advertising on the website.
 ![A phone with the Google Find My Device logo around it and a map with a pin coming out of the screen.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/a-phone-with-the-google-find-my-device-logo-around-it-and-a-map-with-a-pin-coming-out-of-the-screen.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lucas Gouveia / How-To Geek
 
  Some games don't have a map, such as _Lies of P_, or they don't provide local maps for dungeons and cities, like _Skyrim_ and even _Minecraft_. Instead, you have to remember where you came from by memorizing landmarks and paths and paying attention to your environment.
@@ -125,8 +122,6 @@ Lucas Gouveia / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -134,4 +129,19 @@ Lucas Gouveia / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-secrets-from-the-pros-high-quality-roblox-recordings-mac-edition/"><u>[New] Secrets From the Pros High-Quality Roblox Recordings (Mac Edition)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-expressive-commentary-utilizing-emojis-on-youtube/"><u>[Updated] Expressive Commentary Utilizing Emojis on YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-ultimate-guide-to-the-leading-9-video-call-and-collaboration-tools-android-ios/"><u>[Updated] Ultimate Guide to the Leading 9 Video Call & Collaboration Tools (Android, iOS)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-digital-experience-with-acer-aspire-c27-the-low-profile-high-performance-desktop/"><u>Elevate Your Digital Experience with Acer Aspire C27: The Low Profile, High Performance Desktop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fixing-kodi-network-problems-how-to-overcome-directory-retrieval-errors/"><u>Fixing Kodi Network Problems: How to Overcome 'Directory Retrieval Errors'</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-complete-guide-to-youtubes-movie-maker-features/"><u>In 2024, The Complete Guide to YouTube's Movie Maker Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-the-ultimate-guide-to-the-fitbit-inspire-hr-247-health-and-activity-monitor/"><u>In-Depth Analysis: The Ultimate Guide to the Fitbit Inspire HR 24/7 Health & Activity Monitor</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-slideshow-mastery-unlocking-the-power-of-final-cut-pro/"><u>New In 2024, Slideshow Mastery Unlocking the Power of Final Cut Pro</u></a></li>
+<li><a href="https://techtrends.techidaily.com/secure-savings-the-best-value-in-ibuypowers-esports-gaming-systems/"><u>Secure Savings: The Best Value in iBUYPOWER's Esports Gaming Systems</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-5-upcoming-enhancements-set-to-revolutionize-your-google-play-experience/"><u>Top 5 Upcoming Enhancements Set to Revolutionize Your Google Play Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/upgrading-made-easy-journey-from-windows-10-to-11-unveiled/"><u>Upgrading Made Easy: Journey From Windows 10 to 11 Unveiled</u></a></li>
+</ul></div>
 

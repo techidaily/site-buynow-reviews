@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Rise of Gaming on Video Platforms & News Websites: Understanding the Trend"
-date: 2024-08-31T14:57:27.872Z
-updated: 2024-09-01T14:57:27.872Z
+date: 2024-11-18T22:58:29.950Z
+updated: 2024-11-24T18:29:34.302Z
 tags:
   - games
   - tv
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/3fc4ce39cf32e051d437369f1ad4829a21ac17b8d
 ---
 
 ## Exploring the Rise of Gaming on Video Platforms & News Websites: Understanding the Trend
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Quick Links
 
@@ -24,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/3fc4ce39cf32e051d437369f1ad4829a21ac17b8d
 
  Did you know The New York Times has become one of the most popular game publishers? They're not alone–everyone's baking games into their services now. You can play games on YouTube, Netflix, and even LinkedIn. We go to these sites for news and videos. Why are they serving up games?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Ad Revenue and Search Traffic Are Dropping
 
  There was once a time when you could make a profitable website by selling banner ads directly to companies, like in the days of physical newspapers. There was also a time when you received meaningful web traffic from a diverse set of search engines.
@@ -32,16 +40,14 @@ thumbnail: https://thmb.techidaily.com/3fc4ce39cf32e051d437369f1ad4829a21ac17b8d
 
  With [AI entering search results](https://ios-unlock.techidaily.com/in-2024-how-can-i-unlock-my-apple-iphone-13-mini-after-forgetting-my-pin-code-by-drfone-ios/) or supplanting search altogether, along with unpredictable algorithm changes, many sites are seeing their web traffic plummet and their ad revenue shrink. That creates a need to find more ways to attract people that isn't so dependent on one outside company steering folks their way.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ##  Games Bring In More Visitors
 
 ![Merriam-Webster webpage displaying quizzes and games](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/screenshot_20240612_142256_samsung-internet.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Games get us to visit a website or open an app out of habit. Sometimes, it's part of our morning routine. Maybe they help us unwind after work. Some are simple enough that they're how we idle away any moment when we feel the slightest unease. And they do this without us needing to open up a search engine except, perhaps, for the very first time we discover them.
 
  How often do you go to a dictionary's website in order to look up a word anymore? Yeah, that feels about as strange now as pulling out an actual dictionary. That's probably why if you head to [Merriam-Webster's website](https://www.merriam-webster.com/), you will see games directly on the homepage. Merriam-Webster and Britannica alike are among the sites offering [word games similar to Wordle](https://www.merriam-webster.com/) in hopes of bringing in regular visitors.
@@ -50,16 +56,14 @@ thumbnail: https://thmb.techidaily.com/3fc4ce39cf32e051d437369f1ad4829a21ac17b8d
 
  YouTube is particularly well setup to capitalize on gaming. It doesn't need to sell you anything. That's not its business model (though [YouTube Premium is a pretty good value](https://facebook-video-content.techidaily.com/updated-in-2024-unlocking-the-potential-effective-use-of-split-screen-on-facebook/)). Games only need to get you to the site long enough to serve you ads or, even better, recommend a video that catches your attention for even longer so that you watch its ads as well. YouTube just needs games to bring you to the site. It can handle the rest from there.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Games Give Extra Reason to Subscribe
 
 ![The New York Times website advertising games access as part of a subscription](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/screenshot_20240612_151313_samsung-internet.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  I wouldn't be surprised if games like Wordle and Connections bring more people to the New York Times each day than headlines do. Many visitors have no interest in whatever the paper is currently reporting. Games bring in a different audience, and some of the newcomers might start reading now that they're on the site. If you don't find the Times' coverage enough to justify jumping over the paywall, a few addictive games might be enough to change your mind. Even if people only visit the New York Times for the games, the company has gained subscribers.
 
  This is the same mentality driving Netflix's game push. The company has brought over many of the best games currently available on mobile, and they're only available to people with a subscription. These games include Kentucky Route Zero, Oxenfree, and (Netflix's first iOS exclusive) Hades. While these are available as native games, [Netflix has also gotten into cloud game streaming](https://youtube-sure.techidaily.com/024-approved-the-guide-to-starting-a-successful-youtube-gaming-channel/).
@@ -71,15 +75,13 @@ thumbnail: https://thmb.techidaily.com/3fc4ce39cf32e051d437369f1ad4829a21ac17b8d
 ![A grid of games playable on YouTUbe](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/screenshot_20240612_151619_samsung-internet.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Games have a stickiness to them. A must-see TV show might get you to subscribe for a month or two. Once you finish all the seasons, unless something else jumps out at you, you're free to cancel. Games, especially puzzle games, can have more longevity. There's no such thing as completing all the crosswords. Come back tomorrow, and there will be a new one.
 
  When was the last time you signed into LinkedIn? It's a social media platform with perhaps an even larger hill to climb than most. You may create an account to help land a job, but once you're hired, you might as well delete the app from your phone until the next job hunt begins. It's not like LinkedIn is a particularly fun place to be—except now [LinkedIn has introduced games](https://youtube-zero.techidaily.com/024-approved-mastering-the-past-through-youtube-top-10-for-students-and-enthusiasts/). How's that for combining work and play?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Games Are a Cheap Investment
 
  Sure, there is absolutely nothing cheap about AAA gaming. It's arguably an unsustainable bubble that could burst at any time. But those aren't the games that streaming platforms and social networks are gobbling up. The [millions the New York Times paid for Wordle](https://screen-capture.techidaily.com/updated-essential-9-mic-recorder-selections-for-online-use-in-23-for-2024/) pale compared to the hundreds of millions it took Microsoft to produce Starfield (though, according to [Forbes](https://www.forbes.com/sites/paultassi/2023/10/25/starfield-just-made-microsoft-and-xbox-a-ton-of-money/), Microsoft made good on that investment, too).
@@ -100,8 +102,6 @@ thumbnail: https://thmb.techidaily.com/3fc4ce39cf32e051d437369f1ad4829a21ac17b8d
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -109,4 +109,24 @@ thumbnail: https://thmb.techidaily.com/3fc4ce39cf32e051d437369f1ad4829a21ac17b8d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/updated-transform-yourfb-watchlist-with-easy-youtube-video-autoplay-configuration-for-2024/"><u>[Updated] Transform YourFB Watchlist with Easy Youtube Video Autoplay Configuration for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-leading-unboxing-series-s-must-watch-yt-channels/"><u>2024 Approved Leading Unboxing Series 'S Must-Watch YT Channels</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-youtube-short-mastery-from-idea-to-final-product/"><u>2024 Approved YouTube Short Mastery From Idea to Final Product</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/barnes-and-noble-nook-glowlight-plus-comprehensive-review-with-biggest-display/"><u>Barnes & Noble Nook GlowLight Plus - Comprehensive Review with Biggest Display</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-voip-solutions-where-does-vonage-stand/"><u>Best VoIP Solutions – Where Does Vonage Stand?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/compact-sound-sensation-in-the-world-of-mp3-players/"><u>Compact Sound Sensation in the World of MP3 Players</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dji-robomaster-s1-review/"><u>DJI RoboMaster S1 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-the-unmatched-quality-of-the-samsung-galaxy-s10-an-ultimate-review/"><u>Expert Analysis: The Unmatched Quality of the Samsung Galaxy S10 – An Ultimate Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-of-overwatch-competitive-edge-meets-team-tactics-in-shooter-gaming/"><u>Expert Review of Overwatch: Competitive Edge Meets Team Tactics in Shooter Gaming.</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-microsoft-edge-crashes-troubleshooting-tips-for-windows-11-users/"><u>Fixing Microsoft Edge Crashes: Troubleshooting Tips for Windows 11 Users</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovo-ideapad-130s-assessment-impressive-functionality-with-restricted-performance/"><u>Lenovo IdeaPad 130S Assessment - Impressive Functionality with Restricted Performance</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/proiphone-close-ups-unlocking-stunning-image-potential-for-2024/"><u>Proiphone Close-Ups Unlocking Stunning Image Potential for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-rechargeable-battery-chargers-in-2eight-your-ultimate-guide/"><u>Top-Rated Rechargeable Battery Chargers in 2Eight - Your Ultimate Guide</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/transform-your-output-best-10-pdf-enhancements-from-chatgpt/"><u>Transform Your Output: Best 10 PDF Enhancements From ChatGPT</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/uniting-youtube-videos-a-comprehensive-approach-for-2024/"><u>Uniting YouTube Videos A Comprehensive Approach for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potent-and-renewable-energy-features-of-romers-flashlight-a-must-have-outdoor-essential/"><u>Unveiling the Potent and Renewable Energy Features of Romer's Flashlight: A Must-Have Outdoor Essential</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Expert Analysis of GameSir X2s Type-C Mousepad - Ideal for All Hand Sizes
-date: 2024-08-31T14:57:20.353Z
-updated: 2024-09-01T14:57:20.353Z
+date: 2024-11-21T19:47:14.079Z
+updated: 2024-11-24T21:36:18.709Z
 tags:
   - games
   - tv
@@ -45,6 +45,10 @@ The GameSir X2s Type-C Mobile Gaming controller works with most USB-C-compatible
 
 [_How We Test and Review Products_](https://vp-tips.techidaily.com/swiftly-move-data-fast-and-reliable-methods-to-direct-files-onto-your-computer/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Pricing and Availability
 
  The GameSir X2s Type-C mobile gaming controller retails for $44.99 directly from GameSir and is available at Amazon too.
@@ -81,6 +85,10 @@ Expand
 
 ![GameSir X2s Type-C gaming controller showing back](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/07/gamesir-x2s-rear.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Sergio Rodriguez / How-To Geek
 
  If you’re familiar with the Nintendo Switch, then GameSir’s X2s Type-C will look especially familiar. Though GameSir advertises the mobile controller as a call-back to the Nintendo 2DS, it’s definitely a Switch layout, complete with one of my biggest issues with Nintendo’s hybrid handheld.
@@ -91,9 +99,6 @@ Sergio Rodriguez / How-To Geek
 
  Unfortunately, I think GameSir got caught up with making a budget-friendly option without considering what that entails. There’s still no USB-C audio passthrough or 3.5mm jack, a carryover issue from the [X2 controller](https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-g22-phone-pattern-lock-without-factory-reset-by-drfone-android/). You’ll either need a wireless headset or restrict playing in public to avoid annoying all around you. Even when playing in private, mobile phones, like the Google Pixel 8 Pro I tested the X2s with, have decent speakers, but they don’t replace the quality and clarity of a headset.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ###  Flimsy Build with Sturdy, Responsive Inputs
 
 ![GameSir X2s Type-C close up of face buttons](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/07/gamesir-x2s-close-up.jpg) 
@@ -106,16 +111,14 @@ Sergio Rodriguez / How-To Geek
 
  I tested games like “Call of Duty Mobile,” “Brawlhalla,” “Gears 5,” and “Forza Horizon 5,” and I felt the X2s worked well for each of the varying gameplay. The automatic button-mapping for “Call of Duty Mobile” was flawless, and the responsiveness during the chaotic fights of “Brawlhalla” didn’t disappoint. I also didn’t notice any glaring issues with how the controller worked with streaming “Gears 5” and “Forza.”
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Simplicity With Plenty to Offer
 
 ![GameSir X2s Type-C front view](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/07/gamesir-x2s-type-c-overview.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Sergio Rodriguez / How-To Geek
 
  The overall design of the X2s is simple. There are no bells and whistles, and it really relies on that “retro” styling to appeal to players. I wish it appealed more to me. It’s just not something I can game on for long. It’s a shame, too, because GameSir didn’t skimp on some of its staple features carried over from premium mobile controllers.
@@ -128,16 +131,14 @@ Close
 
  There are two additional controller modes—DS5 and HiD—but neither seemed to change much, save, maybe, for compatibility. GameSir’s manuals aren’t clear, but both seem to exist to allow the X2s to run games that already have native controller support, with DS5 mode made specifically for the PS5\. In future models, I’d like to see a mobile controller that mimics DualSense’s haptic feedback trigger so you can get the full experience of playing on the console.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ##  Limited Only By Your Gaming Library
 
 ![Falout Shelter running on GameSir X2s Type-C](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/07/gamesirt-x2s-type-c-fallout.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Sergio Rodriguez / How-To Geek
 
  GameSir constantly provides an impressive level of support. On my X2s, I could run Xbox Cloud Gaming, Steam Link, PS Remote Play, and dedicated mobile games seamlessly through the GameSir app. If I had accounts with GeForce NOW and any other cloud streaming service that works with Android devices, I’d have also been able to access them. (This controller works for iPhone emulator apps like Delta too!)
@@ -155,8 +156,9 @@ Sergio Rodriguez / How-To Geek
 ![GameSir X2s Type-C](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/gamesir-x2s-type-c.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-rec-2024-2000-1.png) 
 
 #####  GameSir X2s Type-C Controller
@@ -173,8 +175,6 @@ The GameSir X2s Type-C Mobile Gaming controller works with most USB-C-compatible
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -182,4 +182,19 @@ The GameSir X2s Type-C Mobile Gaming controller works with most USB-C-compatible
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-become-an-instant-contributor-at-a-tiktok-gathering/"><u>[Updated] 2024 Approved Become an Instant Contributor at a TikTok Gathering</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-ultimate-ig-dashboard-unraveling-user-engagement-patterns/"><u>[Updated] The Ultimate IG Dashboard Unraveling User Engagement Patterns</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-continuous-media-gatherers/"><u>2024 Approved Continuous Media Gatherers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-ideal-antivirus-solutions-for-apples-ios-top-6-picks-revealed/"><u>Discover the Ideal Antivirus Solutions for Apple's iOS – Top 6 Picks Revealed</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/expertise-en-photos-trouver-lequilibre-ideal-pour-les-blanc-en-images-professionnelles/"><u>Expertise en Photos: Trouver L'Équilibre Idéal Pour Les Blanc en Images Professionnelles</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-oppo-k11-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Oppo K11 5G to New Phone | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-tp-links-av1300-wireless-signal-enhancer-as-mighty-as-it-claims-our-thorough-evaluation-reveals-all/"><u>Is TP-Link's AV1300 Wireless Signal Enhancer as Mighty as It Claims? Our Thorough Evaluation Reveals All</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/learn-how-to-lock-stolen-your-iphone-15-pro-properly-by-drfone-ios/"><u>Learn How To Lock Stolen Your iPhone 15 Pro Properly</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-photography-with-huawei-p20-pro-a-well-crafted-smartphone-featuring-an-outstanding-camera/"><u>Mastering Photography with Huawei P20 Pro: A Well-Crafted Smartphone Featuring an Outstanding Camera</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-the-ultimate-guide-to-animation-makers-top-recommendations/"><u>New The Ultimate Guide to Animation Makers Top Recommendations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-speech-recognition-software/"><u>Top Speech Recognition Software</u></a></li>
+<li><a href="https://win-dash.techidaily.com/updated-solution-how-to-install-default-printer-and-scanner-drivers-on-windows-11/"><u>Updated Solution: How to Install Default Printer & Scanner Drivers on Windows 11</u></a></li>
+</ul></div>
 

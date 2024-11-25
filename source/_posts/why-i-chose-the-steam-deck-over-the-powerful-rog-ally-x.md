@@ -1,7 +1,7 @@
 ---
 title: Why I Chose the Steam Deck Over the Powerful Rog Ally X
-date: 2024-08-31T14:56:57.743Z
-updated: 2024-09-01T14:56:57.743Z
+date: 2024-11-23T18:48:54.828Z
+updated: 2024-11-25T01:27:34.348Z
 tags:
   - games
   - tv
@@ -23,7 +23,15 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Steam Deck vs ROG Ally sitting on a desk.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/steam-deck-vs-rog-ally-featured.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Goran Damnjanovic / How-To Geek
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  ASUS' Controversial Hardware Issues
 
@@ -41,9 +49,6 @@ Goran Damnjanovic / How-To Geek
 
  With the Steam Deck, you'll save money right out of the gate, giving you more to spend on games and accessories like a dock to play it on a monitor or TV. There are also multiple options with different price ranges, with the cheapest being the LCD model with 256GB of storage at only $400.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ##  I Love the Steam Deck's Trackpads
 
  While the Ally X might be the more powerful system in terms of hardware, it does miss out on a few useful features that the Steam Deck has to offer. The most obvious of these are the trackpads.
@@ -51,15 +56,13 @@ Goran Damnjanovic / How-To Geek
 ![The right side of the Steam Deck OLED model with the trackpad underneath the joystick.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/pxl_20240625_190936982.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Zachary Cimaglio / How-To Geek
 
  These simulate the function of using a mouse and make it more convenient to navigate certain UI elements or aim in-game weapons with a little more precision than a joystick would offer. They're great for strategy titles or mouse-heavy games like _Papers, Please_ and _Return to Monkey Island_. They also make navigating the desktop UI with a pointer far more pleasant.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Linux is More Reliable
 
  Another issue that kept coming up during my research was the [problems Ally owners have had with Windows 11](https://youtube-webster.techidaily.com/cially-flourishing-online-media-personality/), which is not built specifically for the platform and is prone to bugs and crashes thanks to mandatory software updates.
@@ -69,8 +72,9 @@ Zachary Cimaglio / How-To Geek
  While navigating file folders and external software on the Steam Deck has a little more of a learning curve, you can soon [get up to speed with the Linux directory structure](https://instagram-clips.techidaily.com/crafting-captivating-ig-stories-with-youtube-content-for-2024/). SteamOS, which uses Linux as its base, is made specifically for the Steam Deck. ASUS relies on software like Armory Crate to better adapt the Windows UI to its handheld form factor.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Controls Feel More Intuitive
 
  With the trackpads and four extra buttons on the back, the Steam Deck's controls feel surprisingly intuitive for just how big it is compared to a traditional controller. The triggers and shoulder buttons are easier to reach and the joysticks are positioned parallel to one another as opposed to the Ally X's diagonal orientation, something which I have always preferred even for console controllers.
@@ -78,8 +82,9 @@ Zachary Cimaglio / How-To Geek
 ![Asus ROG Ally and Steam Deck being held in hands.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/12/2023-12-08-14-23-57.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Bill Logudice / How-To Geek
 
 Asus ROG Ally Z1 Extreme (left) versus Steam Deck 512GB LCD (right)
@@ -88,9 +93,6 @@ Asus ROG Ally Z1 Extreme (left) versus Steam Deck 512GB LCD (right)
 
  You can rebind controls on the ROG Ally too, but you'll need to use ASUS' software to do it.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  OLED is the New Standard
 
  One of the biggest advantages the Steam Deck has over many of its competitors, including the Ally X, is its brightly lit OLED screen. This has quickly become the new standard for handhelds with its 90Hz refresh rate and HDR support. With higher refresh rates, capping out at 90hz as opposed to the original 60hz in the LCD model, the Steam Deck OLED enjoys higher graphical fidelity and performance in certain instances.
@@ -109,8 +111,6 @@ Asus ROG Ally Z1 Extreme (left) versus Steam Deck 512GB LCD (right)
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -118,4 +118,26 @@ Asus ROG Ally Z1 Extreme (left) versus Steam Deck 512GB LCD (right)
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-fabled-frontiers-top-10-roguely-ventures-for-2024/"><u>[New] Fabled Frontiers Top 10 Roguely Ventures for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-sony-blu-ray-player-s3700-analysis-updated/"><u>[New] Sony Blu-Ray Player S3700 Analysis (Updated)</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-who-wins-in-video-quality-comparing-av1-to-vp9/"><u>[Updated] Who Wins in Video Quality? Comparing AV1 to VP9</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-withings-move-an-attractive-blend-of-tradition-and-technology/"><u>Comprehensive Review of the Withings Move: An Attractive Blend of Tradition and Technology</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211124832-9798889602972-conquering-mental-illness-a-practical-approach-for-children-and-adults-the-cause-and-solution/"><u>Conquering Mental Illness: A Practical Approach for Children and Adults: The Cause and Solution | Free Book</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/critical-insight-into-madden-19s-gameplay-superior-modules-with-a-touch-of-staleness/"><u>Critical Insight Into Madden 19'S Gameplay: Superior Modules with a Touch of Staleness</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-pricing-availability-and-features-of-the-amazfit-helio-ring/"><u>Exploring the Pricing, Availability, and Features of the Amazfit Helio Ring</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-lava-blaze-2-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Lava Blaze 2 Phone without Any Data Loss</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ibuypower-high-performance-gaming-desktop-assessment-unmatched-strength-and-savings/"><u>IBUYPOWER High-Performance Gaming Desktop Assessment: Unmatched Strength & Savings</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-transform-ordinary-to-outstanding-creating-captivating-square-videos-on-fb/"><u>In 2024, Transform Ordinary to Outstanding Creating Captivating Square Videos on FB</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-audews-handy-and-reliable-portable-air-compressor-buyers-insightful-review/"><u>In-Depth Analysis of Audew's Handy and Reliable Portable Air Compressor – Buyer’s Insightful Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-google-maps-app-on-ios-devices/"><u>In-Depth Analysis: Google Maps App on iOS Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-asus-bw-16d1x-u-blu-ray-player-style-meets-quirks/"><u>In-Depth Look at the Asus BW-16D1X-U Blu-Ray Player: Style Meets Quirks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-watch-active2-review/"><u>Samsung Galaxy Watch Active2 Review</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/stellar-phoenix-repairs-sql-anywhere-server-restored/"><u>Stellar Phoenix Repairs: SQL Anywhere Server Restored</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-the-impact-of-chatgpt-on-bank-and-pc-security/"><u>Understanding the Impact of ChatGPT on Bank and PC Security</u></a></li>
+<li><a href="https://common-error.techidaily.com/unreachable-blizzard-services-offline/"><u>Unreachable: Blizzard Services Offline</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-escort-ix-gadget-review-advanced-technology-for-smarter-highway-safety/"><u>Unveiling the Escort iX Gadget Review: Advanced Technology for Smarter Highway Safety</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-and-its-disappearing-drive-letters-analysis-and-remedial-strategies/"><u>Windows and Its Disappearing Drive Letters: Analysis & Remedial Strategies</u></a></li>
+</ul></div>
 

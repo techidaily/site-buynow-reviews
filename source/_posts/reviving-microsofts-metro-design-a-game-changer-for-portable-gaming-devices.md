@@ -1,7 +1,7 @@
 ---
 title: "Reviving Microsoft's Metro Design: A Game Changer for Portable Gaming Devices"
-date: 2024-08-31T14:56:28.157Z
-updated: 2024-09-01T14:56:28.157Z
+date: 2024-11-18T00:25:58.129Z
+updated: 2024-11-24T16:02:02.662Z
 tags:
   - games
   - tv
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/1fc6ba74c900007ae783d7c5d15561029afe7a276
 * [The Metro UI Worked Great on Touch Screens](https://twitter-videos.techidaily.com/updated-banish-silent-tweets-add-volume-to-videos-for-2024/)
 * [With a Few Tweaks, Metro Can Work Great With D-Pads and Thumbsticks, Too](https://change-location.techidaily.com/home-button-not-working-on-infinix-smart-7-hd-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * The default Windows 11 user interface is far from ideal for handheld gaming; the Metro UI would be a much better fit.
@@ -28,8 +32,9 @@ thumbnail: https://thmb.techidaily.com/1fc6ba74c900007ae783d7c5d15561029afe7a276
  While the Metro UI wasn’t the best way of interacting with your desktop or laptop computer, it could be the best way to interact with Windows on your handheld PC. Instead of trying to reinvent the wheel, Microsoft should unretire Metro and unleash it on handheld PCs, here’s why.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  The Windows Struggle on Gaming Handhelds Is Real
 
  Windows gaming handhelds are mostly great, but they all share one major issue: Windows itself. As someone who owns an [ASUS ROG Ally](https://some-guidance.techidaily.com/2024-approved-streamline-and-shine-the-top-5-video-quality-tools/), I can attest that navigating around Windows on a daily basis with an analog stick playing the role of a very poor mouse replacement is one of the worst gadget-related experiences I've ever had.
@@ -50,15 +55,6 @@ thumbnail: https://thmb.techidaily.com/1fc6ba74c900007ae783d7c5d15561029afe7a276
 
  But the fact is that the Windows user experience is made for a mouse and keyboard and that even a trackpad isn’t an optimal way to navigate around the OS. I’m fully in favor of Microsoft coming up with a handheld-friendly version of Windows, and I might have a solution. One that had been lying forgotten for many years. I’m talking about the Metro UI.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 ##  The Metro UI Worked Great on Touch Screens
 
  I loved the Metro UI and its minimal, tile-based design philosophy on my Nokia Lumia 520, one of the best phones I’ve ever owned. The snappiness of the Metro UI-powered Windows Phone operating system was in line with the high-end iOS and Android experience of the time, despite the Lumia 520 being a budget device.
@@ -70,24 +66,19 @@ thumbnail: https://thmb.techidaily.com/1fc6ba74c900007ae783d7c5d15561029afe7a276
 ![Home and lock screen of a Lumia 430 Smartphone.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/home-screen-of-a-lumia-430-smartphone.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _Microsoft_
 
  In a nutshell, the Metro UI worked great on touch screens. It was a near-perfect touch screen user interface. But when you think about it, Metro would also work great with a D-pad. Let me elaborate.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  With a Few Tweaks, Metro Can Work Great With D-Pads and Thumbsticks, Too
 
  Windows 8’s tile-based, square-like design is perfect for navigating around with a D-pad, as is its settings menu that’s quite similar to the options menus we have on game consoles and the Steam Deck.
 
 ![Windows 8.1 start screen and menu](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/06/2ec63d25.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 _Microsoft_
 
  You’ve got large square and rectangle-shaped tiles that are perfect for a 4-direction navigation device such as a D-pad, you’ve got a Steam Deck-like options menu that’s, again, perfect for navigating around with a D-pad, and you’ve got the app design philosophy that’s, surprise surprise, yet again perfect for a D-pad even though it was originally made for a touch screen. It’s no wonder why many Metro design elements survived for so long on Xbox consoles.
@@ -97,8 +88,9 @@ _Microsoft_
 ![An ASUS ROG Ally with the default Windows 8 screen, displaying the Metro UI.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/an-asus-rog-ally-with-the-default-windows-8-screen-displaying-the-metro-ui.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _Lucas Gouveia / How-To Geek | [tinhkhuong](https://www.shutterstock.com/en/image-photo/ho-chi-minh-vietnam-november-30-2394749575) / Shutterstock_
 
  Now, a version of the Metro UI taken straight from the Windows 8 era would be far from ideal. There are some tweaks Microsoft should implement to make it more controller-friendly.
@@ -106,6 +98,10 @@ _Lucas Gouveia / How-To Geek | [tinhkhuong](https://www.shutterstock.com/en/imag
  For example, a quick access menu similar to what we have in the current iteration of the Xbox UI would be great, especially if we would be able to pin different apps to it such as Armoury Crate, the Game Pass app, and others. It could be a mix between a quick access menu and taskbar, showing pinned icons, a shortcut to the options menu, battery and Wi-Fi info, time and date, and other stuff.
 
 ![Xbox Home Screen Showing Quick Access Menu at the top.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/xbox-home-screen-showing-quick-access-menu-at-the-top.png) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Xbox/Microsoft_
 
@@ -125,8 +121,6 @@ _Xbox/Microsoft_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -134,4 +128,21 @@ _Xbox/Microsoft_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/updated-ultimate-guide-to-top-video-recorders-for-2024/"><u>[Updated] Ultimate Guide to Top Video Recorders for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-garagebands-easy-way-to-dull-down-noise-levels/"><u>2024 Approved Garageband's Easy Way to Dull Down Noise Levels</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-using-the-multifunctional-samsung-galaxy-tab-s4/"><u>Comprehensive Guide to Using the Multifunctional Samsung Galaxy Tab S4</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/embrace-high-definition-art-in-your-space-with-nixplays-advanced-frame/"><u>Embrace High-Definition Art in Your Space with Nixplay’s Advanced Frame</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/fixed-instagram-reel-quirk/"><u>Fixed: Instagram Reel Quirk</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-realme-narzo-60-pro-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Realme Narzo 60 Pro 5GMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-samsung-galaxy-m14-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Samsung Galaxy M14 4G | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-install-the-latest-software-for-your-epson-xp-640-on-windows/"><u>How to Install the Latest Software for Your Epson XP-640 on Windows</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/motorola-one-analysis-a-budget-friendly-alternative-with-sleek-design/"><u>Motorola One Analysis: A Budget-Friendly Alternative with Sleek Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tackling-the-pros-and-cons-in-madden-19s-latest-release-admirable-modules-with-indications-of-fading-novelty/"><u>Tackling the Pros and Cons in Madden 19'S Latest Release: Admirable Modules with Indications of Fading Novelty</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-photoscape-free-imaging-suite-evaluation/"><u>The Ultimate Guide: PhotoScape Free Imaging Suite Evaluation</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-tips-for-issues-with-apple-family-sharing-discover-6-fixes/"><u>Troubleshooting Tips for Issues with Apple Family Sharing – Discover 6 Fixes!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/wise-wrapping-choice-expert-assessment-of-procases-economical-macbook-pro-13-case/"><u>Wise Wrapping Choice: Expert Assessment of ProCase's Economical MacBook Pro 13 Case</u></a></li>
+</ul></div>
 

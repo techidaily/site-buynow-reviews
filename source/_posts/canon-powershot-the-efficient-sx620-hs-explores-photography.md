@@ -1,7 +1,7 @@
 ---
 title: "Canon PowerShot: The Efficient SX620 HS Explores Photography"
-date: 2024-11-11T16:26:49.644Z
-updated: 2024-11-15T16:27:20.950Z
+date: 2024-11-22T19:22:07.085Z
+updated: 2024-11-24T19:12:30.237Z
 categories:
   - BestProducts
 description: "This Article Describes Canon PowerShot: The Efficient SX620 HS Explores Photography"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/68d72132debc55d7a219d5ad96f3f8ade10f55eb9
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
@@ -44,10 +48,7 @@ Lifewire / Nick Jaynes
 4.5
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Anker PowerDrive 2 24W Dual USB Car Charger
@@ -75,13 +76,6 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: All-plastic, but sturdy and subtle**
 
  The Anker PowerDrive 2 might not be the sharpest or most cutting-edge looking in-car USB charger, but what it lacks in visual pizazz, it more than makes up for in sturdiness.
@@ -94,6 +88,10 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Fast charging for demanding devices**
 
  The best part of the Anker PowerDrive 2 is its charging. It has the ability to charge iPads simultaneously without getting overheated thanks to its PowerIQ and VoltageBoost technology. Each USB port can output a maximum 5V/2.4A, for a total of 24W. That’s in line with other car[chargers](https://www.lifewire.com/best-wireless-phone-chargers-4138571) we tested, but the PowerIQ technology can help identify device and deliver the fastest possible charge. This also gives you some overvoltage protection to make sure something like a smartwatch doesn’t fry when you plug it in.
@@ -104,13 +102,6 @@ Lifewire / Nick Jaynes
 
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Middle of the pack**
 
  The list price of $14.99 is positioned in the mid-range of the USB charger market, which ranges from just a few dollars to upwards of $50 for some fancier chargers. However, Anker PowerDrive 2 can be had for a discounted price on some websites. Considering the fact that the Anker PowerDrive 2 includes both the fast-charger and a 3-foot micro USB cable, it is well priced for the marketplace.
@@ -118,10 +109,7 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: A handful of rivals**
@@ -137,6 +125,10 @@ Lifewire / Nick Jaynes
  **The Anker PowerDrive 2 is the workhorse of the in-car USB charger market.**
 
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -164,24 +156,24 @@ Lifewire / Nick Jaynes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-join-jargon-free-youtube-chats/"><u>[New] In 2024, Join Jargon-Free YouTube Chats</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-unveiling-excellent-video-creatives/"><u>[Updated] Unveiling Excellent Video Creatives</u></a></li>
-<li><a href="https://fox-that.techidaily.com/airdrop-not-working-fix-it-fast-with-these-16-tips/"><u>AirDrop Not Working? Fix It Fast With These 16 Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/broadcasting-ig-live-silent-mute-is-fine/"><u>Broadcasting IG Live: Silent, Mute Is Fine</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/compact-travel-wireless-router-tp-link-tl-wr902ac-perfect-portability/"><u>Compact Travel Wireless Router (TP-Link TL-WR902AC): Perfect Portability</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-the-highs-and-lows-in-the-motorola-one-hyper-review-a-robust-phone-with-exceptional-presence/"><u>Discovering the Highs and Lows in the Motorola One Hyper Review: A Robust Phone with Exceptional Presence</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-dji-phantom-4-pro-version-20-nearly-unmatched-performance/"><u>Expert Analysis of the DJI Phantom 4 Pro Version 2.0 - Nearly Unmatched Performance</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-unresponsive-touch-and-stylus-controls-on-displays/"><u>Fixing Unresponsive Touch and Stylus Controls on Displays</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-apple-iphone-xs-to-chromecast-drfone-by-drfone-ios/"><u>How to Cast Apple iPhone XS to Chromecast? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Tecno Pop 8 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-ios-17-worth-my-money/"><u>Is iOS 17 Worth My Money?</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/masterclass-building-an-interactive-story-rich-rpg-with-chatgpt-technology/"><u>Masterclass: Building an Interactive, Story-Rich RPG with ChatGPT Technology</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-data-centers-a-look-at-the-top-server-racks-and-enclosures/"><u>Mastering Data Centers: A Look at the Top Server Racks & Enclosures</u></a></li>
-<li><a href="https://fox-that.techidaily.com/overcoming-imessage-not-delivered-errors-on-iphone-effective-methods/"><u>Overcoming iMessage Not Delivered Errors on iPhone: Effective Methods</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/snowy-seasonings-sharing-apps-from-microsofts-marketplace/"><u>Snowy Seasonings: Sharing Apps From Microsoft's Marketplace</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-good-the-bad-and-the-ugly-unveiling-the-issues-with-pioneer-bdr-xd05b-blu-ray-playerwriter/"><u>The Good, The Bad & The Ugly: Unveiling the Issues with Pioneer BDR-XD05B Blu-Ray Player/Writer</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-elite-server-racks-and-enclosures-of-2024-industry-experts-weigh-in/"><u>Unveiling the Elite Server Racks and Enclosures of 2024 – Industry Experts Weigh In</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/what-changes-come-with-monterey-on-my-mac/"><u>What Changes Come with Monterey on My Mac?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-you-should-consider-getting-the-samsung-galaxy-tab-s3-a-comprehensive-guide/"><u>Why You Should Consider Getting the Samsung Galaxy Tab S3 - A Comprehensive Guide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-peak-performance-in-live-recording-software-for-2024/"><u>[New] Peak Performance in Live Recording Software for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitterscape-treasury-your-one-stop-shop-for-tweeted-gifs-for-2024/"><u>[New] Twitterscape Treasury Your One-Stop Shop for Tweeted GIFs for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-deciphering-the-best-from-av1-and-vp9/"><u>[Updated] Deciphering the Best From AV1 and VP9</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-cc-license-application-a-comprehensive-guide-for-2024/"><u>[Updated] Mastering CC License Application A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-mastering-online-promotion-top-5-proven-methods-for-maximum-impact-on-youtube/"><u>2024 Approved Mastering Online Promotion Top 5 Proven Methods for Maximum Impact on YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-seamlessly-record-your-screen-while-watching-netflix/"><u>2024 Approved Seamlessly Record Your Screen While Watching Netflix</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cutting-edge-convenience-redefined-with-amazons-fourth-gen-echo-device-revealed/"><u>Cutting-Edge Convenience Redefined with Amazon's Fourth Gen Echo Device Revealed.</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-achieving-muted-audibility-with-effortless-fading-in-lumafusion/"><u>In 2024, Achieving Muted Audibility with Effortless Fading in Lumafusion</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-supercharge-your-farming-fun-in-stardew-valley-top-7-upgrades/"><u>In 2024, Supercharge Your Farming Fun in Stardew Valley (Top 7 Upgrades)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/keeping-your-pet-healthy-with-the-petsafe-automatic-feeder-a-detailed-review-for-optimal-weight-management/"><u>Keeping Your Pet Healthy with the PetSafe Automatic Feeder - A Detailed Review for Optimal Weight Management</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-game-performance-a-comprehensive-review-of-the-ibuypower-high-value-gaming-computer/"><u>Maximizing Game Performance: A Comprehensive Review of the IbuyPower High-Value Gaming Computer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pictureperfect-xd-proframe-stunning-quality-over-budget/"><u>PicturePerfect XD ProFrame: Stunning Quality Over Budget</u></a></li>
+<li><a href="https://driver-install.techidaily.com/razer-mouse-compatibility-guide-for-windows/"><u>Razer Mouse Compatibility Guide for WIndows</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revelatory-features-await-why-the-samsung-galaxy-s21-ultra-is-a-game-changer-in-mobile-tech/"><u>Revelatory Features Await: Why the Samsung Galaxy S21 Ultra Is a Game-Changer in Mobile Tech</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-longer-mouse-pad-models/"><u>Top Rated Longer Mouse Pad Models</u></a></li>
+<li><a href="https://blog-min.techidaily.com/ultimate-review-premium-free-dvd-writing-tools-for-win10win11-users-with-step-by-step-instructions/"><u>Ultimate Review: Premium Free DVD Writing Tools for Win10/Win11 Users with Step-by-Step Instructions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-lenovo-yoga-a940-detailed-review-and-user-experience-insights/"><u>Unveiling the Lenovo Yoga A940: Detailed Review & User Experience Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/user-insights-and-experts-opinions-on-truecaller/"><u>User Insights and Experts' Opinions on TrueCaller</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/wasteland-ii-directors-cut-an-immersive-rpg-revisited-comprehensive-review-and-gameplay-analysis/"><u>Wasteland II Director's Cut: An Immersive RPG Revisited – Comprehensive Review and Gameplay Analysis</u></a></li>
 </ul></div>
 

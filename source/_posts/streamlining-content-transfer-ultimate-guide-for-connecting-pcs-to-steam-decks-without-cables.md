@@ -1,7 +1,7 @@
 ---
 title: "Streamlining Content Transfer: Ultimate Guide for Connecting PCs to Steam Decks Without Cables"
-date: 2024-08-31T14:58:28.198Z
-updated: 2024-09-01T14:58:28.198Z
+date: 2024-11-18T18:29:21.855Z
+updated: 2024-11-24T23:11:31.827Z
 tags:
   - games
   - tv
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/b91466317b7eccd6ee21d430979cabf5463805ed4
 
  The Steam Deck is a robust handheld PC, but downloading external files via the built-in internet browsers can be slow and cumbersome. Luckily, there are several ways to transfer files to Valve's portable from another PC in minutes, and some don't even require any extra hardware.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Why Transfer Data to Your Steam Deck?
 
  A major selling point of the Steam Deck is its ability to run external software like non-Steam games and retro emulators. These emulators require games in the form of ROMs or ISOs,, which are [much easier to acquire](https://facebook-videos.techidaily.com/updated-video-revenue-generation-on-facebook-tactics-for-financial-growth-for-2024/) using a desktop PC.
@@ -38,18 +42,20 @@ thumbnail: https://thmb.techidaily.com/b91466317b7eccd6ee21d430979cabf5463805ed4
 
 ![The "Format" option on a storage drive in Windows 10.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/screenshot-2024-07-17-130655-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
  If it is not already set to NTFS under "File System" by default, then simply click on the drop-down menu and select it, then click "Start." The drive should now be readable across both devices.
 
 ![The "Format" menu in Windows 10](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/screenshot-2024-07-17-152336.png) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  From there, it's just a matter of dropping your files onto the drive and connecting it to the Steam Deck. You can use the trackpad or touch screen to navigate the Deck in desktop mode and move the files to wherever you need them within its internal drive or a MicroSD card.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Wireless Transfer Through SSH
 
  On a local Wi-Fi connection? You can also access your Steam Deck's file system directly from your PC wirlessly [using a secure shell or SSH](https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-vivo-y78t-drfone-by-drfone-fix-android-problems-fix-android-problems/).
@@ -60,9 +66,6 @@ thumbnail: https://thmb.techidaily.com/b91466317b7eccd6ee21d430979cabf5463805ed4
 
 ![The "Konsole" app on Steam Deck](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/screenshot_20240717_153532.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
  You won't see your text being entered on the "Password" screen for security reasons, so be careful when you are typing it.
 
  Enable SSH on your Steam Deck by typing the following and hitting enter:
@@ -81,6 +84,10 @@ IP a
 
 ![The IP address for the Steam Deck shown in the system's Konsole app.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/screenshot_20240717_154137-1.png) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You can also do "sudo systemctl status sshd" to verify if it is enabled or type "enable" instead of "start" to make the Deck start up the SSH connection every time it boots up.
 
  Now, you can move files between the two systems using your PC's command prompt window and your Steam Deck's IP address. On your PC launch command prompt by clicking "Start" and then searching for "cmd" and clicking "Command Prompt" when it appears. Now use the command:
@@ -91,9 +98,6 @@ deck@ipaddress
 
  You can also mount your Steam Deck's internal SSD as a readable drive from within Windows, using SSHFS, which is a more robust version of the same concept, which incorporates many of the steps listed above.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ##  Wireless Transfer via Winpinator
 
  Warpinator is a remote file transfer tool built for Linux. Fortunately for Windows users, it was ported to Windows 10 under the name Winpinator. Download and install the application [from the official website](https://winpinator.swisz.cz/download.html) and ensure that your PC and Steam Deck are connected to the same network.
@@ -103,15 +107,13 @@ deck@ipaddress
 ![The Internet Settings screen on Steam Deck](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/download.jfif) 
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  You will then need to download the same app on your Steam Deck by holding down the "Power" button and selecting "Switch to Desktop." Once it reboots, navigate to the "Discover" app in the bottom right corner and search for "Warpinator" to install it to your Deck so the connection can work both ways.
 
  Provided both are on the same LAN network, you should see your Deck appear as an external computer, where you can click on it to access the file systems and move things around at will.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ##  Copy Files Directly to the MicroSD Card
 
  Since the Steam Deck is compatible with [extended storage via a MicroSD card](https://media-tips.techidaily.com/quick-and-simple-turn-any-video-into-samsung-galaxy-friendly-format-with-a-mac/), it is also possible to add files to it directly by inserting it into a PC. If you have a Linux PC, you can get an adapter for a MicroSD card to insert it and just drag files onto the card as you would a flash drive.
@@ -140,8 +142,6 @@ deck@ipaddress
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -149,4 +149,17 @@ deck@ipaddress
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-best-of-the-best-8-cameras-for-top-streaming-experience/"><u>[New] In 2024, Best of the Best 8 Cameras for Top Streaming Experience</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-mastering-youtube-earnings-a-monetization-checklist/"><u>[New] In 2024, Mastering YouTube Earnings A Monetization Checklist</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-tips-and-tricks-for-gopro-get-the-most-from-your-gopro/"><u>[New] Tips and Tricks for GoPro Get the Most From Your GoPro</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/10-best-mobile-writing-tools-for-iosandroid-images-for-2024/"><u>10 Best Mobile Writing Tools for iOS/Android Images for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-precision-tools-for-gif-to-video-conversion-best-5/"><u>2024 Approved Precision Tools for GIF to Video Conversion (Best 5)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apples-masterpiece-unveiled-a-deep-dive-into-the-215-4k-imac-review/"><u>Apple's Masterpiece Unveiled: A Deep Dive Into the 21.5 4K iMac Review</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/budget-conscious-filmmakers-guide-to-360-cameras-for-2024/"><u>Budget-Conscious Filmmakers' Guide to 360° Cameras for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-the-sx620s-balanced-capabilities/"><u>Discovering the SX620's Balanced Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-mobvois-ticwatch-pro-nv3-advanced-gps-tracking-meets-extended-battery-life-with-dual-display-innovation/"><u>The Ultimate Guide to Mobvoi's TicWatch Pro Nv3: Advanced GPS Tracking Meets Extended Battery Life with Dual Display Innovation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-considerations-when-choosing-the-right-printer-for-you/"><u>Top Considerations When Choosing the Right Printer for You</u></a></li>
+</ul></div>
 

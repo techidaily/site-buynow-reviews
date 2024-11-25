@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Evolution: The Disappearance of Episodic Gaming"
-date: 2024-08-31T14:57:25.359Z
-updated: 2024-09-01T14:57:25.359Z
+date: 2024-11-17T21:23:10.883Z
+updated: 2024-11-24T23:27:31.691Z
 tags:
   - games
   - tv
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/c9bde50ffc9a9a68a0d89e0f0e5e46cd2e144cb4e
 ---
 
 ## Exploring the Evolution: The Disappearance of Episodic Gaming
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -29,9 +33,6 @@ thumbnail: https://thmb.techidaily.com/c9bde50ffc9a9a68a0d89e0f0e5e46cd2e144cb4e
 
  Episodic game development would be the thing that solved the pain points of AAA game development, or a smart low-risk approach for smaller studios to get some content out there and earning money, allowing them to complete the rest of the game.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ##  The Episodic Method Is Hard!
 
  This all sounds great, until you really start to think about the details of game development. Even if you're going to release games in chunks over time, the actual game development process is extremely front-loaded. Think about everything that has to be in place before you can produce the first episode. Your [game engine](https://instagram-video-recordings.techidaily.com/instacrafts-seamless-video-assemblies-on-androidios-for-2024/), technology, main assets, writing, and so on, all have to be done before the first episode ships. Sure, that means subsequent episodes are faster and cheaper to produce, but if the bulk of the development costs and work are happening before the first episode ships, that raises questions about the point of the whole approach.
@@ -41,16 +42,17 @@ thumbnail: https://thmb.techidaily.com/c9bde50ffc9a9a68a0d89e0f0e5e46cd2e144cb4e
  I can't even imagine the logistics of assigning work to different people or creating multiple teams who can work on different parts of different episodes, and if we look at how episodic games repeatedly missed their episode release dates, neither could many developers. By the way, when's _Half-Life 2: Episode 3_ coming out?
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Modern Games Take Longer to Develop Than Ever
 
 ![Custom Grand Theft Auto VI cover art.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/sharedimages/2024/04/gta6-custom-cover.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Rockstar
 
  Today, all the stuff that episodic game development was meant to solve has come to pass. Games are more expensive than ever to make. They take longer and longer to develop, and the risk levels involved are so high, few publishers and developers are willing to take risks on innovation.
@@ -58,15 +60,17 @@ Rockstar
  This might be why, in my opinion at least, all the interesting stuff is happening in the [Indie](https://fix-guide.techidaily.com/how-to-fix-unresponsive-touch-screen-on-itel-s23plus-drfone-by-drfone-fix-android-problems-fix-android-problems/) and "double A" categories. Where development cycles are still of reasonable length, and there isn't a mountain of money at stake. At the high-end of the budgetary scale however, I don't think there's any turning back save perhaps for some sort of market bubble bursting for AAA games.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Maybe Episodic Games Never Made Sense
 
 ![Boomer Shooter Collection on the Nintendo Switch Including several DOOM games, Serieous Sam, Duke Nukem, Turok, Quake, and more.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/boomer-shooters-switch.jpeg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Episodic game development is one of those things that sounds good on paper, but in practice isn't too practical. A few companies have made it work, such as Telltale Games, though what they produced wasn't strictly traditional games but rather interactive fiction. Which lends itself to the episodic model, especially if you never really change your tools or game engine.
 
  It's not as if the idea was totally new either. During the [Shareware](https://vp-tips.techidaily.com/2024-approved-highlighting-the-best-ways-to-convert-youtube-to-mp4/) era we also saw the sale of "episodes" in games, but this worked well (ironically) when game development cycles could be measured in months, and a development team might consist of ten people.
@@ -81,8 +85,6 @@ Rockstar
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -90,4 +92,19 @@ Rockstar
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-delicious-dynamos-youtubers-for-your-food-journey-for-2024/"><u>[New] Delicious Dynamos YouTubers for Your Food Journey for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-dismantle-that-dominating-green-distortion-in-mac-based-videos/"><u>[Updated] In 2024, Dismantle That Dominating Green Distortion in Mac-Based Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experts-take-on-the-urban-armor-blackrainbow-sequin-protective-gear-for-your-macbook-sturdy-meets-chic/"><u>Experts' Take on the Urban Armor Black/Rainbow Sequin Protective Gear for Your MacBook: Sturdy Meets Chic</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/ideal-app-selection-top-10-tools-for-instagram-reel-excellence/"><u>Ideal App Selection Top 10 Tools for Instagram Reel Excellence</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-samsung-galaxy-a54-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Samsung Galaxy A54 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-assessment-the-best-google-wireless-nest-doorbell-on-batteries/"><u>In-Depth Assessment: The Best Google Wireless Nest Doorbell on Batteries</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/laptop-and-web-navigating-live-video-communication-in-whatsapp-for-2024/"><u>Laptop & Web Navigating Live Video Communication in WhatsApp for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/mastering-on-the-go-device-management-with-portable-driver-easy/"><u>Mastering On-the-Go Device Management With Portable Driver Easy</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/poco-m6-pro-4g-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Poco M6 Pro 4G Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/portable-ultimate-battery-revival-kits-for-cars-2024/"><u>Portable, Ultimate Battery Revival Kits for Cars, 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-tab-s6-explored-delving-into-its-signature-attributes-such-as-s-pen-compatibility-and-dex-mode/"><u>Samsung Galaxy Tab S6 Explored: Delving Into Its Signature Attributes Such as S Pen Compatibility and DeX Mode</u></a></li>
+<li><a href="https://techtrends.techidaily.com/student-sweet-deals-mastering-the-process-of-earning-a-microsoft-store-discount-scholarship/"><u>Student Sweet Deals: Mastering the Process of Earning a Microsoft Store Discount Scholarship</u></a></li>
+</ul></div>
 

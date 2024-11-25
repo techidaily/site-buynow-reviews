@@ -1,7 +1,7 @@
 ---
 title: "Avoid External Gaming Capture Tools: Stream Your Game Sessions with Steam"
-date: 2024-08-31T14:54:48.165Z
-updated: 2024-09-01T14:54:48.165Z
+date: 2024-11-18T00:35:29.227Z
+updated: 2024-11-24T20:27:46.200Z
 tags:
   - games
   - tv
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/c2838348b746990136e05e229d4b40bfea769dde8
 ---
 
 ## Avoid External Gaming Capture Tools: Stream Your Game Sessions with Steam
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Quick Links
 
@@ -28,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/c2838348b746990136e05e229d4b40bfea769dde8
 
  The best screen recorders can be expensive, while free ones put an ugly watermark on your recordings. That's where Steam's built-in recorder comes in. It lets you record gameplay for both Steam games and games that aren't on Steam.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  How to Set Up Steam's Recording Feature
 
  Steam's gameplay recording feature is currently in beta. Before you start using it, you will need to opt in and turn it on. To do this, connect your device to the internet and open the Steam client. Then, click the "Steam" option in the top-left corner and choose "Settings."
@@ -43,17 +51,19 @@ thumbnail: https://thmb.techidaily.com/c2838348b746990136e05e229d4b40bfea769dde8
 ![Restart Now option in the Steam client.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/restart-now-option-in-the-steam-client.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Use Steam's Recording Feature to Record Steam Games
 
  It's easy to record your Steam games using the built-in recording feature. First, open the Steam client and click "Steam" in the top-left corner. Choose "Settings" from the menu, then select "Game Recording" from the left sidebar. On the right side, you'll see three options — "Off/Don't Record," "Record in Background," and "Record on Demand."
 
 ![Game Recording option in the Steam Client.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/game-recording-option-in-the-steam-client.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  When you choose the "Off/Don't Record" option, Steam won't record anything on your screen. However, since you want to [record games](https://extra-lessons.techidaily.com/in-2024-boost-love-odds-expert-tips-for-compelling-tinder-profiles/), you'll be using "Record in Background" or the "Record on Demand" option.
 
  The "Record in Background" option will automatically start recording [Steam games](https://tiktok-clips.techidaily.com/in-2024-fast-tracking-tiktok-filming-the-ultimate-playbook/) as soon as you launch them and stop when you close them. You have manual control over how long you want Steam to record your gameplay and its quality.
@@ -66,9 +76,6 @@ thumbnail: https://thmb.techidaily.com/c2838348b746990136e05e229d4b40bfea769dde8
 
 ![Shortcut keys section in the Game Recording window.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/shortcut-keys-section-in-the-game-recording-window.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Additionally, the "Record Microphone" option lets you record your system microphone's sound along with the game audio.
 
  The next recording option is "Record on Demand." You should choose this option if you want to manually control when to start and pause the gameplay recording. By default, you can press the Ctrl+F11 key combination on your Windows computer to start and pause the recording. You can change this and other action key combinations as per your preference.
@@ -76,17 +83,15 @@ thumbnail: https://thmb.techidaily.com/c2838348b746990136e05e229d4b40bfea769dde8
 ![Shortcut keys section of the On Demand Record option.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/shortcut-keys-section-of-the-on-demand-record-option.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Use the Steam Recording Feature to Record Non-Steam Games
 
  Perhaps the coolest part about Steam's gameplay recording feature is that it works for non-Steam games, too. To set it up, open the Steam client and click the "Library" option in the top bar. In the bottom-left corner, you'll see "Add a Game." Click that and choose "Add a Non-Steam Game."
 
 ![Add a Non-Steam Game option in the Steam Client.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/add-a-non-steam-game.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
  Select the game you want to record. If it's not on the list, click "Browse," navigate to the game's installation folder, and choose the game's executable file. Finally, click "Add Selected Programs."
 
 ![Add Selected Programs option in the Steam Client.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/add-selected-programs-option-in-the-steam-client.jpg) 
@@ -102,27 +107,26 @@ thumbnail: https://thmb.techidaily.com/c2838348b746990136e05e229d4b40bfea769dde8
 ![Recordings & Screenshots option in the Steam Client.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/recordings-screenshots-option-in-the-steam-client.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  This window will display all your captured screenshots and gameplay recordings made with Steam's recording feature. When you play a recording, the window will show markers on the timeline for any screenshots you took or markers you added during the recording.
 
  To create a clip from your recording, simply open it and navigate to the timeline marker you created (if any).
 
 ![Timeline marker in Steam recording.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/timeline-marker-in-steam-recording.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  If you didn't create markers, go to the desired starting point for your clip and click the "Clip" option in the bottom right corner. Next, use the clip slider to choose the ending point of your clip.
 
 ![Clip option in the Steam recording.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/clip-option-in-the-steam-recording.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
  Once you're happy, click the "Save/Share" option. This will give you different ways to use the clip you just created. You can also choose "Export Video File" option to save the clip directly to your computer.
 
 ![Save & Share option in the Steam recording.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/save-share-option-in-the-steam-recording.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  One weird thing that I noticed is that Steam doesn't currently allow you to share the entire recording directly. You'll need to create a clip from the recording first before sharing it.
 
@@ -140,8 +144,6 @@ thumbnail: https://thmb.techidaily.com/c2838348b746990136e05e229d4b40bfea769dde8
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -149,4 +151,22 @@ thumbnail: https://thmb.techidaily.com/c2838348b746990136e05e229d4b40bfea769dde8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-instaloops-create-content-that-circulates-and-captivates/"><u>[New] 2024 Approved InstaLoops Create Content That Circulates & Captivates</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-unleashing-visual-velocity-illustrators-guide-to-motion-blurs-for-2024/"><u>[New] Unleashing Visual Velocity Illustrator's Guide to Motion Blurs for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-exclusive-listing-high-quality-free-streamers-for-webm-files/"><u>[Updated] Exclusive Listing High-Quality, Free Streamers for WebM Files</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-step-by-step-manual-kickstart-your-bite-sized-gadget-reviews-channel/"><u>[Updated] Step-by-Step Manual Kickstart Your Bite-Sized Gadget Reviews Channel</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ausdauer-der-sprache-deutsche-grusse-abseits-von-hallo/"><u>Ausdauer Der Sprache: Deutsche Grüße Abseits Von Hallo</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/chatcam-capturer-facebook-edition/"><u>ChatCam Capturer, Facebook Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-the-bulky-look-vs-high-speed-performance-of-netgears-powerline-1200/"><u>Expert Analysis: The Bulky Look vs High-Speed Performance of Netgear's Powerline 1200</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-picks-best-key-discovery-gadgets-of-the-year-2024/"><u>Expert Picks: Best Key Discovery Gadgets of the Year 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-use-life360-on-windows-pc-for-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Samsung Galaxy S24+? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-lava-blaze-pro-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Lava Blaze Pro 5G to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-seatechs-versatile-usb-blu-ray-writing-device-varied-efficiency/"><u>In Depth Review of SeaTech's Versatile USB Blu-Ray Writing Device - Varied Efficiency</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-the-netatmo-weather-station-ideal-device-for-smartphone-weather-enthusiasts/"><u>In-Depth Evaluation of the Netatmo Weather Station - Ideal Device for Smartphone Weather Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/t7-kit-unveiled-canons-push-for-superior-photography-tech/"><u>T7 Kit Unveiled: Canon's Push for Superior Photography Tech</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-dell-inspiron-3671-review-middle-range-performance-in-a-value-pc/"><u>The Dell Inspiron 3671 Review: Middle Range Performance in a Value PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-computer-audio-cards-in-2n24-your-ultimate-guide/"><u>Top-Rated Computer Audio Cards in 2N24: Your Ultimate Guide</u></a></li>
+</ul></div>
 

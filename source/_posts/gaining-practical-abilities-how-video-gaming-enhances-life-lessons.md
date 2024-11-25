@@ -1,7 +1,7 @@
 ---
 title: "Gaining Practical Abilities: How Video Gaming Enhances Life Lessons"
-date: 2024-08-31T14:55:54.453Z
-updated: 2024-09-01T14:55:54.453Z
+date: 2024-11-23T23:46:34.225Z
+updated: 2024-11-24T21:00:49.624Z
 tags:
   - games
   - tv
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/d273051a98d6681ad00d9eef8a0a1e7b14cf2a7e1
 ---
 
 ## Gaining Practical Abilities: How Video Gaming Enhances Life Lessons
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Quick Links
 
@@ -34,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/d273051a98d6681ad00d9eef8a0a1e7b14cf2a7e1
 
  As a writer, I first have to finish the day's tasks before I reward myself with a gaming session. When you think about it, most of what we do in the real world is just grinding. Thankfully, playing a lot of games that require you to grind for rewards has conditioned me to fall in love with the process and appreciate the rewards.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2  Advanced Driving Techniques 
 
  I used to own a racing wheel and played my fair share of racing games over the years. Granted, I spent most of the time playing arcade racers like _Forza Horizon_ rather than more realistic sim racers, but some basic laws of physics still apply in those games.
@@ -42,14 +50,15 @@ thumbnail: https://thmb.techidaily.com/d273051a98d6681ad00d9eef8a0a1e7b14cf2a7e1
 
 ![Person playing a racing game on a Samsung Odyssey Curved Monitor at CES 2024](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/53451155172_810ba3c12d_o.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Hannah Stryker / How-To Geek
 
  When I lost control of my car for the first time, my muscle memory kicked in, and I intuitively knew how to get back traction. Instead of panic braking, I feathered the gas pedal and countersteered, which allowed me to regain control. One gamer credits video games for [saving him from a crash at 70 mph](https://www.digitalspy.com/videogames/a793201/racing-games-saved-this-guy-from-a-70mph-car-crash/).
 
  Off-road simulation games like _MudRunner_ and _SnowRunner_ can also develop a feel for traction management and throttle control in off-road conditions. My car once got stuck in gravel, and even though I had only been driving for a couple of months at that point, I knew from games that smashing the accelerator would just result in wheelspin. Instead, I rocked the car back and forth to get out of the hole.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3  It's Easier When You’re Not Alone 
 
@@ -59,9 +68,6 @@ Hannah Stryker / How-To Geek
 
 ![Young people playing local multiplayer video games in the living room on a gaming console.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/shutterstock_2338423661.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Geber86/Shutterstock.com](https://www.shutterstock.com/image-photo/young-people-playing-video-games-living-2338423661)
 
  This type of helpful collaboration has made me realize that life is much easier if you don't shy away from asking for a helping hand. I no longer hesitate when asking my family members to do something for me, and I actively reach out to my co-workers for whatever questions I have.
@@ -72,16 +78,10 @@ Hannah Stryker / How-To Geek
 
 ![A promotional image of Elden Ring featuring the beautiful game world.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/03/elden-ring.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 FromSoftware
 
  Similarly, I can't always win in life. Some projects will fail no matter how hard I try, and that's okay. The important thing is that I learn from my mistakes and never stop trying.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5  Think Outside the Box 
 
  Adventure games are filled with creative puzzles. _Hogwarts Legacy_ and the _Uncharted_ series first come to mind. Many of these puzzles require you to think outside the box but within the game's limitations—you can't go over a ledge or jump over an obstacle if the game doesn't allow it.
@@ -91,8 +91,9 @@ FromSoftware
  It's just as insightful to look at things from a different perspective in the real world. You can solve problems and conflicts much more easily when you consider alternative approaches that work with the tools you already have available to you.
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6  Navigating New Places With & Without a Map 
 
  Most games give players a map (and minimap or compass) to help navigate the in-game world. Similarly, we can use Google Maps in the real world, which is surprisingly similar to maps in games. In games, the map can reveal nearby points of interest; similarly, you can find and go to nearby restaurants, cafes, and historical landmarks with Google Maps.
@@ -102,8 +103,9 @@ FromSoftware
 ![A phone with the Google Find My Device logo around it and a map with a pin coming out of the screen.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/a-phone-with-the-google-find-my-device-logo-around-it-and-a-map-with-a-pin-coming-out-of-the-screen.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lucas Gouveia / How-To Geek
 
  Some games don't have a map, such as _Lies of P_, or they don't provide local maps for dungeons and cities, like _Skyrim_ and even _Minecraft_. Instead, you have to remember where you came from by memorizing landmarks and paths and paying attention to your environment.
@@ -120,8 +122,6 @@ Lucas Gouveia / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -129,4 +129,26 @@ Lucas Gouveia / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-low-cost-pc-performance-monitoring-programs/"><u>[New] 2024 Approved Low-Cost PC Performance Monitoring Programs</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-lightning-fast-windowed-image-viewer/"><u>[New] In 2024, Lightning-Fast Windowed Image Viewer</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-unlocking-social-media-potential-stream-to-fb-via-obs-for-2024/"><u>[New] Unlocking Social Media Potential Stream to FB via OBS for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-infinite-screensaver-solutions-top-12-apps-no-cutoff/"><u>[Updated] In 2024, Infinite Screensaver Solutions - Top 12 Apps (No Cutoff)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-netgear-nighthawk-x6-wifi-range-extender-a-complete-analysis/"><u>Comprehensive Guide to the Netgear Nighthawk X6 WiFi Range Extender: A Complete Analysis</u></a></li>
+<li><a href="https://video-capture.techidaily.com/effective-techniques-for-reducing-file-size-of-mp4-videos-across-various-devices/"><u>Effective Techniques for Reducing File Size of MP4 Videos Across Various Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elite-uninterruptible-power-solutions-for-2n4-leading-the-charge/"><u>Elite Uninterruptible Power Solutions for 2N4: Leading the Charge</u></a></li>
+<li><a href="https://driver-error.techidaily.com/find-lost-seagate-disk-steps-for-windows-10/"><u>Find Lost Seagate Disk - Steps for Windows 10</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/future-proof-picks-top-consoles-to-game-on-in-2e-2024-unveiled/"><u>Future-Proof Picks: Top Consoles to Game On in 2E 2024 Unveiled</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-quickly-and-efficiently-trim-mp4-files-for-free-compatible-with-any-device/"><u>How To Quickly and Efficiently Trim MP4 Files for Free – Compatible with Any Device</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/live-streams-how-to-log-gh-sessions-for-2024/"><u>Live Streams How to Log GH Sessions for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcoming-the-challenge-msi-afterburner-not-recognizing-your-gpu-in-windows-11-and-how-to-fix-it/"><u>Overcoming the Challenge: MSI Afterburner Not Recognizing Your GPU in Windows 11 and How to Fix It</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/secure-your-prime-day-steals-with-these-sizzling-hot-discounts-on-roku-products/"><u>Secure Your Prime Day Steals with These Sizzling Hot Discounts on Roku Products</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/selecting-a-fitness-tracker-these-5-considerations-will-help-you-make-the-right-decision/"><u>Selecting a Fitness Tracker? These 5 Considerations Will Help You Make The Right Decision</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/top-ultra-short-timelapse-capture-methods-for-2024/"><u>Top Ultra-Short Timelapse Capture Methods for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tp-link-archer-c50-reviewed-top-value-and-reliability-for-budget-shoppers/"><u>TP-Link Archer C50 Reviewed: Top Value and Reliability for Budget Shoppers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-safe-browsing-on-kids-edition-an-in-depth-guide-to-the-amazon-fire-hd-10-features/"><u>Unlocking Safe Browsing on Kids Edition - An In-Depth Guide to the Amazon Fire HD 10 Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-premium-byb-e430s-features-an-insightful-review-of-its-ergonomic-led-light/"><u>Unveiling the Premium BYB E430's Features – An Insightful Review of Its Ergonomic LED Light</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/wet-curing-methods-involve-maintaining-moisture-through-water-or-wet-coverings/"><u>Wet Curing Methods Involve Maintaining Moisture Through Water or Wet Coverings.</u></a></li>
+</ul></div>
 

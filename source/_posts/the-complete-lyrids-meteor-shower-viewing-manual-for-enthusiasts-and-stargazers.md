@@ -1,7 +1,7 @@
 ---
 title: The Complete Lyrids Meteor Shower Viewing Manual for Enthusiasts and Stargazers
-date: 2024-08-31T14:56:31.892Z
-updated: 2024-09-01T14:56:31.892Z
+date: 2024-11-19T20:08:14.717Z
+updated: 2024-11-24T21:44:06.544Z
 tags:
   - games
   - tv
@@ -13,11 +13,19 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ## The Complete Lyrids Meteor Shower Viewing Manual for Enthusiasts and Stargazers
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Quick Links
 
 * [What and Where Is the Lyrid Meteor Shower?](https://extra-information.techidaily.com/unveiling-the-full-potential-sony-action-camera-review/)
 * [How to Watch the Lyrid Meteor Shower](https://desktop-recording.techidaily.com/updated-unleashing-creativity-how-to-master-io-screen-capture-for-2024/)
 * [How to Photograph the Lyrid Meteor Shower](https://facebook-video-share.techidaily.com/2024-approved-youtube-fixed-shorts-are-now-easily-accessible/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -27,9 +35,6 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
  While January to March offers some of the darkest skies for stargazing in the Northern Hemisphere, it's when meteor showers are at their quietest. That's why we're really excited about the upcoming Lyrid meteor shower. Let's look at what it is, how you can see it, and how to capture it on camera.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ##  What and Where Is the Lyrid Meteor Shower?
 
  The Lyrid meteor shower is caused by small pieces of debris falling from and trailing behind the C/1861 G1 (Thatcher) comet, which was discovered by amateur astronomer A. E. Thatcher in 1861\. As the Earth passes through Thatcher's solar orbit, the trailing debris collides with our atmosphere to create a stunning meteor display. It's called the Lyrid meteor shower because the shoots of light appear to originate near the [Lyra constellation](https://en.wikipedia.org/wiki/Lyra), but in fact, the shower has nothing to do with Lyra other than this apparent positional coherence.
@@ -37,15 +42,17 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
  Our planet passes through Thatcher's trail once a year in April. More specifically, it lasts from April 14-30, peaking on the night of April 22-23\. The Lyra constellation is best viewable in Northern-Hemisphere skies, and the Lyrid meteor shower's radiant point is far north on the sky's dome. While you might see some meteors if you're in Cape Town or Canberra, you're more likely to appreciate its spectacle in Montreal, Memphis, and Manchester.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  How to Watch the Lyrid Meteor Shower
 
 ![The Cygnus constellation, with Deneb and Albireo highlighted, and the Lyra constellation, with Vega highlighted.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/cygnus-constellation-2711349.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 BBC Sky at Night
 
  To find the Lyra constellation, look for its brightest star, Vega, which is also the fifth-brightest star in the night sky. You'll see the Lyra constellation under the right-hand wing of the much larger Cygnus constellation.
@@ -61,8 +68,9 @@ BBC Sky at Night
  The biggest final obstacles to shooting star success are things you can't control. First, the moon will be in its waxing gibbous phase as the meteor shower hits its peak (the full moon is on April 24th), so you can expect some unwanted light to obscure your view of the faintest meteors. Try to plan your time between the setting of the moon and the rising of the sun (between 5 am and 6 am on April 23rd) for the darkest skies. Second, clouds—the biggest thorn in any stargazer's side. But remember, all things being well, you'll catch some shooting stars at some point between April 14-30 if you find the right conditions.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  How to Photograph the Lyrid Meteor Shower
 
  Just witnessing the Lyrid meteor shower should be enough to wow you, but photographing a streak of dust burning up in our atmosphere can add an extra bit of joy to this addictive hobby. The first thing you'll need is a sturdy tripod. For the best chance to catch a shooting star, you'll need to [set your phone's camera to a long exposure](https://fix-guide.techidaily.com/how-to-revive-your-bricked-infinix-smart-8-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/) and keep it very still. You'll also benefit from [adjusting some of your phone's settings to get the best shot of the night sky](https://digital-screen-recording.techidaily.com/updated-2024-approved-exclusive-moba-selection-for-android-gamers/).
@@ -81,8 +89,6 @@ BBC Sky at Night
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -90,4 +96,24 @@ BBC Sky at Night
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-selecting-the-ultimate-business-vault/"><u>[New] In 2024, Selecting the Ultimate Business Vault</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-top-5-twitch-broadcasting-techniques/"><u>[New] In 2024, Top 5 Twitch Broadcasting Techniques</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-reality-vs-virtuality-sustaining-vr-creativity-innovation/"><u>[Updated] Reality Vs. Virtuality Sustaining VR Creativity Innovation</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/av1-basics-for-beginners-explained/"><u>AV1 Basics for Beginners Explained</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/capture-life-in-hd-affordably-canons-elph-190/"><u>Capture Life in HD, Affordably – Canon's ELPH 190</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exceptional-dell-xps-13-2-in-1-review-a-peek-into-its-superior-performance-and-capabilities/"><u>Exceptional Dell XPS 13 2-in-1 Review: A Peek Into Its Superior Performance & Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-how-does-the-netgear-nighthawk-x4-wi-fi-extender-measure-up/"><u>Expert Review: How Does the Netgear Nighthawk X4 Wi-Fi Extender Measure Up?</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/exploring-jabra-talk-45s-exceptional-sound-quality-plus-durable-power/"><u>Exploring Jabra Talk 45'S Exceptional Sound Quality + Durable Power</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-prevent-continual-disruptions-during-warzone-20-sessions-on-your-gaming-laptop-or-desktop/"><u>How to Prevent Continual Disruptions During Warzone 2.0 Sessions on Your Gaming Laptop or Desktop</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-pivot-to-popularity-mastering-video-flip-on-social/"><u>In 2024, Pivot to Popularity Mastering Video Flip on Social</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-quick-profit-on-reddit-here-are-your-13-most-accessible-ways/"><u>In 2024, Quick Profit on Reddit? Here Are Your 13 Most Accessible Ways</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/most-efficient-power-inverters-reviewed-the-ultimate-buyers-guide/"><u>Most Efficient Power Inverters Reviewed: The Ultimate Buyer's Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-antop-at-127-a-stylish-antenna-bringing-you-free-clear-tv-signals/"><u>Review of the Antop AT-127: A Stylish Antenna Bringing You Free, Clear TV Signals</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ring-battery-doorbell-plus-a-detailed-product-assessment/"><u>Ring Battery Doorbell Plus - A Detailed Product Assessment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tp-link-tl-wr902ac-the-ultimate-portable-wi-fi-hotspot-for-mobile-internet-needs/"><u>TP-Link TL-WR902AC: The Ultimate Portable Wi-Fi Hotspot for Mobile Internet Needs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-features-a-complete-analysis-of-anthropics-photoshop-alternative/"><u>Unveiling the Features: A Complete Analysis of Anthropics' Photoshop Alternative</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unveiling-the-premium-our-rankings-for-best-gopro-casings/"><u>Unveiling the Premium Our Rankings for Best GoPro Casings</u></a></li>
+</ul></div>
 

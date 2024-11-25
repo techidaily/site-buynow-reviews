@@ -1,7 +1,7 @@
 ---
 title: "Capturing Ripples & Shores: The Insta360 One X2 Reviewed"
-date: 2024-11-14T16:43:24.908Z
-updated: 2024-11-15T16:00:33.716Z
+date: 2024-11-24T02:11:35.989Z
+updated: 2024-11-25T00:14:22.741Z
 categories:
   - BestProducts
 description: "This Article Describes Capturing Ripples & Shores: The Insta360 One X2 Reviewed"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/a50a3cec0521fa6fb800284717c9122c07291a027
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Apple iMac 21.5-inch 4K
 
@@ -40,6 +44,10 @@ Lifewire / Gannon Burgett
 [View On Amazon $969](https://www.amazon.com/dp/B072JW4Z9S/?tag=lifewire-onsite-prod-20&ascsubtag=4689108%7Cn4e541e22b8624c9292b46a113b9d60a708%7CB072JW4Z9S)
 
 4
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Apple iMac 21.5-inch 4K
 
@@ -87,13 +95,6 @@ Lifewire / Gannon Burgett
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/gM_JxuZjDbSUs7DYtXIwUIqqz0Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-3-d30c5f8414e94cbd9b1ec8aea9b18950.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Gannon Burgett
 
 ## **Setup Process: One plug and you’re good to go**
@@ -103,6 +104,10 @@ Lifewire / Gannon Burgett
  Setting up the iMac is as simple as unwrapping it from its protective cover, setting it on the desk, plugging it in with the included power cord, and pressing the power button. As it boots up, we turned on the Magic Keyboard and Magic Mouse 2\. By the time the iMac was to the setup screen — a process that took approximately 60 seconds — the two were already paired with the computer and ready to be used.
 
  Going through the setup process took us approximately five minutes, which included setting up our iCloud account and getting the various login settings in place. We opted to set this up as a new computer, but there’s also the ability to set it up from an Apple Time Capsule backup or transfer content from a PC via USB. The amount of time those options take will vary depending on the device you’re transferring the information from as well as the amount of data being transferred.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Display: Bright, brilliant, and ready to shine**
 
@@ -116,19 +121,14 @@ Lifewire / Gannon Burgett
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/IKZ75jBAosAG3M1Py_-E0ElYAfM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-5-a705ea67b88b4cf694c53e4715a9aceb-f57b3be92a934d8ab579d90728e23fe8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Impressive performance from an all-in-one**
@@ -153,13 +153,6 @@ Lifewire / Gannon Burgett
 
  In our hardwired tests, the iMac maxed out our Gigabit fiber optic internet no problem, with steady download and upload speeds. Wireless connectivity was equally impressive, regardless of whether the iMac was in the same room as the router or a few rooms over. We didn’t notice any drops throughout our tests and both uploading and downloading content was consistent.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Camera: Decent built-in option for basic tasks**
 
  The only camera on the 4K iMac is the integrated webcam, which sits dead center above the display. We would’ve liked to see a 1080p or even 4K webcam included, but the 720p resolution is good enough for basic video messaging.
@@ -167,20 +160,10 @@ Lifewire / Gannon Burgett
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/rFu0_k9BjbUxQdoEYOcNGU35LJA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-2-a3d2f38b9509480ba41bbb5b33815d1a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Everything you need and nothing more**
 
@@ -190,18 +173,15 @@ Lifewire / Gannon Burgett
 
  Unlike Windows, macOS doesn’t come with any bloatware either. There’s a number of pre-installed apps developed by Apple, including four new ones borrowed from Apple’s mobile operating system, iOS, but most of the pre-installed apps are the standard array of programs you’d expect to see on any modern computer.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: The Apple tax is real**
 
  The 21.5-inch 4K iMac we tested with the aforementioned specifications retails for $1,499\. Compared to other Windows PCs with similar specifications, the iMac is without pricey for the specs it offers. However, this is par for the course with Apple, so much so that the term “Apple tax” has become a commonly-used phrase. What you’re paying for is the entire package, wrapped up in one of the best-looking frames out there.
 
  Could you build a PC with better specs for far less money? Absolutely. But it won’t be running macOS and it certainly won’t be as slim and streamlined as the iMac. If you’re invested in the Apple ecosystem and don’t need to shell out for the more expensive 27-inch 5K iMac, the 21.5-inch 4K iMac is priced much more reasonably and still has plenty to offer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: A unique option in a small market**
 
@@ -258,22 +238,18 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/updated-perfecting-presentation-adding-fonts-to-ae-projects/"><u>[Updated] Perfecting Presentation Adding Fonts to AE Projects</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-googles-latest-innovation-the-gen-2-nest-hub-and-the-case-for-integrated-cameras/"><u>Comprehensive Review of Google's Latest Innovation, The Gen 2 Nest Hub – And the Case for Integrated Cameras</u></a></li>
-<li><a href="https://driver-install.techidaily.com/elevate-computing-install-amds-cryptocurrency-drivers/"><u>Elevate Computing: Install AMD's Cryptocurrency Drivers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-the-acer-chromebook-15-stellar-features-for-a-large-screen-laptop-experience/"><u>Expert Insights on the Acer Chromebook 15: Stellar Features for a Large-Screen Laptop Experience</u></a></li>
-<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-nubia-red-magic-8s-proplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-realme-c67-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Realme C67 4G | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Oppo Reno 11 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-oppo-reno-11f-5g-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Oppo Reno 11F 5G for Parents | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ipad-faceoff-the-essential-side-by-side-analysis/"><u>IPad Faceoff: The Essential Side-by-Side Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/j5-tactical-v1-pro-flashlight-evaluation-the-perfect-blend-of-portability-strength-and-exceptional-illumination-capabilities/"><u>J5 Tactical V1-Pro Flashlight Evaluation: The Perfect Blend of Portability, Strength, and Exceptional Illumination Capabilities</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-samsung-galaxy-s23-fe-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Samsung Galaxy S23 FE and Browser | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/rectify-shortcut-problems-fixing-function-keys-in-windows-11/"><u>Rectify: Shortcut Problems - Fixing Function Keys in Windows 11</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/resolving-stuttering-sounds-during-bluetooth-streaming-on-windows-1011-systems/"><u>Resolving Stuttering Sounds During Bluetooth Streaming on Windows 10/11 Systems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/selecting-your-ideal-tablet-in-depth-analysis-of-amazon-fire-vs-samsung-models/"><u>Selecting Your Ideal Tablet: In-Depth Analysis of Amazon Fire Vs. Samsung Models</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/simplify-pet-meal-times-a-comprehensive-review-of-petsafes-automatic-feeder-for-healthy-eating-habits/"><u>Simplify Pet Meal Times: A Comprehensive Review of PetSafe's Automatic Feeder for Healthy Eating Habits</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-exercise-monitors-the-ultimate-selection/"><u>Top Rated Exercise Monitors: The Ultimate Selection</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/topmate-c3ebyreviews-cheap-effective-cooling-solutions-for-your-laptop/"><u>TopMate C3ebyreviews: Cheap, Effective Cooling Solutions for Your Laptop</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-gif-mastery-10-key-elements-to-perfect-creation/"><u>[New] GIF Mastery 10 Key Elements to Perfect Creation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-elevating-visuals-with-luminance-hdr-insight/"><u>[New] In 2024, Elevating Visuals with Luminance-HDR Insight</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-elevate-your-social-presence-the-art-of-uploading-many-images-and-videos-to-instagram/"><u>[Updated] Elevate Your Social Presence The Art of Uploading Many Images and Videos to Instagram</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-transformative-tips-making-an-indelible-mark-in-the-digital-world/"><u>[Updated] Transformative Tips Making an Indelible Mark in the Digital World</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-vivo-y200-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Vivo Y200</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-samsung-galaxy-s24plus-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Samsung Galaxy S24+ Devices</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-leveraging-video-shorts-to-generate-income-online/"><u>In 2024, Leveraging Video Shorts to Generate Income Online</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-look-at-the-oneplus-nord-n100-top-performances-for-a-low-price-range-device-review/"><u>Inside Look at the OnePlus Nord N100: Top Performances for a Low Price Range Device Review</u></a></li>
+<li><a href="https://techtrends.techidaily.com/inside-scoop-on-elon-musks-robotaxi-anticipated-cost-release-date-and-specs-revealed/"><u>Inside Scoop on Elon Musk's Robotaxi - Anticipated Cost, Release Date and Specs Revealed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-samsung-galaxy-tab-s3-worth-buying-review-and-insights-on-latest-trends/"><u>Is the Samsung Galaxy Tab S3 Worth Buying? Review and Insights on Latest Trends</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/optics-excellence-at-your-fingertips-powershot-sx420-review/"><u>Optics Excellence at Your Fingertips: PowerShot SX420 Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/philips-somneo-unveiled-the-elite-selection-for-reliable-wake-up-solutions/"><u>Philips Somneo Unveiled: The Elite Selection for Reliable Wake-Up Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/rokus-dynamic-duo-superior-audio-plus-streaming-reimagined/"><u>Roku’s Dynamic Duo: Superior Audio + Streaming Reimagined</u></a></li>
 </ul></div>
 

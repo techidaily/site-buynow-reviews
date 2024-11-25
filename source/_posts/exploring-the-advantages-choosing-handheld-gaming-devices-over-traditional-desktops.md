@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Advantages: Choosing Handheld Gaming Devices over Traditional Desktops"
-date: 2024-08-31T14:56:17.261Z
-updated: 2024-09-01T14:56:17.261Z
+date: 2024-11-24T01:04:43.382Z
+updated: 2024-11-24T23:04:35.187Z
 tags:
   - games
   - tv
@@ -32,8 +32,9 @@ thumbnail: https://thmb.techidaily.com/37188c2ac0547dbb668f9ed584425f62c5411d081
  I've spent a year with the Steam Deck, and in that time I've slowly been spending less time playing games on my desktop PC. After discovering the delights of local game streaming and acquiring a second handheld PC, an ASUS ROG Ally, my desktop PC doesn't stand a chance. Here’s why.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  I Can Game Wherever I Want, In Any Position
 
  I mostly use my [ROG Ally](https://some-guidance.techidaily.com/2024-approved-streamline-and-shine-the-top-5-video-quality-tools/) and [Steam Deck](https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-vivo-x100-drfone-by-drfone-virtual-android/) in my apartment, and the freedom to start gaming on the couch and then move to bed or sit on the balcony once the sun sets is one of the main reasons why I love handheld gaming so much.
@@ -45,8 +46,9 @@ thumbnail: https://thmb.techidaily.com/37188c2ac0547dbb668f9ed584425f62c5411d081
 ![Person's hands holding the Steam Deck and playing a game, with a fireplace in the background.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/12/52675437708_14622460f8_o.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Marcus Mears III / How-To Geek
 
  For me this is one of the major benefits of a handheld gaming experience. Thanks to handheld gaming PCs, I can combine the flexibility of handheld gaming with any PC game instead of being limited to games available on my Switch Lite, for example.
@@ -56,6 +58,10 @@ Marcus Mears III / How-To Geek
  Being able to continue playing the same games while traveling is another huge boon. I remember continuing my post-patch 2.0 _Cyberpunk 2077_ playthrough when taking a trip to visit family last year. The realization that I could enjoy a demanding AAA title on the go struck me on the first evening; that was the first time I fully grasped just how cool of a device the ROG Ally is.
 
  There I was, lying on my old bed in my old room, playing _Cyberpunk_ with an almost locked 40fps at 900p and mostly medium settings on a device not much larger than the Switch. The future is now.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  I Can Spend Time With My Partner While Gaming
 
@@ -73,16 +79,10 @@ Marcus Mears III / How-To Geek
 
 ![rear-of-the-asus-rog-ally-3jpg_53307363035_o](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/12/rear-of-the-asus-rog-ally-3jpg_53307363035_o.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 Hannah Stryker / How-To Geek
 
  It's much more appealing to pick up a handheld and collapse on the couch or bed. Ten years ago I couldn’t imagine playing shooters and games that require precise aiming on a controller. Now, I have no issue spending hours at a time playing _Horizon Forbidden West_ on my ROG Ally. Since I can [stream games from my desktop PC to my handheld PCs](https://youtube-zero.techidaily.com/ating-the-net-top-tags-for-eye-catching-gamer-content/), I can enjoy playing games without making too many compromises with regard to visual fidelity.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ##  Local Game Streaming Means High Fidelity Gaming
 
  Local game streaming is the best thing ever. To be honest, I’m streaming games instead of running them locally on my Ally or Deck most of the time. The [Sunshine and Moonlight combo](https://youtube-zero.techidaily.com/ating-the-net-top-tags-for-eye-catching-gamer-content/) works perfectly, and my router is fast enough to deliver high-bitrate streams without dropped frames or other network-related hitches.
@@ -95,9 +95,6 @@ Hannah Stryker / How-To Geek
 
  If a game is older or a 2D indie title that doesn’t require much processing power, I’ll play it locally. But as soon as I notice that it needs more than 10W of power on the Ally or tops out the 15W [TDP](https://tech-haven.techidaily.com/boost-your-pcs-speaker-performance-with-a-new-install-of-realtek-hd-audio-manager-in-win-1011/) of my Deck, it’s streaming time.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Steam Deck’s Quick Resume is a Game Changer
 
  I mostly play games when at home on my ROG Ally, but I'm still fond of the Steam Deck. Valve's Quick Resume feature is a godsend for stop-start gameplay. I can put the thing to sleep and return the next day with my game waiting for me where I left it.
@@ -108,15 +105,16 @@ Marcus Mears III / How-To Geek
 
  It’s an awesome feature that I’d love to see on Windows handhelds, too. Sure, [hibernate](https://games-able.techidaily.com/achieving-subscription-synergy-with-xbox-live-gold/) on the ROG Ally is an option, but Quick Resume is so much better, faster, and it works with zero issues.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Some Games Just Feel Better When Played On a Handheld
 
  Some games genuinely feel like they’re made for a handheld device. _Persona 5_, for example, is a perfect handheld game. You can jump into it, spend a couple of school days in Tokyo going to classes and doing your daily chores, and jump out after 15 minutes. And then, in the evening, you can snuggle on the couch and explore a dungeon for hours. I can say the same about most roguelike deck-builders, such as _Slay the Spire, Cobalt Core,_ or my latest digital addiction, _Balatro_.
 
  Then you’ve got the 2D platformers, metroidvanias, and cozy games in the vein of _Stardew Valley_ or _Dave the Diver_, all being much more enjoyable when played on a handheld. It’s the intimacy of holding your gaming device in your hands and being super immersed because the screen is four inches from your eyes that makes many games feel so much better on a handheld PC than on a full-blown desktop machine.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ##  I Haven't Completely Abandoned My PC (Yet)
 
  While I’ve mostly jumped the desktop PC gaming ship, I still occasionally like to sit at my desk and fire up a game on my good ol' desktop PC.
@@ -124,6 +122,10 @@ Marcus Mears III / How-To Geek
  While I prefer playing games on a controller or don’t feel the need to use a mouse and keyboard, some games are just made to be played with the mouse and keyboard combo. Competitive shooters, real-time strategies, and isometric RPGs with a ton of keybindings (like _Baldur’s Gate 3_ or _Disco Elysium_) all excel in a traditional PC setting.
 
 ![Keychron M3 Wireless Mouse next to a keyboard](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/04/52792837856_539e35d682_o.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Jason Montoya / How-To Geek
 
@@ -143,8 +145,6 @@ _Forza Horizon 5’s_ beautiful recreation of Mexico is best experienced when I�
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -152,4 +152,18 @@ _Forza Horizon 5’s_ beautiful recreation of Mexico is best experienced when I�
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-premier-mic-choices-perfected-for-high-res-videos/"><u>[Updated] In 2024, Premier Mic Choices Perfected for High-Res Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assessing-worthiness-the-high-cost-vs-performance-ratings-for-samsungs-un65nu8000fxza/"><u>Assessing Worthiness - The High Cost vs Performance Ratings for Samsung's UN65NU8000FXZA</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-bw-16d1x-u-reviewed-a-stylish-blu-ray-drive-with-intriguing-quirks-explored/"><u>Asus BW-16D1X-U Reviewed - A Stylish Blu-Ray Drive with Intriguing Quirks Explored</u></a></li>
+<li><a href="https://techtrends.techidaily.com/cmos-configuration-correction-techniques-for-persistent-boot-issues/"><u>CMOS Configuration Correction Techniques for Persistent Boot Issues</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fitbit-sense-vs-apple-watch-leading-the-way-in-next-gen-health-innovation/"><u>Fitbit Sense Vs. Apple Watch: Leading the Way in Next-Gen Health Innovation</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-artificial-intelligence-fuels-deceptive-online-dating-schemes-insights-from-seven-tactics/"><u>How Artificial Intelligence Fuels Deceptive Online Dating Schemes: Insights From Seven Tactics</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-realme-c51-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Realme C51 to Another | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-samsung-galaxy-s23-fe-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Samsung Galaxy S23 FE to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-notch-review-on-kensuns-durable-and-compact-tire-filler-your-go-to-solution-for-anywhere-anytime-repairs/"><u>Top-Notch Review on Kensun's Durable and Compact Tire Filler: Your Go-To Solution for Anywhere, Anytime Repairs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-motorola-one-hyper-an-impressive-mid-tier-contender-with-a-bang/"><u>Unveiling the Motorola One Hyper: An Impressive Mid-Tier Contender with a Bang</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/video-maven-masters-who-has-most-fans-for-2024/"><u>Video Maven Masters Who Has Most Fans for 2024</u></a></li>
+</ul></div>
 

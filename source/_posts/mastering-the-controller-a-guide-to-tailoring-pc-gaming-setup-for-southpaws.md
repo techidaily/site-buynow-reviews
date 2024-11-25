@@ -1,7 +1,7 @@
 ---
 title: "Mastering the Controller: A Guide to Tailoring PC Gaming Setup for Southpaws"
-date: 2024-08-31T14:57:39.721Z
-updated: 2024-09-01T14:57:39.721Z
+date: 2024-11-18T01:12:45.270Z
+updated: 2024-11-24T19:13:03.304Z
 tags:
   - games
   - tv
@@ -35,19 +35,12 @@ Zachary Cimaglio / How-To Geek
 
  MMO mice also come in ambidextrous versions, though they are more specific to each hand, with extra keys for in-game abilities oriented on just one side of the mouse. These can often be a little pricier, like [the Razer Naga Left-Handed Edition](https://razer.a9yw.net/c/156932/642901/10229?subId1=UUhtgUeUpU2002419&subId2=ehtg&u=https%3A%2F%2Fwww.razer.com%2Fgaming-mice%2FRazer-Naga-Left-Handed-Edition%2FRZ01-03410100-R3M1%3Futm%5Fsource%3Dgoogle%26utm%5Fmedium%3Dgoogle-shopping%26utm%5Fcampaign%3D210101%5FRS%5FTXN%5FMID%5FUS%5FEGR-peripherals-BAU%5FTR%26cid%3D210101%5FRS%5FTXN%5FMID%5FUS%5FEGR-peripherals-BAU%5FTR%26gad%5Fsource%3D1%26gclid%3DCj0KCQjw2PSvBhDjARIsAKc2cgMQpCJ88msvaVqcSbBab-DHl2rm%5FT%5Fgn2KVtnSeZEGLqvyrW%5Fz5gG8aAtfeEALw%5FwcB) which retails for just under $100, but the extra functionality may be worth it if you play MMORPGs or other complex role-playing titles.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ##  Say Goodbye to WSAD Controls
 
  Practically every PC game ever made defaults to the WSAD keys for movement, but this can be quite annoying if you're left-handed since your fingers are oriented the wrong way. Luckily, most titles also let you remap the controls to use whatever keys you want for in-game mechanics.
 
 ![A PC gamer using the WASD keyboard layout and a mouse to play.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/06/wasd_controls.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [Tugce Simsek / Shutterstock](https://www.shutterstock.com/image-photo/gamer-playing-pc-video-game-gaming-1793728492)
 
  To change the keybinds in most games, simply navigate to the "Settings" or "Options" menu and find the "Controls" menu where you should be able to customize which key does what one by one. Some games will have separate control settings for various mechanics, so make sure you keep things consistent and change those too, when necessary.
@@ -57,11 +50,16 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 ![The "WASD" keys compared to the "IJKL" keys on the typical keyboard.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/pxl_20240322_222550892.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Zachary Cimaglio / How-To Geek
 
  I recommend experimenting with keys oriented on the right side of the keyboard since you ideally want your hands far apart from each other to prevent strain or fatigue. The IKJL control scheme is on the opposite end of the keyboard from WSAD, making it much more comfortable in tandem with a left-handed or ambidextrous mouse (plus you can still easily reach Shift, Ctrl, and so on with your pinky finger).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  When in Doubt, Use a Controller
 
@@ -72,8 +70,9 @@ Zachary Cimaglio / How-To Geek
 ![The "Devices" section in the Windows 10 PC settings.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/screenshot-2024-03-22-143806.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Here, you should see an option called "Add Bluetooth or Other Device," which will automatically scan for nearby Bluetooth devices that are trying to connect. Provided both your PC and controller are enabled with Bluetooth functionality, hold down the main power button on your controller of choice and it should automatically pair.
 
 ![The Bluetooth option in Windows settings that will search for and connect to nearby devices.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/screenshot-2024-03-22-153406.png) 
@@ -81,8 +80,9 @@ Zachary Cimaglio / How-To Geek
  Some older games on Steam will still use Xbox button prompts regardless of which controller you use, so you may want to remember the equivalent button layout on your preferred controllers.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Reassign Your Keys Directly
 
  If you are tired of remapping the controls in every single game you play, you could [create a custom keyboard mapping](https://www.pcmag.com/how-to/remap-your-keyboard) for your PC. This allows you to change the function of your preferred keys to the controls used in PC games.
@@ -96,8 +96,9 @@ Zachary Cimaglio / How-To Geek
 ![The key remap screen in the PowerToys app.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/screenshot-2024-03-22-153839.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  These settings will become the default for all functions on your PC, but most apps will let you save your layouts for later use so you can switch between them when needed. I find it easier to remap the controls in every game one at a time since controls can vary across titles, but this can be useful for those who only play one or a few different games with similar controls.
 
 ---
@@ -112,8 +113,6 @@ Zachary Cimaglio / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -121,4 +120,20 @@ Zachary Cimaglio / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/updated-unleashing-creativity-a-guide-to-innovative-gopro-video-editing/"><u>[Updated] Unleashing Creativity A Guide to Innovative GoPro Video Editing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cheap-doesnt-always-mean-great-a-critical-look-at-the-mobvoi-ticwatch-e2/"><u>Cheap Doesn't Always Mean Great – A Critical Look at the Mobvoi TicWatch E2</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/choosing-your-camera-companion-for-editing-hero-session-x-vs-cube/"><u>Choosing Your Camera Companion for Editing Hero Session X V/S Cube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/friendly-game-sharing-techniques-for-the-xbox-one-community/"><u>Friendly Game Sharing Techniques for the Xbox One Community</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-supercharge-your-social-media-best-apps-for-post-and-followers/"><u>In 2024, Supercharge Your Social Media Best Apps for Post & Followers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-newly-released-iphone-12-by-apple/"><u>In-Depth Analysis of the Newly Released iPhone 12 by Apple</u></a></li>
+<li><a href="https://techidaily.com/introducing-gemma-the-new-open-source-artificial-intelligence-solution-from-google/"><u>Introducing Gemma: The New Open-Source Artificial Intelligence Solution From Google</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/kootek-laptop-cooler-assessment-the-ultimate-choice-for-optimal-performance/"><u>Kootek Laptop Cooler Assessment: The Ultimate Choice for Optimal Performance</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/movavi-tga-jpg/"><u>Movavi 自由下載：無限制地從 TGA 到 JPG 進行圖像轉換</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/spooks-savings-and-shiny-trophies-enter-the-ultimate-halloween-sweepstakes-with-macxdvds-dvd-video-toolkit-extravaganza/"><u>Spooks, Savings, and Shiny Trophies: Enter the Ultimate Halloween Sweepstakes with MacXDVD's DVD Video Toolkit Extravaganza!</u></a></li>
+<li><a href="https://techidaily.com/things-you-dont-know-about-infinix-smart-8-hd-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Infinix Smart 8 HD Reset Code | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-moto-g-stylus-a-sensible-wallet-friendly-alternative-for-pen-lovers-in-smartphones/"><u>Unveiling the Moto G Stylus: A Sensible, Wallet-Friendly Alternative for Pen Lovers in Smartphones</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-identify-missing-your-drivers-with-windows-device-manager-on-windows-11-by-drivereasy-guide/"><u>Use Device Manager to identify missing your drivers with Windows Device Manager on Windows 11</u></a></li>
+</ul></div>
 

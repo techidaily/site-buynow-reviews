@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Razer Kishi Experience: Top Gadget for Mastering Mobile Gaming"
-date: 2024-08-31T14:54:41.660Z
-updated: 2024-09-01T14:54:41.660Z
+date: 2024-11-20T02:09:38.556Z
+updated: 2024-11-24T21:43:57.563Z
 tags:
   - games
   - tv
@@ -43,6 +43,10 @@ The Razer Kishi Ultra takes the very best of console controller technology and b
 [$150 at Amazon](https://www.amazon.com/dp/B0CXGMPLWK?tag=hotoge-20&ascsubtag=UUhtgUeUpU2004293&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Frazer-kishi-ultra-review%2F&asc%5Fcampaign=Authority) [See at Razer](https://razer.a9yw.net/c/156932/642901/10229?subId1=UUhtgUeUpU2004293&subId2=ehtg&u=https%3A%2F%2Fwww.razer.com%2Fmobile-controllers%2Frazer-kishi-ultra%2FRZ06-05070100-R3U1) [See at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Frazer-kishi-ultra-usb-c-gaming-controller-for-android-iphone-and-ipad-mini-black%2F6584663.p%3FskuId%3D6584663) 
 
 [_How We Test and Review Products_](https://vp-tips.techidaily.com/swiftly-move-data-fast-and-reliable-methods-to-direct-files-onto-your-computer/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Price and Availability
 
@@ -92,13 +96,14 @@ The Razer Kishi Ultra takes the very best of console controller technology and b
 
 Expand 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Gamer Design for a Hardcore Gaming Device
 
 ![The Razer Kishi Ultra with rubber pads and box](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/53736584008_7b2dd9461a_o.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Jerome Thomas / How-To Geek
 
  Like most Razer products, the Kishi Ultra's aesthetic can only be described as 'gamer-y'. While the black controller seems unassuming, when you plug a device into it, the LED lights on the sides of the Kishi Ultra come on in all their rainbow glory. While I don't mind the lights and think they're a neat touch, others might find them distracting. Thankfully, you can adjust and turn them off in the Nexus app as needed.
@@ -113,6 +118,10 @@ Jerome Thomas / How-To Geek
 
  This is all good, but how does the Razer Kishi Ultra hold up to an extended game session?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Putting the Razer Kishi Ultra to the Test
 
 ![The Razer Kishi Ultra fully extended](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/53736584013_9e703c5cee_o.jpg) 
@@ -125,16 +134,14 @@ Jerome Thomas / How-To Geek
 
  When playing "Genshin," I didn't notice any noticeable lag between button presses and the screen, as expected from a controller plugged directly into the device. I had no issues reaching buttons with my smaller hands, either. My main concern was with the weight of the controller and the iPad.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Heavyweight Portable Gaming
 
 ![53736584028_df1b5f0a29_o](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/53736584028_df1b5f0a29_o.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  When you connect the iPad mini to the Razer Kishi Ultra, it's a bit awkward but manageable in terms of size. But in terms of weight, you have a 559-gram portable you're holding up (without an iPad case). For reference, the original Nintendo Switch model is 297 grams, and the Steam Deck is a hefty 669 grams, so the Kishi lands a bit on the heavier side for portables. Of course, the weight is lower if you're attaching a smartphone instead—the controller with my Pixel 7a is 459.5 grams—but if you're coming from a Switch, you'll notice the weight difference.
 
  So with this in mind, I was worried about wrist fatigue. When I first picked up my Steam Deck, I had a lot of trouble with my wrists getting tired after an hour or so of playing. Given the size of the Kishi Ultra, I was worried about the same here, but it ended up not being the case.
@@ -143,16 +150,10 @@ Jerome Thomas / How-To Geek
 
  But, the Kishi Ultra is a great travel companion. While it can't fold down like the regular Kishi, you can keep it connected to your device indefinitely with a USB-C passthrough charging port. It may be a bit awkward to pack and take with you, but if you're looking for a replacement for other portable consoles (and like the mobile game offerings), the Razer Kishi Ultra can be it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ##  Should you Buy the Razer Kishi Ultra?
 
 ![The Razer Kishi Ultra connected to a Pixel 7](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/53736814150_b226ef818c_o.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Jerome Thomas / How-To Geek
 
  I wasn't quite sure what to expect from the [Razer Kishi Ultra](http://www.amazon.com/Razer-Gaming-Controller-Android-iPhone-Smartphone/dp/B0CXGMPLWK?tag=hotoge-20&ascsubtag=UUhtgUeUpU2004293&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Frazer-kishi-ultra-review%2F&asc%5Fcampaign=Authority), but I came away impressed. I didn't think gaming with my phone or iPad could be this comfortable, and despite a few small sticking points, this is _the_ way to enjoy mobile gaming. The price point is on the higher side, but if you regularly play games on your phone or iPad this is worth the investment for its comfort and portable gaming feel.
@@ -164,8 +165,9 @@ Jerome Thomas / How-To Geek
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-ec.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 #####  Razer Kishi Ultra
 
 9/ 10 
@@ -180,8 +182,6 @@ The Razer Kishi Ultra takes the very best of console controller technology and b
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -189,4 +189,21 @@ The Razer Kishi Ultra takes the very best of console controller technology and b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-pro-filmmaking-lenses-the-ten-most-critical-choices/"><u>[New] In 2024, Pro Filmmaking Lenses The Ten Most Critical Choices</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-hasten-your-vimeo-watch-time/"><u>[Updated] 2024 Approved Hasten Your Vimeo Watch Time</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-video-marketing-excellence-on-instagram-crafting-a-winning-strategy/"><u>[Updated] 2024 Approved Video Marketing Excellence on Instagram Crafting a Winning Strategy</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-zoominnovatex7-advanced-imagery-enlargement/"><u>[Updated] In 2024, ZoomInnovateX7 Advanced Imagery Enlargement</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-documentary-script-artistry/"><u>[Updated] Mastering Documentary Script Artistry</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/cambia-gifs-a-videos-mpeg-online-sin-coste-con-movavi/"><u>Cambia GIFs a Vídeos MPEG Online Sin Coste Con Movavi</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-fujitsus-powerful-ix1600-scanner-perfect-for-high-demand-office-environments/"><u>Comprehensive Review of Fujitsu's Powerful iX1600 Scanner - Perfect for High-Demand Office Environments</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/decoding-the-new-look-and-features-of-the-galaxy-s21-by-samsung-simplifying-for-the-future/"><u>Decoding the New Look and Features of the Galaxy S21 by Samsung: Simplifying for the Future</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-samsung-galaxy-f14-5g-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Samsung Galaxy F14 5G?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-zero-price-screen-recording-easy-on-pc-and-mac/"><u>In 2024, Zero Price Screen Recording - Easy on PC & Mac</u></a></li>
+<li><a href="https://techtrends.techidaily.com/preserve-and-shield-your-digital-assets-using-our-top-5-recommended-practices/"><u>Preserve and Shield Your Digital Assets Using Our Top 5 Recommended Practices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reach-new-heights-in-connectivity-with-the-robust-capabilities-of-netgear-nighthawk-x6s-wi-fi-range-extender/"><u>Reach New Heights in Connectivity with the Robust Capabilities of Netgear Nighthawk X6S Wi-Fi Range Extender</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-evolution-of-smartwatches-a-samsung-galaxy-watch-active-2-review-with-improved-functionality-and-intelligence/"><u>The Evolution of Smartwatches: A Samsung Galaxy Watch Active 2 Review with Improved Functionality and Intelligence</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/thrifty-tailscam-video-guidebook/"><u>Thrifty Tailscam Video Guidebook</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Exploring the Passionate Fascination Some Gamers Have with Indie Games
-date: 2024-08-31T14:56:35.777Z
-updated: 2024-09-01T14:56:35.777Z
+date: 2024-11-21T01:31:55.524Z
+updated: 2024-11-24T22:21:41.780Z
 tags:
   - games
   - tv
@@ -21,6 +21,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
  If you've ever scrolled through the Steam library, you must have stumbled upon a few interesting games with an "Indie" label. You check the reviews and see that some players with hundreds of recorded hours completely obsess over this game you've never heard of. So, is the hype justified?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  What Is an Indie Game?
 
  You've likely heard the term "indie" before in the context of movies and music, but what does it actually mean? "Indie" is short for "independent" and applies to any game made by an independent studio or developer without the resources provided by a big publisher.
@@ -28,6 +32,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
  Indie games are the opposite of [triple-A (AAA) games](https://instagram-videos.techidaily.com/updated-in-2024-immediate-techniques-for-instagram-video-audio-extraction-mp3/) that are made by teams of hundreds of people and cost tens of millions of dollars to develop. Though indie games are available on all platforms, most start life on the PC as it's easier and cheaper to develop and release games, in no small part thanks to Steam.
 
 ![Browsing Early Access games on the Steam storefront.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/screenshot-2024-06-27-at-11-27-12.png) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  It's worth noting that some games "disguise" themselves as indie games but are actually backed by major publishers. The [_Dave the Diver_](http://www.gameleap.com/articles/the-game-awards-2023-dave-the-diver-controversy-explained)[controversy](http://www.gameleap.com/articles/the-game-awards-2023-dave-the-diver-controversy-explained) at the Game Awards 2023 is a good example of a game that looks like an indie but is backed by a multi-billion company.
 
@@ -37,13 +45,14 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
  Sometimes, this hard work pays off in dividends. _Stardew Valley_ is one of the best indie games of all time, and it was created by a single person named Eric Barone. To give you some perspective, Eric had to work [70-hour weeks](http://en.wikipedia.org/wiki/Eric%5FBarone) for four and a half years to create this awesome game, which eventually earned him millions of dollars.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Indie Games Must Have a Special Sauce
 
 ![Person holding Backbone game controller connected to iPad mini, with Stardew Valley playing on screen.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/ipadministardew.jpeg) 
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Hannah Brostrom / How-To Geek
 
  If an indie developer wants their game to succeed, they have to make it fun and original. Unlike triple-A developers who have a lot of expectations to live up to, indie developers are more prone to taking risks. In a way, they have to take risks if they want their game to stand out among thousands of other games.
@@ -57,9 +66,9 @@ Hannah Brostrom / How-To Geek
  Cutting-edge graphics aren't usually the focal point of these games, though some games like _Bodycam_ leverage high-resolution photo-realism as their unique selling point. Other games just go for a unique aesthetic, as was the case with _Hollow Knight_ and _Cuphead_.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Near-Endless Variety
 
  Once you dive into the world of indie games, you'll quickly realize how many good examples there are out there waiting to be played. Want 2D _Minecraft_? You got _Terraria_ (or _Factorio_ if you want 2D Minecraft with industrial mods). Looking for a heavy metal rhythm FPS _Doom_ clone? Try _Metal: Hellsinger_ and _BPM: Bullets Per Minute_. There are games that appeal to every niche you can imagine.
@@ -68,14 +77,8 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![A collage of boomer shooters consisting of Ion Fury, Quake, Duke Nukem 3D, and Doom.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/boomer-shooter-hero.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ID Software/3D Realms
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ##  Smaller Scope, Bigger Impact
 
  Since indie teams are smaller both in terms of size and budget, it inevitably affects the finished product. I've already mentioned sacrifices in the visual department, but another common sacrifice is game length. Many of them provide a shorter story that takes around 3–15 hours to beat. This isn't necessarily a bad thing, as many gamers are slowly starting to dislike games that overstay their welcome. I know I do.
@@ -84,9 +87,6 @@ ID Software/3D Realms
 
  Much of the time, these shorter and more sedate experiences make for more [chill games that are perfect for relaxing](https://screen-sharing-recording.techidaily.com/streamlined-strategies-for-powerpoint-recordings-for-2024/).
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Indie Developers Work With Their Communities
 
  Triple-A games are incredibly complex, so any changes that players request take a long time to implement. For instance, it took CD Projekt Red three years to add vehicle combat and fix the police in _Cyberpunk 2077_. Plus, developers have to aggregate data to figure out which features are in the highest demand and worth spending resources on.
@@ -95,12 +95,13 @@ ID Software/3D Realms
 
 ![Hades ultrawide screenshot](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/01/70b599fb.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  If you want an example, look no further than [Yacht Club Games](https://www.cbr.com/game-companies-listens-ignores-fans/), the developer of _Shovel Knight_. Perhaps nobody listens to players more than indie developers whose games are being crowdfunded or are still in early access and need money to keep the game in development.
 
  Also, being part of a small, tightly-knit community means you can enjoy the game with like-minded individuals, make new friends, and enjoy a deep connection with the game. Discord servers and subreddits are good places to talk to the community and developers.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Don’t Ignore Indie Games
 
@@ -114,8 +115,6 @@ ID Software/3D Realms
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -123,4 +122,16 @@ ID Software/3D Realms
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-get-into-the-game-starting-an-apple-powered-sports-network/"><u>2024 Approved Get Into the Game Starting an Apple-Powered Sports Network</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-chromebook-c202sa-evaluation-the-ultimate-choice-for-student-and-kid-friendly-use/"><u>Asus Chromebook C202SA Evaluation - The Ultimate Choice for Student & Kid-Friendly Use</u></a></li>
+<li><a href="https://network-issues.techidaily.com/eradicate-cross-screen-lines-distortion/"><u>Eradicate Cross-Screen Lines Distortion</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-lenovos-budget-friendly-2-in-1-chromebook-duet-in-depth-performance-and-features-reviewed/"><u>Evaluating Lenovo's Budget-Friendly 2-in-1 Chromebook Duet: In-Depth Performance and Features Reviewed</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-lava-blaze-pro-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Lava Blaze Pro 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>How To Simulate GPS Movement With Location Spoofer On Apple iPhone 12 mini? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-14-with-a-mask-on-by-drfone-ios/"><u>How to Unlock iPhone 14 with a Mask On</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/phone-number-555-123-4567/"><u>Phone Number: (555) 123-4567</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/z-edge-z3-plus-review-an-affordable-and-intuitive-dashcam/"><u>Z-Edge Z3 Plus Review: An Affordable and Intuitive Dashcam</u></a></li>
+</ul></div>
 

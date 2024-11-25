@@ -1,7 +1,7 @@
 ---
 title: "Top Picks: Sturdy & Portable Kensun Air Compressor – The Ultimate Roadside Companion"
-date: 2024-11-11T16:31:05.382Z
-updated: 2024-11-15T16:16:19.076Z
+date: 2024-11-21T17:22:38.231Z
+updated: 2024-11-24T18:20:15.839Z
 categories:
   - BestProducts
 description: "This Article Describes Top Picks: Sturdy & Portable Kensun Air Compressor – The Ultimate Roadside Companion"
@@ -68,13 +68,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -97,11 +90,19 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: T-minus one minute**
 
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
 
  Lifewire / Jeffrey Daniel Chadwick
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
 
@@ -124,10 +125,7 @@ Lifewire / Jeffrey Daniel Chadwick
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: A decent buy considering its versatility**
@@ -135,10 +133,7 @@ Lifewire / Jeffrey Daniel Chadwick
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
@@ -156,10 +151,7 @@ Lifewire / Jeffrey Daniel Chadwick
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -187,21 +179,22 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-the-perfect-screen-recording-toolkit-systematic-how-to-manual/"><u>[Updated] In 2024, The Perfect Screen Recording Toolkit Systematic How-To Manual</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/a-detailed-walkthrough-to-tackle-and-repair-haldll-problems-on-multiple-windows-platforms/"><u>A Detailed Walkthrough to Tackle and Repair Hal.dll Problems on Multiple Windows Platforms</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-lenovo-tab-p1-11-pro-strengths-and-weaknesses-unveiled/"><u>Comprehensive Review of the Lenovo Tab P1 11 Pro: Strengths and Weaknesses Unveiled</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-why-i-still-cherish-my-huawei-p3-cuffs-pro-in-this-detailed-review/"><u>Discover Why I Still Cherish My Huawei P3 Cuffs Pro in This Detailed Review</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/doubling-your-digital-space-connect-and-configure-an-extra-monitor-with-windows-10/"><u>Doubling Your Digital Space: Connect and Configure an Extra Monitor with Windows 10</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/easy-solutions-for-the-constant-restart-challenge-in-your-windows-10-system/"><u>Easy Solutions for the Constant Restart Challenge in Your Windows 10 System</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/enhancing-efficiency-the-key-to-srt-export-in-premiere-for-2024/"><u>Enhancing Efficiency The Key to SRT Export in Premiere for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-selection-the-premier-portable-gaming-units/"><u>Expert Selection: The Premier Portable Gaming Units</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-oppo-a38-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Oppo A38 Phone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-bringing-beats-integrating-music-in-inshot-editor/"><u>In 2024, Bringing Beats Integrating Music in InShot Editor</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-samsung-galaxy-m14-5g-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Samsung Galaxy M14 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/size-doesnt-limit-performance-discover-why-the-iphone-12-mini-is-a-game-changer/"><u>Size Doesn't Limit Performance: Discover Why the iPhone 12 Mini Is a Game-Changer</u></a></li>
-<li><a href="https://android-frp.techidaily.com/top-5-htc-u23-pro-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 HTC U23 Pro Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/transform-your-bedtime-routine-with-advanced-gadgets-designed-for-unmatched-relaxation/"><u>Transform Your Bedtime Routine With Advanced Gadgets Designed for Unmatched Relaxation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-speed-vs-style-a-comprehensive-guide-to-tp-link-av200n-powerline-adapter/"><u>Unveiling Speed Vs. Style: A Comprehensive Guide to TP-Link AV200n Powerline Adapter</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/yakuza-like-a-dragon-review-the-must-have-rpg-game-for-fans-and-newcomers-alike/"><u>Yakuza: Like a Dragon Review – The Must-Have RPG Game for Fans and Newcomers Alike</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-capturing-the-moment-masterful-techniques-for-excellent-edits/"><u>[New] Capturing the Moment Masterful Techniques for Excellent Edits</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-crack-open-your-marketing-potential-with-these-nine-tactics/"><u>[New] In 2024, Crack Open Your Marketing Potential with These Nine Tactics</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/cookiebot-driven-solutions-enhance-your-site-with-smart-tracking/"><u>Cookiebot-Driven Solutions: Enhance Your Site with Smart Tracking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cutting-edge-comparison-unveiling-pros-and-cons-of-apples-newest-ipad-air-against-samsungs-top-galaxy-tab/"><u>Cutting-Edge Comparison: Unveiling Pros and Cons of Apple's Newest iPad Air Against Samsung’s Top Galaxy Tab</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/effortless-wireless-coverage-using-the-tp-link-deo-p9-smart-wi-fi-system-our-comprehensive-analysis/"><u>Effortless Wireless Coverage Using the TP-Link Deo P9 Smart Wi-Fi System: Our Comprehensive Analysis</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722962186059-get-your-asus-atk0110-system-up-and-running-complimentary-acpi-drivers-downloadable-here/"><u>Get Your ASUS ATK0110 System Up and Running: Complimentary ACPI Drivers Downloadable Here!</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-11-pro-max-to-other-iphone-15-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 11 Pro Max to other iPhone 15 devices? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/huawei-mediapad-m5-tablet-showdown-a-device-built-around-optimal-display-and-audio-quality/"><u>Huawei MediaPad M5 Tablet Showdown: A Device Built Around Optimal Display and Audio Quality</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/professionele-vob-to-flv-konvertierung-onlinelastigheid-gratis-bij-movavi/"><u>Professionele Vob-to-FLV Konvertierung: Onlinelastigheid Gratis Bij Movavi</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/survive-and-sprint-with-friends-in-the-action-packed-world-of-dying-light/"><u>Survive and Sprint with Friends in the Action-Packed World of Dying Light</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-ultimate-screen-time-treasure-summers-top-10-gems/"><u>The Ultimate Screen Time Treasure Summer’s Top 10 Gems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-apple-offers-exclusive-savings-on-prime-day/"><u>Top-Rated Apple Offers: Exclusive Savings on Prime Day</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-most-comfortable-keyboards/"><u>Ultimate Guide to the Most Comfortable Keyboards</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-potential-a-comprehensive-look-at-hero7-black/"><u>Unleashing Potential - A Comprehensive Look at HERO7 Black.</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-the-fast-track-to-voice-reduction-in-audacity/"><u>Updated 2024 Approved The Fast Track to Voice Reduction in Audacity</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-this-wax-tutorial-we-are-going-to-show-you-how-to-zoom-crop-and-pan-video-and-image-how-to-make-project-settings-and-how-to-render-avi-videos-for/"><u>Updated In This Wax Tutorial, We Are Going to Show You How to Zoom, Crop and Pan Video and Image, How to Make Project Settings and How to Render AVI Videos for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/worth-your-attention-the-top-5-advantages-of-opting-into-chatgpt-plus/"><u>Worth Your Attention: The Top 5 Advantages of Opting Into ChatGPT Plus</u></a></li>
 </ul></div>
 

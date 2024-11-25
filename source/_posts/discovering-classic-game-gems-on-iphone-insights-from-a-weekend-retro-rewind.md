@@ -1,7 +1,7 @@
 ---
 title: "Discovering Classic Game Gems on iPhone: Insights From a Weekend Retro Rewind"
-date: 2024-08-31T14:57:05.141Z
-updated: 2024-09-01T14:57:05.141Z
+date: 2024-11-22T20:09:36.316Z
+updated: 2024-11-24T22:42:56.682Z
 tags:
   - games
   - tv
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
 ---
 
 ## Discovering Classic Game Gems on iPhone: Insights From a Weekend Retro Rewind
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -30,8 +34,9 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
  The first time you run an emulator like Delta feels like taking a bite out of a forbidden fruit. Apple has prohibited apps like this since the App Store arrived in 2008\. For that reason alone, you might want to download and try out Delta just because you can.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Playing Emulated Games on Your iPhone Is a Mixed Bag
 
  Emulating platforms like the SNES or N64 on your iPhone is more than a novelty. For many, the iPhone is now the most accessible way to play old games. Everything I threw at the emulator on my iPhone 13 Pro worked perfectly. Even if you have a much older device, platforms like the NES, Game Boy, and SNES should give you very little trouble.
@@ -48,6 +53,10 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
 
 ![Brain Age for Nintendo DS running on an iPhone with Delta.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/brain_age_delta.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Emulation is powered by well-known cores like [Snes9x](https://github.com/snes9xgit/snes9x) and [mupen64plus](https://github.com/mupen64plus/mupen64plus-core), open-source projects that ensure excellent compatibility with game libraries. The experience may not be pixel-perfect (you’ll need original hardware or an [FPGA-based device like the MiSTeR for that](https://visual-screen-recording.techidaily.com/updated-2024-approved-cutting-edge-captures-top-10-online-video-recorders/)), but with an emulator like Delta you get bonuses like save states, fast forward, and the ability to use cheat codes if you want.
 
 ##  The iPhone Is the Worst Part
@@ -61,8 +70,9 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
  On top of this, your iPhone is still doing phone things in the background. You’ll see notifications pop up at the top of the screen, phone calls will interrupt your gameplay, and if you need to quickly do something else on your iPhone (like snap a picture, search the web, or message a friend) then you’ll need to juggle apps.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  BYO ROMs
 
  It’s not illegal to emulate video game platforms, but when it comes to games things get more complicated. Game files, or ROMs, are a legal grey area. It’s generally accepted that ripping and using your own ROMs is permissible, but downloading and sharing ROMs online for games you do not own is [against the law](https://facebook-videos.techidaily.com/updated-video-revenue-generation-on-facebook-tactics-for-financial-growth-for-2024/).
@@ -71,9 +81,6 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
 
 ![Game Boy ROMs within iPhone emulator Delta.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/gbc_roms_delta.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
  Though the process still feels taboo due to the scorn Apple has poured on emulators for well over a decade, it’s straightforward enough. You’ve been able to do this sort of thing in other apps for years. It’s really no different from loading your iPhone up with MIDI and chiptune music in an app like [Modizer](https://apps.apple.com/us/app/modizer/id393964792).
 
  The good news is that you’ll be playing in no time if you have a collection of ROMs stored in the cloud, and Delta even comes with a feature called Delta Sync which not only syncs ROMs but also save files, save states, cheat codes, and controller mappings between devices.
@@ -86,9 +93,6 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
 
 ![Backbone One with no phone.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/09/backbone-one-no-phone.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 Jason Montoya / How-To Geek
 
  To quell concerns about battery life, you can invest in a [quality fast-charging USB battery pack](https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-motorola-moto-g13-drfone-by-drfone-fix-android-problems-fix-android-problems/) to top up on the go. If your iPhone supports MagSafe, a [clip-on wireless charger](https://screen-sharing-recording.techidaily.com/updated-pinnacle-7-action-shooter-games/) might also be a good idea.
@@ -99,17 +103,10 @@ Jason Montoya / How-To Geek
 
 ![Apple's default Gaming Focus mode trigger.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/wireless_trigger_focus.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
  First, launch Shortcuts and create a new shortcut. Find the “Set Focus” action and change “Turn” to “Toggle” and “Do Not Disturb” to “Gaming” and save it (giving it a suitable name). Now head to the Automation tab, create a new Automation, and use “App” as the Trigger. Choose Delta, select both “is Opened” and “is Closed”, pick “Run Immediately”, and then choose the Shortcut you just made as the action.
 
 ![An iPhone automation that triggers a shortcut to toggle a Focus mode.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/shortcuts_delta.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Now whenever you open Delta, you’ll see a notification to let you know that the “Gaming” Focus has been enabled. When you close the app, Gaming will be disabled. This can massively cut down the number of notifications and unwanted communication you receive when you’re playing games.
 
 ##  Alternatively, Buy a Handheld PC (Like the Steam Deck)
@@ -128,6 +125,10 @@ Goran Damnjanovic / How-To Geek
 
  There are also [portable retro handhelds from Retroid and Anbernic](https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-realme-gt-5-pro-drfone-by-drfone-virtual/). These devices are inexpensive and come in all manner of form factors, without relying on touchscreen controls. Just make sure you [avoid the cheapest, nastiest knock-offs](https://screen-recording.techidaily.com/updated-2024-approved-top-tier-tools-transforming-remote-discussions/).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Give It a Try
 
  It’s well worth [diving into the world of iPhone emulators](https://tech-revival.techidaily.com/no-budget-no-barrier-to-adventure-find-your-plan-with-these-7-free-apps/) now that Apple makes the process relatively easy. If you’re exhausted with the state of mobile gaming and would rather chip away at something “old but gold” then you can do far worse.
@@ -140,8 +141,6 @@ Goran Damnjanovic / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -149,4 +148,22 @@ Goran Damnjanovic / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-capture-the-scene-right-basic-cinematography-for-new-directors/"><u>[New] Capture the Scene Right Basic Cinematography for New Directors</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-guide-to-optimal-audio-changer-tools-for-vtubers/"><u>[New] In 2024, Guide to Optimal Audio Changer Tools for VTubers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-harmonizing-imagery-and-tunes-on-social-media-platforms/"><u>[Updated] Harmonizing Imagery & Tunes on Social Media Platforms</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-moonlight-mastery-a-photographers-guidebook-to-nighttime-imagery/"><u>[Updated] Moonlight Mastery A Photographer's Guidebook to Nighttime Imagery</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-flaws-in-cyberpunk-2077s-virtual-odyssey-an-uneven-adventure/"><u>Exploring the Flaws in Cyberpunk 2077'S Virtual Odyssey: An Uneven Adventure</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/foremost-10-recording-apps-for-social-media-vids/"><u>Foremost 10 Recording Apps for Social Media Vids</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-vivo-x90s-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Vivo X90S to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-pioneer-bdr-xd05-blu-ray-burning-device-design-issues-explored/"><u>In-Depth Analysis of the Pioneer BDR-XD0지오5번 BLU-RAY Burning Device - Design Issues Explored</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-windows-11-just-hype-or-does-it-truly-improve-performance/"><u>Is Windows 11 Just Hype, Or Does It Truly Improve Performance?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/mastering-asus-usb-drivers-rapid-and-hassle-free-updating-process/"><u>Mastering ASUS USB Drivers: Rapid & Hassle-Free Updating Process</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-un65-ru8000-fx-za-a-symphony-of-cutting-edge-features-and-visual-appeal-unveiled-in-our-comprehensive-review/"><u>Samsung UN65 RU8000 FX ZA: A Symphony of Cutting-Edge Features & Visual Appeal Unveiled in Our Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-battle-of-smart-speakers-echo-pop-against-echo-dot/"><u>The Battle of Smart Speakers: Echo Pop Against Echo Dot</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/the-beginner-pro-marketing-playbook-secrets-of-facebook-success-for-2024/"><u>The Beginner-Pro Marketing Playbook Secrets of Facebook Success for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-revolutionary-shift-in-portable-computing-reviewing-the-2021-ipad-pro-m1-and-its-unmatched-power-for-on-the-go-professionals/"><u>The Revolutionary Shift in Portable Computing: Reviewing the 2021 iPad Pro (M1) and Its Unmatched Power for On-the-Go Professionals</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-wonders-of-wonder-workshops-dash-a-progressive-overview-of-this-advanced-moving-toy-for-childrens-learning-and-fun/"><u>The Wonders of Wonder Workshop's Dash - A Progressive Overview of This Advanced, Moving Toy for Children's Learning and Fun</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Advanced, User-Friendly Internal Controllers Replace Frustrating Outdated Third-Party Options
-date: 2024-08-31T14:55:43.202Z
-updated: 2024-09-01T14:55:43.202Z
+date: 2024-11-18T00:43:56.758Z
+updated: 2024-11-24T19:12:21.550Z
 tags:
   - games
   - tv
@@ -12,6 +12,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 ---
 
 ## Advanced, User-Friendly Internal Controllers Replace Frustrating Outdated Third-Party Options
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Quick Links
 
@@ -28,10 +32,6 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
  If you've been gaming for a while, you probably have a story about a terrible third-party controller. But now these off-brand manufacturers are making some of the best controllers in the market today.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ##  The Age of Bad Third-Party Controllers
 
  Third-party controllers have developed a stigma that dates back to the 90s when home consoles hit the mainstream. Many of these controllers never worked quite right or stopped working a month after you purchased them. They were made from terrible plastic that felt horrible to play with after a few minutes, let alone over a full gaming session.
@@ -50,20 +50,22 @@ Tim Brookes / How-To Geek
 
 ![Logitech PC controller with a horrible D-Pad.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/logitech_controller.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Tim Brookes / How-To Geek
 
  Essentially, controllers used to be a "you get what you pay for" situation. You had to pay a bit more for a first-party controller, but it was going to last longer and work better than a third-party one, making it the better purchase in the long term. You would just have to hope that whoever was buying the controllers saw it the same way, so you wouldn't get stuck with an awkward Mad Catz controller where the Y button would only work half of the time.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  First-Party Standards are Slipping (and Prices Are Rising)
 
 ![Nintendo Switch Joy Cons.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/52659706170_2192629c1a_o.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Corbin Davenport / How-To Geek
 
  If you've had a lot of bad experiences with third-party controllers, you may have been like me and sworn them off for good. Only the makers of the consoles could understand what needed to go into making a proper controller, or so I thought.
@@ -73,11 +75,16 @@ Corbin Davenport / How-To Geek
  While Sony's PS5 DualSense and Microsoft's Xbox Core Controller perform better overall than the Joy-Cons, the prices for these accessories have crept up over the years. At some point, it becomes hard to justify the steep price. The [DualSense](https://www.amazon.com/PlayStation-DualSense-Wireless-Controller-Galactic-5/dp/B0CQKLS4RP?tag=hotoge-20&ascsubtag=UUhtgUeUpU2002105&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fthe-days-of-awful-third-party-controllers-are-over%2F&asc%5Fcampaign=Evergreen) retails at $70 for the standard white controller, while [specific colors](https://www.amazon.com/PlayStation-DualSense-Wireless-Controller-Galactic-5/dp/B09NJNR716?th=1&tag=hotoge-20&ascsubtag=UUhtgUeUpU2002105&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fthe-days-of-awful-third-party-controllers-are-over%2F&asc%5Fcampaign=Evergreen) get an additional price hike. [Xbox Core Controllers](https://www.amazon.com/Microsoft-Xbox-WL-Controller-Gaming-Console/dp/B09BY1FTF7?tag=hotoge-20&ascsubtag=UUhtgUeUpU2002105&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fthe-days-of-awful-third-party-controllers-are-over%2F&asc%5Fcampaign=Evergreen) retail at $65 and are very basic in terms of the features you get. In other words, you no longer get what you pay for.
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Some of the Best Controllers are Third-Party Now
 
 ![8BitDo SN30 closeup](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/pxl_20240304_204309207-1.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Kris Henges / How-To Geek
 
@@ -91,10 +98,6 @@ Kris Henges / How-To Geek
 
 ![FLYDIGI Apex 2 on keyboard](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/pxl_20240304_212844734.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 Kris Henges / How-to Geek
 
  These third-party companies are also leagues ahead in terms of accessibility. As I've gotten older, my job being at a computer all day coupled with gaming put a lot of strain on my wrists and hands, and it eventually became tougher to use the Xbox Core Controller due to its size and how far the triggers needed to be pressed to actuate.
@@ -103,9 +106,6 @@ Kris Henges / How-to Geek
 
  The ability to customize controllers and remap buttons is huge in terms of accessibility, but it's something missing in most first-party gaming controllers, with the exception of the [Xbox Adaptive Controller](https://www.xbox.com/en-US/accessories/controllers/xbox-adaptive-controller). You normally have to go third-party if you want to be able to customize your inputs or make your gaming experience more comfortable.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Steer Clear of the Cheapest and Nastiest Controllers
 
  With that said, not every third-party controller is great. Amazon is full of listings of no-name controllers offering what looks to be a great experience on the cheap, until you unbox it and realize your mistake. Be careful when buying controllers from sites like AliExpress and Wish since it's harder to verify what kind of item you're getting (or if it's the genuine article).
@@ -118,8 +118,6 @@ Kris Henges / How-to Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -127,4 +125,20 @@ Kris Henges / How-to Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-next-level-android-for-3d-video-enthusiasts/"><u>[New] Next-Level Android for 3D Video Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/canon-speedlite-430ex-iii-rt-shines-brighter/"><u>Canon Speedlite 430EX III-RT Shines Brighter</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/freestyle2-blue-on-macos-the-ultimate-reason-apple-users-should-switch-to-this-revolutionary-software/"><u>Freestyle2 Blue on macOS: The Ultimate Reason Apple Users Should Switch to This Revolutionary Software</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/gopro-hero7-black-a-game-changer-for-adventurers/"><u>GoPro HERO7 Black - A Game-Changer for Adventurers</u></a></li>
+<li><a href="https://ai-video.techidaily.com/how-to-auto-translate-youtube-videos-into-different-languages/"><u>How To Auto Translate YouTube Videos Into Different Languages</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-change-your-apple-id-password-on-your-apple-iphone-6-plus-drfone-by-drfone-ios/"><u>How To Change Your Apple ID Password On your Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/age-tubebuddy-for-top-tier-youtube-management/"><u>Leverage TubeBuddy for Top-Tier YouTube Management</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/logitechs-wireless-symphony-an-in-depth-g533-look/"><u>Logitech's Wireless Symphony: An In-Depth G533 Look</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-get-the-most-out-of-minitool-movie-maker-review-guide-and-alternatives/"><u>New 2024 Approved Get the Most Out of Minitool Movie Maker Review, Guide, and Alternatives</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reviewing-canons-t6-dslr-value-for-beginners/"><u>Reviewing Canon’s T6 DSLR: Value for Beginners</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-on-djis-robomasters-s1-a-thrilling-coding-and-battling-uav-adventure/"><u>The Ultimate Review on DJI's Robomasters S1 – A Thrilling Coding and Battling UAV Adventure</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-insights-into-the-latest-samsung-galaxy-s24-ultra/"><u>Unboxing and Insights Into the Latest Samsung Galaxy S24 Ultra</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-gopro-quik-for-pc-and-alternatives/"><u>Updated 2024 Approved GoPro Quik for PC and Alternatives</u></a></li>
+</ul></div>
 

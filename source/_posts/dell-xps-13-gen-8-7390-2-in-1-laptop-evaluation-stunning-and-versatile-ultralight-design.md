@@ -1,7 +1,7 @@
 ---
 title: "Dell XPS 13 Gen 8 (7390) 2-in-1 Laptop Evaluation: Stunning & Versatile Ultralight Design"
-date: 2024-11-14T17:01:20.576Z
-updated: 2024-11-15T16:45:13.397Z
+date: 2024-11-19T21:32:42.118Z
+updated: 2024-11-24T20:05:12.749Z
 categories:
   - BestProducts
 description: "This Article Describes Dell XPS 13 Gen 8 (7390) 2-in-1 Laptop Evaluation: Stunning & Versatile Ultralight Design"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/983f31d4ff46a88bf34dd06f49261024f8d7c362e
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## LG Gram 15.6-inch (2018)
 
@@ -44,13 +48,6 @@ Lifewire / Andrew Hayward
 [View On Amazon $699](https://www.amazon.com/dp/B078WRSHV4/?tag=lifewire-onsite-prod-20&ascsubtag=4779835%7Cnbd1cf0f7690f4c68a44d26c3ec46a2c410%7CB078WRSHV4)
 
 4.2
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## LG Gram 15.6-inch (2018)
 
@@ -85,7 +82,15 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/radDS_2IRuzjTlZxUS5og2a3PIM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Top_04-b051e3660efc406ab97f92df654d3762.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Amazingly light, but not wholly convincing**
 
@@ -109,25 +114,15 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/1qu1WvdEgTzjUQ8QH_Lssx79xF0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Trackpad_05-f0d9dc63b03e4650a92e30747090889a.jpg)
 
- Lifewire / Andrew Hayward
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Andrew Hayward
 
 ## **Setup Process: Just follow the directions**
 
  There's little reason to worry about getting the LG Gram 15.6-inch laptop up and running quickly. It has Windows 10 pre-installed, so you'll simply follow the onscreen prompts to enter your Wi-Fi info, check for updates, select a few options, and ultimately find yourself ready to roll on the desktop. It shouldn't take more than a handful of minutes.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Display: Large and capable enough**
 
@@ -141,13 +136,6 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Solid power for everyday tasks**
 
  With an 8th-gen Intel Core i5-8250U at 1.6Ghz and 8GB RAM onboard, the 2018 LG Gram runs on the same chipset as the Surface Laptop 2 and Dell XPS 13\. It provides solid power for everyday tasks, and we didn't run into any noticeable slowdown while moving around Windows 10, surfing the web, typing up documents, and loading up apps. It's not a powerhouse CPU, however, and creative professionals looking for a machine for photo or video editing, for example, will surely want more processing power and RAM to play with.
@@ -160,16 +148,13 @@ Lifewire / Andrew Hayward
 
  As an aside, while the LG Gram often runs near-silently, there are extended periods of time in which there's an audible hum coming from the back. It's not the typical, very loud fan noise that pops up while gaming or heavy multitasking from some computers, but it can be a bit grating. We noticed it while charging the computer, but also while running on the battery—with no consistency on that front. It's a mild annoyance, but it's one we noticed whenever it emerged.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Audio: It makes an impression**
 
  You won't see the speakers when the LG Gram is standing up as normal, but you'll hear them loud and clear. The stereo speakers are tucked underneath the laptop at the left and right edges near where your wrists rest, and thanks to the slight elevation from the rubbery feet on the bottom of the laptop, they're given enough space for the output to shine. Audio playback sounds robust and clear—not quite to the level of Apple's current MacBook Air and MacBook Pro, but very close. We were pleased with it.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Network: Connects as expected**
 
@@ -179,7 +164,15 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/AhDZOG33ttJ8LfKQnzvHO7K-S8I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Closed_02-d40445064b4945729278aeae3d8ae1c0.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Battery: Seriously amazing**
 
@@ -188,13 +181,6 @@ Lifewire / Andrew Hayward
  With our typical workflow of browsing the web, chatting on Slack, typing up documents, and streaming a little bit of media, we typically saw 8-9 hours of uptime at 100 percent brightness. That means it's built for a full-on workday, which makes it a great option for productivity. In our video rundown test, in which we constantly stream a Netflix movie at 100 percent brightness, the LG Gram 15.6-inch lasted for 9 hours, 14 minutes. With locally-stored video, you're sure to get a whole lot more out of it.
 
  With our typical workflow of browsing the web, chatting on Slack, typing up documents, and streaming a little bit of media, we typically saw 8-9 hours of uptime at 100% brightness.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Hello, Windows (but no Windows Hello)**
 
@@ -258,24 +244,17 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-inspiration-on-a-plate-top-20-instagram-food-photos/"><u>[New] 2024 Approved Inspiration on a Plate Top 20 Instagram Food Photos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-comprehensive-techniques-for-iphones-in-virtual-space-for-2024/"><u>[New] Comprehensive Techniques for iPhones in Virtual Space for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-excellent-screen-capture-apps-for-linux-enthusiasts-for-2024/"><u>[New] Excellent Screen Capture Apps for Linux Enthusiasts for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-dodgingdullnessaftermycam/"><u>[New] In 2024, DodgingDullnessAfterMyCam</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-the-ultimate-screencast-blueprint-tools-and-techniques-mastery/"><u>[Updated] 2024 Approved The Ultimate Screencast Blueprint Tools & Techniques Mastery</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/chatgpt-plus-is-it-a-must-have-top-5-benefits-of-joining-now/"><u>ChatGPT Plus: Is It a Must-Have? Top 5 Benefits of Joining Now</u></a></li>
-<li><a href="https://win-able.techidaily.com/clearing-up-visual-glitches-a-comprehensive-guide-to-fixing-directdraw-failures/"><u>Clearing Up Visual Glitches: A Comprehensive Guide to Fixing DirectDraw Failures</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/error-free-pc-tackling-missing-or-unavailable-mfc42ddll-problems-today/"><u>Error-Free PC: Tackling Missing or Unavailable mfc42d.dll Problems Today</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-take-on-fujitsu-scansnap-ix1400-perfect-for-boosting-productivity-in-small-scale-operations/"><u>Expert Take on Fujitsu ScanSnap iX1400: Perfect for Boosting Productivity in Small-Scale Operations</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-vivo-s18-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Vivo S18 to iPad | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-streamline-conferencing-top-tactics-using-zoom-coder/"><u>In 2024, Streamline Conferencing Top Tactics Using Zoom Coder</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-stanley-j5c09-powerful-and-spacious/"><u>In-Depth Analysis of the Stanley J5C09: Powerful and Spacious</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lenovos-latest-innovation-the-thinkpad-x1-titanium-yoga-reviewed-perfect-2-in-1-solution-for-the-most-dedicated-thinkpad-adherents/"><u>Lenovo's Latest Innovation - The ThinkPad X1 Titanium Yoga Reviewed: Perfect 2-in-1 Solution for the Most Dedicated ThinkPad Adherents</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/simplify-mealtime-using-the-arf-automated-pet-dish-convenience-at-paws-reach/"><u>Simplify Mealtime Using the Arf Automated Pet Dish – Convenience at Paw's Reach!</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/slow-fade-to-action/"><u>Slow Fade to Action</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-10-best-games-for-steam-deck/"><u>The 10 Best Games for Steam Deck</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-cat-s42-phone-reviewed-sturdy-armor-yet-lagging-speed-dynamics/"><u>The Cat S4^2 Phone Reviewed: Sturdy Armor, Yet Lagging Speed Dynamics</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-complete-guide-to-wonder-workshop-dash-a-revolutionary-to-go-robot-ready-for-adventure/"><u>The Complete Guide to Wonder Workshop Dash - A Revolutionary To-Go Robot Ready for Adventure</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-powerful-artistry-in-apples-215-inch-4k-imac-style-meets-strength/"><u>Unveiling the Powerful Artistry in Apple's 21.5-Inch 4K iMac: Style Meets Strength</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/come-scaricare-e-convertire-i-tuoi-vecchi-video-vhs-su-un-compatibile-dvd/"><u>Come Scaricare E Convertire I Tuoi Vecchi Video VHS Su Un Compatibile DVD</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discerning-critical-specifications-in-game-ready-notebooks/"><u>Discerning Critical Specifications in Game-Ready Notebooks</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-tecno-phantom-v-flip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Tecno Phantom V Flip | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-motorola-moto-g84-5g-phone-without-pin-by-drfone-android/"><u>How to Unlock Motorola Moto G84 5G Phone without PIN</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-assessment-of-cyberpowers-cp685avrg-essential-ups-functionality-reviewed/"><u>In-Depth Assessment of Cyberpower's CP685AVRG - Essential UPS Functionality Reviewed</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/innovate-and-captivate-top-10-video-response-examples-for-2024/"><u>Innovate and Captivate Top 10 Video Response Examples for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/insightful-guide-to-apc-back-ups-pro-1500va-stellar-performance-ample-outlets-and-hot-swappable-battery-design/"><u>Insightful Guide to APC Back-UPS Pro 1500VA - Stellar Performance, Ample Outlets and Hot Swappable Battery Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/kobo-forma-assessment-the-devoted-e-reader-for-avid-readers/"><u>Kobo Forma Assessment: The Devoted E-Reader for Avid Readers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/record-screen-and-upload-to-youtube-pc-mac-online-for-2024/"><u>Record Screen and Upload to YouTube [PC, Mac, Online] for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/reigning-supreme-top-techniques-for-innovative-youtube-end-screens/"><u>Reigning Supreme Top Techniques for Innovative YouTube End Screens</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/testing-the-mighty-asus-rt-ac88u-is-this-gamers-dream-worth-it/"><u>Testing the Mighty Asus RT-AC88U - Is This Gamer's Dream Worth It?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/tune-up-clips-import-audio-into-inshot-easily-for-2024/"><u>Tune Up Clips Import Audio Into InShot Easily for 2024</u></a></li>
 </ul></div>
 

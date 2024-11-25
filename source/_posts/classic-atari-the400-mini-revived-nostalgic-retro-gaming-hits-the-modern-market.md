@@ -1,7 +1,7 @@
 ---
 title: "Classic Atari THE400 Mini Revived: Nostalgic Retro Gaming Hits the Modern Market"
-date: 2024-08-31T14:56:12.332Z
-updated: 2024-09-01T14:56:12.332Z
+date: 2024-11-22T02:19:24.832Z
+updated: 2024-11-24T23:34:00.058Z
 tags:
   - games
   - tv
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/dc229e7dd5dce04caabe58bbbc326bcfc746011c8
  Back in 2018, Retro Games Ltd. released THEC64 Mini, a plug-and-play console and computer modeled on one of the best-selling computers of all time, the Commodore 64\. That was followed in 2019 by a full-sized THEC64 and THEVIC20, complete with working keyboards, as well as THEA500 Mini in 2022, which miniaturized the popular Commodore Amiga 500\. Now, nostalgic Atari 8-bit computer fans get to join in on the fun with [THE400 Mini](https://www.amazon.com/THE400-Mini-Not-Machine-Specific/dp/B0CS3VD9TJ/?tag=hotoge-20&ascsubtag=UUhtgUeUpU2002451&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fatari-the400-mini-review%2F&asc%5Fcampaign=Authority).
 
 ![Atari - The400 Mini and Joystick](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/atari-the400-mini-and-joystick.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #####  THE400 Mini
 
@@ -69,6 +73,10 @@ THE400 Mini is a plug and play retro game console based on the popular Atari 8-b
 
 ![THE400 Mini by a TV with hands holding the joystick](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/03/the400-mini-by-a-tv-with-hands-holding-the-joystick.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Bill Loguidice / How-To Geek
 
 THE400 Mini and THECXSTICK in front of a television.
@@ -95,22 +103,24 @@ THE400 Mini on top of an original Atari 800 computer.
 
 ![THE400 Mini - Rear](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/03/the400-mini-rear.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Bill Loguidice / How-To Geek
 
 The rear of THE400 Mini.
 
  On the rear of THE400 Mini is a USB-A port, HDMI port, USB-C port, and power button. On the front are four additional USB-A ports. The five USB-A ports support additional controllers, memory sticks, and keyboards. Most games only support one or two players, but one of the games, "M.U.L.E.," supports up to four players at once.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Interface and Software: Retro, but Modern** 
 
 ![THE400 Mini Joystick](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/03/the400-mini-joystick.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Bill Loguidice / How-To Geek
 
 THECXSTICK.
@@ -127,16 +137,10 @@ Close
 
  THE400 Mini supports FAT32-formatted USB sticks, although I did have to try a few different brands to find one that was properly recognized. When inserting a compatible blank USB stick, a version of the [BASIC programming language](https://atariwiki.org/wiki/Wiki.jsp?page=Atari%20BASIC) is installed. Similarly, THE400 Mini didn't like my wireless Logitech K400r keyboard but had no issues with a wired [Razer BlackWidow V3 Pro](https://www.amazon.com/Razer-BlackWidow-Mechanical-Gaming-Keyboard/dp/B08FQPLCNC/?tag=hotoge-20&ascsubtag=UUhtgUeUpU2002451&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fatari-the400-mini-review%2F&asc%5Fcampaign=Authority). Not every key on a modern keyboard maps correctly to the Atari 8-bit keyboard layout, but using the legend on the Mini can provide some clues.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Games and Gameplay: Past Blasts** 
 
 ![THE400 Mini Front with USB-A ports](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/03/the400-mini-front.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 Bill Loguidice / How-To Geek
 
 The front of THE400 Mini.
@@ -165,9 +169,6 @@ Close
 
  Finally, if you don't like the included THECXSTICK or just want more than one controller and don't want to use another THECXSTICK, THEJOYSTICK, or THEGAMEPAD, modern Microsoft Xbox, Sony PlayStation, and Nintendo Switch controllers can be used. For instance, I was able to use an [8BitDo USB Wireless Adapter 2](https://www.amazon.com/8Bitdo-Wireless-Compatible-Controller-Bluetooth/dp/B09M8CVMYF?tag=hotoge-20&ascsubtag=UUhtgUeUpU2002451&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fatari-the400-mini-review%2F&asc%5Fcampaign=Authority) with an Xbox One controller for a nice wireless option.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## **Should You Buy the Atari THE400 Mini?** 
 
  Retro Games Ltd. knows what they're doing when it comes to designing mass-market nostalgia plays. [THE400 Mini](https://www.amazon.com/THE400-Mini-Not-Machine-Specific/dp/B0CS3VD9TJ/?tag=hotoge-20&ascsubtag=UUhtgUeUpU2002451&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fatari-the400-mini-review%2F&asc%5Fcampaign=Authority) from Atari does a great job of making a past platform accessible to those interested in exploring what one of the most popular computer gaming platforms of all time was all about. It gives a great taste of what some of the best 1970s and 1980s gaming was like and shows how deep Atari's back catalog of systems really is.
@@ -177,8 +178,9 @@ Close
 ![Atari - The400 Mini and Joystick](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/atari-the400-mini-and-joystick.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 #####  THE400 Mini
 
 7/ 10 
@@ -195,8 +197,6 @@ THE400 Mini is a plug and play retro game console based on the popular Atari 8-b
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -204,4 +204,22 @@ THE400 Mini is a plug and play retro game console based on the popular Atari 8-b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-interconnecting-platforms-sharing-tiktok-to-facebook/"><u>[New] 2024 Approved Interconnecting Platforms Sharing TikTok to Facebook</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-deciding-on-a-top-gopro-camera-max-or-hero-11-for-2024/"><u>[Updated] Deciding on a Top GoPro Camera Max or Hero 11 for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-capturing-gaming-sessions-pick-between-obs-or-shadowplay/"><u>2024 Approved Capturing Gaming Sessions Pick Between OBS or ShadowPlay</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-ac68u-router-analysis-fast-and-safe-5g-wireless-performance/"><u>Asus AC68U Router Analysis: Fast & Safe 5G Wireless Performance</u></a></li>
+<li><a href="https://ai-video.techidaily.com/expertly-restore-your-damaged-photos/"><u>Expertly Restore Your Damaged Photos</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-cashing-in-on-creativity-the-vimeo-income-playbook/"><u>In 2024, Cashing in on Creativity The Vimeo Income Playbook</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/interactive-guide-experience-the-versatile-features-of-msis-portable-pro-display-mp161e2/"><u>Interactive Guide: Experience the Versatile Features of MSI's Portable Pro Display - MP161E2</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastery-through-practice-getting-familiar-with-arlos-protection-gadgets/"><u>Mastery Through Practice: Getting Familiar with Arlo's Protection Gadgets</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-gaming-performance-in-a-minuscule-frame-the-xbox-series-s-breakdown/"><u>Maximizing Gaming Performance in a Minuscule Frame: The Xbox Series S Breakdown</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/rca-video-doorbell-comprehensive-review-of-an-efficient-security-camera/"><u>RCA Video Doorbell: Comprehensive Review of an Efficient Security Camera</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/techniques-for-non-intrusive-image-edits/"><u>Techniques for Non-Intrusive Image Edits</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-rankings-and-comparison-for-all-ipad-models/"><u>The Definitive Rankings and Comparison for All iPad Models</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-rated-android-readers-a-comprehensive-reader-app-guide/"><u>Top Rated Android Readers: A Comprehensive Reader App Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-home-safety-the-vuebell-video-doorbell-for-under-budget/"><u>Unlocking Home Safety: The VueBell Video Doorbell for Under Budget</u></a></li>
+<li><a href="https://techtrends.techidaily.com/viewing-guide-the-ultimate-order-of-how-to-train-your-dragon-films/"><u>Viewing Guide: The Ultimate Order of How to Train Your Dragon Films</u></a></li>
+</ul></div>
 

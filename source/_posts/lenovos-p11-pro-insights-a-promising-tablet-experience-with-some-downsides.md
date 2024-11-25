@@ -1,7 +1,7 @@
 ---
 title: Lenovo's P11 Pro Insights - A Promising Tablet Experience With Some Downsides
-date: 2024-11-11T16:16:56.772Z
-updated: 2024-11-15T16:49:38.261Z
+date: 2024-11-21T23:17:42.578Z
+updated: 2024-11-24T19:39:52.513Z
 categories:
   - BestProducts
 description: This Article Describes Lenovo's P11 Pro Insights - A Promising Tablet Experience With Some Downsides
@@ -46,15 +46,16 @@ Lifewire / Emily Isaacs
 4.9
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## LG OLED C9 65" 4K Smart TV
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/-RQ5Ui3BjE0KxHGHYE-UjNz7EY4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_HeroSquare-b4b1522941d44a18b75a586155788477.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -94,13 +95,14 @@ Lifewire / Emily Isaacs
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/mxKfDJGuIKYcsSIQoKfzwDbYYmg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_02-3da87ff8439343f691cf02e9234d1f04.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Do it yourself worthy, but you’ll need a hand**
@@ -117,6 +119,10 @@ Lifewire / Emily Isaacs
 
  Once the TV has been installed, LG’s WebOS guides the first-time setup process by prompting inputs for settings ranging from time zone and language up to and including any necessary user agreements. The LG C9 will complete a scan in order to identify the devices and then you’re free to customize the TV’s settings by pressing the gear button on the LG Magic Remote. The first setting we changed was the Auto Power Saving (APS) picture mode, which reduces power use by dimming the brightness of the TV. The other important setting to disable is TruMotion, which smooths motion in TV shows and movies by altering the frame rate of the programming. If your LG’s picture looks a bit too much like a soap opera, chances are you need to disable this setting.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Image Quality: Stunning picture**
 
  The image quality on the LG C9 is, frankly, stunning thanks in large part to its excellent contrast and wide range of colors, combined with the OLED panel’s ability to turn individual pixels on and off. Even from wide viewing angles, the 4K picture maintains its excellence, with limited washing out and color loss.
@@ -127,31 +133,11 @@ Lifewire / Emily Isaacs
 
  These pictures are further enhanced with LG’s α9 Gen 2 intelligent processor, new to 2019’s model. It excels at drawing out detail and correcting quality discrepancies within the picture, such as banding which creates textures and strips in areas of the screen that would otherwise be smooth. This is particularly important given the large screen size and high resolution. While it’s not as bright as an LED TV since it lacks backlighting, it doesn’t need it as the TV already possesses excellent color, a change here would risk washing out the inky blacks on the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Audio: Better than expected**
 
  While OLED TVs aren’t generally known for their great sound quality, the LG C9 has a surprisingly good sound system all things considered—but a soundbar would still be recommended. Audio in TV or movies is generally good, but it struggles to regulate loud and soft noises in a scene. Streaming Lizzo’s_Cuz I Love You_ on Spotify produces a surprising depth of sound, but it’s simply not comparable to a more robust system that a soundbar or home theater system would provide.
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/SZUaFESJi6OZubIeLdK1e9L9FEM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_04-c559e4cc6de64f0c8baf4470f883dd9e-4844a7694fb74eb2904f1128ba93f760.jpeg)
-
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -162,13 +148,6 @@ Lifewire / Emily Isaacs
  In addition to the WebOS software, the LG C9 also comes with[Google Assistant](https://www.lifewire.com/what-is-google-assistant-4120911) as well as[Amazon’s Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) . It makes it easy to search content, switch between apps and features, or check the weather, among other things. These controls extend into your home as well, enabling you to make use of any basic home control features already in place like updating the temperature on your Nest Smart Thermostat. You simply choose which assistant you want at a given time by pressing either the Amazon button on the Magic Remote to toggle Alexa or the microphone button to toggle Google Assistant.
 
  In addition to the WebOS software, the LG C9 also comes with Google Assistant as well as Amazon’s Alexa. It makes it easy to search content, switch between apps and features, or check the weather, among other things.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: A premium price for a premium TV**
 
@@ -237,21 +216,22 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-efficient-techniques-for-unwrapping-backgrounds-in-affinity-photo/"><u>[Updated] In 2024, Efficient Techniques for Unwrapping Backgrounds in Affinity Photo</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-insider-guide-to-regular-broadcast-etiquette-for-2024/"><u>[Updated] The Insider Guide to Regular Broadcast Etiquette for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/evaluating-the-value-of-apples-airpods-pro-a-review-from-launch-to-present/"><u>Evaluating the Value of Apple’s AirPods Pro - A Review From Launch to Present</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-google-pixel-8-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Google Pixel 8 Phone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-funimate-android-gameplay-apk-to-victory-guide/"><u>In 2024, Funimate Android Gameplay - APK to Victory Guide</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-iosplusandroid-guide-to-invisible-youtube-viewing/"><u>In 2024, IOS+Android Guide to Invisible YouTube Viewing</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-vonage-holding-its-ground-as-a-premier-voip-service/"><u>Is Vonage Holding Its Ground as a Premier VoIP Service?</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/m3-or-m2-a-comprehensive-review-of-apples-macbook-air-models-to-help-you-make-an-informed-buying-decision/"><u>M3 or M2? A Comprehensive Review of Apple's MacBook Air Models to Help You Make an Informed Buying Decision!</u></a></li>
-<li><a href="https://extra-support.techidaily.com/mastering-visual-impact-a-comprehensive-guide-to-zooms-video-filters-for-2024/"><u>Mastering Visual Impact A Comprehensive Guide to Zoom's Video Filters for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/power-vs-pitfalls-an-unbiased-review-of-the-portable-viair-88p-air-compressor/"><u>Power Vs. Pitfalls: An Unbiased Review of the Portable Viair 88P Air Compressor</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/razers-mighty-compact-laptop-unleashed-a-book-one-assessment/"><u>Razer's Mighty Compact Laptop Unleashed: A Book One Assessment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/resolving-technical-difficulties-in-hearts-of-iron-4-tips-and-solutions/"><u>Resolving Technical Difficulties in Hearts of Iron 4 - Tips & Solutions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/score-amazing-deals-on-apple-devices-this-amazon-prime-weekend/"><u>Score Amazing Deals on Apple Devices This Amazon Prime Weekend</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/should-my-machine-leap-to-macos-sonomas-version/"><u>Should My Machine Leap to macOS Sonoma's Version?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-compatible-trackballs-for-your-apple-tablet/"><u>Top-Rated Compatible Trackballs for Your Apple Tablet</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/unleash-your-inner-cartoon-best-mobile-apps-for-photo-transformation-for-2024/"><u>Unleash Your Inner Cartoon Best Mobile Apps for Photo Transformation for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-capture-calls-iphones-vision/"><u>[New] Capture Calls IPhone's Vision</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/craft-memes-for-comedy-using-adobe/"><u>Craft Memes for Comedy Using Adobe</u></a></li>
+<li><a href="https://article-helps.techidaily.com/decoding-digital-dazzle-an-initial-journey-into-video-standards/"><u>Decoding Digital Dazzle An Initial Journey Into Video Standards</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/efficiently-install-updated-hp-officejet-pro-8720-drivers-on-your-windows-pc/"><u>Efficiently Install Updated HP OfficeJet Pro 8720 Drivers on Your Windows PC</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/graphicgenius-create-funny-memes-for-2024/"><u>GraphicGenius Create Funny Memes for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-xiaomi-redmi-note-12-pro-5g-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Xiaomi Redmi Note 12 Pro 5G PC | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-gigglegraphics-eyecatchermemes/"><u>In 2024, GiggleGraphics EyeCatcherMemes</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-shaping-imagery-the-most-innovative-vector-designers-ranked/"><u>In 2024, Shaping Imagery The Most Innovative Vector Designers Ranked</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tech-upgrade-essentials-experience-the-best-with-a-dell-screen-top-tier-anc-earpieces-and-high-definition-webcam/"><u>Tech Upgrade Essentials: Experience the Best with a Dell Screen, Top-Tier ANC Earpieces, and High-Definition Webcam</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-artistry-behind-rayman-legends-an-in-depth-look-at-the-iconic-2d-gaming-gem/"><u>The Artistry Behind Rayman Legends: An In-Depth Look at the Iconic 2D Gaming Gem</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-bridging-reality-of-nikons-coolpix-l340-camera/"><u>The Bridging Reality of Nikon's Coolpix L340 Camera</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/they-are-suited-for-large-volumes-of-low-viscosity-fluids-at-lower-pressures/"><u>They Are Suited for Large Volumes of Low-Viscosity Fluids at Lower Pressures</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transform-your-multimedia-experience-with-the-amazing-features-of-2019-apple-ipad-air/"><u>Transform Your Multimedia Experience with the Amazing Features of 2019 Apple iPad Air!</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-making-your-usb-drive-detectable-again/"><u>Troubleshooting Guide: Making Your USB Drive Detectable Again</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-evaluating-audews-compact-portable-air-compressor-for-all-your-needs/"><u>Ultimate Guide: Evaluating Audew’s Compact Portable Air Compressor for All Your Needs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-professional-photography-skills-using-darktables-open-source-raw-converter-on-os-x-and-linux/"><u>Unlock Professional Photography Skills Using Darktable's Open Source RAW Converter on OS X and Linux</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-sonys-xbr49x900f-the-ultimate-guide-to-its-4k-and-smart-features-on-a-49-inch-screen/"><u>Unveiling Sony's XBR49X900F: The Ultimate Guide to Its 4K and Smart Features on a 49-Inch Screen</u></a></li>
 </ul></div>
 

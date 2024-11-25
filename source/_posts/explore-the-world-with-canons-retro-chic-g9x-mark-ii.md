@@ -1,7 +1,7 @@
 ---
 title: Explore the World with Canon's Retro-Chic G9X Mark II
-date: 2024-11-14T16:02:25.308Z
-updated: 2024-11-15T16:43:27.942Z
+date: 2024-11-18T01:58:33.062Z
+updated: 2024-11-24T20:15:53.247Z
 categories:
   - BestProducts
 description: This Article Describes Explore the World with Canon's Retro-Chic G9X Mark II
@@ -81,10 +81,7 @@ Lifewire / Jeremy Laukkonen
  I recently unpacked a second-gen Tab M10 HD and used it for about a week for everything from email and web browsing to video conferencing and streaming movies from[apps like Netflix](https://www.lifewire.com/overview-of-the-netflix-streaming-service-1847831) and[HBO Max](https://www.lifewire.com/what-is-hbo-max-how-to-watch-it-4782926) . During my time with the tablet, I tested overall performance, video and audio quality, wireless speeds, and a variety of other factors to see if this budget friendly Android tablet is worth the asking price.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What’s New: Better price, better specs, lower resolution
@@ -103,13 +100,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/pPNbzMq7aB9LY-_koMR-oHoTUHA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_02-1cb2ef47999844eaacd3c03a777faea8-f2d25c46eb184b4c8b7a8667735f2ea9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jeremy Laukkonen
 
  On the left side, you’ll find Lenovo’s docking port connector. Unfortunately, there’s no way to make use of this connector if you don’t buy the version of the tablet that includes a dock. Lenovo doesn’t provide the dock as an optional accessory to purchase later. This is a bit of a questionable decision on Lenovo’s part, and it’s likely to lead to some consumer disappointment.
@@ -125,6 +115,10 @@ Lifewire / Jeremy Laukkonen
  While the display is bright and clear, and the colors are nice and vivid, the resolution is a bit on the low side for a screen this big. The first generation of the Tab M10 hardware had a full HD display, while this one gives you only a resolution of 800 x 1280 for an abysmal pixel density of about 149 ppi on the big 10-inch IPS LCD screen. It looks fine when held at arm's length, but move it any closer and you can make out the individual pixels like you’re looking at the tablet through a screen door.
 
  While the display is bright and clear, and the colors are nice and vivid, the resolution is a bit on the low side for a screen this big.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Performance: Depends on the configuration you get
 
@@ -154,20 +148,10 @@ Lifewire / Jeremy Laukkonen
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/jC-nIsNjG_LVHXw3eP-5D_jO_fY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_03-dad5bfce705b4e0c891a4088b2b77b10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Audio: Decent stereo sound with support for Dolby Atmos
@@ -177,6 +161,10 @@ Lifewire / Jeremy Laukkonen
  The sound lacks bass and sounds a bit tinny, but that’s to be expected. It’s more than loud enough to fill a room, although I preferred to lower it quite a bit for a more pleasant listening experience. I was actually able to watch movies on Netflix before bed without plugging headphones into the audio jack, as I had no trouble making out dialog, and there wasn’t ever any unpleasant distortion.
 
  On the subject of audio and headphones, the Tab M10 HD includes a[built-in FM radio](https://www.lifewire.com/use-fm-radio-on-smartphone-4176272) using your headphones as the antenna. I plugged in my favorite earbuds, loaded up an FM radio app, and I was able to pull down dozens of local FM radio stations with pretty decent reception. This is a feature that isn’t always enabled even when the hardware technically supports it, so it’s a nice little extra you’ll be able to rely on even if your internet goes down.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Network: Good Wi-Fi speeds and an LTE option
 
@@ -192,6 +180,10 @@ Lifewire / Jeremy Laukkonen
 
  Finally, I took it out into my garage, about 100 feet from the modem, and the speed dropped to 76.4 Mbps. That’s pretty solid performance, and lines up with my experience of being able to stream media wherever I tried anywhere in my house.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Camera: Decent enough for a budget tablet
 
  Lenovo improved the camera situation in the 2020 version of the Tab M10 HD compared to the first generation, but not enough to provide anything even close to what I’d consider good results. The rear camera is an 8MP shooter that can record 1080p video at 30 FPS, and it also has a 5MP sensor around front for a selfie cam.
@@ -205,10 +197,7 @@ Lifewire / Jeremy Laukkonen
  The front camera is even worse, and you probably won’t be uploading any selfies taken with this tablet to your Instagram. I found it to work fine for video calls, but my face was always washed out or blown out depending on the lighting conditions.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Battery: Could be bigger
@@ -220,10 +209,7 @@ Lifewire / Jeremy Laukkonen
  While this isn’t an all-day battery, and you’ll probably have to stick it on the charger every day, six hours is long enough to catch up on your favorite show in bed at night, or keep the kids entertained in the car during a long drive.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Software: Stock Android 10 and Google Kids Space
@@ -231,6 +217,10 @@ Lifewire / Jeremy Laukkonen
  Lenovo doesn’t mess around with stock Android too much, and the Tab M10 HD ships with a very clean, very stock Android 10 experience. It works exactly like you’d expect a stock Android 10 device to work, with the extra apps it forces on you being only the Lenovo Tips app, an FM radio app, and Dolby Atmos.
 
  The biggest news here is that the second gen Tab M10 HD comes with Google Kids Space, which is a great app if you have kids, as it allows you to transform the tablet into a kid-friendly spigot of entertainment. It includes tons of pre-approved apps, books, and videos so you don’t have to worry about curating age-appropriate content. It also integrates with the Google Family Link app, providing you with remote control over screen time limits, bed times, and more.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Price: Hits the right price point for what you get
 
@@ -259,13 +249,6 @@ Lifewire / Jeremy Laukkonen
 * [Lenovo P11 Pro](https://www.lifewire.com/lenovo-p11-pro-review-5116910)
 * [Samsung Galaxy Tab S7+](https://www.lifewire.com/samsung-galaxy-tab-s7-review-5088997)
 * [Google Pixel Slate](https://www.lifewire.com/pixel-slate-review-a-chromeos-mess-5072398)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -304,20 +287,19 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-upgrading-twitter-video-fidelity-to-4k/"><u>[Updated] 2024 Approved Upgrading Twitter Video Fidelity to 4K</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-changing-image-filenames-for-macscreenshots-for-2024/"><u>[Updated] Changing Image Filenames for MacScreenshots for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-elevating-your-win11-capture-experience-with-top-tools/"><u>[Updated] Elevating Your Win11 Capture Experience with Top Tools</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/boosting-pc-gaming-performance-turn-off-mouse-acceleration-on-windows-11/"><u>Boosting PC Gaming Performance: Turn Off Mouse Acceleration on Windows 11</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-peak-efficiency-with-the-apple-macbook-air-m1-2/"><u>Discovering Peak Efficiency with the Apple MacBook Air (M1, 2</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enhance-fitness-routines-with-garmin-vivoactive-3-playlist-perks-for-active-lifestyles/"><u>Enhance Fitness Routines with Garmin Vivoactive 3: Playlist Perks for Active Lifestyles</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-assassins-creed-valhalla-a-comprehensive-guide-to-its-riveting-norse-odyssey/"><u>Exploring Assassin's Creed: Valhalla - A Comprehensive Guide to Its Riveting Norse Odyssey</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-shining-spots-on-screen-top-video-lights-strategies/"><u>In 2024, Shining Spots on Screen Top Video Lights Strategies</u></a></li>
-<li><a href="https://win-dash.techidaily.com/in-series-configurations-pumps-work-against-higher-system-resistance-leading-to-an-increased-head-while-maintaining-a-consistent-flow-rate/"><u>In Series Configurations, Pumps Work Against Higher System Resistance, Leading to an Increased Head While Maintaining a Consistent Flow Rate.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-marvels-spider-man-miles-morales-intimate-storytelling-with-great-outcomes/"><u>In-Depth Analysis of Marvel's Spider-Man: Miles Morales - Intimate Storytelling with Great Outcomes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/innovative-combo-exploring-features-of-arlos-video-doorbell-with-built-in-alarm/"><u>Innovative Combo: Exploring Features of Arlo's Video Doorbell with Built-In Alarm</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/meet-apples-latest-marvel-the-ultimate-entertainment-gadget-vision-pro/"><u>Meet Apple's Latest Marvel: The Ultimate Entertainment Gadget - Vision Pro</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolved-quick-fixes-for-critical-cxfreeze-software-crashes/"><u>Resolved: Quick Fixes for Critical Cx_Freeze Software Crashes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-unihertz-atom-xl-how-this-tiny-phone-delivers-major-power-and-ruggedness/"><u>Reviewing the Unihertz Atom XL: How This Tiny Phone Delivers Major Power and Ruggedness</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sabrents-perfect-blend-for-mobile-workers-a-cable-and-precision-powerhouse-mouse/"><u>Sabrent's Perfect Blend for Mobile Workers - A Cable and Precision Powerhouse Mouse</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-from-obscurity-to-opulence-grow-your-insta-following-to-1000-for-2024/"><u>[New] From Obscurity to Opulence Grow Your Insta Following to 1,000 for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-retrace-steps-how-to-turn-your-yt-queue-on-its-head/"><u>[Updated] Retrace Steps How to Turn Your YT Queue on Its Head</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/windows-media-playerdvd/"><u>確実に解決 Windows Media PlayerでDVD再生エラーをどう克服しますか?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/streaming-setup-leading-livestream-hardware-and-software-guide-for-2024/"><u>Best Streaming Setup Leading Livestream Hardware & Software Guide for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/catch-the-launch-of-nickwatch-at-uss-beloved-kids-choice-awards-event/"><u>Catch the Launch of NickWatch at U.S.'s Beloved Kids' Choice Awards Event</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-the-best-features-of-withings-move-an-intuitive-classic-style/"><u>Discovering the Best Features of Withings Move - An Intuitive Classic Style</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-amazon-primes-value-in-depth/"><u>Exploring Amazon Prime's Value in Depth</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Infinix Smart 8? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/latest-android-update-unveils-revamped-google-assistant-app-icon/"><u>Latest Android Update Unveils Revamped Google Assistant App Icon</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/razer-portal-unveiled-is-it-revolutionizing-wireless-connectivity-for-gamers/"><u>Razer Portal Unveiled – Is It Revolutionizing Wireless Connectivity for Gamers?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-future-of-remote-controlled-entertainment-a-comprehensive-review-of-the-dji-robomaster-s1-tank-drone/"><u>The Future of Remote-Controlled Entertainment: A Comprehensive Review of the DJI RoboMaster S1 Tank Drone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/troubleshooting-guide-unsupported-platform-error-during-intel-serial-io-driver-setup/"><u>Troubleshooting Guide - Unsupported Platform Error During Intel Serial IO Driver Setup</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-testing-in-depth-analysis-of-the-amazonbasics-high-security-shredder-with-12-sheet-capacity/"><u>Unboxing and Testing: In-Depth Analysis of the AmazonBasics High-Security Shredder with 12 Sheet Capacity</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/youtube-revenue-the-unfavorable-guidelines-for-2024/"><u>YouTube Revenue The Unfavorable Guidelines for 2024</u></a></li>
 </ul></div>
 

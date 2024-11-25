@@ -1,7 +1,7 @@
 ---
 title: "Play at the Peak: Razer Kishi's Superiority in Portable Mobile Gameplay Revealed"
-date: 2024-08-31T14:58:25.762Z
-updated: 2024-09-01T14:58:25.762Z
+date: 2024-11-18T21:11:21.322Z
+updated: 2024-11-25T01:32:44.204Z
 tags:
   - games
   - tv
@@ -43,6 +43,10 @@ The Razer Kishi Ultra takes the very best of console controller technology and b
 [$150 at Amazon](https://www.amazon.com/dp/B0CXGMPLWK?tag=hotoge-20&ascsubtag=UUhtgUeUpU2004293&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Frazer-kishi-ultra-review%2F&asc%5Fcampaign=Authority) [See at Razer](https://razer.a9yw.net/c/156932/642901/10229?subId1=UUhtgUeUpU2004293&subId2=ehtg&u=https%3A%2F%2Fwww.razer.com%2Fmobile-controllers%2Frazer-kishi-ultra%2FRZ06-05070100-R3U1) [See at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Frazer-kishi-ultra-usb-c-gaming-controller-for-android-iphone-and-ipad-mini-black%2F6584663.p%3FskuId%3D6584663) 
 
 [_How We Test and Review Products_](https://vp-tips.techidaily.com/swiftly-move-data-fast-and-reliable-methods-to-direct-files-onto-your-computer/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Price and Availability
 
@@ -92,9 +96,6 @@ The Razer Kishi Ultra takes the very best of console controller technology and b
 
 Expand 
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Gamer Design for a Hardcore Gaming Device
 
 ![The Razer Kishi Ultra with rubber pads and box](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/53736584008_7b2dd9461a_o.jpg) 
@@ -114,15 +115,17 @@ Jerome Thomas / How-To Geek
  This is all good, but how does the Razer Kishi Ultra hold up to an extended game session?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Putting the Razer Kishi Ultra to the Test
 
 ![The Razer Kishi Ultra fully extended](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/53736584013_9e703c5cee_o.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Jerome Thomas / How-To Geek
 
  I find Razer's marketing of the Kishi Ultra to feature "Genshin Impact" very clever—that was the first game I wanted to test out. While it was a mobile game at first, it was a terrible game to play on the touchscreen, and playing it on PC or PS5 never interested me. But even a physical controller on a smartphone doesn't quite work for the game; the phone screen is too small to see what's happening in an action RPG.
@@ -132,15 +135,13 @@ Jerome Thomas / How-To Geek
  When playing "Genshin," I didn't notice any noticeable lag between button presses and the screen, as expected from a controller plugged directly into the device. I had no issues reaching buttons with my smaller hands, either. My main concern was with the weight of the controller and the iPad.
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Heavyweight Portable Gaming
 
 ![53736584028_df1b5f0a29_o](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/53736584028_df1b5f0a29_o.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
  When you connect the iPad mini to the Razer Kishi Ultra, it's a bit awkward but manageable in terms of size. But in terms of weight, you have a 559-gram portable you're holding up (without an iPad case). For reference, the original Nintendo Switch model is 297 grams, and the Steam Deck is a hefty 669 grams, so the Kishi lands a bit on the heavier side for portables. Of course, the weight is lower if you're attaching a smartphone instead—the controller with my Pixel 7a is 459.5 grams—but if you're coming from a Switch, you'll notice the weight difference.
 
  So with this in mind, I was worried about wrist fatigue. When I first picked up my Steam Deck, I had a lot of trouble with my wrists getting tired after an hour or so of playing. Given the size of the Kishi Ultra, I was worried about the same here, but it ended up not being the case.
@@ -153,6 +154,10 @@ Jerome Thomas / How-To Geek
 
 ![The Razer Kishi Ultra connected to a Pixel 7](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/53736814150_b226ef818c_o.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Jerome Thomas / How-To Geek
 
  I wasn't quite sure what to expect from the [Razer Kishi Ultra](http://www.amazon.com/Razer-Gaming-Controller-Android-iPhone-Smartphone/dp/B0CXGMPLWK?tag=hotoge-20&ascsubtag=UUhtgUeUpU2004293&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Frazer-kishi-ultra-review%2F&asc%5Fcampaign=Authority), but I came away impressed. I didn't think gaming with my phone or iPad could be this comfortable, and despite a few small sticking points, this is _the_ way to enjoy mobile gaming. The price point is on the higher side, but if you regularly play games on your phone or iPad this is worth the investment for its comfort and portable gaming feel.
@@ -163,9 +168,6 @@ Jerome Thomas / How-To Geek
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-ec.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 #####  Razer Kishi Ultra
 
 9/ 10 
@@ -180,8 +182,6 @@ The Razer Kishi Ultra takes the very best of console controller technology and b
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -189,4 +189,24 @@ The Razer Kishi Ultra takes the very best of console controller technology and b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-developing-dynamic-instagram-highlights-for-2024/"><u>[New] Developing Dynamic Instagram Highlights for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-high-quality-hd-videos-at-a-tap-top-10-android-choices/"><u>[New] In 2024, High-Quality Hd Videos at a Tap Top 10 Android Choices</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/can-apple-vision-pro-soften-the-blow-of-economy-travel-or-make-you-resent-it-even-more/"><u>Can Apple Vision Pro Soften the Blow of Economy Travel – Or Make You Resent It Even More?</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-samsung-galaxy-m34-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Samsung Galaxy M34 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-how-kobo-forma-elevates-your-reading-journey-an-insightful-critique/"><u>Discover How Kobo Forma Elevates Your Reading Journey: An Insightful Critique</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/diving-into-dying-light-an-immersive-first-person-co-op-survival-journey/"><u>Diving Into Dying Light: An Immersive First-Person Co-Op Survival Journey</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ductility-allows-materials-to-deform-plastically-without-cracking-which-is-beneficial-for-welded-joints-that-experience-thermal-cycles/"><u>Ductility Allows Materials to Deform Plastically without Cracking, Which Is Beneficial for Welded Joints that Experience Thermal Cycles.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-packages-detection-and-user-identification-in-google-nest-hello-camera/"><u>Exploring Packages Detection and User Identification in Google Nest Hello Camera</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/heimvisions-breakthrough-in-sleep-technology-an-expert-look-at-the-sunrise-alarm-clock-a80s/"><u>HeimVision's Breakthrough in Sleep Technology: An Expert Look at the Sunrise Alarm Clock A80S</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-basic-concepts-of-plotting-and-characterizing/"><u>In 2024, Basic Concepts of Plotting and Characterizing</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-vivo-v30-pro-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Vivo V30 Pro?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-samsung-galaxy-f04-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Samsung Galaxy F04 FRP Locks</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-economical-monoprice-artists-drawing-pad/"><u>In-Depth Analysis of the Economical Monoprice Artist's Drawing Pad</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/iphone-vs-samsung-phone-which-one-should-you-buy/"><u>IPhone Vs. Samsung Phone: Which One Should You Buy?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sony-wma-nw78-premier-audio-review/"><u>Sony WMA-NW78 - Premier Audio Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-beauty-within-and-outside-in-depth-analysis-of-the-samsung-galaxy-watch/"><u>Unveiling the Beauty Within and Outside: In-Depth Analysis of the Samsung Galaxy Watch</u></a></li>
+</ul></div>
 

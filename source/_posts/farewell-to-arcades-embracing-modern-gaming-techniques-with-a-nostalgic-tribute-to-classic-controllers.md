@@ -1,7 +1,7 @@
 ---
 title: "Farewell to Arcades: Embracing Modern Gaming Techniques, with a Nostalgic Tribute to Classic Controllers"
-date: 2024-08-31T14:55:30.805Z
-updated: 2024-09-01T14:55:30.805Z
+date: 2024-11-22T23:56:57.050Z
+updated: 2024-11-24T19:22:52.427Z
 tags:
   - games
   - tv
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/d5763e8c703a90b60446f4bfe750752cf90d756e0
 ---
 
 ## Farewell to Arcades: Embracing Modern Gaming Techniques, with a Nostalgic Tribute to Classic Controllers
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -29,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/d5763e8c703a90b60446f4bfe750752cf90d756e0
 
 ![A fight stick, a PS5 DualSense controller, and a fightpad.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/img_6322.jpeg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Tim Rattray / How-To Geek
 
  Now that arcades have become largely obsolete, fighting game developers must consider their console players first and foremost. This has led to most modern releases boasting optional simplified control schemes.
@@ -39,11 +47,12 @@ Tim Rattray / How-To Geek
 
 ![A PS5 DualSense controller on a fight stick.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/img_6303.jpeg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Tim Rattray / How-To Geek
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ##  Arcade Sticks Make Fighting Games Feel Unique
 
  Given that I enjoy most video games with a standardized controller in hand, fighting games provide an opportunity to spice up my way of play. Piloting a fight stick brings both tangible and intangible benefits that make it my preferred way to throw fireballs.
@@ -57,8 +66,9 @@ Tim Rattray / How-To Geek
 ![Street Fighter 6 and a fight stick.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/img_6305.jpeg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Tim Rattray / How-To Geek
 
  I didn’t have a chance to partake in arcade culture at its height in the 1990s. As a ’93 baby, it was just before my time. Playing with a fight stick is the closest I can get to experiencing even a sliver of a scene I wish I had been a part of.
@@ -70,8 +80,9 @@ Tim Rattray / How-To Geek
  It’s intangible for sure but it elevates the genre beyond an experience to an event.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Which Controller Is Right for You?
 
  Fighting games have grown in population over the past handful of years due to their increased approachability. As such, many newcomers to the genre are questioning if they should buy a fight stick or stick with what they have.
@@ -98,10 +109,6 @@ Hori Fighting Commander Octa for PlayStation 5
 
 ![Mayflash Arcade Stick F500 V2 with Magic-S Ultimate Wireless Bluetooth USB Adapter.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/img_6298.jpeg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 Tim Rattray / How-To Geek
 
 Mayflash Arcade Stick F500 V2 with Magic-S Ultimate Wireless Bluetooth USB Adapter
@@ -116,15 +123,6 @@ Mayflash Arcade Stick F500 V2 with Magic-S Ultimate Wireless Bluetooth USB Adapt
 
 ![Qanba Obsidian 2 (close-up).](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/img_6312.jpeg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 Tim Rattray / How-To Geek
 
 Qanba Obsidian 2
@@ -135,9 +133,6 @@ Qanba Obsidian 2
 
 ![Hit Box Arcade all-button arcade fight controller.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/hb-banner-6k75-v1603928475374.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 Hit Box
 
 ##  Play How You Want (But Fight Sticks Are Cool)
@@ -152,8 +147,6 @@ Hit Box
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -161,4 +154,17 @@ Hit Box
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-the-insiders-look-at-vidma-screen-recording-for-2024/"><u>[New] The Insider's Look at Vidma Screen Recording for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-discovering-streamer-favorite-live-cam-technology/"><u>[Updated] In 2024, Discovering Streamer-Favorite Live Cam Technology</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-compreenasive-look-the-new-era-of-vr-cams-by-samsung/"><u>2024 Approved Compreenasive Look The New Era of VR Cams by Samsung</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-huawei-nova-y71-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Huawei Nova Y71 to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-screen-mirroring-sync-your-android-with-amazon-fire-tv/"><u>Mastering Screen Mirroring: Sync Your Android with Amazon Fire TV</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-history-panel-expert-tips-for-photoshop-artists/"><u>Navigating the History Panel: Expert Tips for Photoshop Artists</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nintendo-showdown-the-detailed-battle-between-switch-lite-and-switch-oled/"><u>Nintendo Showdown: The Detailed Battle Between Switch Lite and Switch OLED</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-essentials-of-instagram-filters-for-picture-perfection-for-2024/"><u>The Essentials of Instagram Filters for Picture Perfection for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-mighty-and-massive-radpower-radcity-5-plus-a-complete-review/"><u>The Mighty and Massive RadPower RadCity 5 Plus - A Complete Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-power-of-compact-innovation-the-apple-iphone-12-mini-deep-dive/"><u>Unboxing the Power of Compact Innovation: The Apple iPhone 12 Mini Deep Dive</u></a></li>
+</ul></div>
 

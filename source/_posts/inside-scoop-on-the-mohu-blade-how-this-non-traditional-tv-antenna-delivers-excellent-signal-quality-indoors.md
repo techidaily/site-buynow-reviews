@@ -1,7 +1,7 @@
 ---
 title: Inside Scoop on the Mohu Blade – How This Non-Traditional TV Antenna Delivers Excellent Signal Quality Indoors
-date: 2024-11-11T16:12:22.075Z
-updated: 2024-11-15T16:27:51.314Z
+date: 2024-11-18T18:40:22.744Z
+updated: 2024-11-25T01:33:10.819Z
 categories:
   - BestProducts
 description: This Article Describes Inside Scoop on the Mohu Blade – How This Non-Traditional TV Antenna Delivers Excellent Signal Quality Indoors
@@ -21,6 +21,10 @@ thumbnail: https://www.lifewire.com/thmb/VAWXTe9JaW2K7A_aJc7PNoeBY6E=/400x300/fi
 ## ClearStream 2V Indoor/Outdoor HDTV Antenna
 
 ![ClearStream 2V HDTV Antenna](https://www.lifewire.com/thmb/rpogaEx5qG81ylcoefvlfcIwyIw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_HeroSquare-b07d5067648049ecb987e39b62796406.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -45,6 +49,10 @@ Lifewire / Jonno Hill
 ## ClearStream 2V Indoor/Outdoor HDTV Antenna
 
 ![ClearStream 2V HDTV Antenna](https://www.lifewire.com/thmb/q2B57F3c717qLOPlnokMF7al1pA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_HeroSquare-b07d5067648049ecb987e39b62796406.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -71,14 +79,11 @@ Lifewire / Jonno Hill
 
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/vY1j7QoS0FLwOKNhPlSfR3XMlmo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_02-e97897fe03b74f5faa2eefad3b3b7208.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Glimpsing an ugly future**
 
@@ -96,13 +101,6 @@ Lifewire / Jonno Hill
 
  Once the entire device is assembled, the real work begins in my opinion. Now you have to figure out how and where to mount this beast of an antenna. Antenna’s Direct has you covered here, including a hefty bracket and swiveling mast that will help you mount the antenna to just about anywhere with a flat surface that you don’t mind screwing some bolts into.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Top tier**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna might be an unsightly space jail, but it sure gets good reception. I tested the antenna indoors along with the rest of the suite of indoor antennas, and in the same orientation. Perhaps it would have benefited from being placed outside, but in the interest of fairness I used the same method for all.
@@ -112,10 +110,7 @@ Lifewire / Jonno Hill
  In my channel acquisition test, the ClearStream managed 76 channels consistently, far and away the best result from any of the devices I tested. The worst antenna I tested picked up just 47 channels, and the second best, 69\. Needless to say, all the wires, cages, and bulbous plastic spheres are clearly doing something here, because this was the best result I saw.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Range: Extensive**
@@ -142,16 +137,7 @@ Lifewire / Jonno Hill
  The ClearStream 2V Indoor/Outdoor HDTV Antenna isn’t the cheapest or best-looking antenna on the market, but it gets the job done better than any of the other antennas we tested. Buyers who know they need an antenna with better range and performance will find this to be a noticeable bump from cheaper indoor antennas.
 
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -180,19 +166,18 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-elevate-your-youtube-content-with-7-premium-free-audio-sounds/"><u>[New] 2024 Approved Elevate Your YouTube Content With 7 Premium, Free Audio Sounds</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/alternative-film-choices-ranked-7-1/"><u>Alternative Film Choices Ranked #7-1</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/an-insiders-guide-to-flawlessly-integrating-tracks-on-youtube-for-2024/"><u>An Insider's Guide to Flawlessly Integrating Tracks on YouTube for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/durable-and-bright-sunbrite-55/"><u>Durable and Bright SunBrite 55</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-icy-acceleration-olympics-best-from-2022-short-tracks/"><u>In 2024, Icy Acceleration Olympics' Best From 2022 Short Tracks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/omnicharge-omni-20-portable-power-bank-review/"><u>Omnicharge Omni 20 Portable Power Bank Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/reviewing-asuss-rt-ac6-groupu-a-comprehensive-guide-to-lightning-fast-and-robust-5g-wi-fi/"><u>Reviewing Asus's RT-AC6 groUPu: A Comprehensive Guide to Lightning-Fast & Robust 5G Wi-Fi</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/rotibox-wireless-beanie-hat-evaluation-a-perfect-merge-of-cozy-fit-and-superior-audio-performance/"><u>Rotibox Wireless Beanie Hat Evaluation: A Perfect Merge of Cozy Fit and Superior Audio Performance</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/step-by-step-to-maximizing-adobe-storages-and-exploring-more-for-2024/"><u>Step-by-Step to Maximizing Adobe Storages and Exploring More for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-power-of-portability-dive-into-sx740-hs-features/"><u>The Power of Portability: Dive Into SX740 HS Features</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-ipad-applications-for-enhanced-efficiency-streamlining-your-task-management-zdnet-insights/"><u>Top iPad Applications for Enhanced Efficiency: Streamlining Your Task Management | ZDNet Insights</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/top-rated-gaming-audio-equipment-ultimate-picks/"><u>Top Rated Gaming Audio Equipment - Ultimate Picks</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/uncovering-the-value-in-depth-look-at-the-new-generation-totobay-alarm-clock-for-cost-conscious-shoppers/"><u>Uncovering the Value: In-Depth Look at the New Generation Totobay Alarm Clock for Cost-Conscious Shoppers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mlb-the-show-19-where-sports-game-beauty-collides-with-surprising-role-playing-elements-an-in-depth-analysis/"><u>'MLB The Show 19' - Where Sports Game Beauty Collides with Surprising Role-Playing Elements: An In-Depth Analysis</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-virtual-reality-use-in-healthcare/"><u>[New] 2024 Approved Virtual Reality Use in Healthcare</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-a-compreayers-must-have-top-10-free-passport-photo-tools/"><u>[New] A Compreayer's Must-Have Top 10 Free Passport Photo Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-navigating-iphones-voice-memos-with-precision/"><u>[Updated] In 2024, Navigating iPhone's Voice Memos with Precision</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-zenwifi-ax6600-mesh-network-router-comprehensive-review/"><u>ASUS ZenWifi AX6600 Mesh Network Router Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-swagtron-swagboard-t1-affordable-quality-with-exceptional-maneuverability/"><u>Comprehensive Analysis of the Swagtron Swagboard T1 - Affordable Quality with Exceptional Maneuverability</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/easy-guide-removing-apple-music-playlists-on-your-iphone-without-losing-tracks/"><u>Easy Guide: Removing Apple Music Playlists on Your iPhone Without Losing Tracks</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-windows-tenth-casting-challenges-a-comprehensive-guide/"><u>Resolving Windows Tenth Casting Challenges - A Comprehensive Guide</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-honor-play-40c-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-skagen-falster-3-unveiled-combining-timeless-elegance-with-cutting-edge-features-for-tech-enthusiasts/"><u>The Skagen Falster 3 Unveiled: Combining Timeless Elegance with Cutting-Edge Features for Tech Enthusiasts</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-samsung-galaxy-f34-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Samsung Galaxy F34 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-microsoft-surface-keyboard-assessment-exceptional-quality-and-comfort/"><u>Ultimate Microsoft Surface Keyboard Assessment - Exceptional Quality & Comfort</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-cheapest-smartphone-plans-to-get/"><u>Unveiling the Cheapest Smartphone Plans to Get</u></a></li>
 </ul></div>
 

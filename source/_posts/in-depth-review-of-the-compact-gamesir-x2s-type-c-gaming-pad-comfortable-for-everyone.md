@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Review of the Compact GameSir X2s Type-C Gaming Pad: Comfortable for Everyone!"
-date: 2024-08-31T14:56:24.428Z
-updated: 2024-09-01T14:56:24.428Z
+date: 2024-11-21T22:50:18.492Z
+updated: 2024-11-24T19:41:13.462Z
 tags:
   - games
   - tv
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/e8bfc69e4cfa6c5e7699d7a6d6fe4dbd7b3f6ecf3
 ---
 
 ## In-Depth Review of the Compact GameSir X2s Type-C Gaming Pad: Comfortable for Everyone!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -81,9 +85,6 @@ Expand
 
 ![GameSir X2s Type-C gaming controller showing back](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/07/gamesir-x2s-rear.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 Sergio Rodriguez / How-To Geek
 
  If you’re familiar with the Nintendo Switch, then GameSir’s X2s Type-C will look especially familiar. Though GameSir advertises the mobile controller as a call-back to the Nintendo 2DS, it’s definitely a Switch layout, complete with one of my biggest issues with Nintendo’s hybrid handheld.
@@ -94,13 +95,18 @@ Sergio Rodriguez / How-To Geek
 
  Unfortunately, I think GameSir got caught up with making a budget-friendly option without considering what that entails. There’s still no USB-C audio passthrough or 3.5mm jack, a carryover issue from the [X2 controller](https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-g22-phone-pattern-lock-without-factory-reset-by-drfone-android/). You’ll either need a wireless headset or restrict playing in public to avoid annoying all around you. Even when playing in private, mobile phones, like the Google Pixel 8 Pro I tested the X2s with, have decent speakers, but they don’t replace the quality and clarity of a headset.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ###  Flimsy Build with Sturdy, Responsive Inputs
 
 ![GameSir X2s Type-C close up of face buttons](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/07/gamesir-x2s-close-up.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Sergio Rodriguez / How-To Geek
 
  Size aside, the control is a simple, flimsy, lightweight piece of plastic that doesn’t do its buttons any justice. I really expected that the face buttons, triggers, or joysticks would feel loose or wouldn’t register inputs properly, as it felt like GameSir really went low-budget. But they didn't.
@@ -109,12 +115,13 @@ Sergio Rodriguez / How-To Geek
 
  I tested games like “Call of Duty Mobile,” “Brawlhalla,” “Gears 5,” and “Forza Horizon 5,” and I felt the X2s worked well for each of the varying gameplay. The automatic button-mapping for “Call of Duty Mobile” was flawless, and the responsiveness during the chaotic fights of “Brawlhalla” didn’t disappoint. I also didn’t notice any glaring issues with how the controller worked with streaming “Gears 5” and “Forza.”
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  Simplicity With Plenty to Offer
 
 ![GameSir X2s Type-C front view](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/07/gamesir-x2s-type-c-overview.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Sergio Rodriguez / How-To Geek
 
@@ -128,16 +135,10 @@ Close
 
  There are two additional controller modes—DS5 and HiD—but neither seemed to change much, save, maybe, for compatibility. GameSir’s manuals aren’t clear, but both seem to exist to allow the X2s to run games that already have native controller support, with DS5 mode made specifically for the PS5\. In future models, I’d like to see a mobile controller that mimics DualSense’s haptic feedback trigger so you can get the full experience of playing on the console.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ##  Limited Only By Your Gaming Library
 
 ![Falout Shelter running on GameSir X2s Type-C](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/07/gamesirt-x2s-type-c-fallout.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Sergio Rodriguez / How-To Geek
 
  GameSir constantly provides an impressive level of support. On my X2s, I could run Xbox Cloud Gaming, Steam Link, PS Remote Play, and dedicated mobile games seamlessly through the GameSir app. If I had accounts with GeForce NOW and any other cloud streaming service that works with Android devices, I’d have also been able to access them. (This controller works for iPhone emulator apps like Delta too!)
@@ -154,11 +155,12 @@ Sergio Rodriguez / How-To Geek
 
 ![GameSir X2s Type-C](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/gamesir-x2s-type-c.png) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-rec-2024-2000-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #####  GameSir X2s Type-C Controller
 
 8/ 10 
@@ -173,8 +175,6 @@ The GameSir X2s Type-C Mobile Gaming controller works with most USB-C-compatible
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -182,4 +182,26 @@ The GameSir X2s Type-C Mobile Gaming controller works with most USB-C-compatible
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-prime-methods-for-youtube-content-into-mpeg/"><u>[New] Prime Methods for YouTube Content Into MPEG</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-uncovering-snapchats-hidden-symbolism/"><u>[New] Uncovering Snapchat's Hidden Symbolism</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-the-goofy-adventure-a-critical-appraisal-videotape-edition/"><u>[Updated] 2024 Approved 'The Goofy Adventure' - A Critical Appraisal Videotape Edition</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-best-webcams-unveiled-a-youtube-livestreamers-handbook/"><u>[Updated] Best Webcams Unveiled A YouTube Livestreamer's Handbook</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assessing-applecare-plus-5-compelling-justifications-for-add-on-coverage/"><u>Assessing AppleCare Plus: 5 Compelling Justifications for Add-On Coverage</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-finest-in-ear-speakers-of-2024/"><u>Exploring the Finest In-Ear Speakers of 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/guide-to-reconnecting-overcoming-offline-print-spooler/"><u>Guide to Reconnecting: Overcoming Offline Print Spooler</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hidden-gems-in-sound-tech-avantree-aria-headphones/"><u>Hidden Gems in Sound Tech: Avantree Aria Headphones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-the-2020-apple-macbook-pro-with-m1-processor-redefines-performance-13-inch/"><u>How the 2020 Apple MacBook Pro with M1 Processor Redefines Performance (13-Inch)</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-honor-magic-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Honor Magic 5? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-the-path-free-and-safe-vlc-installer-for-macos-users/"><u>In 2024, Navigating the Path Free and Safe VLC Installer for macOS Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-linksys-ea8300-router-examination-optimizing-your-smart-home-network/"><u>In-Depth Linksys EA8300 Router Examination - Optimizing Your Smart Home Network</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/interactive-learning-unleashed-wonder-workshops-dash-rover-a-comprehensive-review/"><u>Interactive Learning Unleashed: Wonder Workshop’s Dash Rover - A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-voice-assistant-gadgets-the-2024-market-roundup/"><u>Leading Voice Assistant Gadgets: The 2024 Market Roundup</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nord-n100-assessment-by-oneplus-top-picks-for-the-thrifty-techie/"><u>Nord N100 Assessment by OnePlus - Top Picks for the Thrifty Techie!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/premier-sound-the-ultimate-wired-earbuds-list/"><u>Premier Sound: The Ultimate Wired Earbuds List</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/spotlight-the-premier-5-online-title-crafters-for-2024/"><u>Spotlight The Premier 5 Online Title Crafters for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/snippets-deciphered-important-facts-for-2024/"><u>Tiny Snippets Deciphered Important Facts for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/top-5-xiaomi-redmi-12-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Xiaomi Redmi 12 Bypass FRP Tools for PC That Actually Work</u></a></li>
+</ul></div>
 

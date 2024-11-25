@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Look at Razer's Book Nano 13: Tiny Tech, Enormous Efficiency"
-date: 2024-11-13T17:03:09.955Z
-updated: 2024-11-15T16:32:07.619Z
+date: 2024-11-20T20:32:02.418Z
+updated: 2024-11-24T16:19:30.625Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Look at Razer's Book Nano 13: Tiny Tech, Enormous Efficiency"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/f567dab373423469fdd9df8f70e7990588879bfed
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## AmazonBasics 7 Port USB 3.0
 
@@ -45,13 +49,6 @@ Lifewire / Jonno Hill
 
 ![AmazonBasics 7 Port USB 3.0](https://www.lifewire.com/thmb/lDufXTneOT2NDnXEOTNXauWZKtU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_HeroSquare-b4652c2651b5474f84409577b3760479.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jonno Hill
 
 [View On Amazon](https://www.amazon.com/dp/B00E6GX4BG?tag=lifewire-onsite-prod-20&ascsubtag=4780163%7Cneec2a39fca3f4c2f831e5cecf504762c08%7C)
@@ -77,6 +74,10 @@ Lifewire / Jonno Hill
 
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/wXgyw4YH3MYx3AO1YEPSdvla-IQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_02-d9ec8728693e42e9b7ca7d3108d37ba6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 ## **Design: A clean look, with some awkward ports**
@@ -93,14 +94,11 @@ Lifewire / Jonno Hill
 
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/-6zArDEXr2_gqDvtkeqZAbTQKiQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_05-c3e5d946a7e84b6cb1b395cff1103e42.jpg)
 
- Lifewire / Jonno Hill
-
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Jonno Hill
 
 ## **Setup Process: No trouble at all**
 
@@ -109,16 +107,7 @@ Lifewire / Jonno Hill
  The AmazonBasics 7 Port USB 3.0 Hub is an otherwise capable device that is unfortunately marred by quality control issues and cheap construction.
 
 <!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Connectivity: A sufficient number of options**
@@ -129,21 +118,7 @@ Lifewire / Jonno Hill
 
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/Ep4bZmgChjDyFofASwezrrPrDYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_04-e00baf7ec07a4762bf437cde18e2b4de.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Just what you’d expect**
 
@@ -158,6 +133,10 @@ Lifewire / Jonno Hill
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/AnTpc7CmLFfbEILGIFkFiA9Ur2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_03-063f9486bd7045c18c0643276029f85e.jpg)
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **AmazonBasics 7 Port USB 3.0 Hub vs. Aukey USB Hub 3.0**
 
@@ -200,18 +179,18 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-dialing-up-deliverables-a-comprehensive-guide-to-gainful-vlogging/"><u>[Updated] 2024 Approved Dialing Up Deliverables A Comprehensive Guide to Gainful Vlogging</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-augment-canon-imagery-unlimited-freebies-and-customized-purchases/"><u>[Updated] Augment Canon Imagery Unlimited Freebies & Customized Purchases</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-unwind-and-learn-your-guide-to-podcasting-multitasking/"><u>2024 Approved Unwind and Learn Your Guide to Podcasting Multitasking</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-discover-the-power-and-reliability-of-fujitsus-scansnap-ix1600-desktop-unit/"><u>Expert Review: Discover the Power and Reliability of Fujitsu's ScanSnap iX1600 Desktop Unit</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/futureproof-your-sketches-with-our-curated-list-of-elite-drawing-devices/"><u>Futureproof Your Sketches with Our Curated List of Elite Drawing Devices</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-google-pixel-fold-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Google Pixel Fold Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/less-than-150-bucks-experience-non-stop-karaoke-fun-with-karaoke-usa/"><u>Less than 150 Bucks? Experience Non-Stop Karaoke Fun with Karaoke USA!</u></a></li>
-<li><a href="https://program-issues.techidaily.com/mastering-ark-survival-ascended-on-pc-avoid-the-crashes-with-our-9-expert-tips/"><u>Mastering ARK: Survival Ascended on PC - Avoid the Crashes with Our 9 Expert Tips</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/noise-cancelling-necessities-apple-vs-samsung-hearing-device-showdown/"><u>Noise Cancelling Necessities: Apple Vs. Samsung Hearing Device Showdown</u></a></li>
-<li><a href="https://fox-access.techidaily.com/perfectiphone-podcast-guide-seamlessly-download-from-anywhere/"><u>PerfectiPhone Podcast Guide – Seamlessly Download From Anywhere</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/quick-guide-to-lol-gaming-broadcasts-3-methods/"><u>Quick Guide to LOL Gaming Broadcasts (3 Methods)</u></a></li>
-<li><a href="https://article-helps.techidaily.com/sound-enriched-photography-web-presence/"><u>Sound-Enriched Photography Web Presence</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-choosing-a-mesh-router-how-netgeer-orbi-takes-the-lead-in-quality-and-connectivity/"><u>The Ultimate Guide to Choosing a Mesh Router: How Netgeer Orbi Takes the Lead in Quality and Connectivity</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-download-and-installation-made-easy-for-ez-grabber-users/"><u>[Updated] In 2024, Download and Installation Made Easy for EZ Grabber Users</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-becoming-a-star-spectator-on-the-social-stage/"><u>2024 Approved Becoming a Star Spectator on the Social Stage</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-realtime-recording-titans/"><u>2024 Approved RealTime Recording Titans</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/combat-fuzzy-visuals-facebook-videos-tips-and-tricks-for-2024/"><u>Combat Fuzzy Visuals Facebook Videos Tips & Tricks for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-elite-ergonomic-wrist-rest-solutions-for-optimal-typing/"><u>Discover Elite Ergonomic Wrist Rest Solutions for Optimal Typing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/get-familiar-with-modern-mobility-try-out-the-intuitive-interface-of-mods-folding-scooter-bike/"><u>Get Familiar with Modern Mobility: Try Out the Intuitive Interface of Mod's Folding Scooter Bike</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Lava Blaze Curve 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-vivo-y100a-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Vivo Y100A Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-garmin-venu-the-all-in-one-fitness-tracker-and-health-companion/"><u>In-Depth Analysis of the Garmin Venu: The All-in-One Fitness Tracker and Health Companion</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-the-basics-a-user-friendly-process-of-reinitializing-your-samsung-televisual-equipment/"><u>Mastering the Basics: A User-Friendly Process of Reinitializing Your Samsung Televisual Equipment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ratchet-and-clank-reimagined-a-tribute-to-a-beloved-gaming-icon/"><u>Ratchet and Clank Reimagined: A Tribute to a Beloved Gaming Icon</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/skyrocketing-view-figures-by-sustaining-youtubes-creative-commons-license-for-2024/"><u>Skyrocketing View Figures by Sustaining YouTube's Creative Commons License for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-reveal-of-the-dell-alienware-aurora-r9-redefining-future-of-gaming-pcs-with-innovative-style/"><u>Ultimate Reveal of the Dell Alienware Aurora R9 - Redefining Future of Gaming PCs with Innovative Style</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Small but Mighty: In-Depth Look at the New Echo Dot (Gen 3) Showcasing Full Alexa Functionality"
-date: 2024-11-09T16:13:09.870Z
-updated: 2024-11-15T16:52:45.810Z
+date: 2024-11-18T17:40:01.834Z
+updated: 2024-11-24T16:11:43.384Z
 categories:
   - BestProducts
 description: "This Article Describes Small but Mighty: In-Depth Look at the New Echo Dot (Gen 3) Showcasing Full Alexa Functionality"
@@ -42,6 +42,10 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
 
 4
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Beantech Bitwatch S1 Plus
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/RIxQYWLMnyHkO9IcguCoRX11EbY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
@@ -70,16 +74,7 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/8rMhc1Lk5yFRFW4Zlt2K9cmPdFo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-4-01d7e5ff51aa47008d803513064f4a7a.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -94,13 +89,6 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
 
  While it doesn’t have[NFC](https://www.lifewire.com/what-is-nfc-832715) or GPS, it does have a speaker, and you can send basic messages with the watch. The Bitwatch S1 is surprisingly robust for those who want to dip their toes into the smartwatch experience, with many of the features that mid-tier smartwatches possess.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Easy, but unexplained**
 
  Setting up the Bitwatch works as you’d expect. Pair it via the Bluetooth on your phone and download the Beantech app. It works with both Android and iOS, so you should have no difficulty. Alerts will show up in the remote notifier app, and apps such as the calendar are not synced with your phone’s calendar apps, so keep that in mind if you’d like to add any events, notifications, or alarms to your watch.
@@ -108,6 +96,10 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/O7xHfA9sKsBdC0nmqNXbFky-Dm4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-2-3b838f1124184bbd9452b79bb8449c2b.jpg)
 
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: You get what you pay for**
 
@@ -121,13 +113,6 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/7GtX2IU-w4sJA-BTqQtHQThxaJo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-3-ade31135cd9d4fe0b6b01286941d2652.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
 
 ## **Battery: It last longer than most flagship smartwatches**
@@ -139,6 +124,10 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
  The Bitwatch costs about $50, which is reasonable for its features and performance. You get reliable notifications and a passable heart rate monitor, as well as some basic functions like alarms and a speaker. If you want a cheap smartwatch, then the Bitwatch isn’t a bad pick, but $30 more can get you GPS and smarter notifications. If you are after a solid fitness tracker, both Garmin and[Fitbit](https://www.lifewire.com/what-is-fitbit-4176010) have[fantastic wearables](https://www.lifewire.com/phone-accessory-reviews-4102587) for under $100.
 
  The Beantech Bitwatch is not a groundbreaking smartwatch, but it provides a lot of essential features for $50.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: If you want more, it will cost more**
 
@@ -153,10 +142,7 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
  The Beantech Bitwatch is not a groundbreaking smartwatch, but it provides a lot of essential features for $50\. If you’re looking to try out smartwatches, the Bitwatch will give you a solid battery life, music storage, passive notifications, phone call management, and a very large touchscreen.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -188,19 +174,21 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/updated-dynamic-duo-image-taker-plus-melody-recorders/"><u>[Updated] Dynamic Duo Image Taker + Melody Recorders</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-the-fiscal-footprint-of-a-gigantism-icon/"><u>2024 Approved The Fiscal Footprint of a Gigantism Icon</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/avoid-website-errors-with-preview-features-how-and-why-to-use-them/"><u>Avoid Website Errors with Preview Features - How and Why to Use Them</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/choosing-between-iphones-a-detailed-comparison-of-iphone-15-pro-and-pro-max-features/"><u>Choosing Between iPhones: A Detailed Comparison of iPhone 15 Pro and Pro Max Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-the-updated-dji-phantom-2-how-close-is-it-to-flawless-flight/"><u>Comprehensive Evaluation of the Updated DJI Phantom ^2 - How Close Is It to Flawless Flight?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/economical-dream-tv-mounting-solution-md2380-review/"><u>Economical Dream TV Mounting Solution - MD2380 Review</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ng-the-perfect-pair-matching-mics-with-every-type-of-youtubers-style/"><u>Finding the Perfect Pair Matching Mics with Every Type of YouTuber's Style</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-nokia-g42-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Nokia G42 5G Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/how-to-measure-the-performance-of-igtv-videos-in-2024/"><u>How to Measure the Performance of IGTV Videos, In 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-photos-from-honor-100-pro-by-fonelab-android-recover-photos/"><u>How to Rescue Lost Photos from Honor 100 Pro?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-realme-v30-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Realme V30 to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-of-ddpai-mini3-dashcam-a-unique-twist-on-the-standard-drive-recording-device/"><u>Review of DDPai Mini3 Dashcam - A Unique Twist on the Standard Drive Recording Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-verdict-ranking-the-best-smart-doorbells-featuring-the-ring-2/"><u>The Ultimate Verdict: Ranking the Best Smart Doorbells, Featuring the Ring 2</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-failed-email-reception-on-yahoo-mail/"><u>Troubleshooting Failed Email Reception on Yahoo Mail</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-expert-tips-to-enhance-your-live-fb-broadcast-quality-pcmac/"><u>[New] Expert Tips to Enhance Your Live FB Broadcast Quality (PC/Mac)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-digital-draw-dance-windows-and-mac-cartoony-creators-guide/"><u>[Updated] 2024 Approved Digital Draw-Dance Windows & Mac Cartoony Creator's Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-story-stream-sequencer-app/"><u>[Updated] Story Stream Sequencer App</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-htc-u23-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on HTC U23 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/docooler-usb-20-with-impressive-12mp-an-honest-assessment-and-camera-review/"><u>Docooler USB 2.0 with Impressive 12MP - An Honest Assessment and Camera Review</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/elevate-your-websites-performance-using-cookiebot-integration/"><u>Elevate Your Website's Performance Using Cookiebot Integration</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-performance-of-a-google-wireless-nest-doorbell-for-home-security/"><u>Evaluating the Performance of a Google Wireless Nest Doorbell for Home Security</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-canonicals-secret-agenda-gave-rise-to-ubuntu-in-elite-dell-laptops-decoding-project-sputnik-a-deep-dive-report-from-zdnet/"><u>How Canonical's Secret Agenda Gave Rise to Ubuntu in Elite Dell Laptops: Decoding 'Project Sputnik' | A Deep-Dive Report From ZDNET</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-motorola-mg7700-unwavering-speed-and-stability/"><u>In-Depth Analysis of Motorola MG7700: Unwavering Speed & Stability</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/m3-macbook-air-top-benefits-justifying-purchase/"><u>M3 MacBook Air: Top Benefits Justifying Purchase</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-complete-review-on-bouncies-driving-connection-your-answer-to-inexpensive-straightforward-gps-tracking/"><u>The Complete Review on Bouncie’s Driving Connection: Your Answer to Inexpensive, Straightforward GPS Tracking!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-active-wearable-in-depth-review-of-garmins-stylish-vivomove-hr-for-everyday-wellness/"><u>The Ultimate Active Wearable: In-Depth Review of Garmin's Stylish Vivomove HR for Everyday Wellness</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/transfer-your-apple-iphone-12-apps-to-new-iphone-drfone-by-drfone-transfer-from-ios/"><u>Transfer your Apple iPhone 12 Apps to New iPhone | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/update-your-intel-graphics-and-chipset-drivers-where-to-start/"><u>Update Your Intel Graphics and Chipset Drivers – Where to Start?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/viber-out-review/"><u>Viber Out Review</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-poco-c65-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Poco C65 | Dr.fone</u></a></li>
 </ul></div>
 
