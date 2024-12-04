@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Review of the Portable and Economical Samsung Galaxy S10e - Quality Meets Value
-date: 2024-11-09T16:22:18.500Z
-updated: 2024-11-15T16:51:44.410Z
+date: 2024-11-29T21:03:22.605Z
+updated: 2024-12-03T20:45:22.543Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Review of the Portable and Economical Samsung Galaxy S10e - Quality Meets Value
@@ -18,9 +18,17 @@ thumbnail: https://www.lifewire.com/thmb/KF5dSQ8koiPEGwpfXXSOE5SZJXM=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/6eJwPC0xPwMxCh4aQhG73X9dkzU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -41,6 +49,10 @@ Lifewire / Erika Rawes
 [View On Walmart $29](https://www.walmart.com/ip/612208092)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Antop AT-127
 
@@ -79,13 +91,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: Easier than most**
 
  Setting up the antenna is relatively intuitive. You just connect the antenna to the coaxial/antenna-in connection on your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) . The antenna has an easy-push connector, instead of a connector you have to twist onto the threading. This makes for easier setup because you don’t have to struggle behind your TV with trying to screw on the[coaxial cable](https://www.lifewire.com/coaxial-vs-optical-digital-cable-3134605) .
@@ -104,6 +109,10 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Range: Could be better**
 
  My test home is in a rural area, and there’s a lot of tree cover on the property. The omnidirectional Antop AT-127 has a 40-mile range, which was enough to pick up local channels from neighboring cities.
@@ -112,13 +121,6 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
@@ -126,20 +128,10 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -182,20 +174,16 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-joyous-film-grabber-assessment-for-2024/"><u>[Updated] Joyous Film Grabber Assessment for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-look-at-the-sony-playstation-5s-enhanced-capabilities/"><u>Comprehensive Look at the Sony PlayStation 5'S Enhanced Capabilities</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/critical-review-unveiling-the-intelligent-design-and-powerful-features-of-the-samsung-galaxy-watch/"><u>Critical Review: Unveiling the Intelligent Design and Powerful Features of the Samsung Galaxy Watch</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-xiaomi-14-ultra-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Xiaomi 14 Ultra.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-lamicall-table-stand-crafted-for-optimal-usefulness/"><u>Expert Analysis of Lamicall Table Stand: Crafted for Optimal Usefulness</u></a></li>
-<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-tecno-pova-5-pro-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Tecno Pova 5 Pro Phone | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-perfecting-your-podcast-entry-in-apples-catalog/"><u>In 2024, Perfecting Your Podcast Entry in Apple's Catalog</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On OnePlus Nord N30 SE? | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-revolutionize-your-posts-best-igtv-edits-unveiled/"><u>In 2024, Revolutionize Your Posts Best IGTV Edits Unveiled</u></a></li>
-<li><a href="https://win-blog.techidaily.com/solve-your-game-launching-problems-with-this-guide-for-persona-3-farewell-ruins/"><u>Solve Your Game-Launching Problems with This Guide for Persona 3 Farewell Ruins!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sonys-next-gen-console-unveiled-the-playstation-5-revolution-explained/"><u>Sony's Next-Gen Console Unveiled: The PlayStation 5 Revolution Explained</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/streamlined-pet-care-using-arfs-innovative-auto-feeding-device/"><u>Streamlined Pet Care Using Arf's Innovative Auto-Feeding Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-portable-gaming-systems-in-2n24/"><u>Top-Rated Portable Gaming Systems in 2N24</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-titan-tags-the-list-that-elevates-your-youtube-shorts-to-fame-for-2024/"><u>Trend Titan Tags The List That Elevates Your YouTube Shorts to Fame for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-oneplus-12r-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-understanding-the-basics-of-audio-crossfading/"><u>[Updated] In 2024, Understanding the Basics of Audio Crossfading</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-superior-extra-memory-solution-for-sony-a7c/"><u>[Updated] Superior Extra Memory Solution for Sony A7C</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-quell-the-quake-techniques-to-smooth-out-gopro-footage/"><u>In 2024, Quell the Quake Techniques to Smooth Out GoPro Footage</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-transferring-tracks-a-guide-to-offline-youtube-for-ios-users/"><u>In 2024, Transferring Tracks A Guide to Offline YouTube for iOS Users</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-the-following-are-the-top-10-media-players-with-the-slow-motion-feature-to-give-an-astonishing-experience-to-you-while-you-are-viewing-you/"><u>New 2024 Approved The Following Are the Top 10 Media Players with the Slow Motion Feature to Give an Astonishing Experience to You While You Are Viewing Your Most Loved Video</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-samsung-galaxy-a51-5g-a-perfect-blend-of-performance-and-price/"><u>The Ultimate Review of Samsung Galaxy A51 5G - A Perfect Blend of Performance and Price</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-tiny-and-travelling-tp-link-wireless-ac-router-wr90-2ac-model/"><u>The Ultimate Tiny and Travelling TP-Link Wireless AC Router - WR90 2AC Model</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-cable-modem-and-router-bundles-your-ultimate-guide/"><u>Top-Rated Cable Modem & Router Bundles : Your Ultimate Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transforming-audio-experiences-a-comprehensive-review-of-the-latest-generation-echo-speaker/"><u>Transforming Audio Experiences: A Comprehensive Review of the Latest Generation Echo Speaker</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-alienware-aurora-r7-a-comprehensive-review-of-value-and-strength/"><u>Unveiling the Alienware Aurora R7: A Comprehensive Review of Value and Strength</u></a></li>
 </ul></div>
 

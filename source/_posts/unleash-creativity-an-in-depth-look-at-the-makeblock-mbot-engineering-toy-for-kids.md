@@ -1,7 +1,7 @@
 ---
 title: "Unleash Creativity: An In-Depth Look at the Makeblock mBot Engineering Toy for Kids"
-date: 2024-11-14T16:43:32.735Z
-updated: 2024-11-15T16:28:54.007Z
+date: 2024-11-30T05:30:20.491Z
+updated: 2024-12-03T20:19:21.352Z
 categories:
   - BestProducts
 description: "This Article Describes Unleash Creativity: An In-Depth Look at the Makeblock mBot Engineering Toy for Kids"
@@ -46,6 +46,10 @@ Lifewire / Yoona Wagener
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/A_Lpmewuqg5_v_xhsfuydQ5zl6E=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_HeroSquare-067af9089d9c4269979450e8963726c9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
 [View On Amazon $129](https://www.amazon.com/dp/B07W6V2RNK/?tag=lifewire-onsite-prod-20&ascsubtag=5120854%7Cn90dfc71ee24a4976b5267b7ff579808b08%7CB07W6V2RNK) [View On Walmart $134](https://www.walmart.com/ip/287424959) [View On Best Buy $61](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6397098.p)
@@ -82,22 +86,12 @@ _We purchased the Amazfit GTS_   _so our reviewer could put it to the test. Keep
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/hMe1Ur0Wtt9LDIiSfC3zvE_5G7E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_02-0b1e98c2de40486b9fea116eb28ccd3c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Yoona Wagener
 
  I was unable to test this device’s 50-meter water resistance for swimming or other aquatic workouts, but I did wear it in the shower without experiencing any issue. The manufacturer does note, however, that this wearable isn’t safe for hot showers or other water sports such as scuba diving, diving, and high-speed water sports, generally.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Comfort: Easy to wear but not as user-friendly
@@ -130,6 +124,10 @@ Lifewire / Yoona Wagener
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/lrymbZEsmkXZy1YnjpGE5QutCbA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_04-109baf1e43444eff9789d9c02e2b2e77.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
  While sleep data is elaborate, it’s presented in a way that requires a lot of scrolling or tapping back and forth across screens. For that reason, I never felt like I received a concise tip for bettering or understanding my sleep habits, which made the data feel a little too overwhelming and repetitive to make it approachable. This is an issue I had with referring to the app for any supplementary information.
@@ -150,6 +148,10 @@ Lifewire / Yoona Wagener
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/hqD81eq-Q8n6BPE_n48M4SpkIRA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_03-97749edaabac498bb95b0f8a9f569f0a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
  Certain data points such as PAI, like other areas of the Zepp app, are backed by scientific citations and explanations of importance, but there’s just too much text to make any of it digestible or glanceable.
@@ -157,10 +159,7 @@ Lifewire / Yoona Wagener
  While I gathered that a PAI of 100 seemed to be ideal for cardiovascular health, the app further complicated things by suggesting, for example, a 120-minute indoor workout to gain 15 PAI. It was difficult to grasp why that would be worth it or realistic, and like many areas of the software, it felt more flashy and underdeveloped than insightful.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Battery: Solid but considerably shy of the 14-day claim
@@ -168,13 +167,6 @@ Lifewire / Yoona Wagener
  The manufacturer bills the battery longevity at an impressive 14 days with typical usage in smartwatch mode, which includes continuous heart rate and sleep monitoring and logging workouts three times a week.
 
  That’s pretty much the way I used this device, though with maybe an extra workout or two and with the display in always-on mode, and the battery drained by day seven. On the bright side, it recharged quickly in less than the manufacturer’s 2-hour estimate. Amazfit also claims that the battery can last up to 46 days in basic mode without Bluetooth or heart-rate monitoring turned on.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Price: Slightly pricey for what it is
 
@@ -194,18 +186,15 @@ Lifewire / Yoona Wagener
 
  The Amazfit GTS is comfortable and stylish and performs the basic fitness tracking tasks relatively well, but the confusing ecosystem diminishes the polish. If you love the look of the Apple Watch, this is a budget-friendly look-alike. But if you want a strong balance between performance and looks, the Amazfit GTS may not deliver.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Apple Watch SE](https://www.lifewire.com/apple-watch-se-review-5088223)
 * [Fitbit Sense](https://www.lifewire.com/fitbit-sense-review-5085832)
 * [Garmin Vivomove HR](https://www.lifewire.com/garmin-vivomove-hr-review-4843913)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -238,22 +227,18 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-ultimate-checklist-for-efficiently-uploading-tracks-on-youtube/"><u>[New] 2024 Approved The Ultimate Checklist for Efficiently Uploading Tracks on YouTube</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-beyond-gaming-vr-uses/"><u>[New] Beyond Gaming VR Uses</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-vllevaluation-insight-into-app-quality/"><u>[Updated] In 2024, VLLEvaluation Insight Into App Quality</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-vrs-current-creative-conundrum-latest-insights/"><u>[Updated] In 2024, VR's Current Creative Conundrum - Latest Insights</u></a></li>
-<li><a href="https://article-helps.techidaily.com/capturing-photos-from-moving-frames-on-windows-11/"><u>Capturing Photos From Moving Frames on Windows 11</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-radpower-radcity-5-plus-bike-assessment-strengths-and-weights/"><u>Comprehensive RadPower RadCity 5 Plus Bike Assessment: Strengths and Weights</u></a></li>
-<li><a href="https://article-posts.techidaily.com/crafting-podcast-descriptions-that-stick-strategies-and-samples-for-2024/"><u>Crafting Podcast Descriptions That Stick Strategies and Samples for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dell-inspiron-3671-desktop-analysis-an-unpretentious-midrange-computer-system-overview/"><u>Dell Inspiron 3671 Desktop Analysis: An Unpretentious Midrange Computer System Overview</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/durability-and-ease-with-ergoheads-anti-fatigue-mats-an-in-depth-review/"><u>Durability and Ease with ErgoHead's Anti-Fatigue Mats - An In-Depth Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/glion-dolly-electric-scooter-overview-premium-pricing-stylish-design-and-acceleration-insights/"><u>Glion Dolly Electric Scooter Overview - Premium Pricing, Stylish Design & Acceleration Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-the-hisense-40-inch-h5590f-set-redefines-affordable-smart-viewing-experience/"><u>How the Hisense 40-Inch H5590F Set Redefines Affordable Smart Viewing Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/introducing-the-hp-stream-11-ultimate-compact-laptop-for-essential-tasks/"><u>Introducing the HP Stream 11: Ultimate Compact Laptop for Essential Tasks</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-top-10-free-video-rotators-to-rotateflip-videos-for-2024/"><u>New Top 10 Free Video Rotators to Rotate/Flip Videos for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/portable-energy-revolutionized-expert-insight-on-the-acclaimed-maxoak-battery-unit/"><u>Portable Energy Revolutionized: Expert Insight on the Acclaimed MaxOak Battery Unit</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-hp-chromebook-11-ideal-for-learning-working-and-leisure-activities/"><u>The Ultimate Guide to the HP Chromebook 11: Ideal for Learning, Working & Leisure Activities</u></a></li>
-<li><a href="https://win-special.techidaily.com/top-ranked-open-source-vm-hosting-solutions-how-to-select-the-right-one-for-you/"><u>Top Ranked Open-Source VM Hosting Solutions: How To Select the Right One For You</u></a></li>
-<li><a href="https://article-tips.techidaily.com/upgrading-made-simple-a-compreomedmacsierra-guide-for-2024/"><u>Upgrading Made Simple A CompreomedmacSierra Guide for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-video-ranking-rise-must-have-youtube-seo-aids/"><u>[New] In 2024, Video Ranking Rise – Must-Have YouTube SEO Aids</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-ultimate-viewing-experience-insights-on-eizos-4kcg318/"><u>[Updated] The Ultimate Viewing Experience – Insights on EIZO’s 4KCG318</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/4g-lte-connectivity-on-mobvoi-ticwatch-pro-a-comprehensive-review/"><u>4G LTE Connectivity on Mobvoi Ticwatch Pro - A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-competitive-edge-and-engaging-content-in-nhl-19s-online-game-mode/"><u>A Closer Look at Competitive Edge and Engaging Content in NHL '19'S Online Game Mode</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/advanced-manfrotto-befree-aluminum-photography-essential/"><u>Advanced Manfrotto Befree Aluminum: Photography Essential</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-nokia-71-impressive-display-and-camera-performance/"><u>Affordable Nokia 7.1 - Impressive Display & Camera Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-portable-gaming-with-the-nintendo-switch-lite-an-in-depth-console-analysis/"><u>Affordable Portable Gaming with the Nintendo Switch Lite: An In-Depth Console Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-predatory-fun-holy-stone-hs170-reconnaissance-mini-rc-helicopter-in-depth-analysis/"><u>Affordable Predatory Fun: Holy Stone HS170 Reconnaissance Mini RC Helicopter - In-Depth Analysis</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/converti-file-flac-in-mpg-veloce-e-facile-con-il-converter-on-line-di-movavi/"><u>Converti File Flac in Mpg Veloce E Facile Con Il Converter On-Line Di Movavi</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-how-natural-language-processing-differs-from-machine-learning/"><u>Exploring How Natural Language Processing Differs From Machine Learning</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-can-i-amplify-my-notebooks-functionality-with-new-ram/"><u>How Can I Amplify My Notebook’s Functionality with New RAM?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/social-media-strategy-broadcasting-twitch-to-facebook/"><u>Social Media Strategy Broadcasting Twitch to Facebook</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-the-ultimate-guide-to-creating-viral-reaction-videos-with-filmora-for-2024/"><u>Updated The Ultimate Guide to Creating Viral Reaction Videos with Filmora for 2024</u></a></li>
 </ul></div>
 

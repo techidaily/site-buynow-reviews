@@ -1,7 +1,7 @@
 ---
 title: Pinpoint Precision Meets Durability in Sabrent's Travel-Friendly Wired Gaming Mouse
-date: 2024-11-20T01:17:20.864Z
-updated: 2024-11-24T20:28:50.970Z
+date: 2024-12-02T18:25:40.962Z
+updated: 2024-12-04T01:05:24.088Z
 categories:
   - BestProducts
 description: This Article Describes Pinpoint Precision Meets Durability in Sabrent's Travel-Friendly Wired Gaming Mouse
@@ -17,6 +17,10 @@ thumbnail: https://www.lifewire.com/thmb/-_iV1Mooi46f-WT6ARwL2rf_pgY=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Sabrent Mini Travel USB Optical Mouse
 
@@ -42,10 +46,6 @@ Lifewire / Rebecca Isaacs
 [View On Amazon $6](https://www.amazon.com/dp/B01MSJPX06/?tag=lifewire-onsite-prod-20&ascsubtag=4799034%7Cn6493c6f4bf4b471ba05fab7dd162554120%7CB01MSJPX06)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Sabrent Mini Travel USB Optical Mouse
 
@@ -82,6 +82,10 @@ Lifewire / Rebecca Isaacs
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/E-UHv94vEiLyLkgwTG1qIFE6uvQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_04-76e4b475ca3f4449a746c22f3713f784.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
  The cable’s addition increases the size of the mouse, bringing the total measurements to 6.44 x 1.5x 2.44 inches (LWH). The Sabrent also comes with a mesh carrying bag, making it easy to pack up and take on the go without scratching it. One more perk: this mouse is adaptable to most[Windows](https://www.lifewire.com/windows-4781566) ,[Mac](https://www.lifewire.com/mac-backup-software-hardware-and-guides-2260931) , and[Linux](https://www.lifewire.com/software-and-apps-4781541) systems, so you can insert it into USB ports across multiple machines for fast use.
@@ -93,7 +97,7 @@ Lifewire / Rebecca Isaacs
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/mM3uSf3Y2pyayDyWJzP8_5uUya4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_05-04e025144b514674b109e77f79129d74.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -115,7 +119,7 @@ Lifewire / Rebecca Isaacs
  The cable length left something to be desired in a work PC, however. At 25 inches, it sounds like a dream come true, however, testing it on a standing desk where the PC tower is located further away from the keyboard and mouse we realized there was a problem. The length cable prevented us from shifting our grip on the mouse, and the tugging was a frustrating physical constraint. Laptop users won’t even notice the cable, but PC users may want to look for something a little more wireless.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Comfort: Too small**
@@ -124,11 +128,11 @@ Lifewire / Rebecca Isaacs
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/h8ibsbPtDqgJOD0XgpZSD6FOXUU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_02-1331828bbc3f460baebd85cbd24d61e2.jpg)
 
- Lifewire / Rebecca Isaacs
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Rebecca Isaacs
 
 ## **Price: Reasonable**
 
@@ -147,10 +151,6 @@ Lifewire / Rebecca Isaacs
 **A solid, cost-conscious travel mouse.**
 
  While we constantly had to shift our grip on the tiny Sabrent mouse, we really liked its portability and fast, accurate movements. The cable proved to be difficult for desktop use, however, laptop users will enjoy the speeds that accompany the wired cable.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -179,17 +179,18 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://driver-error.techidaily.com/corrected-system-recovery-from-initial-boot-failure/"><u>[CORRECTED] System Recovery From Initial Boot Failure</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-logo-innovations-branding-your-podcast-visually/"><u>[New] Logo Innovations Branding Your Podcast Visually</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-fading-frequencies-the-gentle-way-with-garageband/"><u>2024 Approved Fading Frequencies The Gentle Way with Garageband</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-thrifty-tips-for-hosting-webinars-on-youtube/"><u>2024 Approved Thrifty Tips for Hosting Webinars on YouTube</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-firsthand-look-at-the-revolutionary-cycwagen-electric-cargo-bike/"><u>A Firsthand Look at the Revolutionary CycWagen Electric Cargo Bike</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-and-highly-functional-the-ambient-weather-ws-2902a-osprey-review/"><u>Affordable and Highly Functional - The Ambient Weather WS-2902A (Osprey) Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/back-in-action-a-comprehveiw-and-critique-of-fortnites-exciting-fresh-season/"><u>Back in Action: A Comprehveiw and Critique of Fortnite's Exciting, Fresh Season</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/barnes-and-noble-nook-glowlight-plus-a-comprehensive-review-of-the-biggest-e-reader/"><u>Barnes & Noble Nook GlowLight Plus - A Comprehensive Review of the Biggest E-Reader</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-assessment-of-kooteks-multipurpose-computer-cooler/"><u>Comprehensive Assessment of Kootek's Multipurpose Computer Cooler</u></a></li>
-<li><a href="https://fox-that.techidaily.com/fixing-wi-fi-connection-issues-top-8-solutions-for-iphone-and-ipad/"><u>Fixing Wi-Fi Connection Issues: Top 8 Solutions for iPhone and iPad</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/and-paid-video-game-opening-mastery-rank-the-best-of-yt-makers-for-2024/"><u>Free & Paid Video Game Opening Mastery Rank the Best of YT Makers for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/nail-the-art-of-time-lapses-with-your-gopro-hero5-black/"><u>Nail the Art of Time-Lapses with Your GoPro Hero5 Black</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-boosting-revenue-with-the-perfect-youtube-trailer-strategy/"><u>[Updated] In 2024, Boosting Revenue with the Perfect YouTube Trailer Strategy</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-bridging-platforms-the-instagram-and-tiktok-guide/"><u>2024 Approved Bridging Platforms The Instagram & TikTok Guide</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-unleashing-potential-essential-win11-tools/"><u>2024 Approved Unleashing Potential Essential Win11 Tools</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/buying-a-new-phone-iphone-vs-samsung-which-brand-wins-the-battle/"><u>Buying a New Phone : IPhone Vs. Samsung - Which Brand Wins the Battle?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-assessment-of-the-amazonbasics-7-port-usb-30-connectivity-solution/"><u>Comprehensive Assessment of the AmazonBasics 7-Port USB 3.0 Connectivity Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-apcs-back-ups-pro-1500va-high-performance-multiple-sockets-and-hot-swap-battery-technology/"><u>Comprehensive Review of APC's Back-UPS Pro 1500VA - High Performance, Multiple Sockets & Hot-Swap Battery Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-apple-watch-series-6-incremental-updates-preserving-premium-status/"><u>Comprehensive Review of Apple Watch Series 6: Incremental Updates Preserving Premium Status</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/connectivity-and-chirps-for-the-price-of-20/"><u>Connectivity and Chirps for the Price of $20</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/cookiebot-fueled-success-enhancing-your-websites-performance/"><u>Cookiebot-Fueled Success: Enhancing Your Website's Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/decoding-the-cost-benefit-of-subscribing-to-netflix/"><u>Decoding the Cost-Benefit of Subscribing to Netflix</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-realme-v30withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Realme V30with/without a PC</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-hidefake-snapchat-location-on-your-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Xiaomi 13 Ultra | Dr.fone</u></a></li>
 </ul></div>
 

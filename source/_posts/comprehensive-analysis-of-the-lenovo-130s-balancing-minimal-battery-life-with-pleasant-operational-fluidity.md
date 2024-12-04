@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Analysis of the Lenovo 130S: Balancing Minimal Battery Life with Pleasant Operational Fluidity"
-date: 2024-11-09T16:08:13.171Z
-updated: 2024-11-15T17:13:53.024Z
+date: 2024-12-01T05:33:04.373Z
+updated: 2024-12-04T01:36:40.541Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Analysis of the Lenovo 130S: Balancing Minimal Battery Life with Pleasant Operational Fluidity"
@@ -18,9 +18,17 @@ thumbnail: https://thmb.techidaily.com/acf475c1e6fd1567e7a4a77c00bb440d7e3dd85bc
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Sabrent Mini Travel USB Optical Mouse
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/NHk2GXtdpeJT9sEET7cl5b3Coq0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_HeroSquare-6ae9d6d299054d748f84492b5c31f033.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -48,10 +56,7 @@ Lifewire / Rebecca Isaacs
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/XBAevViAWBKn-uqOn_jnTLrfwTw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_HeroSquare-6ae9d6d299054d748f84492b5c31f033.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
@@ -75,13 +80,6 @@ Lifewire / Rebecca Isaacs
 
  Working on the go can prove difficult on a laptop, especially when you need to work on heavy-hitting projects requiring precision. Travel mice, or portable computer mice that can be packed and unpacked on the go, can alleviate much of the proverbial headache of working on PC-heavy tasks. For those who prefer their mouse have a cable, the Sabrent fits the bill. Using high definition precision technology, the tiny, three-year-old mouse is designed for those who want convenience and extreme precision in their work.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Basic**
 
  The Sabrent was not designed for heavy gaming in mind; its design is so tiny at 3.2 x 1.5 inches (LW) that it fits into the cup of your palm with some room to spare. Unlike gaming mice, which can be complex, with a plethora of buttons/features, the all-black, 1.5-ounce mouse only has three buttons: the left (main) button, the wheel, and the right button. While this might turn off many users, in reality, it turns out to be of huge benefit. Thanks to its simplicity, ambidextrous users will appreciate its ability to swap between dominant hands.
@@ -93,34 +91,22 @@ Lifewire / Rebecca Isaacs
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/E-UHv94vEiLyLkgwTG1qIFE6uvQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_04-76e4b475ca3f4449a746c22f3713f784.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
  The cable’s addition increases the size of the mouse, bringing the total measurements to 6.44 x 1.5x 2.44 inches (LWH). The Sabrent also comes with a mesh carrying bag, making it easy to pack up and take on the go without scratching it. One more perk: this mouse is adaptable to most[Windows](https://www.lifewire.com/windows-4781566) ,[Mac](https://www.lifewire.com/mac-backup-software-hardware-and-guides-2260931) , and[Linux](https://www.lifewire.com/software-and-apps-4781541) systems, so you can insert it into USB ports across multiple machines for fast use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Plug and play**
 
  Setting up the Sabrent proved simple and convenient. Expanding the cable and plugging it into the PC’s USB port allows the Sabrent to self-install. In under less than a minute, the plug and play features kick in. If you need to alter it to suit ambidextrous needs, you’ll need to head into the control panel of your PC to make the swap. Those requiring left-handed features will need to alter it. Once the software quickly installs, and you’re able to begin scrolling in no time.
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/mM3uSf3Y2pyayDyWJzP8_5uUya4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_05-04e025144b514674b109e77f79129d74.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -147,13 +133,6 @@ Lifewire / Rebecca Isaacs
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/h8ibsbPtDqgJOD0XgpZSD6FOXUU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_02-1331828bbc3f460baebd85cbd24d61e2.jpg)
 
  Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Reasonable**
 
@@ -200,15 +179,22 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-tech-tips-streamlining-your-overwatch-video-recordings/"><u>[New] Tech Tips Streamlining Your Overwatch Video Recordings</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-top-15-must-use-gaming-tags-for-skyrocketing-views-on-youtube/"><u>2024 Approved Top 15 Must-Use Gaming Tags for Skyrocketing Views on YouTube</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comparing-the-new-titans-samsung-galaxy-s24-ultra-vs-s23-ultra-which-one-reigns-supreme/"><u>Comparing the New Titans: Samsung Galaxy S24 Ultra vs S23 Ultra – Which One Reigns Supreme?</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-excellent-collection-advanced-webcam-supports/"><u>In 2024, Excellent Collection Advanced Webcam Supports</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-smart-photo-editor-from-anthropics-a-complete-software-analysis/"><u>In-Depth Look at the Smart Photo Editor From Anthropics: A Complete Software Analysis</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/mastering-hardware-essentials-a-guide-by-tom/"><u>Mastering Hardware Essentials - A Guide by Tom</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/refreshing-windows-paperwork-handler/"><u>Refreshing Windows Paperwork Handler</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sony-w800-excellence-and-value-assessment/"><u>Sony W800 Excellence & Value Assessment</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-duo-adventure-joining-forces-with-a-friend-in-the-world-of-pokemon-go/"><u>The Ultimate Duo Adventure: Joining Forces with a Friend in the World of 'Pokémon Go'</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/viber-out-chatting-experience-a-thorough-user-review/"><u>Viber Out Chatting Experience: A Thorough User Review</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-facebook-decoding-the-new-era-of-bite-sized-videos/"><u>[New] 2024 Approved Facebook Decoding the New Era of Bite-Sized Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-step-by-step-guide-transform-facebook-videos-to-720p1080p-mp4-free-online/"><u>2024 Approved Step-by-Step Guide Transform Facebook Videos to 720P/1080p MP4 Free Online</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-most-reliable-and-fastest-mesh-wi-fi-setups-top-picks/"><u>2024'S Most Reliable and Fastest Mesh Wi-Fi Setups - Top Picks!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/5-superior-routers-for-family-filtering-ranked-best-of-2024/"><u>5 Superior Routers for Family Filtering, Ranked Best of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-critical-review-is-bose-qc30-a-top-choice/"><u>A Critical Review: Is Bose QC30 a Top Choice?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-excellence-a-comprehensive-tp-link-archer-c50-wireless-router-evaluation/"><u>Affordable Excellence: A Comprehensive TP-Link Archer C50 Wireless Router Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-speed-in-depth-tp-link-archer-c50-wireless-router-evaluation/"><u>Affordable Speed: In-Depth TP-Link Archer C50 Wireless Router Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/alienware-aurora-r7-assessment-high-performance-at-the-right-cost/"><u>Alienware Aurora R7 Assessment: High-Performance at the Right Cost</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/einfachheit-im-fuhrparkmanagement-mit-abbyys-flexicapture-die-optimierte-erfassungssoftware-von-hpi-fleet-zur-verarbeitung-von-dokumenten/"><u>Einfachheit Im Fuhrparkmanagement Mit ABBYY's FlexiCapture - Die Optimierte Erfassungssoftware Von HPI Fleet Zur Verarbeitung Von Dokumenten</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-oppo-reno-11-pro-5g-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Oppo Reno 11 Pro 5G?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-instantaneously-obscured-identities-quick-tips-with-piscart/"><u>In 2024, Instantaneously Obscured Identities Quick Tips with Piscart</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/innovative-upgrade-how-teamgroups-newly-magnetized-t-force-siren-line-revolutionizes-easy-custom-pc-construction/"><u>Innovative Upgrade: How TeamGroup's Newly Magnetized T-Force Siren Line Revolutionizes Easy Custom PC Construction</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/inside-the-mophie-ac-powerstation-review-is-it-worth-its-premium-cost/"><u>Inside the Mophie AC Powerstation Review: Is It Worth Its Premium Cost?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722644589132-the-sony-xbr-65x850f-exploring-the-balance-of-price-and-quality-in-a-4k-ultra-hd-television/"><u>The Sony XBR-65X850F: Exploring the Balance of Price and Quality in a 4K Ultra HD Television</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722564042192-transform-your-internet-experience-with-amplifi-hd-mesh-say-goodbye-to-weak-wi-fi-areas/"><u>Transform Your Internet Experience with Amplifi HD Mesh - Say Goodbye to Weak Wi-Fi Areas!</u></a></li>
+<li><a href="https://program-issues.techidaily.com/ultimate-guide-solving-the-final-epoch-bug-in-windows-computers/"><u>Ultimate Guide: Solving the Final Epoch Bug in Windows Computers</u></a></li>
 </ul></div>
 

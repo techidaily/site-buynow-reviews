@@ -1,7 +1,7 @@
 ---
 title: Evaluating the Performance of a Google Wireless Nest Doorbell for Home Security
-date: 2024-11-17T22:21:18.683Z
-updated: 2024-11-24T17:34:15.169Z
+date: 2024-11-28T16:52:02.217Z
+updated: 2024-12-04T03:17:19.123Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating the Performance of a Google Wireless Nest Doorbell for Home Security
@@ -47,6 +47,10 @@ Lifewire / Jordan Provost
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/FPdNqEjtI6f1tbMbciesCKN2pRQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_hero-14043634662d46998584bb21b3d7becd.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Jordan Provost
 
 [View On Amazon](https://www.amazon.com/dp/B0883DGM5X/?tag=lifewire-onsite-prod-20&ascsubtag=4686097%7Cn75ebf34f23a54c469b9761158943aeec15%7CB0883DGM5X) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnokia-7-1-with-64gb-memory-cell-phone-unlocked-blue%2F6291898.p%3FskuId%3D6291898)
@@ -79,15 +83,15 @@ Lifewire / Jordan Provost
 
 [Phone Reviews & Top Picks](https://www.lifewire.com/best-android-smartphones-577403)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: A mid-range phone with high-end sensibilities**
 
  The Nokia 7.1 is a mid-range handset that could pass for a higher-end device if you squint. It features the same general design—a glass front and back separated by an aluminum body—that we’ve seen so many times before, but it has a few design tweaks that help it stand out. The matte aluminum body features chamfered edges that add a bit of visual flair, especially when they catch the light.
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/1cMJEwjyd7B1WxBO7uBZOm0C2So=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_3-483bfb6a868848adaaf021846b9fb559.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
@@ -97,11 +101,11 @@ Lifewire / Jordan Provost
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/NRHkz82CaIGpj9N3UQuqHzPSBas=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_4-2c6261afee9644848e68fbf1e73c3009.jpg)
 
- Lifewire / Jordan Provost
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Jordan Provost
 
 ## **Setup Process: Requires updates out of the box**
 
@@ -128,7 +132,7 @@ Lifewire / Jordan Provost
  It’s important to note that when the Nokia 7.1 launched, it was plagued with complaints about slow operation, lag, and an unresponsive touchscreen. These appear to have been software-related issues that have since been fixed, as we experienced no such problems in our hands-on testing.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Connectivity: Data connection is slow**
@@ -140,7 +144,7 @@ Lifewire / Jordan Provost
  Despite these connectivity problems, we were still able to stream YouTube videos and music from Google Play over the data connection.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Display Quality: HDR quality with a chunky notch**
@@ -150,10 +154,6 @@ Lifewire / Jordan Provost
  The display makes use of Nokia’s PureDisplay technology, which means it conforms to the HDR10 industry standard. In practical terms, that means you get an HDR-quality display on a[mid-range phone](https://www.lifewire.com/best-smartphones-4043781) , which is pretty fantastic. It’s also capable of converting standard dynamic range content to HDR, which just makes everything look nicer.
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/Z-CxaDLaus-Tzpvo30-F2j8i94o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_6-9eeeb5e2962c47e29b8a5335d69cc004.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
@@ -167,6 +167,10 @@ Lifewire / Jordan Provost
 
  The speaker is serviceable, and we didn’t notice too much distortion when streaming music at high volumes. There is very little bass response though, even compared to other mid-range handsets. The speaker is there if you need it, but you’ll want to plug in headphones or use an external speaker whenever possible. The Nokia 7.1 does includes a headphone jack, located on the top edge of the device, and comes with a pair of earbuds in the box.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Camera/Video Quality: Surprisingly competent camera**
 
  The Nokia 7.1 has two rear-facing cameras, 12 MP and 5 MP respectively. The 5 MP one is used for depth sensing to help keep your subjects in focus. The lenses are housed in a bump protrusion, outlined by the same shining metal seen on the edges of the phone.
@@ -177,12 +181,16 @@ Lifewire / Jordan Provost
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/VI32Dr6kjQKlJti1W9Egtq7kb10=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_2-b7780c375da34f349ba0c037120ee3ff.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
 
 ![Nokia 7.1 rose photo](https://www.lifewire.com/thmb/4d-M-nqoc9xpcT44HdNVobPQU1U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/gs9-photo9-7b35a0c91bd544ae89dab81238efdda2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire
@@ -196,10 +204,6 @@ Lifewire
  The handset also supports the “bothie” feature that Nokia has been pushing. This feature enables you to take photos or videos with the front-facing and rear-facing cameras at the same time (if that’s something you ever felt the need to do). It also has a very competent Bokeh feature that holds your subject in sharp focus while blurring the background.
 
  The hardware just isn’t there to challenge the best phone cameras found in flagship devices from the likes of Samsung, Apple, or Google, but the Nokia 7.1 doesn’t come with a flagship price tag either.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Battery: Enough to last through the work day**
 
@@ -243,10 +247,6 @@ Lifewire
 
  The Nokia 7.1 isn’t a high-end device, but it brings a lot of premium quality and features to the table. If you’re in the market for a solid mid-range handset, you won’t do much better than this.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [OnePlus 6T](https://www.lifewire.com/oneplus-6t-phone-review-4589385)
@@ -254,7 +254,7 @@ Lifewire
 * [Motorola Moto G6](https://www.lifewire.com/motorola-moto-g6-review-4689366)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -292,24 +292,22 @@ Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-newcomers-guide-to-profitability-on-periscope-live-streaming/"><u>[New] Newcomer’s Guide to Profitability on Periscope Live Streaming</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-the-complete-mac-users-bible-to-srt-alteration/"><u>[New] The Complete Mac User's Bible to SRT Alteration</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-rise-and-fall-a-comparative-study-on-tiktok-and-snaps-popularity-for-2024/"><u>[Updated] The Rise and Fall A Comparative Study on TikTok and Snap’s Popularity for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-enhancing-the-endurance-of-your-gopro-battery/"><u>2024 Approved Enhancing the Endurance of Your GoPro Battery</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-sky-high-speeds-key-moments-in-the-short-tracks-olympics/"><u>2024 Approved Sky-High Speeds Key Moments in the Short Tracks, Olympics</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comparing-outlookcom-and-gmail-determining-the-superior-email-solution/"><u>Comparing Outlook.com and Gmail: Determining the Superior Email Solution</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-leading-home-climate-trackers-for-an-informed-2024-our-top-picks/"><u>Discover Leading Home Climate Trackers for an Informed 2024: Our Top Picks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/future-of-entertainment-top-tv-streaming-app-choices/"><u>Future of Entertainment: Top TV Streaming App Choices</u></a></li>
-<li><a href="https://techidaily.com/hard-resetting-an-samsung-galaxy-xcover-6-pro-tactical-edition-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Samsung Galaxy XCover 6 Pro Tactical Edition Device Made Easy | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/important-points-to-ponder-when-selecting-your-next-unlocked-mobile-phone/"><u>Important Points to Ponder When Selecting Your Next Unlocked Mobile Phone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-microsofts-ergonomic-keyboard-a-look-at-quality-features-and-user-experience/"><u>In-Depth Review of Microsoft's Ergonomic Keyboard - A Look at Quality, Features, and User Experience</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/is-it-possible-to-pair-airpods-with-a-nintendo-switch-console/"><u>Is It Possible to Pair AirPods with a Nintendo Switch Console?</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-best-video-blur-apps-for-iphone-and-android/"><u>New Best Video Blur Apps for iPhone and Android</u></a></li>
-<li><a href="https://fox-http.techidaily.com/speedy-streams-start-here-snapchat-for-starters/"><u>Speedy Streams Start Here Snapchat for Starters</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-best-in-the-business-how-asus-vg245h-reinvents-console-gaming-displays/"><u>The Best in the Business - How Asus VG245H Reinvents Console Gaming Displays</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-understanding-the-serious-readers-choice-kobo-forma/"><u>The Ultimate Guide to Understanding the Serious Reader's Choice - Kobo Forma</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-verdict-on-overwatch-a-captivating-strategic-squad-battle-arcade-game/"><u>The Verdict on Overwatch: A Captivating, Strategic Squad Battle Arcade Game</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/top-windows-cutting-tools-for-editors-and-vids-for-2024/"><u>Top Windows Cutting Tools for Editors & Vids for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-assassins-creed-valhalla-a-masterful-journey-through-the-viking-era/"><u>Unveiling Assassin's Creed: Valhalla – A Masterful Journey Through the Viking Era</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-art-of-cozy-cinematography-top-5-winter-scenes/"><u>[New] In 2024, The Art of Cozy Cinematography Top 5 Winter Scenes</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-voiceover-fundamentals-for-aspiring-tiktok-creators/"><u>[Updated] 2024 Approved Voiceover Fundamentals for Aspiring TikTok Creators</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-cracking-the-code-to-niche-celeb-content-creators-on-insta/"><u>2024 Approved Cracking the Code to Niche Celeb Content Creators on Insta</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/create-the-budget-plan/"><u>Create the Budget Plan</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/critique-on-microsofts-surface-duo-overpriced-with-persistent-glitches/"><u>Critique on Microsoft's Surface Duo: Overpriced with Persistent Glitches</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/deciding-between-the-titans-of-streaming-a-detailed-guide-to-apple-tv-4k-and-roku-ultra/"><u>Deciding Between the Titans of Streaming: A Detailed Guide to Apple TV 4K and Roku Ultra</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/digital-library-elite-the-4-compelling-reasons-for-unlimited-membership/"><u>Digital Library Elite: The 4 Compelling Reasons for Unlimited Membership</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-best-in-smart-tv-technology-with-a-detailed-review-of-the-samsung-qn55q60rafxza/"><u>Discover the Best in Smart TV Technology with a Detailed Review of the Samsung QN55Q60RAFXZA</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dji-mavic-air-vs-dji-spark-which-is-the-right-choice-for-your-drone-adventures/"><u>DJI Mavic Air Vs. DJI Spark: Which Is The Right Choice For Your Drone Adventures?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/efficient-guide-to-transforming-gifs-into-engaging-whatsapp-and-telegram-stickers/"><u>Efficient Guide to Transforming GIFs Into Engaging WhatsApp & Telegram Stickers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/essential-tips-for-a-smooth-macos-catalina-upgrade/"><u>Essential Tips for a Smooth macOS Catalina Upgrade</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-championship-caliber-play-in-nba-2k19-the-definitive-virtual-basketball-challenge/"><u>Experience Championship-Caliber Play in NBA 2K19 – The Definitive Virtual Basketball Challenge</u></a></li>
+<li><a href="https://extra-information.techidaily.com/how-to-access-government-recorded-content-for-free-online/"><u>How to Access Government-Recorded Content for Free Online</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-realme-12plus-5g-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Realme 12+ 5G</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/meet-geekoms-game-changer-the-mini-pc-ax8-equipped-with-next-gen-intel-and-cutting-edge-ryzen-processors/"><u>Meet GeekOm's Game-Changer: The Mini PC AX8 Equipped with Next-Gen Intel and Cutting-Edge Ryzen Processors</u></a></li>
+<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-oppo-reno-8t-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Oppo Reno 8T Black and White | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/starting-a-sports-network-with-your-mac/"><u>Starting a Sports Network with Your Mac</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Leading Open Source Alternatives to Microsoft Office Revealed: 2024 Rankings"
-date: 2024-11-18T21:12:22.830Z
-updated: 2024-11-24T17:08:46.683Z
+date: 2024-12-03T03:23:08.139Z
+updated: 2024-12-03T22:24:59.588Z
 categories:
   - BestProducts
 description: "This Article Describes Leading Open Source Alternatives to Microsoft Office Revealed: 2024 Rankings"
@@ -46,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/96b0dc304ed2f0b22e595834a3c54ad2566287334
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Best Overall
 
 [Logitech Ergo K860](https://www.amazon.com/Logitech-Wireless-Ergonomic-Keyboard-Wrist/dp/B07ZWK2TQT/?tag=lifewire-onsite-prod-20&ascsubtag=4147386%7Cn326e10e09a2e4a42be05879465b0c31513%7CB07ZWK2TQT)
@@ -78,6 +74,10 @@ PHOTO: Amazon
  The K860 features an integrated wristrest that is among the most comfortable. While it does provide excellent support and is something of a necessity with ergonomic keyboards, the inability to separate the wrist rest from the keyboard itself could present a problem if it ever wears out, forcing you to buy a new unit altogether.
 
 **Type:** Membrane | **Connectivity:** Wireless receiver, Bluetooth | **RGB:** None | **Tenkeys:** Yes | **Palm Rest:** Yes | **Dedicated Media Controls:** No
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Best Bluetooth
 
@@ -108,7 +108,7 @@ PHOTO: Amazon
 **Type:** Membrane | **Connectivity:** Wireless receiver | **RGB:** None | **Tenkeys:** Yes | **Palm Rest:** Yes | **Dedicated Media Controls:** Yes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best for Macs
@@ -169,10 +169,14 @@ PHOTO: Amazon
 
 [The Best Mice for Macs of 2024](https://www.lifewire.com/best-mice-for-macs-6753004)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What to Look For in an Ergonomic Keyboard
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Usage**
@@ -180,16 +184,12 @@ PHOTO: Amazon
  Where will you be using this keyboard? Is it mainly for personal use, or will you take it to the office? Do you need an ergonomic keyboard explicitly made with gamers in mind? While you can use a keyboard for multiple purposes, you may enjoy customizing which one you buy based on how you will use it the most.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Mac vs. PC**
 
  Do you have a Mac or a PC? While it seems like keyboards should be usable with both, that’s not always the case. You need to make sure whatever keyboard you buy is compatible with your system (this is usually a bigger problem for Macs rather than PCs). Additionally, the two operating systems have slightly different keys. While you can often use mapping software to alleviate these issues, you may want to purchase a keyboard specifically designed for your type of machine.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Keyboard size**
 
@@ -235,19 +235,18 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-future-vistas-in-the-metaverse-top-30-encouraging-quotes/"><u>[New] Future Vistas in the Metaverse Top 30 Encouraging Quotes</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-monetization-mastery-thriving-in-the-youtube-economy-no-ads-included/"><u>[Updated] 2024 Approved Monetization Mastery Thriving in the YouTube Economy, No Ads Included</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-step-by-step-perfectly-inserting-songs-on-instagram-stories/"><u>[Updated] 2024 Approved Step-by-Step Perfectly Inserting Songs on Instagram Stories</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-unlock-the-potential-tutorial-on-enabling-speech-transcription-in-powerpoint/"><u>[Updated] In 2024, Unlock the Potential Tutorial on Enabling Speech Transcription in PowerPoint</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/beat-the-monotony-explore-our-ultimate-list-of-1-best-board-and-card-games-for-a-fun-fill-in-activity/"><u>Beat the Monotony: Explore Our Ultimate List of 1# Best Board and Card Games for a Fun Fill-In Activity</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-jackery-powerbar-charger-case-evaluation-with-integrated-ac-plug/"><u>Comprehensive Jackery PowerBar Charger Case Evaluation with Integrated AC Plug</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/diagnosing-and-repairing-the-elusive-propsysdll-file-error/"><u>Diagnosing and Repairing the Elusive PropSys.dll File Error</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-a-stealthy-cost-effective-and-dependable-surveillance-with-rexing-v1/"><u>Experience a Stealthy, Cost-Effective, and Dependable Surveillance with Rexing V1</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-factory-unlock-your-telstra-iphone-6-by-drfone-ios/"><u>How To Factory Unlock Your Telstra iPhone 6</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-to-upgrade-from-windows-7-to-windows-10/"><u>How to Upgrade From Windows 7 to Windows 10</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-asus-rog-phone-8-pro-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Asus ROG Phone 8 Pro Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-maximize-impact-aspect-ratio-expertise-for-youtube-experts/"><u>In 2024, Maximize Impact Aspect Ratio Expertise for YouTube Experts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-gaming-with-the-elite-series-2-the-ultimate-xbox-one-controller-review/"><u>Mastering Gaming with the Elite Series 2 - The Ultimate Xbox One Controller Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/pricing-guide-and-key-features-of-the-new-amazfit-helio-ring-revealed/"><u>Pricing Guide & Key Features of the New Amazfit Helio Ring Revealed!</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-premium-vector-image-hubs-ranked-1-to-10/"><u>[New] Premium Vector Image Hubs Ranked #1 to #10</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-from-play-to-perfection-ps3-playthroughs-captured/"><u>[Updated] 2024 Approved From Play to Perfection PS3 Playthroughs Captured</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-sonys-blu-ray-revolution-s6700-updates/"><u>[Updated] Sony's Blu-Ray Revolution S6700 Updates</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-apple-iphone-6s-plus-to-enjoy-more-fun-drfone-by-drfone-virtual-ios/"><u>Change Location on Yik Yak For your Apple iPhone 6s Plus to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/hilarity-host-the-10-funniest-twitter-challenges/"><u>Hilarity Host The 10 Funniest Twitter Challenges</u></a></li>
+<li><a href="https://extra-information.techidaily.com/pro-tips-to-capture-stunning-and-breathtaking-gopro-time-lapse-video/"><u>Pro Tips to Capture Stunning and Breathtaking GoPro Time-Lapse Video</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-network-with-netgears-ax8-mesh-extender-an-insightful-performance-breakdown/"><u>Revolutionize Your Network with Netgear's AX8 Mesh Extender - An Insightful Performance Breakdown</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-qn55q6f-smart-tv-review-a-slick-4k-hdr-smart-tv/"><u>Samsung QN55Q6F Smart TV Review: A Slick 4K HDR Smart TV</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/skagen-falster-3-review-a-tech-savvy-smartwatch-with-classic-style/"><u>Skagen Falster 3 Review: A Tech-Savvy Smartwatch with Classic Style</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/test-drive-the-mavix-m9-chair-for-gamers-a-review-focused-on-long-term-comfort-and-ergonomics/"><u>Test Drive the Mavix M9 Chair for Gamers: A Review Focused on Long-Term Comfort and Ergonomics</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-cheap-digital-cameras-of-2024/"><u>The Best Cheap Digital Cameras of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-intimacy-of-music-on-demand-emotional-connections-forged-by-a-handheld-maestros-toolkit/"><u>The Intimacy of Music on Demand: Emotional Connections Forged by a Handheld Maestro's Toolkit</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-key-to-rapid-likes-smart-bio-hacks-that-really-work-on-tinder/"><u>The Key to Rapid Likes? Smart Bio Hacks that Really Work on Tinder</u></a></li>
 </ul></div>
 

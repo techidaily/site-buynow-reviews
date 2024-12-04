@@ -1,7 +1,7 @@
 ---
 title: Is the Winegard FL5500A Worth It? Review on Its Signal Quality and Expensive Pricing Structure
-date: 2024-08-27T11:10:14.242Z
-updated: 2024-08-28T11:10:14.242Z
+date: 2024-12-03T05:14:53.797Z
+updated: 2024-12-03T17:58:46.790Z
 categories:
   - BestProducts
 description: This Article Describes Is the Winegard FL5500A Worth It? Review on Its Signal Quality and Expensive Pricing Structure
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/Ry0Y9Hwwhl4tELdlOUqX9liWOrs=/400x300/fi
 ## The Sony XBR-65X850F: Exploring the Balance of Price and Quality in a 4K Ultra HD Television
 
 3.6
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
@@ -38,6 +42,10 @@ thumbnail: https://www.lifewire.com/thmb/Ry0Y9Hwwhl4tELdlOUqX9liWOrs=/400x300/fi
 [View On Amazon](https://www.amazon.com/dp/B078WG6DBH/?tag=lifewire-onsite-prod-20&ascsubtag=4796693%7Cn899f0376278d4881a5af76b596b54aa000%7CB078WG6DBH) [View On EBay](https://www.ebay.com/itm/Sony-XBR65X850F-65-Inch-4K-Ultra-HD-Smart-LED-TV-2018-Model/312237520273)
 
 3.6
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
@@ -85,9 +93,6 @@ thumbnail: https://www.lifewire.com/thmb/Ry0Y9Hwwhl4tELdlOUqX9liWOrs=/400x300/fi
 
  On the front of the screen, the bezels are a little thicker than some of the 4K TVs we’ve reviewed, but they’re pretty thin and shouldn’t distract. There’s your standard anti-glare coating found on the screen here too.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Stick to the on-screen instructions**
 
  Setting up pretty much any modern-day smart TV is an easy process, so just stick to the on-screen instructions and you’ll be golden. Go ahead and unpack it all, tear off that plastic film, plug in the power cable, and turn on the device.
@@ -100,9 +105,6 @@ thumbnail: https://www.lifewire.com/thmb/Ry0Y9Hwwhl4tELdlOUqX9liWOrs=/400x300/fi
 
  With the initial process done, you will likely need to run a quick update check. This should automatically pop up, but check under the settings tab if it doesn’t. An update to the firmware should improve things considerably, especially if you need to upgrade to the latest version of Android TV. Updating takes a bit of time to do, so maybe go watch some TV while…oh right. Well, whatever you do during this process, just remember not to unplug the power while it’s running through updates.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Image Quality: Impressive 4K for IPS with some shortcomings**
 
  This section is perhaps the most important for a TV, and while the XBR65X850F performs pretty well in some aspects here, it also has a few weak points.
@@ -125,16 +127,21 @@ thumbnail: https://www.lifewire.com/thmb/Ry0Y9Hwwhl4tELdlOUqX9liWOrs=/400x300/fi
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Audio Quality: Loud, but distorted**
 
  Built-in speakers are never going to be great, but they’re nice to have if you’re lacking an[external sound system](https://www.lifewire.com/connect-tv-to-external-audio-system-1846816) like a soundbar. While we’d recommend getting an external setup for the best experience, let’s take a quick look at what the XBR65X850F has to offer with the included setup.
 
  Right off the bat, this TV can get quite loud and you shouldn’t run into any volume issues. That being said, the overall experience is mediocre at best. The louder you turn it up, the more distortion is added. These speakers should suffice in quiet environments if you’re primarily looking for nice clear dialogue with treble and mid, but the bass is not so good.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: A bit sluggish but good enough**
 
@@ -151,8 +158,9 @@ thumbnail: https://www.lifewire.com/thmb/Ry0Y9Hwwhl4tELdlOUqX9liWOrs=/400x300/fi
  One last thing, your phone can also be used as a remote if you so choose. All you need to do is download the app and connect it to the TV. This works with both Android and iOS devices (thanks Google). While it’s not a good as the regular remote, it works fine enough if you’re too lazy to get up and find the standard remote.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Not bad for the size, but not the cheapest**
 
  The X850F series come in a range of sizes, from 65 to 85 inches, so the prices can vary considerably depending on which one you go with. Any TV in this size range is going to cost a good bit of coin, no matter the manufacturer, but Sony isn’t too bad here.
@@ -162,9 +170,9 @@ thumbnail: https://www.lifewire.com/thmb/Ry0Y9Hwwhl4tELdlOUqX9liWOrs=/400x300/fi
  But how do these prices stack up against comparable TVs from competitors like LG or Samsung? Taking a quick look around online, you can easily save a few hundred dollars by going with a comparable LG TV, while Samsung was pretty closely matched with Sony. In the end, the price for the X850F series isn’t the best bang for your buck, but it ain’t bad either.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Sony XBR65X850F vs. Samsung UN65RU8000**
 
  Now there are a ton of comparable 4K TVs out there stacked up against the Sony XBR65X850F, but Samsung is a similarly reputable brand, so let’s compare their UN65RU8000 (view on[Amazon](https://www.amazon.com/Samsung-UN65RU8000-Ultimate-SurgePro-6-Outlet/dp/B07Q6VCCLF?tag=lifewire-onsite-prod-20&ascsubtag=4796693%7Cn899f0376278d4881a5af76b596b54aa000%7C) ).
@@ -183,9 +191,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  The X850F series is far from perfect, but the Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV and its family are more than capable of providing a pleasurable viewing experience for most people. Despite this, there are probably better options out there that can be had for even less.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
@@ -200,14 +205,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 * Speakers  2 full range, 2ch
 * Connectivity Options  4 HDMI
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -216,4 +218,22 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-reviews.techidaily.com/neighborville-edition-a-hilarious-encounter-of-plants-and-zombies/"><u>'Neighborville Edition': A Hilarious Encounter of Plants and Zombies</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-pivotal-software-in-shaping-a-vtubers-sound-identity/"><u>[New] Pivotal Software in Shaping a Vtuber's Sound Identity</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-redefining-visual-standards-hdr-vs-standard-sdr/"><u>[New] Redefining Visual Standards HDR Vs. Standard SDR</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-streamlined-social-integration-linktree-and-tiktok-profiles-united/"><u>[New] Streamlined Social Integration Linktree and TikTok Profiles United</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-elevating-positivity-in-a-constructive-space/"><u>[Updated] Elevating Positivity in a Constructive Space</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-hear-got-music-top-sites-to-download-ringtones/"><u>[Updated] Hear GoT Music - Top Sites to Download Ringtones</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/decoding-stop-error-0x0000003d-expert-fixes-to-restore-your-computers-stability/"><u>Decoding Stop Error 0X0000003D: Expert Fixes to Restore Your Computer's Stability</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-poco-x6-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Poco X6 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-netgear-nighthawk-x6-wi-fi-mesh-expander-highlighting-key-attributes/"><u>In-Depth Analysis of Netgear Nighthawk X6 Wi-Fi Mesh Expander: Highlighting Key Attributes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/insightful-analysis-setting-up-and-utilizing-the-d-link-powerline-2000-for-high-speed-connections/"><u>Insightful Analysis: Setting Up and Utilizing the D-Link Powerline 2000 for High-Speed Connections</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nulaxy-km18-bluetooth-fm-transmitter-evaluation-outstanding-performance-of-a-reliable-vintage-model/"><u>Nulaxy KM18 Bluetooth FM Transmitter Evaluation: Outstanding Performance of a Reliable Vintage Model</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/patek-flexible-tripod-review-unfolding-possibilities/"><u>Patek Flexible Tripod Review - Unfolding Possibilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-signal-with-clearstreams-eclipse-antenna-outstanding-features-within-a-user-friendly-interface/"><u>Revolutionize Your Signal with ClearStream's Eclipse Antenna: Outstanding Features Within a User-Friendly Interface</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/should-i-transition-to-the-newest-macos-sonoma/"><u>Should I Transition to the Newest macOS, Sonoma?</u></a></li>
+<li><a href="https://howto.techidaily.com/xiaomi-14-ultra-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Xiaomi 14 Ultra Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+</ul></div>
 

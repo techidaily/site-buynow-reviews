@@ -1,7 +1,7 @@
 ---
 title: "Barnes & Noble's Nook Evolution Continues with the Expansive Screen of the GlowLight Plus: A Detailed Review"
-date: 2024-08-27T11:08:45.087Z
-updated: 2024-08-28T11:08:45.087Z
+date: 2024-11-29T04:07:43.415Z
+updated: 2024-12-03T16:37:18.004Z
 categories:
   - BestProducts
 description: "This Article Describes Barnes & Noble's Nook Evolution Continues with the Expansive Screen of the GlowLight Plus: A Detailed Review"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/eaa498618a30b7449a5127779e22901025842c318
 ## Godfall
 
 ![Godfall](https://www.lifewire.com/thmb/n7w43dN9-ygwWWDulxhPK9JDT80=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Godfall-PC-Game-1-d3b0021c9f1f4c90a844bf0e8f8fcb25.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Rebecca Isaacs / Lifewire
 
@@ -44,6 +48,10 @@ Rebecca Isaacs / Lifewire
 ## Godfall
 
 ![Godfall](https://www.lifewire.com/thmb/0NLDB5xBHlyMz4ZXPM-uk0dzS7Y=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Godfall-PC-Game-1-d3b0021c9f1f4c90a844bf0e8f8fcb25.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Rebecca Isaacs / Lifewire
 
@@ -88,11 +96,16 @@ Rebecca Isaacs / Lifewire
 
 ![Godfall ](https://www.lifewire.com/thmb/IWN-3bTZ5qlsx29Xu_o7m5dQyu8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-3-9be349303fa148cfbcacfa7551c5c743.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Rebecca Isaacs / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Gameplay: Repetitive and tedious
 
  Valorian Knight Orin himself remains the same, but in terms of details and build, that’s where character customization—and offensive and defensive builds—finally come in. You’ll hack and slash your way through forests and other settings, using various Valorplates and one of five different weapons classes. As a bonus, you can add banners and charms to help buff up your Valorian Knight.
@@ -101,9 +114,6 @@ Rebecca Isaacs / Lifewire
 
 ![Godfall](https://www.lifewire.com/thmb/lkXYe9qqH3ccZewQudKpzPWU4Xc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-2-fc516034a42a462ba1b4ab03bcc76269.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Rebecca Isaacs / Lifewire
 
  That’s where Godfall’s biggest issue rears its head. I would love to tell you that it was a fun experience. I can get past a poor plot within reason. However, the constant replay of maps coupled with the eventually monotonous backgrounds made gameplay more tedious than fun. Counterplay tried to make it more intriguing by offering some attack combinations and a few variations of monsters, but there aren’t that many across either spectrum. Instead, you’ll have to boost the few extra attacks the game offers through a grid-like skill tree.
@@ -120,20 +130,18 @@ Rebecca Isaacs / Lifewire
 
 ![Godfall](https://www.lifewire.com/thmb/xztzESfeykd-1UUo9xAOFt8EPNE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-7-4a134c4dc6304645aaeb4ff4a0badefa.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Rebecca Isaacs / Lifewire
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Platform: PS5 or PC
 
  Godfall is pretty straightforward with its platforms: PlayStation 5, or Windows PCs. It does not work on Macs, so take that into consideration before you make your purchase. In terms of gameplay, neither platform really weighs better than the other, though PC gamers with ultrawide screens may have some issues getting the correct resolution set.
 
 ![Godfall ](https://www.lifewire.com/thmb/AVwuGUypRGjuigcAvp7eBT4rj00=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-6-d175a22d9d0c48e8ad3aad12177fe50b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Rebecca Isaacs / Lifewire
 
 ## Price: Overpriced for the amount of content available
@@ -141,6 +149,10 @@ Rebecca Isaacs / Lifewire
  If Godfall was priced around $30, I would have been more sympathetic to its cause. However, the base game itself will cost around $60 before any kind of sale. If you want to upgrade to a higher edition, such as Deluxe or its top edition, Ascended, that will run you up to $90\. That much money for a game that seems half-finished and still requires 50GB of SSD memory is, quite frankly, way too much for anyone to pay. This is also not including the option of pre-order and Ascended content, each of which will cost another $10.
 
  I’ll be brutally honest here: if it’s between Godfall and Warframe, Warframe is easily a better game.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Godfall vs. Warframe
 
@@ -158,18 +170,12 @@ Rebecca Isaacs / Lifewire
 
  If you’re looking for a mindless hack and slash game to play, this might be a go-to game for you, especially if you like Warframe. But as much as I loved the graphics, I can’t recommend Godfall based on the landscapes alone. If you feel obligated to try out a melee looter slasher, wait for a sale, but for most people you can find better games to play.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Assassin's Creed: Valhalla](https://www.lifewire.com/assassin-s-creed-valhalla-review-an-epic-viking-adventure-across-the-medieval-world-5086782)
 * [Watch Dogs: Legion](https://www.lifewire.com/watch-dogs-legion-review-a-new-setting-for-the-series-5085469)
 * [Marvel’s Avengers](https://www.lifewire.com/marvel-s-avengers-review-5088311)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Godfall
@@ -187,14 +193,11 @@ Rebecca Isaacs / Lifewire
 * Graphics  Nvidia GeForce GTX 1060, 6 GB | AMD Radeon RX 580, 8 GB
 * Network  Internet connection required
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -203,4 +206,22 @@ Rebecca Isaacs / Lifewire
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-premier-8k-capture-the-ultimate-camera-guide/"><u>[New] Premier 8K Capture The Ultimate Camera Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-viral-visibility-vault-our-compreeher-guide-of-15-proven-methods-to-amass-attention-on-instagram/"><u>[New] Viral Visibility Vault Our Compreeher Guide of 15 Proven Methods to Amass Attention on Instagram</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-top-30-pro-windows-10-secrets-revealed/"><u>[Updated] In 2024, Top 30 Pro Windows 10 Secrets Revealed</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-tv-essentials-step-by-step-upload-guide/"><u>[Updated] Instagram TV Essentials Step-by-Step Upload Guide</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-samsung-galaxy-s23-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/1728469940625-aomei-backupper/"><u>成功複製文件：如何有效使用 AOMEI Backupper系統</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/barnes-and-nobles-nightlight-marvel-the-ultimate-review-of-nook-glowlight-n3-for-dark-reading-sessions/"><u>Barnes & Noble's Nightlight Marvel: The Ultimate Review of Nook GlowLight N°3 for Dark Reading Sessions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-smartwatch-or-bad-bargain-unpacking-the-pros-and-cons-of-mobvoi-ticwatch-e2/"><u>Budget Friendly Smartwatch or Bad Bargain? Unpacking the Pros and Cons of Mobvoi TicWatch E2</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/capture-lifes-moments-with-nokia-71-outstanding-display-superior-camera-and-wallet-friendly-price/"><u>Capture Life's Moments with Nokia 7.1 – Outstanding Display, Superior Camera, and Wallet-Friendly Price</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-between-samsungs-latest-titans-s24-ultra-vs-s23-ultra-detailed-review/"><u>Choosing Between Samsung's Latest Titans: S24 Ultra Vs. S23 Ultra Detailed Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-imo-app-evaluation-pros-and-cons/"><u>Comprehensive Imo App Evaluation: Pros and Cons</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cutting-costs-without-cutting-corners-a-comprehensive-review-of-the-hp-stream-14/"><u>Cutting Costs without Cutting Corners? A Comprehensive Review of the HP Stream 14</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cutting-edge-audio-gear-for-your-digital-home-theater/"><u>Cutting-Edge Audio Gear for Your Digital Home Theater</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/resolving-system-hiccups-effective-solutions-for-the-persistent-problem-reinitializing-your-computer-error/"><u>Resolving System Hiccups: Effective Solutions for the Persistent 'Problem Reinitializing Your Computer' Error</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshoot-no-network-detection-by-windows/"><u>Troubleshoot No Network Detection by Windows</u></a></li>
+</ul></div>
 

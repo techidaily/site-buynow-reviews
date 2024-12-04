@@ -1,7 +1,7 @@
 ---
 title: In-Depth Assessment of Cyberpower's CP685AVRG - Essential UPS Functionality Reviewed
-date: 2024-11-12T16:35:03.896Z
-updated: 2024-11-15T17:07:55.780Z
+date: 2024-12-02T17:38:40.610Z
+updated: 2024-12-04T03:03:58.430Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Assessment of Cyberpower's CP685AVRG - Essential UPS Functionality Reviewed
@@ -48,13 +48,6 @@ Lifewire / Erika Rawes
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/2HQ40tAW6PvhutMT0JyWvwFpbdI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_HeroSquare-ea84381e359846e6951c77b6f7e7c5a0.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Erika Rawes
 
 [View On Amazon](https://www.amazon.com/dp/B0883VX67Y/?tag=lifewire-onsite-prod-20&ascsubtag=5118337%7Cn65397a42bddb43c7b820823d2a25aca405%7CB0883VX67Y) [View On Walmart](https://www.walmart.com/ip/839348316) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6413107.p)
@@ -75,6 +68,10 @@ Lifewire / Erika Rawes
 
  The[best PC games](https://www.lifewire.com/best-pc-games-4147292) offer something unique that keeps you coming back for more. Yakuza: Like a Dragon takes the standard Yakuza formula and stands it on its head, moving the fighting system from real-time to turn-based and making this entry to the series feel like a true JRPG. I played Yakuza: Like a Dragon[on PC](https://www.lifewire.com/best-pc-games-4147292) to find out if these changes make this game better or worse. Should you play the new Yakuza or skip it? Read on to check out my full review of Yakuza: Like a Dragon.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Setting and Plot: A very long intro
 
  Yakuza: Like a Dragon places you in the shoes of Ichiban Kasuga, a young Yakuza upstart who was raised as an orphan in a Soap House by the owner and the women who worked there. Kasuga gets into a bit of trouble with a Yakuza family but is saved by Masumi Arakawa, the patriarch of the Arakawa family. Because of this, Kasuga pledges his life to Arakawa, promising to repay the debt.
@@ -89,13 +86,6 @@ Lifewire / Erika Rawes
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/_ksFqEWrm3B3MbfrBujuNtLpcXw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_03-37ca82f2a4cd42c4ad65f34e2ca63b68.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Erika Rawes
 
  Once things open up, the story gets going in what can only be described as a true modern-day JRPG. It has many of the common tropes of a JRPG, like a party system that allows you to manage those who fight with you, turn-based combat, and a long sweeping epic filled with plenty of side quests.
@@ -105,13 +95,6 @@ Lifewire / Erika Rawes
  Yakuza: Like a Dragon is clearly inspired by games like Dragon Quest. So much so that eventually, and in a truly hilarious fashion, Kasuga begins having delusions of being a hero, and makes it his life's mission to become a hero who can save everyone around him. These delusions play out in a physical change that takes place over enemies during combat. Their eyes turn red, and their bodies change, but Kasuga is the only one who can see these changes.
 
  Overall, the story is interesting and engaging, with excellent voice acting and deep and interesting characters. There are plenty of opportunities to get to know the people who travel with you, and you come to care about the characters and their motivations. Yakuza: Like a Dragon is story-rich, and you won’t be disappointed at the amount of content to explore.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Gameplay: Fun, yet slow-paced at times
 
@@ -135,6 +118,10 @@ Lifewire / Erika Rawes
 
  This[PC game](https://www.lifewire.com/pc-gaming-reviews-4689600) plays just like it should, and the controls are top-notch. Everything just works, which is a rare feat these days. You should be able to finish the main story in around 45 to 55 hours, depending on how fast you run through it, but I highly recommend taking your time and enjoying all the wonderful diversions available.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Graphics: Excellent visuals
 
  The graphics and visuals are impressive. Details are accurate and in the right places. Food looks so realistic (and delicious), and there were some moments where I could even see the pores on a person's skin during cinematics.
@@ -147,20 +134,10 @@ Lifewire / Erika Rawes
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/zrV5S3jL3_76G0PVgT1K_Ty6WWI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_04-e33b82262b344fecae27d668b3c92ba9-55ba8acb6d324eed81fbf5453e770db8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Price: The typical $60
@@ -168,6 +145,10 @@ Lifewire / Erika Rawes
  The base version of Yakuza: Like a Dragon comes in at $60 like most new titles. The price is reasonable for the amount of gameplay. However, you have two other purchase options as well. The Hero Edition, which costs $70, includes the Job Set and the Management Mode set and features two extra jobs and three sets of Management mode employees.
 
  The Legendary Hero edition costs $90, and it includes both previously listed sets, as well as the Crafting Mat, Stat Boost, Karaoke, and Ultimate Costume sets. These are all nice bonuses and can certainly add to the experience, but you will also find more than enough gameplay in the base game.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Yakuza: Like a Dragon vs. Dragon Quest Series
 
@@ -178,6 +159,10 @@ Lifewire / Erika Rawes
 **An entertaining and addictive JRPG.**
 
  A well-crafted masterpiece. Yakuza: Like a Dragon falls into the must-play category for anyone who loves a good story, JRPGs, or a wild game that will make you laugh. It’s definitely a departure from the rest of the series, but that contributes to a lot of the fun and uniqueness of the game.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -213,24 +198,18 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-expert-tips-to-transform-lengthy-videos-into-engaging-segmented-content/"><u>[New] 2024 Approved Expert Tips to Transform Lengthy Videos Into Engaging, Segmented Content</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-tailored-titling-techniques-for-impactful-youtube-channels/"><u>[Updated] 2024 Approved Tailored Titling Techniques for Impactful YouTube Channels</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-achieve-professionalism-in-sims-4-videography/"><u>[Updated] Achieve Professionalism in Sims 4 Videography</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-discovering-unmatched-premium-rate-free-luts-of-today-for-2024/"><u>[Updated] Discovering Unmatched Premium-Rate Free LUTs of Today for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-raw-footage-to-final-cut-youtube-studio-edition/"><u>[Updated] In 2024, From Raw Footage to Final Cut YouTube Studio Edition</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1-convert-mts-video-files-to-mp4-free-top-8-methods-for-pc-and-mac-users/"><u>1. Convert MTS Video Files to MP4 FREE: Top 8 Methods for PC & Mac Users</u></a></li>
-<li><a href="https://driver-error.techidaily.com/computer-trouble-keyboard-non-working/"><u>Computer Trouble: Keyboard Non-Working</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dell-xps-13-7390-2-in-1-laptop-evaluation-an-exquisite-and-versatile-ultrathin-computer/"><u>Dell XPS 13 (7390) 2-in-1 Laptop Evaluation: An Exquisite & Versatile Ultrathin Computer</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experiencing-speedy-internet-all-over-your-house-heres-our-thorough-review-of-orbi-tri-band-mesh-wifi-6-system/"><u>Experiencing Speedy Internet All Over Your House? Here's Our Thorough Review of Orbi Tri-Band Mesh WIFI 6 System</u></a></li>
-<li><a href="https://howto.techidaily.com/gmail-not-working-on-infinix-hot-40i-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Infinix Hot 40i 7 Common Problems & Fixes | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-demystifying-facebooks-off-page-activity-review/"><u>In 2024, Demystifying Facebook's Off-Page Activity Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-assessment-of-the-amplifi-hd-wireless-networking-solution-defeat-wi-fi-weak-spots-with-ease/"><u>In-Depth Assessment of the Amplifi HD Wireless Networking Solution: Defeat Wi-Fi Weak Spots with Ease</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-netgears-nighthawk-c7000-a-superior-wifi-modem-reviewed/"><u>In-Depth Look at Netgear's Nighthawk C7000: A Superior WiFi Modem Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-philips-hf3505-circadian-rhythm-clock-for-a-refreshing-morning-awakening/"><u>In-Depth Review: Philips HF3505 Circadian Rhythm Clock for a Refreshing Morning Awakening</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/interactive-showdown-with-the-philips-49-curvaceous-oled-display-perfect-for-gamers/"><u>Interactive Showdown with the Philips 49 Curvaceous OLED Display - Perfect for Gamers</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/superior-2-written-by-robert-littell/"><u>Superior 2 Written by Robert Littell</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-selection-of-mobile-power-solutions-for-your-laptop/"><u>The Ultimate Selection of Mobile Power Solutions for Your Laptop</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/thorough-review-of-the-motorola-one-t5g-ace-unparalleled-speed-and-remarkable-battery-longevity/"><u>Thorough Review of the Motorola One T5g Ace: Unparalleled Speed and Remarkable Battery Longevity</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-review-for-highly-rated-battery-operated-google-wireless-nest-doorbells/"><u>Top Review for Highly Rated Battery Operated Google Wireless Nest Doorbells</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-securing-your-playtime-with-diverse-gaming-screen-capture-software/"><u>[New] Securing Your Playtime with Diverse Gaming Screen Capture Software</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-elite-picks-a-list-mac-video-capture-tools/"><u>[Updated] 2024 Approved Elite Picks A-List Mac Video Capture Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-from-script-to-screen-building-a-youtube-trailer-in-filmora-for-2024/"><u>[Updated] From Script to Screen Building a YouTube Trailer in Filmora for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-to-remove-a-background-in-affinity-photo/"><u>[Updated] How to Remove a Background in Affinity Photo</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-turn-on-and-use-automatic-hdr-high-dynamic-range-in-windows-11/"><u>2024 Approved How to Turn On and Use Automatic HDR (High Dynamic Range) in Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-watch-selection-guide-making-an-informed-choice-between-gps-enabled-and-cellular-variants/"><u>Apple Watch Selection Guide: Making an Informed Choice Between GPS-Enabled and Cellular Variants</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-ring-battery-doorbell-plus-a-detailed-product-review-for-homeowners/"><u>Evaluating the Ring Battery Doorbell Plus – A Detailed Product Review for Homeowners</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-realme-c53-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Realme C53? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-viral-watches-amazon-primes-hot-series-in-twittersphere/"><u>In 2024, Viral Watches Amazon Prime's Hot Series in Twittersphere</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/primetrackings-miniaturized-tracker-the-smart-way-to-keep-your-valuables-safe-full-product-review/"><u>PrimeTracking's Miniaturized Tracker: The Smart Way to Keep Your Valuables Safe – Full Product Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smart-escort-ix-assessment-the-ai-powered-radar-detector-adapting-on-the-go/"><u>Smart Escort iX Assessment: The AI-Powered Radar Detector Adapting on the Go</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1722886308949-yahoo-users-heres-how-you-can-erase-your-email-account-forever/"><u>Yahoo Users, Here's How You Can Erase Your Email Account Forever!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/zoom-like-a-pro-with-powershot-sx720hs-reviewed/"><u>Zoom Like a Pro with PowerShot SX720HS Reviewed</u></a></li>
 </ul></div>
 

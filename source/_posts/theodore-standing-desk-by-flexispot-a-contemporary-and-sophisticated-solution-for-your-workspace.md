@@ -1,7 +1,7 @@
 ---
 title: "Theodore Standing Desk by Flexispot: A Contemporary & Sophisticated Solution for Your Workspace"
-date: 2024-08-27T11:09:37.035Z
-updated: 2024-08-28T11:09:37.035Z
+date: 2024-12-02T01:15:07.922Z
+updated: 2024-12-03T17:26:23.535Z
 categories:
   - BestProducts
 description: "This Article Describes Theodore Standing Desk by Flexispot: A Contemporary & Sophisticated Solution for Your Workspace"
@@ -61,11 +61,12 @@ Lifewire / Rebecca Isaacs
 
 ![CumulusPRO Standing Desk Mat](https://www.lifewire.com/thmb/SuOtLk1ZBrl0nHIY-pQnGHEI74A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cumulus-Pro-Comfort-Mat-2-c0910221e3d340f49299d56b0509acd3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Simply modern**
 
  At 24 inches by 36 inches (LW), the CumulusPRO is a very wide mat, providing ample space for us to move and shift around in. It’s also very modern looking, as the top of the mat has a simple grey, wavy design that would accommodate most modern office spaces. This particular mat was very thin, at 0.75 inches. It wasn’t as slick on the bottom as some other mats we tested, which we felt was a huge perk. And on top of that, the edges are designed to taper downward, so that you needn’t worry about tripping as you step onto it.
@@ -73,13 +74,11 @@ Lifewire / Rebecca Isaacs
 ![CumulusPRO Standing Desk Mat](https://www.lifewire.com/thmb/BLF6wQLJynPpwT_zlr5rT_J-LiQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cumulus-Pro-Comfort-Mat-3-2612dc3d381c449d91d0eb0b9e4b2853.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Comfort: A pleasant surprise**
 
  At first, we thought that we would tire easily on this mat. After all, it doesn’t come with the bells and whistles of some of the more expensive mat models out there. However, we were pleasantly surprised in that two hours of standing we weren’t fatigued. One of the reasons is because the mate is very cushy. Even though it’s thin, the moment we stepped onto it, our feet sunk into it. We also felt that the mat cradled our feet when we used it, which was a nice sensation.
@@ -95,24 +94,17 @@ In terms of versatility, the CumulusPRO mat is king.
  Another nice feature of the CumulusPRO is that we could wear heels and not damage it. While this may seem trivial, compared to other mats we tested, this was amazing for the ladies who like to wear heeled shoes.
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Pretty steep for a mat**
 
  At around $80 on Amazon, the CumulusPRO is expensive for a mat that doesn’t come with extra surface features. However, taking into context its versatility around the office and the home, the price is actually a solid investment. If you decide you don’t want it in your office, but say, in the kitchen, it can easily be transplanted into other areas of the house or workplace.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Ergodriven Topo vs. CumulusPRO Standing Desk Mat**
 
  We decided to compare the Ergodriven Topo against the CumulusPRO to see which we felt was the better bang for your buck. Price-wise, both the Topo and the CumulusPRO mats are similar in that the Topo retails for $100 while the CumulusPRO retails for around $80\. For a desk, the Topo mat we felt was superior to the CumulusPRO. The Ergodriven comes with basic wedges and a massage mound in the center to help alleviate foot pain during the day—features that the CumulusPRO doesn’t have.
@@ -128,8 +120,9 @@ In terms of versatility, the CumulusPRO mat is king.
  For a basic mat, the CumulusPRO is a solid choice. We especially liked how it hides dirt and can be used for those who prefer to wear high heels. Considering it’s a basic standing mat, its versatility is definitely worth the investment.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Commercial Couture Anti-Fatigue Standing Desk Mat
@@ -140,14 +133,11 @@ In terms of versatility, the CumulusPRO mat is king.
 * Warranty  Lifetime
 * Connectivity Options  None
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -156,4 +146,24 @@ In terms of versatility, the CumulusPRO mat is king.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-audio-amplification-for-online-photo-archiving/"><u>[New] In 2024, Audio Amplification for Online Photo Archiving</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-streaming-mastery-record-hulu-playback-on-multiple-systems/"><u>[New] In 2024, Streaming Mastery Record Hulu Playback on Multiple Systems</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-navigating-through-collective-media-on-messenger/"><u>[New] Navigating Through Collective Media on Messenger</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-stay-ahead-of-the-curve-with-iphone-and-androids-best-photo-sticker-apps-for-2024/"><u>[New] Stay Ahead of the Curve with iPhone and Android's Best Photo Sticker Apps for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/chromecast-meets-google-tv-an-in-depth-review-against-the-popular-firetv/"><u>Chromecast Meets Google TV: An In-Depth Review Against the Popular FireTV</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-examination-unveiling-the-performance-of-googles-latest-smartphone-pixel-e6/"><u>Comprehensive Examination: Unveiling the Performance of Google's Latest Smartphone, Pixel E6</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-unveiling-the-capabilities-of-free-image-editor-photoscape/"><u>Comprehensive Review: Unveiling the Capabilities of Free Image Editor PhotoScape</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivate-conversational-confidence-in-social-vr-realms/"><u>Cultivate Conversational Confidence in Social VR Realms</u></a></li>
+<li><a href="https://solve-news.techidaily.com/descubre-como-transformar-tu-musica-wma-en-formato-mp3-sin-coste-alguno-usando-movavi-en-linea/"><u>Descubre Cómo Transformar Tu Música WMA en Formato MP3 Sin Coste Alguno Usando Movavi en Línea</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-the-best-of-both-worlds-lenovo-tab-m10-2020-beautiful-display-meets-affordability/"><u>Discovering the Best of Both Worlds: Lenovo Tab M10 (2020) – Beautiful Display Meets Affordability</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/door-security-decision-makers-dilemma-comparing-the-pros-and-cons-of-ring-with-nest-systems/"><u>Door Security Decision-Makers' Dilemma: Comparing the Pros and Cons of Ring with Nest Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-system-the-ultimate-upgrade-checklist/"><u>Elevate Your System: The Ultimate Upgrade Checklist</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/embark-on-a-reading-adventure-amazons-kindle-unlimited-explained-with-its-four-key-benefits/"><u>Embark on a Reading Adventure - Amazon’s Kindle Unlimited Explained with Its Four Key Benefits</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-evaluation-of-google-pixel-6s-advanced-imaging-and-multimedia-functionality/"><u>Expert Evaluation of Google Pixel 6'S Advanced Imaging and Multimedia Functionality</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-sync-your-android-phone-with-a-windows-pc/"><u>How to Sync Your Android Phone With a Windows PC</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-streamlining-video-calls-leveraging-zoom-on-windows-10-pcs/"><u>In 2024, Streamlining Video Calls Leveraging Zoom on Windows 10 PCs</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolving-jvm-dll-error-comprehensive-guide/"><u>Resolving JVM DLL Error: Comprehensive Guide</u></a></li>
+</ul></div>
 

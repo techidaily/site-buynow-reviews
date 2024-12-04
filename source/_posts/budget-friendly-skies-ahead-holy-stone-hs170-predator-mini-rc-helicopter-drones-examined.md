@@ -1,7 +1,7 @@
 ---
 title: "Budget-Friendly Skies Ahead: Holy Stone HS170 Predator Mini RC Helicopter Drones Examined"
-date: 2024-08-27T11:12:12.767Z
-updated: 2024-08-28T11:12:12.767Z
+date: 2024-11-30T23:59:57.717Z
+updated: 2024-12-04T01:49:36.850Z
 categories:
   - BestProducts
 description: "This Article Describes Budget-Friendly Skies Ahead: Holy Stone HS170 Predator Mini RC Helicopter Drones Examined"
@@ -69,6 +69,10 @@ thumbnail: https://thmb.techidaily.com/83862af6c48eed4f22a649a79deec35e1e15bdc44
 
 ![Mobvoi TicWatch E2](https://www.lifewire.com/thmb/c84siDEZj_DPwzJOMzSncx_5Cb8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4048042_03-843bcf3ec9ce49b090f754fd435eba9c-26876cbe9ff4459dac734a2c38c35e62.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
 ## **Design and Comfort: Nondescript, but the screen is great**
@@ -82,8 +86,9 @@ Lifewire / Andrew Hayward
  The case only has one physical button, on the right side of the case—pressing it quickly brings up the scrolling list of apps, while a sustained press pulls up the Google Assistant. The TicWatch E2 comes with a black silicone 22mm sport band, which you can swap out with other bands of the same size if you please. Despite its large size, the watch itself is incredibly lightweight, so it doesn't feel heavy on the wrist at all.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup Process: No hassle at all**
 
  Setting up the TicWatch E2, like any recent Wear OS watch, is a straightforward process. Simply download the Wear OS app on your Android phone or iPhone and follow the steps within, which include pairing the watch, considering some settings, and ultimately getting up and running. It shouldn't take more than a few minutes in total.
@@ -92,9 +97,6 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Performance: Sometimes fine, sometimes not**
 
  Unsurprisingly, this discount smartwatch doesn't come with the latest and greatest tech inside. The Mobvoi TicWatch E2 uses the Qualcomm Snapdragon Wear 2100 chip, which debuted in 2016 and has since been replaced by the speedier Snapdragon Wear 3100\. That's the chip you'll see in most of today's Wear OS watches, but not this one.
@@ -118,22 +120,15 @@ Lifewire / Andrew Hayward
 ![Mobvoi TicWatch E2](https://www.lifewire.com/thmb/qqjgkoPMGLDcHiZ42FTOqRzF8qk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4048042_02-53f95b3090b84e4f8d439ed6e82d9adf.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Software and Key Features: The budget feature set**
 
  The TicWatch E2 currently runs Wear OS 2.6, which is the latest version, and Google's smartwatch interface has gradually gotten smoother and more useful over the years. It's not as eye-catching or intuitive as Apple's watchOS 5, but the E2's included watch faces look nice and there are many more available to download from the Play Store, not to mention a solid array of wearable apps.
@@ -157,8 +152,9 @@ Lifewire / Andrew Hayward
 Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **TicWatch E2 vs. Fitbit Versa**
 
  The TicWatch E2 and Fitbit Versa are two of the most notable current options when it comes to fitness-centered smartwatches that won’t break the bank. We prefer the larger screen and visual design of the TicWatch, although the slim build of the Fitbit Versa is better for fitness needs.
@@ -173,15 +169,16 @@ Lifewire / Andrew Hayward
 
  The Ticwatch E2 runs fluidly some of the time, the screen looks great, and the no-nonsense design is totally solid. It also works well as a fitness tracker, when you want it to. However, it frequently got bogged down during our testing, turning the simple act of bringing up apps or triggering the Google Assistant into an exercise in frustration. Add in the semi-regular disconnects from our phone and the charger debacle, and it just isn’t worth the price. Put your money towards a smartwatch that doesn't feel so compromised.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Samsung Galaxy Fit](https://www.lifewire.com/samsung-galaxy-fit-review-4766867)
 * [Samsung Galaxy Watch](https://www.lifewire.com/samsung-galaxy-watch-review-4769740)
 * [Fitbit Versa 2](https://www.lifewire.com/fitbit-versa-2-review-4797556)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  TicWatch E2
@@ -197,14 +194,11 @@ Lifewire / Andrew Hayward
 * Storage  4GB
 * Waterproof  5ATM
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -213,4 +207,23 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-guides-to-quick-webinar-recording-with-macos-and-windows/"><u>[New] Guides to Quick Webinar Recording with macOS and Windows</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-the-plating-palette-techniques-for-food-cinematography/"><u>[Updated] 2024 Approved The Plating Palette Techniques for Food Cinematography</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-start-with-smart-edits-10-tips-for-new-photoshop-users/"><u>[Updated] Start with Smart Edits 10 Tips for New Photoshop Users</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/2024-approved-sending-direct-tweets-share-photosvideos-on-twitter-without-retweeting/"><u>2024 Approved Sending Direct Tweets Share Photos/Videos on Twitter without Retweeting</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/garmin-vivosmart-4-analysis-exploring-body-battery-and-stress-tracking-capabilities/"><u>Garmin Vivosmart 4 Analysis: Exploring Body Battery & Stress Tracking Capabilities</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-m6-pro-4g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on M6 Pro 4G</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-lava-yuva-2-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Lava Yuva 2 to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-newest-fitbit-charge-6-wearable-tracker/"><u>In-Depth Analysis of the Newest Fitbit Charge 6 Wearable Tracker</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-lenovos-budget-friendly-2-in-1-chromebook-duet/"><u>In-Depth Review of Lenovo's Budget-Friendly 2-in-1 Chromebook Duet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/influencer-reviews-choosing-between-apple-tv-4k-or-roku-ultra-heres-what-you-need-to-know/"><u>Influencer Reviews: Choosing Between Apple TV 4K or Roku Ultra? Here's What You Need to Know!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-the-netgear-c3700-device-the-ultimate-router-with-built-in-modem/"><u>Inside the Netgear C3700 Device - The Ultimate Router with Built-In Modem</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/key-considerations-for-selecting-the-best-fitness-band-or-watch/"><u>Key Considerations for Selecting the Best Fitness Band or Watch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/kodaks-zoom-lens-for-affordable-quality-photos/"><u>Kodak's Zoom Lens for Affordable, Quality Photos</u></a></li>
+<li><a href="https://windows11.techidaily.com/recovering-robustness-of-ccleaner-on-your-win11-pc/"><u>Recovering Robustness of CCleaner on Your Win11 PC</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/unleash-premium-zoom-audio-quality-with-simple-adjustments-for-2024/"><u>Unleash Premium Zoom Audio Quality with Simple Adjustments for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/unveiling-the-magic-behind-nvidias-g-sync-technology/"><u>Unveiling the Magic Behind Nvidia's G-Sync Technology</u></a></li>
+</ul></div>
 

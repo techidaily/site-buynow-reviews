@@ -1,7 +1,7 @@
 ---
 title: Sony PS-LX310BT - Compact & Contemporary Turntable
-date: 2024-08-27T11:12:41.192Z
-updated: 2024-08-28T11:12:41.192Z
+date: 2024-11-28T03:34:46.082Z
+updated: 2024-12-04T02:06:38.447Z
 categories:
   - BestProducts
 description: This Article Describes Sony PS-LX310BT - Compact & Contemporary Turntable
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/CfBQep-WLpFKpgq6DdHcUBkAD5o=/400x300/fi
 ## 'The Outer Worlds' - Immersive Space Action & Compelling Narrative Unite
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Outer Worlds
 
@@ -61,8 +65,9 @@ Lifewire / Kelsey Simon
  The Outer Worlds is a single-player[action-adventure game](https://www.lifewire.com/game-play-and-streaming-4781449) full of guns, colonists, spaceships, and monsters. You’ll venture out into a sci-fi world and try to save your ship which has had a serious malfunction. The shooting in Outer Worlds is fun, but the game’s best feature is its choice-driven story. We played the game on PC for roughly 20 hours, thoroughly enjoying its dark humor and fun gameplay.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Story: Engaging dialogue and dark humor**
 
  The Outer Worlds is a science fiction game with a focus on dry, dark humor. You’ll start the game by waking up on a malfunctioning spaceship. A man has woken you from stasis and says he needs you to save the ship and all the people living in stasis upon it. His name is Phineas Welles, and he’ll give you a very brief rundown that you’re to meet a smuggler who will take you to someone who can save your ship and people. As you go through this short cutscene sequence, you’ll be prompted to make your character, select your aptitude, skills, and attributes, before Phineas will drop you in a pod down to a planet where you’re to meet the smuggler, Hawthorne.
@@ -83,14 +88,8 @@ Lifewire / Kelsey Simon
 
 ![The Outer Worlds](https://www.lifewire.com/thmb/6e7gsLSJwKWV8-Gpw6vMnU6_ohk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-02-03e4afcdc62d4528a5e0b6e4e19ae03b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Gameplay: Shooting enemies for story progression**
 
  The Outer Worlds is a first-person shooter role-playing adventure. The game allows for a fairly open world exploration, but has a more linear story path with main missions, and the occasional side mission. You can choose to explore open areas and kill the enemies that lurk out in the wild, but there isn’t really the same incentive to doing so as there is in games such as[Skyrim](https://www.lifewire.com/the-elder-scrolls-v-skyrim-review-4685718) . Mostly, you’ll stick to the main story path and occasionally venture off it to finish a simple side mission before venturing back.
@@ -107,9 +106,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## **Graphics: Average, but solid**
 
  The Outer Worlds doesn’t attempt to do anything amazing with its graphics, which is totally fine. There’s no artistic flair like with Borderlands, nor is there an attempt at extremely realistic textures like with Monster Hunter: World, but the Outer Worlds does enough. The graphics are on par with other big name titles, and the landscapes of the various planets you’ll visit are interesting and different enough. This helps make exploration fun, but really, there isn’t anything amazing about the graphics. They are what they need to be. The only other thing also worth mentioning is the slightly humorous, constant propaganda that you’ll come across in various areas. In Emerald Vale, the starting area, you’ll start to see this theme and it will be carried through the rest of the game.
@@ -118,14 +114,18 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Not bad if you enjoy story-driven games**
 
  The Outer Worlds costs $60 new, although you might be able to catch it on sale if you watch closely. Even at full cost, it’s a game worth buying if you enjoy science fiction inspired first-person shooters―or more specifically, single-player shooter games with a focus on storytelling. As someone who often doesn’t like spending loads of money on a new game, I will say that Outer Worlds was one I didn’t mind buying. The game is fun and well written. It’s an adventure to be had, and while it’s not the best game that’s ever been made, it’s a solid, well-made game that most will enjoy.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Competition: Sci-fi games with strong series**
 
  As mentioned earlier in the review, it is easy to see where else The Outer Worlds (view on[Amazon](https://www.amazon.com/Outer-Worlds-PS4-playstation-4/dp/B07SPKJRWX/?tag=lifewire-onsite-prod-20&ascsubtag=5077238%7Cnf824de6f2b6d448fa046a9bad43a687209%7C) ) takes inspiration. Mass Effect is a series with a lot of similarities. First, Mass Effect is also a sci-fi shooter focused on story-telling and decision-making. Its gameplay will feel very similar to Outer Worlds, although Outer Worlds has a better sense of humor. The second game that is similar and worth looking into is the Bioshock series. Bioshock is also a science fiction shooter with an apocalyptic feeling. It has a very similar gameplay experience as Mass Effect and Outer Worlds, and comes with a darker, well-written plot.
@@ -137,8 +137,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  The Outer Worlds is a story-drive first-person shooter that has a great sense of humor. Each decision you make will impact how the game unfolds. The shooting, while basic, is fun and provides the perfect vehicle to propel you forward on your adventure. Overall, The Outer Worlds is a solid game if you’re looking for a fun, humorous single-player experience.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  The Outer Worlds
@@ -147,14 +148,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * ESRB Descriptors  Blood and gore, Intense violence, Strong language
 * Genre  Role Playing
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -163,4 +161,24 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-top-6-minecraft-modern-house-ideas/"><u>[New] 2024 Approved Top 6 Minecraft Modern House Ideas</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-rival-tools-that-outclass-sharex-for-2024/"><u>[Updated] Rival Tools that Outclass ShareX for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-brevity-in-action-shortening-youtube-video-content/"><u>2024 Approved Brevity in Action Shortening YouTube Video Content</u></a></li>
+<li><a href="https://fox-http.techidaily.com/do-consumer-feedbacks-get-paid-in-vlogs-in-2024/"><u>Do Consumer Feedbacks Get Paid in Vlogs, In 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-combatting-blurry-and-warped-youtube-videos/"><u>In 2024, Combatting Blurry and Warped YouTube Videos</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/masterful-examination-of-the-formidable-beatit-bt-d11-booster-unit/"><u>Masterful Examination of the Formidable Beatit BT-D11 Booster Unit</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-cut-throat-capitalism-in-offworld-trading-company-a-guide-to-empire-building/"><u>Navigating Cut-Throat Capitalism in Offworld Trading Company - A Guide to Empire Building</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/netgear-nighthawk-x4-wi-fi-mesh-extender-review-it-meshes-very-well/"><u>Netgear Nighthawk X4 Wi-Fi Mesh Extender Review: It Meshes Very Well</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/next-level-computing-expert-analysis-of-the-game-changing-m1-cpu-in-apples-latest-macbook-pro-13/"><u>Next-Level Computing: Expert Analysis of the Game-Changing M1 CPU in Apple's Latest MacBook Pro (13)</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-videos-from-magic5-ultimate-by-fonelab-android-recover-video/"><u>Possible solutions to restore deleted videos from Magic5 Ultimate</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/propella-7s-40-review-affordable-agile-and-lightweight-outdoor-equipment/"><u>Propella 7S 4.0 Review - Affordable, Agile & Lightweight Outdoor Equipment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reliability-trial-jabras-steel-tier-audio-devices/"><u>Reliability Trial: Jabra's Steel-Tier Audio Devices</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-realme-c67-4g-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Realme C67 4G</u></a></li>
+<li><a href="https://win11.techidaily.com/restoring-standard-plans-for-windows-11-battery-use/"><u>Restoring Standard Plans for Windows 11 Battery Use</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stream-smarter-not-harder-the-in-depth-review-of-chromecast-with-google-tv/"><u>Stream Smarter, Not Harder - The In-Depth Review of Chromecast with Google TV!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/terramat-cubefit-evaluation-revolutionize-your-workout-in-a-stationary-position/"><u>TerraMat CubeFit Evaluation: Revolutionize Your Workout in a Stationary Position</u></a></li>
+</ul></div>
 

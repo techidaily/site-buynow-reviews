@@ -1,7 +1,7 @@
 ---
 title: "Kobo Forma In Depth: A Detailed Look at a Revolutionary E-Reader Designed with Bookworms in Mind"
-date: 2024-11-21T19:23:44.299Z
-updated: 2024-11-24T17:37:30.744Z
+date: 2024-11-28T03:26:23.719Z
+updated: 2024-12-03T16:02:03.804Z
 categories:
   - BestProducts
 description: "This Article Describes Kobo Forma In Depth: A Detailed Look at a Revolutionary E-Reader Designed with Bookworms in Mind"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/d4011b13ce09e30b67e00ca49a12c263fc568d55d
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Netgear Powerline PL1200
 
@@ -45,10 +49,6 @@ Lifewire / Jordan Oloman
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/rYExgRawgStvNWLyEyCyiiEqyOI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_HeroSquare-d40232740fc34cdbb9b7197a7bda177d.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Jordan Oloman
 
 [View On Amazon $93](https://www.amazon.com/NETGEAR-PowerLINE-1200-Gigabit-PL1200-100PAS/dp/B00S6DBGJM/?tag=lifewire-onsite-prod-20&ascsubtag=4775706%7Cnd7ef9f90fead488fa5331864dc7d135e18%7CB00S6DBGJM) [View On Walmart $95](https://www.walmart.com/ip/POWERLINE-1200/45611933) [View On Best Buy $48](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-powerline-ac1200-gigabit-ethernet-adapter-2-pack-white%2F4002029.p%3FskuId%3D4002029)
@@ -73,7 +73,15 @@ Lifewire / Jordan Oloman
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/pTY-hBlPDWY0Ns6j4BVyAl75U-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_04-cd509045b4a3477fab85fdf3c69cacb4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jordan Oloman
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Sharp edges and frustration**
 
@@ -88,10 +96,6 @@ Lifewire / Jordan Oloman
  There’s also only one Ethernet port on the Netgear kit, which means that you can only improve the wired connection of one device—a poor payoff for all of the manoeuvering you may have to do, especially when there’s certainly space for another port. Overall, the design is obtrusive and frustrating, which is a shame given how reliable adapter is.
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LMrQEcpONDZxLUfoMW6U8sX4dQw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_02-a8557f722ac84f29b6efb2a763d22a3c.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Jordan Oloman
 
@@ -109,11 +113,11 @@ Lifewire / Jordan Oloman
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LvSmrJJnFItVzQEAPCzBexfSn2M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_03-8fb5af44f82449b49fc780fd23bcb2af.jpg)
 
- Lifewire / Jordan Oloman
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Jordan Oloman
 
 ## **Performance: A solid improvement**
 
@@ -127,13 +131,13 @@ Lifewire / Jordan Oloman
 
  You can create a secure and powerful network that boasts a dramatic upgrade in efficacy, all for a low price point, with a setup process that is actually plug and play.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Affordable for what you get**
 
  Out of the adapters we tested, the Netgear Powerline 1200 was one of the cheaper ones on Amazon, ranging between $70-$85\. You can see why when you study the design and the many aesthetic flaws that come with this product. Besides the fact it is bulky and doesn’t play nice with other plugs, it’s a reliable means to improve your home network through the wonders of Powerline. It’s still quite a hard sell at this price compared to other products that hover around the same and offer more ports and socket functionality, but it’s still a worthwhile purchase if you just want to plug and play.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Netgear Powerline 1200 vs. TP-Link AV2000 Powerline Adapter**
 
@@ -148,10 +152,6 @@ Lifewire / Jordan Oloman
  **A Powerline kit with solid speeds and an easy setup undermined by poor design.**
 
  The Netgear Powerline 1200 is incredibly reliable, albeit poorly designed. It is obstructive in the design department, fairly ugly to look at and comes with just one connection and awfully short Ethernet cables. Yet it has a true plug and play setup process with no compromises, and offers a reliable upgrade to your home network speeds. If you can look past the strange design choices this is the perfect introductory kit for Powerline beginners that does everything you need it to.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -177,14 +177,19 @@ Lifewire / Jordan Oloman
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-introduction-to-av1-encoding-techniques/"><u>[New] Introduction to AV1 Encoding Techniques</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-propel-your-video-writes-the-ai-way/"><u>[Updated] In 2024, Propel Your Video' Writes The AI Way</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-hyperfast-picture-explorer-on-windows-11/"><u>2024 Approved Hyperfast Picture Explorer on Windows 11</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/future-proof-your-network-an-authoritative-review-of-the-netgear-nighthawk-ax8-wi-fi-6-mesh-extender/"><u>Future-Proof Your Network: An Authoritative Review of the Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-motorola-g24-power-is-unlocked-by-drfone-android/"><u>How To Check if Your Motorola G24 Power Is Unlocked</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-world-of-amazon-devices-understanding-the-gap-between-kindle-and-fire-tablet/"><u>Navigating the World of Amazon Devices: Understanding the Gap Between Kindle & Fire Tablet</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/top-productivity-apps-for-ipad-streamline-your-tasks-and-improve-efficiency-insights/"><u>Top Productivity Apps for iPad: Streamline Your Tasks & Improve Efficiency - Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleash-your-inner-player-with-these-top-8-google-play-pass-game-titles/"><u>Unleash Your Inner Player with These Top 8 Google Play Pass Game Titles</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unmatched-selection-on-a-budget-the-ultimate-roku-express-review-highlights-huge-library-accessibility/"><u>Unmatched Selection on a Budget: The Ultimate Roku Express Review Highlights Huge Library Accessibility</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/iscovering-where-youtube-video-management-happens-for-2024/"><u>[New] Discovering Where YouTube Video Management Happens for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/egitimate-protocols-for-achieving-over-a-million-viewership-for-2024/"><u>[New] Legitimate Protocols for Achieving Over a Million Viewership for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-pros-and-cons-gopro-hero-4-vs-drift-ghost-s-racing-edition/"><u>2024 Approved Pros & Cons GoPro Hero 4 Vs. Drift Ghost-S Racing Edition</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mp3-adts/"><u>高音質MP3への変換: ADTSファイルをうまく保ちながら効率良く変更する方法</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722656085522-a-closer-look-at-apples-latest-imac-the-stunning-design-meets-the-formidable-m1-technology-reviewed-here/"><u>A Closer Look at Apple's Latest iMac - The Stunning Design Meets the Formidable M1 Technology Reviewed Here!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/comprehensive-guide-to-windows-movie-maker-in-2cuity4-benefits-and-drawbacks-explored/"><u>Comprehensive Guide to Windows Movie Maker in 2Cuity4 - Benefits and Drawbacks Explored</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/conversion-de-archivos-mod-a-mp4-sin-coste-herramienta-en-linea-gratis-de-movavi/"><u>Conversión De Archivos MOD a MP4 Sin Coste - Herramienta en Línea Gratis De Movavi</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722715049305-sonys-offering-a-comprehensive-review-of-the-65-inch-4k-xbr-65x850f-led-tv-at-a-reasonable-price/"><u>Sony's Offering: A Comprehensive Review of the 65-Inch 4K XBR-65X850F LED TV at a Reasonable Price</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722571073827-the-ultimate-tcl-50s425-50-smart-led-4k-tv-roku-2019-review-for-budget-shoppers/"><u>The Ultimate TCL 50S425 50 Smart LED 4K TV - Roku 2019 Review for Budget Shoppers!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-5k-tcl-tvs-in-depth-look-at-the-tcl-50s425-50-inch-smart-roku-tv-of-2019/"><u>Top 5K TCL TVs: In-Depth Look at the TCL 50S425 50-Inch Smart Roku TV of 2019</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transition-mechanisms/"><u>Transition Mechanisms</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ultimate-live-soundscape-websites/"><u>Ultimate Live Soundscape Websites</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-aerial-thrills-at-home-an-expert-review-of-the-syma-yali-672-rc-helicopter/"><u>Unleashing Aerial Thrills at Home: An Expert Review of the Syma Yali 672 RC Helicopter</u></a></li>
 </ul></div>
 

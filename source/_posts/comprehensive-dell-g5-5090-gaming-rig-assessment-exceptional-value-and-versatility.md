@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Dell G5 5090 Gaming Rig Assessment - Exceptional Value and Versatility
-date: 2024-11-20T01:50:30.953Z
-updated: 2024-11-24T21:32:39.319Z
+date: 2024-12-01T00:41:28.418Z
+updated: 2024-12-04T00:39:07.826Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Dell G5 5090 Gaming Rig Assessment - Exceptional Value and Versatility
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/4i3fdmdcd1swkbkMP9bxOi3Nexc=/400x300/fi
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/6eJwPC0xPwMxCh4aQhG73X9dkzU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -51,7 +47,7 @@ Lifewire / Erika Rawes
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -85,6 +81,10 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Setup: Easier than most**
@@ -95,6 +95,10 @@ Lifewire / Erika Rawes
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Almost two dozen channels**
 
  The Antop AT-127 supports UHF and VHF signals. Overall, it works pretty smoothly, though some channels might have look pixelated for a few seconds when you flip to them or take a second or two to fully load.
@@ -103,11 +107,11 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Range: Could be better**
 
@@ -125,10 +129,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
  You can find indoor antennas for less than $15 (view on[Amazon](https://www.amazon.com/dp/B075ZQXB26/?tag=lifewire-onsite-prod-20&ascsubtag=4845583%7Cna0f30cabffec4337b279a8df3e4c99b015%7C) ). The[AmazonBasics](https://www.lifewire.com/amazonbasics-flat-tv-antenna-review-4845569) 35-mile range antenna is a good example, though it doesn’t come with a stand or have the easy-push connector. Aesth etically, the AmazonBasics antenna doesn’t hold a candle to the Antop antenna, but it does cost significantly less.
@@ -140,7 +140,7 @@ Lifewire / Erika Rawes
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -174,20 +174,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-direct-upload-from-twitter-to-tumblr/"><u>[New] 2024 Approved Direct Upload From Twitter to Tumblr</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-in-depth-guide-to-streaming-and-recording-webcasts-professionally/"><u>[Updated] In-Depth Guide to Streaming and Recording Webcasts Professionally</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/balance-tint-editor-pro/"><u>Balance Tint Editor Pro</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/capture-childhood-memories-effortlessly/"><u>Capture Childhood Memories Effortlessly</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-owc-mercury-pro-analysis-top-tier-reliability-meets-unmatched-velocity/"><u>Comprehensive OWC Mercury Pro Analysis: Top-Tier Reliability Meets Unmatched Velocity</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/decoding-the-oneplus-8t-experience-exceptional-speed-overshadowed-by-mediocre-camera-quality/"><u>Decoding the OnePlus 8T Experience: Exceptional Speed Overshadowed by Mediocre Camera Quality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/decoding-tiny-titans-an-in-depth-galaxy-and-ford-f-150-remote-control-vehicle-analysis/"><u>Decoding Tiny Titans: An In-Depth Galaxy & Ford F-150 Remote Control Vehicle Analysis.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/differences-between-echo-dot-and-homepod-mini-a-comprehensive-comparison/"><u>Differences Between Echo Dot and HomePod Mini - A Comprehensive Comparison</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-the-potential-of-a-mini-marvel-the-samsung-galaxy-s10e-review/"><u>Discovering the Potential of a Mini Marvel: The Samsung Galaxy S10e Review</u></a></li>
-<li><a href="https://win-blog.techidaily.com/effektiv-udforlig-guide-til-handtering-din-vokaler-se-optimale-resultater/"><u>Effektiv Udførlig Guide Til Håndtering Din Vokaler - Se Optimale Resultater</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/elite-performance-meets-cutting-edge-tech-samsung-q60r-for-gamers-a-comprehensive-tv-review/"><u>Elite Performance Meets Cutting-Edge Tech: Samsung Q60R for Gamers - A Comprehensive TV Review</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/imovie-windows-duzenlediyi-yayinmasi-personal-computer-aracilikla-imovie-izdiva-etmek/"><u>IMovie Windows Düzenlediyi Yayınması | Personal Computer Aracılıkla iMovie İzdiva Etmek</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-xiaomi-redmi-note-12r-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Xiaomi Redmi Note 12R?</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-streamline-your-videos-with-these-top-12-players/"><u>In 2024, Streamline Your Videos with These Top 12 Players</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/latest-version-of-magicard-rio-pro-driver-available-free-download-for-win-10-81-and-7-systems/"><u>Latest Version of Magicard Rio Pro Driver Available: Free Download for Win 10, 8.1 & 7 Systems</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-harmonizing-audio-and-visuals-in-vimeo-media-for-2024/"><u>[New] Harmonizing Audio and Visuals in Vimeo Media for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-superior-online-audio-devices-ranked/"><u>[Updated] 2024 Approved Superior Online Audio Devices Ranked</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unveiling-the-magic-in-haul-video-creation/"><u>[Updated] 2024 Approved Unveiling the Magic in Haul Video Creation</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-slowing-down-reality-crafting-slow-motion-videos-from-still-images-online/"><u>2024 Approved Slowing Down Reality Crafting Slow Motion Videos From Still Images Online</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-3-nokia-g42-5g-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Nokia G42 5G Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-impressive-samsung-galaxy-note-9-with-enormous-screen-experience/"><u>Comprehensive Review of the Impressive Samsung Galaxy Note 9 with Enormous Screen Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-tascam-cd-200bt-the-pinnacle-of-professional-bluetooth-playback/"><u>Discovering Tascam CD-200BT: The Pinnacle of Professional Bluetooth Playback</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experts-weigh-in-on-the-2020-release-of-apples-budget-friendly-iphone-se-is-it-worth-your-consideration/"><u>Experts Weigh In on the 2020 Release of Apple's Budget-Friendly iPhone SE - Is It Worth Your Consideration?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-the-advanced-4k-hdr10plus-capabilities-of-the-samsung-tv-qn55q60rafxza-smart-reviewed-here/"><u>Explore the Advanced 4K HDR10+ Capabilities of the Samsung TV - QN55Q60RAFXZA Smart Reviewed Here</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/gamers-meet-your-new-ally-in-depth-analysis-of-apgear-ups-models-compared/"><u>Gamers, Meet Your New Ally: In-Depth Analysis of Apgear UPS Models Compared</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hands-on-dell-display-premier-anc-headset-and-ultrasharp-webcam/"><u>Hands-On: Dell Display, Premier ANC Headset, and UltraSharp Webcam</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hero9-review-a-premium-gopro-but-at-what-cost/"><u>HERO9 Review: A Premium GoPro, But at What Cost?</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/reduce-file-size-not-quality-9-best-free-video-compressors-for-windows-10/"><u>Reduce File Size, Not Quality 9 Best Free Video Compressors for Windows 10</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolved-fixes-for-pc-lag-in-the-deathloop-game/"><u>Resolved: Fixes for PC Lag in The Deathloop Game</u></a></li>
+<li><a href="https://win-online.techidaily.com/top-mp4-video-splitters-convert-y-edit-mp4-files-effortlessly/"><u>Top MP4 Video Splitters: Convert Y Edit MP4 Files Effortlessly</u></a></li>
 </ul></div>
 

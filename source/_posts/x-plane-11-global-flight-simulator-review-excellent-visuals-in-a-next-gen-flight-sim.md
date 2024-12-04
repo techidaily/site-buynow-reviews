@@ -1,7 +1,7 @@
 ---
 title: "X-Plane 11 Global Flight Simulator Review: Excellent Visuals in a Next-Gen Flight Sim"
-date: 2024-11-18T18:16:48.064Z
-updated: 2024-11-25T01:26:06.500Z
+date: 2024-11-29T23:46:49.162Z
+updated: 2024-12-03T22:35:12.711Z
 categories:
   - BestProducts
 description: "This Article Describes X-Plane 11 Global Flight Simulator Review: Excellent Visuals in a Next-Gen Flight Sim"
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/e85743b34dfe1708fd7baeaabbf4be530a9d0acc9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## AmazonBasics Ultra-Thin Antenna
@@ -46,6 +46,10 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
@@ -71,10 +75,6 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -95,10 +95,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: Almost two dozen channels (in a rural area)**
 
  So many things[affect an antenna’s performance](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) —location, household electronics, tree cover, tower location, and more. The antenna displays channels of high quality. However, sometimes the channels would take a few seconds to load, and other times, I’d see a pixelated effect when I first changed the channel that would clear up after a few seconds. Once the picture was fully loaded, it was in clear high definition. The antenna is capable of displaying a clear HD picture, so I couldn’t tell the difference between the antenna’s picture and the picture from streaming services like Hulu or Netflix.
@@ -106,7 +102,7 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -119,11 +115,19 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -136,10 +140,6 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -172,18 +172,18 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-highlighting-the-best-ios-psp-emulators-1-5-for-2024/"><u>[New] Highlighting the Best iOS PSP Emulators #1-5 for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/answer-researchers-can-use-techniques-like-gene-knockouts-overexpression-systems-or-crispr-cas9-mediated-gene-editing-to-investigate-the-role-of-specific-ge62/"><u>Answer: Researchers Can Use Techniques Like Gene Knockouts, Overexpression Systems, or CRISPR-Cas9 Mediated Gene Editing to Investigate the Role of Specific Genes and Regulatory Elements During Sporulation.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-led-lighting-solutions-for-photo-pros-2024/"><u>Best LED Lighting Solutions for Photo Pros 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-amazon-basics-soundbar-review-hear-clear-and-loud/"><u>Budget-Friendly Amazon Basics Soundbar Review: Hear Clear & Loud</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-ssl-certs-value-for-money-analysis/"><u>Budget-Friendly SSL Certs: Value for Money Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-recommendations-quality-add-ons-to-elevate-your-iphones-functionality/"><u>Expert Recommendations: Quality Add-Ons to Elevate Your iPhone's Functionality</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Vivo V27? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/list-of-pokemon-go-joysticks-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Vivo Y100 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/superior-signal-simplified-design-a-comprehensive-look-at-the-clearstream-eclipse-antennas-performance/"><u>Superior Signal, Simplified Design: A Comprehensive Look at the ClearStream Eclipse Antenna's Performance</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-vivo-y100a-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Vivo Y100A Location | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Xiaomi 14 | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/winxvideo-ai-transformez-votre-contenu-video-avec-la-retouche-avant-garde-et-les-effets-de-stabilisation/"><u>Winxvideo AI : Transformez Votre Contenu Vidéo Avec La Retouche Avant-Garde Et Les Effets De Stabilisation</u></a></li>
-<li><a href="https://techidaily.com/your-complete-guide-to-reset-motorola-edge-40-neo-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-ice-arena-intensity-the-fastest-moments-in-olympics/"><u>[New] In 2024, Ice Arena Intensity The Fastest Moments in Olympics</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nnovators-designing-online-marvel-experiences/"><u>[New] Innovators Designing Online Marvel Experiences</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-set-up-facebook-streaming-pcmaclaptop-tutorial-with-obs/"><u>[New] Set Up Facebook Streaming PC/Mac/Laptop Tutorial with OBS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-bluetooth-whispers-best-sound-companion/"><u>Budget Bluetooth Whispers: Best Sound Companion</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-kootek-laptop-cooling-pad-a-solid-pick-for-optimal-performance/"><u>Comprehensive Analysis of the Kootek Laptop Cooling Pad: A Solid Pick for Optimal Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-asus-zephyrus-g14-assessment-the-ultimate-all-rounder-in-portable-gaming/"><u>Comprehensive Asus Zephyrus G14 Assessment: The Ultimate All-Rounder in Portable Gaming</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-unboxing-the-linksys-wrt1900acs-an-openness-in-home-networks/"><u>Comprehensive Guide: Unboxing the Linksys WRT1900ACS, an Openness in Home Networks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-topstorm-tracker-applications-to-keep-you-informed/"><u>Comprehensive Review: Topstorm Tracker Applications to Keep You Informed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/culinary-carnage-and-fun-in-overcooked-2-a-comprehensive-review/"><u>Culinary Carnage & Fun in 'Overcooked! 2': A Comprehensive Review</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-keep-your-mission-intact-eliminate-pc-game-breaks-for-hitman-3-this-year/"><u>How to Keep Your Mission Intact: Eliminate PC Game Breaks for Hitman 3 This Year</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-oneplus-open-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your OnePlus Open Screen | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-capture-your-screen-a-beginners-guide-to-recording-with-filmora-scrn/"><u>New In 2024, Capture Your Screen A Beginners Guide to Recording with Filmora Scrn</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/syncing-stride-with-innovation-the-gadgets-that-power-my-monthly-marathon-of-100-miles/"><u>Syncing Stride with Innovation: The Gadgets that Power My Monthly Marathon of 100 Miles</u></a></li>
 </ul></div>
 

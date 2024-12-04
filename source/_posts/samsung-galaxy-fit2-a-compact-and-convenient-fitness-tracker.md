@@ -1,7 +1,7 @@
 ---
 title: "Samsung Galaxy Fit2: A Compact and Convenient Fitness Tracker"
-date: 2024-11-20T21:25:57.024Z
-updated: 2024-11-24T23:31:20.343Z
+date: 2024-11-27T20:42:21.257Z
+updated: 2024-12-03T18:12:25.281Z
 categories:
   - BestProducts
 description: "This Article Describes Samsung Galaxy Fit2: A Compact and Convenient Fitness Tracker"
@@ -44,10 +44,6 @@ Lifewire / Yoona Wagener
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Amazon Halo
 
 ![Amazon Halo](https://www.lifewire.com/thmb/3Kfyp4XgBEtCuXPHAVw99RFqQs8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_HeroSquare-2e5c3941b8fe49afbd7464f382164976.jpg)
@@ -78,6 +74,10 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/W0-czfRzA-7ixa5VS8Cb4sBcaqM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_02-b2292f1ee1b54f4e9990c92e582c5a4b.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
 ## Design: An accessory that blends in
@@ -88,15 +88,7 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/QHImxX0EsYwunnnS2aNtTX9j80s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_03-66da73beea854cd39f6c35c06975ef4e.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Yoona Wagener
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Comfort: Streamlined but not immune to typical fit issues
 
@@ -108,10 +100,6 @@ Lifewire / Yoona Wagener
 
  As for water resistance, I didn’t test the 50-meter swimproof rating of the Halo in a pool, but I did shower with the device for three days. Despite the band’s moisture-wicking band material, it remained damp far longer than was comfortable and compared to a fast-drying silicone band. If you’re an avid swimmer or prefer not to remove your wearable while showering, the sport band option will most likely be the more desirable option.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Performance: Constantly monitoring movement, not performance
 
  While this streamlined device doesn’t log detailed workout metrics, the Halo has the upper hand when it comes to continuously monitoring movement—and sedentary stints throughout the day. Whether you’re sitting at a desk or venture out for an errand, the Halo will capture that and pretty accurately categorize it. It consistently registered walking and running activities, though the readout wasn’t very accurate for the latter. Truthfully, I don’t get the impression that that’s the point of the Halo.
@@ -119,6 +107,10 @@ Lifewire / Yoona Wagener
  Instead, the Halo presents all activity data through a convenient point-tracking system. The weekly goal is 150, which converts to 150 minutes of cardiovascular activity, as recommended by the American Heart Association. Periods of movement and exercise count toward this point goal, while periods of non-movement subtract from points earned. It’s a digestible system that offers a new twist on the steps or movement alert functions you’ll find in fitness trackers and[smartwatches](https://www.lifewire.com/an-introduction-to-smart-watches-3441381) from Samsung, Garmin, Fitbit, and others. This system was an encouraging reset from those reminders that sometimes feel more annoying than motivating.
 
 ![Amazon Halo](https://www.lifewire.com/thmb/FjdFyV6Y4mTXNsqccZ4aEBJNpV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_05-e671ee9f77cc4cee8e2580a2dba449d5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener.
 
@@ -129,10 +121,6 @@ Lifewire / Yoona Wagener
  All voice data and images used for the body scan are deletable from the app, though you can also choose to back up body data in the cloud, which Amazon assures is private and well secured.
 
  The body fat scan is based on pictures uploaded to the app—and based on prompts from the app. While it felt invasive and isn’t a feature I’d seek out in a fitness tracker, it worked without issue. Amazon reports that this technology is twice as accurate as smart scales. For the right user who feels comfortable with this kind of data compilation, this feature also offers visualizations of how different body fat percentages would look on your frame and stores your scans for a look at trends over time. All voice data and images used for the body scan are deletable from the app, though you can also choose to back up body data in the[cloud](https://www.lifewire.com/what-is-cloud-computing-817770) , which Amazon assures is private and well secured.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Software: An essential and user-friendly mobile app
 
@@ -145,7 +133,7 @@ Lifewire / Yoona Wagener
  The app makes everything from the initial setup to body scanning and voice tracking straightforward.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Battery: Enough juice to last nearly a week
@@ -155,6 +143,10 @@ Lifewire / Yoona Wagener
  While this isn’t the longest-lasting battery, it was rapid to charge at just about 1 hour and 15 minutes. It was also easy to keep track of battery life and avoid inadvertently over-charging the device, thanks to system notifications that popped up on my[smartphone](https://www.lifewire.com/what-makes-a-smartphone-smart-579597) when my band battery was low as well as when it was fully charged and ready to go again.
 
 ![Amazon Halo](https://www.lifewire.com/thmb/fBsShcBruhAWkg-kTKPWkYUaImo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_04-ee532fbe8d2f4e8195e63ed9dd45611a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -174,11 +166,19 @@ Lifewire / Yoona Wagener
 
  The Amazon Halo isn’t for everyone with its lack of display and additional layers of data tracking to capture tone of voice and body fat percentage. But for the user that wants a little less hardware but more forward-thinking fitness/health tracking, this unique wearable offers a different approach to increasing activity and wellness awareness on a daily basis.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Apple Watch Series 5](https://www.lifewire.com/apple-watch-series-6-review-5087552)
 * [Fitbit Sense](https://www.lifewire.com/fitbit-sense-review-5085832)
 * [Ticwatch Pro](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -211,24 +211,21 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-guide-to-multi-video-watching-on-youtube-for-2024/"><u>[Updated] The Ultimate Guide to Multi-Video Watching on YouTube for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-infinix-smart-8-hd-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Infinix Smart 8 HD | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/are-cheaper-ssl-options-secure-enough/"><u>Are Cheaper SSL Options Secure Enough?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-netgear-ex3700-ac750-wireless-range-extender-performance/"><u>Comprehensive Analysis: Netgear EX3700 AC750 Wireless Range Extender Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-vive-cosmos-review-top-tier-vr-experience-among-tough-rivals/"><u>Comprehensive Vive Cosmos Review: Top-Tier VR Experience Among Tough Rivals</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-zmi-powerpack-20000-assessment-ultimate-portable-energy-solution/"><u>Comprehensive ZMI PowerPack 20000 Assessment: Ultimate Portable Energy Solution</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-capabilities-of-basic-uninterruptible-power-supply-a-closer-look-at-cyberpowers-cp685avrg/"><u>Exploring the Capabilities of Basic Uninterruptible Power Supply: A Closer Look at CyberPower's CP685AVRG</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-nubia-red-magic-9-proplus-lock-screen-password-by-drfone-android/"><u>How To Change Nubia Red Magic 9 Pro+ Lock Screen Password?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/how-to-make-any-fb-video-pop-with-full-screen-mode/"><u>How to Make Any FB Video Pop with Full-Screen Mode</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-resolve-and-understand-event-id-1000-on-different-windows-platforms-7-8-10/"><u>How to Resolve and Understand Event ID 1000 on Different Windows Platforms: 7, 8, 10</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-free-high-quality-desktop-video-encoding-software/"><u>In 2024, Free, High-Quality Desktop Video Encoding Software</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-samsung-galaxy-s24-ultra-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Samsung Galaxy S24 Ultra to New Phone | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-master-iphone-podcast-downloads-a-comprehensible-approach/"><u>In 2024, Master iPhone Podcast Downloads A Comprehensible Approach</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/master-the-court-with-nba-2k19-the-best-basketball-gaming-simulation/"><u>Master the Court with NBA 2K19: The Best Basketball Gaming Simulation</u></a></li>
-<li><a href="https://some-tips.techidaily.com/1726228162859-movavi-mxfmkv/"><u>Movaviの無料サービス: ウェブ上でMXFからMKVへ簡単なファイル変換</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/professionals-choice-a-comprehensive-review-of-the-hp-zbook-firefly-15-g8/"><u>Professional's Choice – A Comprehensive Review of the HP ZBook Firefly 15 G8</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-ranking-of-cutting-edge-smart-frames-for-the-modern-world-2024-edition/"><u>The Ultimate Ranking of Cutting-Edge Smart Frames for the Modern World - 2024 Edition</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/troubleshooting-macs-youtube-problems-for-smooth-downloads-and-streaming-fix-your-errors-now/"><u>Troubleshooting Mac's YouTube Problems for Smooth Downloads and Streaming | Fix Your Errors Now!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-pioneer-bdr-xd05b-key-drawbacks-in-its-blue-ray-burning-system-revealed/"><u>Unpacking the Pioneer BDR-XD05B - Key Drawbacks in Its Blue-Ray Burning System Revealed!</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-a-new-take-on-favorite-movies-7-alternatives/"><u>[New] A New Take on Favorite Movies - #7 Alternatives</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-canvas-kids-discover-10-free-kid-friendly-art-makers-for-mac/"><u>[New] Canvas Kids Discover 10 Free, Kid-Friendly Art Makers for Mac</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-exclusive-list-of-affordable-video-conferencing-apps-a-business-and-education-edition/"><u>[Updated] Exclusive List of Affordable Video Conferencing Apps A Business & Education Edition</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-from-slides-to-screens-easy-recording-techniques-for-2024/"><u>[Updated] From Slides to Screens Easy Recording Techniques for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-photographers-manual-how-to-crop-images-seamlessly-online/"><u>2024 Approved The Photographer's Manual How To Crop Images Seamlessly Online</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-watch-hulu-outside-us-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Realme GT 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-vivo-y100i-power-5g-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y100i Power 5G Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/microsoft-surface-laptop-4-evaluation-a-top-tier-device-unveiled/"><u>Microsoft Surface Laptop 4 Evaluation: A Top-Tier Device Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/motorolas-speed-champion-a-review-of-the-superior-mg7700-smartphone/"><u>Motorola's Speed Champion: A Review of the Superior MG7700 Smartphone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigate-with-precision-top-mac-devices-for-seamless-mouse-control/"><u>Navigate with Precision: Top Mac Devices for Seamless Mouse Control</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/optimize-your-home-networking-a-thorough-assessment-of-the-lightning-fast-google-nest-wi-fi-mesh-routers/"><u>Optimize Your Home Networking: A Thorough Assessment of the Lightning-Fast Google Nest Wi-Fi Mesh Routers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pioneer-bdr-xd05b-blu-ray-drive-evaluation-examining-key-design-flaws/"><u>Pioneer BDR-XD05B Blu-Ray Drive Evaluation: Examining Key Design Flaws</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/revolutionizing-channel-presence-the-secret-of-higher-subscriber-numbers-for-2024/"><u>Revolutionizing Channel Presence The Secret of Higher Subscriber Numbers for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solved-how-to-fix-missing-device-drivers-on-windows-10-8-and-7/"><u>Solved: How to Fix Missing Device Drivers on Windows 10, 8, and 7</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/spotlight-on-image-distortion-and-audio-feedback-in-the-genius-widecam-f100-expert-evaluation-released/"><u>Spotlight on Image Distortion and Audio Feedback in the Genius WideCam F100: Expert Evaluation Released</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stay-connected-anywhere-a-guide-to-selecting-your-ideal-apple-watch-with-gps-or-cellular-capability/"><u>Stay Connected Anywhere: A Guide to Selecting Your Ideal Apple Watch with GPS or Cellular Capability</u></a></li>
 </ul></div>
 

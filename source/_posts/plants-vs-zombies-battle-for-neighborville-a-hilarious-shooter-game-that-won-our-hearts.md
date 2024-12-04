@@ -1,7 +1,7 @@
 ---
 title: "'Plants Vs. Zombies: Battle for Neighborville' - A Hilarious Shooter Game That Won Our Hearts!"
-date: 2024-11-17T16:59:56.470Z
-updated: 2024-11-25T01:06:36.837Z
+date: 2024-11-29T03:28:38.060Z
+updated: 2024-12-04T00:35:34.351Z
 categories:
   - BestProducts
 description: "This Article Describes 'Plants Vs. Zombies: Battle for Neighborville' - A Hilarious Shooter Game That Won Our Hearts!"
@@ -41,13 +41,13 @@ Lifewire / Rebecca Isaacs
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Mavix M9 Gaming Chair
 
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/cetpXlFoWgl601rjUieYjdXgVCA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_HeroSquare-97a9344411454147b8772f86cd75bca7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -71,29 +71,17 @@ Lifewire / Rebecca Isaacs
 
  A poor computer chair may lead to backaches, pains, and a whole mess of skeletal and muscular issues. When I began to have these symptoms, I decided it was time for a change to my chair, and got the Mavix M9 Gaming Chair for review. After over 20 hours of testing, it’s safe to say that I’ve found my favorite piece of gaming equipment.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Design: A gamer’s dream
 
  The M9 comes in four different color options, but to play it safe with my pets, I chose to get it in the sleek black option. In fact, those with pets will want to take note, as my first impression of the chair was that while most of it was black leather, the Dynamic Variable Lumbar support consisted of multilayered nylon, mesh material. It’s great for gamers’ backs—but can collect pet hair if your furry friends decide the M9 is a great place to snooze.
 
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/tSFIFAR8G-C5W7DBBLPJ5GiE3EM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_03-8842478b07bd4585ba7f1843afcd29dc.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
 
  Despite this mesh exterior, the M9 chair is incredibly sleek and modern and adds style to any modern gaming setup. This is not only because of the mesh support but the rest of the chair is upholstered in beautiful, smooth leather. The logo on the headrest stands out, but it’s not really a detriment to the overall design of the chair.
 
  At 56 x 26 x 22.75 inches (HWD), the chair has a wide seat for spreading out and comes with an optional headrest. Even the wheels are prepped for hours of gameplay and come with a locking feature to ensure stability.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Comfort: It’s all in the ergonomics
 
@@ -127,6 +115,10 @@ Lifewire / Rebecca Isaacs
 
  Only want to go back a few degrees? You can adjust that thanks to the levers underneath the chair seat. This feature also helped relieve my back when I started feeling like I’d been sitting in the chair too long. It’s a great, relaxing addition.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Price: Hits the wallet hard
 
  For the price of $1,000, the Mavix M9 chair can be yours. That’s a lot of money to invest in a chair, especially when most places will charge a fraction of that for a desk chair. This isn’t just a desk chair, however—this is an ergonomic gamer’s chair, and as such, it’s designed to make gaming comfortable and easy. So, while it seems like a lot of money, realistically, you’re paying for a plethora of adjustability options, and ergonomics.
@@ -134,7 +126,7 @@ Lifewire / Rebecca Isaacs
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/_eJYTViir2syGINJQq7Fxl1ofHQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_04-d42bbf02273f4d0aa7c25351b201dc2c.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
@@ -151,11 +143,19 @@ Lifewire / Rebecca Isaacs
 
  While it can’t really be customized outside of cosmetic options, the M9 gaming chair is a solid, easy way to enjoy any gaming hobby without worrying about backaches. The reclining technology and the locking wheels are especially nice bonuses. The price may seem a little high, but it’s a worthy investment for any gamer.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [FicMax Ergonomic Gaming Chair](https://www.lifewire.com/ficmax-ergonomic-gaming-chair-review-4771068)
 * [X Rocker 51396 Pro Series Pedestal 2.1 Gaming Chair](https://www.lifewire.com/x-rocker-51396-pro-series-pedestal-2-1-gaming-chair-review-4771021)
 * [Homall Executive Swivel Chair](https://www.lifewire.com/homall-executive-swivel-chair-review-4589356)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -184,22 +184,20 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-join-the-journey-to-a-calmer-mind-games/"><u>[Updated] In 2024, Join the Journey to a Calmer Mind (Games)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/detailed-review-of-the-functionalities-in-rcas-high-performance-video-doorbell-cam/"><u>Detailed Review of the Functionalities in RCA's High-Performance Video Doorbell Cam</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/elite-5-earbuds-youtubes-best-companions-for-2024/"><u>Elite 5 Earbuds YouTube's Best Companions for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exclusive-oneplus-savings-dont-miss-these-prime-day-specials/"><u>Exclusive OnePlus Savings - Don't Miss These Prime Day Specials!</u></a></li>
-<li><a href="https://win11.techidaily.com/from-pins-to-passwords-changing-your-windows-11-sign-in-method/"><u>From PINs to Passwords: Changing Your Windows 11 Sign-In Method</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/illuminating-iphones-in-the-dark-photography-tips/"><u>Illuminating iPhones in the Dark Photography Tips</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-and-rating-of-the-revolutionary-portable-console-the-nintendo-switch/"><u>In-Depth Analysis and Rating of the Revolutionary Portable Console: The Nintendo Switch</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/instagram-harmony-understanding-rights/"><u>Instagram Harmony Understanding Rights</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastering-driver-update-modernizing-old-windows-cards/"><u>Mastering Driver Update: Modernizing Old Windows Cards</u></a></li>
-<li><a href="https://common-error.techidaily.com/quick-fixes-for-resolving-constant-reboots-on-windows-11-a-step-by-step-guide/"><u>Quick Fixes for Resolving Constant Reboots on Windows 11: A Step-by-Step Guide</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-honor-magic-5-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Honor Magic 5</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/seamless-emoji-incorporation-into-discords-status-feature/"><u>Seamless Emoji Incorporation Into Discord's Status Feature</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-conquest-and-control-of-a-blissful-oasis-a-tropico-6-overview/"><u>The Conquest and Control of a Blissful Oasis - A Tropico 6 Overview</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-premier-selection-of-professional-drawing-tablets-2024-edition/"><u>The Premier Selection of Professional Drawing Tablets - 2024 Edition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-top-performing-cable-modems-of-2024-you-cant-miss/"><u>The Top-Performing Cable Modems of 2024 You Can’t Miss</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-ranking-the-top-asus-router-picks-you-need/"><u>Ultimate Ranking: The Top Asus Router Picks You Need</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-features-of-a-premium-4k-hdr10-smart-tv-the-samsung-qn55q60rafxza-examined/"><u>Unveiling the Features of a Premium 4K HDR10 Smart TV – The Samsung QN55Q60RAFXZA Examined</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-expert-tips-for-captivating-and-impressive-hdr-portraits/"><u>[New] 2024 Approved Expert Tips for Captivating and Impressive HDR Portraits</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-adding-media-instagrams-guide/"><u>[Updated] In 2024, Adding Media Instagram's Guide</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-innovative-ideas-for-snapad-success-in-business-for-2024/"><u>[Updated] Innovative Ideas for SnapAd Success in Business for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-immersive-vr-capture-mastery-9-techniques-for-success/"><u>2024 Approved Immersive VR Capture Mastery 9 Techniques for Success</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-elite-list-of-gaming-platforms-features-specs-and-user-ratings-compared/"><u>2024'S Elite List of Gaming Platforms: Features, Specs & User Ratings Compared</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-ultimate-selection-elite-vertical-mouse-choices-for-gamers-and-professionals-alike/"><u>2024'S Ultimate Selection: Elite Vertical Mouse Choices for Gamers & Professionals Alike</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comparative-look-fitbit-senses-edge-over-the-apple-watch-in-personal-health/"><u>A Comparative Look: Fitbit Sense's Edge Over the Apple Watch in Personal Health</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-review-of-knack-striking-charisma-meets-a-tinge-of-repetitiveness-in-design/"><u>A Review of Knack: Striking Charisma Meets a Tinge of Repetitiveness in Design</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-oppo-reno-8t-5g-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Oppo Reno 8T 5G | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-honor-70-lite-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Honor 70 Lite 5G</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/in-depth-analysis-of-the-razer-blade-14-miniature-elegance-with-maximum-capability-and-costs/"><u>In-Depth Analysis of the Razer Blade 14: Miniature Elegance with Maximum Capability and Costs</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/securing-icloud-mail-with-two-factor-authentication/"><u>Securing iCloud Mail With Two-Factor Authentication</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722642525619-the-tcl-32s325-roku-experience-a-blend-of-smart-technology-and-stylish-design-as-explored-in-our-comprehensive-2019-review/"><u>The TCL 32S325 Roku Experience - A Blend of Smart Technology and Stylish Design, as Explored in Our Comprehensive 2019 Review</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-steps-to-fix-a-non-responsive-wacom-drawing-pad/"><u>Troubleshooting Steps to Fix a Non-Responsive Wacom Drawing Pad</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-philips-hf3505-wake-up-light-revolutionizing-your-mornings-with-simplicity-and-style/"><u>Unveiling the Philips HF3505 Wake-Up Light: Revolutionizing Your Mornings with Simplicity and Style</u></a></li>
 </ul></div>
 

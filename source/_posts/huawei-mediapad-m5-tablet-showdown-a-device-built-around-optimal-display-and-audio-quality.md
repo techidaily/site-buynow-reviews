@@ -1,7 +1,7 @@
 ---
 title: "Huawei MediaPad M5 Tablet Showdown: A Device Built Around Optimal Display and Audio Quality"
-date: 2024-11-22T19:44:46.924Z
-updated: 2024-11-24T16:47:20.952Z
+date: 2024-11-27T03:18:27.210Z
+updated: 2024-12-04T05:25:52.139Z
 categories:
   - BestProducts
 description: "This Article Describes Huawei MediaPad M5 Tablet Showdown: A Device Built Around Optimal Display and Audio Quality"
@@ -18,17 +18,9 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/bJGZVvLPIuXJptw8uPYtObxbpMQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -53,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 3.6
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
@@ -103,7 +95,7 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
  On the front of the screen, the bezels are a little thicker than some of the 4K TVs we’ve reviewed, but they’re pretty thin and shouldn’t distract. There’s your standard anti-glare coating found on the screen here too.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Stick to the on-screen instructions**
@@ -118,6 +110,10 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
  With the initial process done, you will likely need to run a quick update check. This should automatically pop up, but check under the settings tab if it doesn’t. An update to the firmware should improve things considerably, especially if you need to upgrade to the latest version of Android TV. Updating takes a bit of time to do, so maybe go watch some TV while…oh right. Well, whatever you do during this process, just remember not to unplug the power while it’s running through updates.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Image Quality: Impressive 4K for IPS with some shortcomings**
 
  This section is perhaps the most important for a TV, and while the XBR65X850F performs pretty well in some aspects here, it also has a few weak points.
@@ -125,6 +121,10 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
  Starting off with some of this unit’s strengths, this particular series uses an IPS panel for the screen, which means you’re going to get vibrant colors, a nice backlight for viewing in bright rooms, and excellent viewing angles. This all adds up to a superb experience if you’ve got a big living room that’s brightly lit by windows, where viewers might not be able to sit completely centered.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/r5reh9LkA7QvieX1JzBg5J8qNjY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-5-00a73edbf91c48c6aa2718ab211f2e5d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -141,7 +141,7 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -151,6 +151,10 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
  Built-in speakers are never going to be great, but they’re nice to have if you’re lacking an[external sound system](https://www.lifewire.com/connect-tv-to-external-audio-system-1846816) like a soundbar. While we’d recommend getting an external setup for the best experience, let’s take a quick look at what the XBR65X850F has to offer with the included setup.
 
  Right off the bat, this TV can get quite loud and you shouldn’t run into any volume issues. That being said, the overall experience is mediocre at best. The louder you turn it up, the more distortion is added. These speakers should suffice in quiet environments if you’re primarily looking for nice clear dialogue with treble and mid, but the bass is not so good.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: A bit sluggish but good enough**
 
@@ -192,10 +196,6 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
  The X850F series is far from perfect, but the Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV and its family are more than capable of providing a pleasurable viewing experience for most people. Despite this, there are probably better options out there that can be had for even less.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
@@ -225,18 +225,20 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-cinematic-evolution-the-best-youtube-guides-for-new-filmmakers/"><u>[New] In 2024, Cinematic Evolution The Best YouTube Guides for New Filmmakers</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/boost-social-influence-with-these-15-snap-ideas-for-2024/"><u>Boost Social Influence with These 15 Snap Ideas for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/choosing-your-companion-a-detailed-comparison-between-apple-watch-series-9-and-fitbit-charge-6/"><u>Choosing Your Companion: A Detailed Comparison Between Apple Watch Series 9 & Fitbit Charge 6</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-the-latest-version-of-sas-driver-for-windows-users-windows-1087/"><u>Get the Latest Version of SAS Driver for Windows Users (Windows 10/8/7)</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-contacts-from-a58-4g-by-fonelab-android-recover-contacts/"><u>How to recover deleted contacts from A58 4G.</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-nubia-z50s-pro-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Nubia Z50S Pro by Name | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-s23plusfrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy S23+FRP Lock</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigate-through-2024s-most-advanced-asus-routers-for-seamless-connectivity/"><u>Navigate Through 2024'S Most Advanced ASUS Routers for Seamless Connectivity</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/screenrec-made-simple-for-laptop-users/"><u>ScreenRec Made Simple for Laptop Users</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sml385btbk-singing-machine-review-simple-setup-vibrant-display-for-fun-karaoke-nights/"><u>SML385BTBK Singing Machine Review - Simple Setup, Vibrant Display for Fun Karaoke Nights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/transforming-learning-through-fun-insightful-analysis-on-wonder-workshops-dash-toy-range/"><u>Transforming Learning Through Fun: Insightful Analysis on Wonder Workshop's Dash Toy Range</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-nubia-z50s-pro-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Nubia Z50S Pro without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/unstuck-with-your-logitech-g533-mic-heres-how-to-fix-it/"><u>Unstuck with Your Logitech G533 Mic? Here's How to Fix It!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/oost-your-engagement-now-discover-these-key-youtube-shortcuts/"><u>[New] Boost Your Engagement Now! - Discover These Key YouTube Shortcuts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-tips-for-disconnecting-unfollowing-on-instagram-for-2024/"><u>[New] Tips for Disconnecting Unfollowing on Instagram for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-interactive-realities-face-off-metaverse-and-omniverse-guide/"><u>[Updated] Interactive Realities Face-Off Metaverse & Omniverse Guide</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/complete-guide-steps-to-swap-out-your-old-ipads-power-source/"><u>Complete Guide: Steps to Swap Out Your Old iPad's Power Source</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-wireless-sound-the-google-nest-audio-stacked-against-the-nest-mini/"><u>Evaluating Wireless Sound: The Google Nest Audio Stacked Against the Nest Mini</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expertly-reviewed-the-ultimate-list-of-secure-wi-fi-routers-for-families-2024-edition/"><u>Expertly Reviewed: The Ultimate List of Secure Wi-Fi Routers for Families, 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/find-your-perfect-match-2024s-best-ergonomic-keyboards-revealed/"><u>Find Your Perfect Match: 2024'S Best Ergonomic Keyboards Revealed</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-from-humble-beginnings-to-wealthy-endeavors-the-tiktok-maker-fund-guide/"><u>In 2024, From Humble Beginnings to Wealthy Endeavors The TikTok Maker Fund Guide</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-optimal-5-filters-for-deep-blue-cinematography/"><u>In 2024, Optimal 5 Filters for Deep Blue Cinematography</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-eeros-pro-mesh-wifi-uninterrupted-internet-across-every-room-in-your-home/"><u>In Depth Analysis of Eero's Pro Mesh WiFi: Uninterrupted Internet Across Every Room in Your Home</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-affordable-dell-g5-title-idea-3-top-picks-the-ultimate-budget-gaming-rig-a-closer-look-at-the-dell-g5-5090/"><u>In-Depth Analysis of the Affordable Dell G5 Title Idea 3: Top Picks - The Ultimate Budget Gaming Rig: A Closer Look at the Dell G5 5090</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-budget-friendly-roku-express-with-extensive-content-offering/"><u>In-Depth Look at the Budget-Friendly Roku Express with Extensive Content Offering</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-nokia-e71-analysis-high-quality-display-and-imaging-at-a-budget-friendly-cost/"><u>In-Depth Nokia E7.1 Analysis: High-Quality Display & Imaging at a Budget-Friendly Cost</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/simplified-steps-for-file-synchronization-in-a-hyper-v-environment/"><u>Simplified Steps for File Synchronization in a Hyper-V Environment</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-motorola-moto-g14-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Motorola Moto G14 Phone Password Without Factory Reset Full Guide Here</u></a></li>
 </ul></div>
 

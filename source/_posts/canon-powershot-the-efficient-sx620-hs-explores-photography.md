@@ -1,7 +1,7 @@
 ---
 title: "Canon PowerShot: The Efficient SX620 HS Explores Photography"
-date: 2024-11-22T19:22:07.085Z
-updated: 2024-11-24T19:12:30.237Z
+date: 2024-11-29T16:56:09.010Z
+updated: 2024-12-04T03:29:56.944Z
 categories:
   - BestProducts
 description: "This Article Describes Canon PowerShot: The Efficient SX620 HS Explores Photography"
@@ -18,13 +18,13 @@ thumbnail: https://thmb.techidaily.com/68d72132debc55d7a219d5ad96f3f8ade10f55eb9
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/mk2ndJKMrOgGOYfE8uNwJVYkaTk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
 
@@ -47,13 +47,13 @@ Lifewire / Nick Jaynes
 
 4.5
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/kUpys0K04ePH0SuEfAENz--MXSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
 
@@ -76,6 +76,10 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: All-plastic, but sturdy and subtle**
 
  The Anker PowerDrive 2 might not be the sharpest or most cutting-edge looking in-car USB charger, but what it lacks in visual pizazz, it more than makes up for in sturdiness.
@@ -87,10 +91,6 @@ Lifewire / Nick Jaynes
  That said, it’s not the prettiest charger. The black plastic construction is fine to look at and blends in nicely with most car interiors, but the red ring around the face makes it look a bit cheap. So, too, does the “IQ” logo printed between the two USB ports, but these are fairly minor quibbles. The PowerDrive 2 has a small and unobtrusive LED light to help you find the USB ports in the dark. We found it less distracting than other chargers we tested.
 
  Lifewire / Nick Jaynes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Fast charging for demanding devices**
 
@@ -109,7 +109,7 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: A handful of rivals**
@@ -127,7 +127,7 @@ Lifewire / Nick Jaynes
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -156,24 +156,17 @@ Lifewire / Nick Jaynes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-peak-performance-in-live-recording-software-for-2024/"><u>[New] Peak Performance in Live Recording Software for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-twitterscape-treasury-your-one-stop-shop-for-tweeted-gifs-for-2024/"><u>[New] Twitterscape Treasury Your One-Stop Shop for Tweeted GIFs for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-deciphering-the-best-from-av1-and-vp9/"><u>[Updated] Deciphering the Best From AV1 and VP9</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-mastering-cc-license-application-a-comprehensive-guide-for-2024/"><u>[Updated] Mastering CC License Application A Comprehensive Guide for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-mastering-online-promotion-top-5-proven-methods-for-maximum-impact-on-youtube/"><u>2024 Approved Mastering Online Promotion Top 5 Proven Methods for Maximum Impact on YouTube</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-seamlessly-record-your-screen-while-watching-netflix/"><u>2024 Approved Seamlessly Record Your Screen While Watching Netflix</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/cutting-edge-convenience-redefined-with-amazons-fourth-gen-echo-device-revealed/"><u>Cutting-Edge Convenience Redefined with Amazon's Fourth Gen Echo Device Revealed.</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-achieving-muted-audibility-with-effortless-fading-in-lumafusion/"><u>In 2024, Achieving Muted Audibility with Effortless Fading in Lumafusion</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-supercharge-your-farming-fun-in-stardew-valley-top-7-upgrades/"><u>In 2024, Supercharge Your Farming Fun in Stardew Valley (Top 7 Upgrades)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/keeping-your-pet-healthy-with-the-petsafe-automatic-feeder-a-detailed-review-for-optimal-weight-management/"><u>Keeping Your Pet Healthy with the PetSafe Automatic Feeder - A Detailed Review for Optimal Weight Management</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximizing-game-performance-a-comprehensive-review-of-the-ibuypower-high-value-gaming-computer/"><u>Maximizing Game Performance: A Comprehensive Review of the IbuyPower High-Value Gaming Computer</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/pictureperfect-xd-proframe-stunning-quality-over-budget/"><u>PicturePerfect XD ProFrame: Stunning Quality Over Budget</u></a></li>
-<li><a href="https://driver-install.techidaily.com/razer-mouse-compatibility-guide-for-windows/"><u>Razer Mouse Compatibility Guide for WIndows</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revelatory-features-await-why-the-samsung-galaxy-s21-ultra-is-a-game-changer-in-mobile-tech/"><u>Revelatory Features Await: Why the Samsung Galaxy S21 Ultra Is a Game-Changer in Mobile Tech</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-longer-mouse-pad-models/"><u>Top Rated Longer Mouse Pad Models</u></a></li>
-<li><a href="https://blog-min.techidaily.com/ultimate-review-premium-free-dvd-writing-tools-for-win10win11-users-with-step-by-step-instructions/"><u>Ultimate Review: Premium Free DVD Writing Tools for Win10/Win11 Users with Step-by-Step Instructions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-lenovo-yoga-a940-detailed-review-and-user-experience-insights/"><u>Unveiling the Lenovo Yoga A940: Detailed Review & User Experience Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/user-insights-and-experts-opinions-on-truecaller/"><u>User Insights and Experts' Opinions on TrueCaller</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/wasteland-ii-directors-cut-an-immersive-rpg-revisited-comprehensive-review-and-gameplay-analysis/"><u>Wasteland II Director's Cut: An Immersive RPG Revisited – Comprehensive Review and Gameplay Analysis</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-leading-speed-change-audio-utilities-list/"><u>[New] In 2024, Leading Speed-Change Audio Utilities List</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-art-of-crafting-your-own-top-tier-4k-editing-machine/"><u>[New] The Art of Crafting Your Own Top-Tier 4K Editing Machine</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-elevate-your-social-presence-proven-methods-for-fb-fan-expansion-for-2024/"><u>[Updated] Elevate Your Social Presence Proven Methods for FB Fan Expansion for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-permanent-name-shift-on-google-meet-devices/"><u>[Updated] In 2024, Permanent Name Shift on Google Meet Devices</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-essential-guide-to-cinematic-instagram-videos/"><u>2024 Approved The Essential Guide to Cinematic Instagram Videos</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-the-unloading-dilemma-top-7-techniques-to-conquer-steam-black-screens/"><u>Fixing the Unloading Dilemma: Top 7 Techniques to Conquer Steam Black Screens</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-photography-gear-totes-the-ultimate-list/"><u>Top-Rated Photography Gear Totes: The Ultimate List</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-buying-an-all-purpose-laptop-the-best-features-of-the-asus-vivobook-11-explored/"><u>Ultimate Guide to Buying an All-Purpose Laptop: The Best Features of the Asus Vivobook 11 Explored</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-comfortable-keyboard-cushions/"><u>Ultimate Guide to Comfortable Keyboard Cushions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/upgrade-to-professional-8-benefits-of-linkedin-plus/"><u>Upgrade to Professional: 8 Benefits of LinkedIn Plus</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/viair-88p-portable-compressor-examined-exceptional-strength-accompanied-by-small-setbacks/"><u>Viair 88P Portable Compressor Examined: Exceptional Strength Accompanied by Small Setbacks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/what-lies-beyond-an-aminy-analysis-of-extraterrestrials/"><u>What Lies Beyond? An Aminy Analysis of Extraterrestrials</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "EconoUmbrellaKit: Studio Lights on a Low Budget"
-date: 2024-08-27T11:12:15.186Z
-updated: 2024-08-28T11:12:15.186Z
+date: 2024-12-02T18:41:27.059Z
+updated: 2024-12-03T20:30:36.459Z
 categories:
   - BestProducts
 description: "This Article Describes EconoUmbrellaKit: Studio Lights on a Low Budget"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/2a9cc8bf4d555df620abafcb570dcc2752e8e2040
 ## Experience High-End Flash Modes on a Budget - Try YN560IV
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## YONGNUO YN560 IV Wireless Flash Speedlite Master
 
@@ -63,9 +67,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ## **Design: Punching above the price point**
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master features a robust design that doesn’t feel like the manufacturer skimped on build quality — one of our biggest concerns with budget-minded flashes like this. When adjusting the position of the[flash head](https://www.lifewire.com/using-the-dslr-pop-up-flash-492975) through its 90 degrees of vertical and 270 degrees of horizontal range, it felt very solid.
@@ -78,9 +79,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## **Features & Functionality: Full suite manual control**
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master has a lot of different options that will make it an attractive option for manual shooters. But before we dive into all the things it does well, let’s talk about what you_won’t_ find in this flash. The most notable omission is TTL. For the uninitiated, Through The Lens (TTL) is a metering mode that lets a flash unit fire a series of infrared bursts and evaluates the actual light coming through the lens to determine how much power to deliver when taking a photo. It’s very handy to have for beginners and event photographers, but by no means essential for many other types of users.
@@ -116,9 +114,9 @@ Lifewire / Jonno Hill
  Overall, the YN560 IV gives you a lot of functionality and control, but definitely requires some reading and troubleshooting before you can master the device.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Significant savings for manual users**
 
  Buyers that need a lot of manual control for complex flash setups will be very pleased with what the get for the approximately $60 the YN560 IV costs. It sits at a price that’s a fraction of its TTL-enabled Canon and Nikon counterparts, but twice that of even simpler options. Do you need all the functionality that the YN560 IV offers? Are you willing to troubleshoot a bit with returns to make sure you get good, non-defective units? If the answer to those questions is yes, this is definitely the flash for you.
@@ -126,8 +124,9 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Yongnuo YN560 IV Wireless Flash Speedlite Master vs Neewer TT560 Flash Speedlite**
 
  Photographers just starting out (or with significantly less complicated lighting ambitions) might be better served by getting a dead-simple option like the Neewer TT560 Flash Speedlite. It’s a no-fuss option with very few extraneous controls that will be a good starting point for most users, and solid for pros who don’t want more than optical trigger functionality on a flash.
@@ -143,8 +142,9 @@ Lifewire / Jonno Hill
  The Yongnuo YN560 IV Wireless Flash Speedlite Master may not be a very simple flash, but it packs enough functionality to make a very versatile platform for more aspirational photographers. Buyers that want full manual control and radio transmission without paying an arm and a leg will be more than pleased with what they get.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Canon Speedlite 430EX III-RT Flash](https://www.lifewire.com/canon-speedlite-430ex-iii-rt-flash-review-4686835)
@@ -152,8 +152,9 @@ Lifewire / Jonno Hill
 * [Fovitec SPK10-037 Softbox Lighting Kit](https://www.lifewire.com/fovitec-spk10-037-softbox-lighting-kit-review-4692503)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  YN560 IV Wireless Flash Speedlite Master
@@ -177,8 +178,6 @@ Lifewire / Jonno Hill
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -186,4 +185,21 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/updated-network-growth-strategy-share-twitch-live-links-on-fb-for-2024/"><u>[Updated] Network Growth Strategy Share Twitch Live Links on FB for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-top-80s-effects-compendium-for-professional-editors/"><u>2024 Approved Top 80S Effects Compendium for Professional Editors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cutting-edge-performance-unleashed-with-razers-newest-innovation-the-razer-blade-stealth-13-laptop-revealed/"><u>Cutting-Edge Performance Unleashed with Razer's Newest Innovation - The Razer Blade Stealth 13 Laptop Revealed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dji-robomasters-s1-reviewed-an-engaging-tank-drone-experience-combining-educational-coding-with-strategy-battles/"><u>DJI Robomasters S1 Reviewed: An Engaging Tank Drone Experience Combining Educational Coding with Strategy Battles</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/economical-and-extensive-media-library-an-in-depth-look-at-the-roku-express/"><u>Economical and Extensive Media Library – An In-Depth Look at the Roku Express</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/essential-gizmos-for-smooth-enjoyable-travels/"><u>Essential Gizmos for Smooth, Enjoyable Travels</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-optimal-performance-with-the-sabrent-mini-travel-mouse-a-blend-of-precision-and-reliable-cables/"><u>Experience Optimal Performance with the Sabrent Mini Travel Mouse - A Blend of Precision and Reliable Cables</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-picks-best-cordless-handsets-and-earpieces-of-202cordless-phone-technology-evolution-charting-the-journey-from-early-innovations-to-modern-advancemen31/"><u>Expert Picks: Best Cordless Handsets and Earpieces of 202Cordless Phone Technology Evolution - Charting the Journey From Early Innovations to Modern Advancements</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/freestyle2-blue-on-macs-a-must-have-application-for-apple-fans-revealed-in-our-detailed-review/"><u>Freestyle2 Blue on Macs: A Must-Have Application for Apple Fans, Revealed in Our Detailed Review</u></a></li>
+<li><a href="https://os-tips.techidaily.com/in-depth-insights-into-data-wipe-excellence-with-dr-fone-data-eraser-by-wondershare-the-ios-edition/"><u>In-Depth Insights Into Data Wipe Excellence with Dr. Fone Data Eraser by Wondershare - The iOS Edition</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solving-iphoneipad-ios-update-issues-6-reliable-steps/"><u>Solving iPhone/iPad iOS Update Issues: 6 Reliable Steps</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-complete-guide-to-samsung-galaxy-m14-4g-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Samsung Galaxy M14 4G FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-lgbtplus-films-streaming-on-netflix-this-july-2024/"><u>Top LGBT+ Films Streaming on Netflix This July 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/trouble-with-airdrop-here-are-16-fast-fixes-to-get-it-running-smoothly-again/"><u>Trouble With AirDrop? Here Are 16 Fast Fixes to Get It Running Smoothly Again</u></a></li>
+</ul></div>
 

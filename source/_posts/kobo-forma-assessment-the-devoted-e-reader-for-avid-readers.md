@@ -1,7 +1,7 @@
 ---
 title: "Kobo Forma Assessment: The Devoted E-Reader for Avid Readers"
-date: 2024-11-10T17:02:11.952Z
-updated: 2024-11-15T17:13:46.142Z
+date: 2024-12-02T16:21:15.963Z
+updated: 2024-12-04T00:13:57.450Z
 categories:
   - BestProducts
 description: "This Article Describes Kobo Forma Assessment: The Devoted E-Reader for Avid Readers"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/ed7df24877c809d3df195ee4e441348959e5b212a
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7 Days to Die
 
@@ -49,10 +53,7 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/mKaiRcg5xaWaOPRj0Ph1dRjUbSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4164252-1-e8b8c3eb31dd46e8a63e8e40a5a9d04b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
@@ -79,14 +80,11 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/MW5wYA5ujBjG5LdXn-w9bTJd5WQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-2-a59091cd21c04d99a42270199349fc2a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Easy thanks to Steam**
 
@@ -96,14 +94,11 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/Eq0YCIdbj82yj3lOCWEdZS7jX6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-4-341174c3997543728bd2b024c6e2a309.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Plot: Open world horror sandbox**
 
@@ -120,6 +115,10 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/U2XChOqkiQvFhP69V0cQ5mYcYME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-3-d19d9b4d19734cffb022d6e0db90382e.jpg)
 
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Gameplay: Could be better, but solid overall**
 
@@ -143,6 +142,10 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Graphics: Outdated, but detailed on optimal**
 
  For a game that was released in 2013 originally, the graphics could be a little better, even if you play on optimal settings. Back in the day, we played on lower settings rather than splurge on a fancy graphics card. If you play on the lower settings, it’s cringeworthy, though not as cringeworthy as the Witcher 3’s lowest settings.
@@ -161,19 +164,6 @@ Lifewire / Rebecca Isaacs
 
  At around $25, 7 Days isn’t the most expensive zombie game on the market. However, it is the most expensive alpha zombie game out there. Because you can purchase it on[Steam](https://www.lifewire.com/what-is-steam-4177380) or Humble Bumble, we recommend waiting for a Steam sale and getting it for a discount, especially since it’s still in progress. This way, if you decide you don’t like it in the future, you aren’t out the full price.
 
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Competition: Other sandbox shooters**
 
  It’s hard to compare 7 Days to other sandboxes out there because of the significant focus on crafting and building.[Minecraft](https://www.minecraft.net/en-us/download/) has expansive crafting and arguably good graphics with its classic blocky appearance. Terraria also boasts zombies and crafting and building capabilities, though they’re 2D instead of 3D like in 7 Days. And all of them can guarantee hours of gameplay with fun twists and turns.
@@ -185,13 +175,6 @@ Lifewire / Rebecca Isaacs
  **If you love smart zombies, you’ll love this game.**
 
  Despite flaws in graphics, there’s a lot to love about 7 Days to Die. The challenging skill tree system and dangerous intelligent zombies add an element that’s not typically found in zombie shooters. If you want a game to commit to for hours on end, building bases and exploring dungeon-like homes while slaying zombie cheerleaders, then 7 Days to Die could be a fun way to ease some stress after a long day of work.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -226,18 +209,24 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-expedite-visuals-drawing-and-enhancing-with-windows-photos-app/"><u>[New] Expedite Visuals Drawing & Enhancing with Windows Photos App</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-chucklebox-top-meme-generator/"><u>[New] In 2024, ChuckleBox - Top Meme Generator</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-from-concept-to-cut-tape-imovie-steps-for-optimizing-youtube-edits/"><u>2024 Approved From Concept to Cut-Tape IMovie Steps for Optimizing YouTube Edits</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-hack-the-youtube-timeline-increase-or-decrease-sound/"><u>2024 Approved Hack the YouTube Timeline Increase or Decrease Sound</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-blueprint-for-incorporating-dynamic-narrations-in-media/"><u>2024 Approved The Blueprint for Incorporating Dynamic Narrations in Media</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-xiaomi-redmi-note-12-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/beat-iphone-x-irritations-discover-your-fixes-here/"><u>Beat iPhone X Irritations: Discover Your Fixes Here</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/capture-oceanic-vistas-with-the-versatile-insta360-one-x2/"><u>Capture Oceanic Vistas with the Versatile Insta360 One X2</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-perfect-travel-companion-for-readers-in-depth-review-of-the-kobo-clara-hd/"><u>Discover the Perfect Travel Companion for Readers: In-Depth Review of the Kobo Clara HD</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-benefits-and-drawbacks-a-comprehensive-look-at-the-samsung-galaxy-s21-ultra-as-the-prime-choice-for-android-users/"><u>Exploring the Benefits and Drawbacks: A Comprehensive Look at the Samsung Galaxy S21 Ultra as the Prime Choice for Android Users</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-troubleshooting-error-connecting-to-the-apple-id-server-on-iphone-12-by-drfone-ios/"><u>In 2024, Troubleshooting Error Connecting to the Apple ID Server On iPhone 12</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/in-depth-evaluation-of-the-beloved-sandbox-title-minecraft-perfect-for-all-generations/"><u>In-Depth Evaluation of the Beloved Sandbox Title, Minecraft: Perfect for All Generations</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-network-performance-a-thorough-evaluation-of-the-renowned-linksys-wrt3200acm/"><u>Mastering Network Performance: A Thorough Evaluation of the Renowned Linksys WRT3200ACM</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/indows-movie-maker-the-ultimate-guide-to-youtube-video-production-for-2024/"><u>[New] Windows Movie Maker The Ultimate Guide to YouTube Video Production for 2024</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/1728486050252-mac/"><u>揭晓为什么Mac上的数据在移动至闪存不能成功及修复技巧</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-cooling-solution-for-your-pc-an-in-depth-review-of-the-topmate-c302-pad/"><u>Budget-Friendly Cooling Solution for Your PC: An In-Depth Review of the TopMate C302 Pad</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/crafting-new-realities-a-critical-look-at-sci-fi-rpg-torment-tides-of-numenera/"><u>Crafting New Realities: A Critical Look at Sci-Fi RPG 'Torment: Tides of Numenera'</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elite-playlists-fitness-challenges/"><u>Elite Playlists Fitness Challenges</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-logitech-c615-a-blend-of-efficient-performance-and-budget-friendly-pricing/"><u>Evaluating the Logitech C615: A Blend of Efficient Performance and Budget-Friendly Pricing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-the-samsung-galaxy-watch-merging-elegance-in-style-with-high-tech-capabilities/"><u>Expert Insights on the Samsung Galaxy Watch – Merging Elegance in Style With High-Tech Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-charms-of-campfire-tales-an-essential-review-of-minecrafts-latest-skins/"><u>Exploring the Charms of Campfire Tales: An Essential Review of Minecraft's Latest Skins</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723205836067-fixing-error-message-0x887a0006-in-no-time-easy-solutions-inside/"><u>Fixing Error Message 0X887A0006 in No Time - Easy Solutions Inside!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-samsung-smart-tv-un65ru8000fxza-with-elegant-screen-design/"><u>In-Depth Analysis of the Samsung Smart TV - UN65RU8000FXZA with Elegant Screen Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-samsung-galaxy-tab-s3-still-a-top-choice-comprehensive-review-inside/"><u>Is the Samsung Galaxy Tab S3 Still a Top Choice? Comprehensive Review Inside</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-iphone-photography-overcoming-common-auto-focus-failures/"><u>Mastering iPhone Photography: Overcoming Common Auto-Focus Failures</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/perfect-your-interactions-with-these-essential-prompts/"><u>Perfect Your Interactions with These Essential Prompts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/utionizing-viewer-retention-on-youtube-with-these-powerful-strategies-for-2024/"><u>Revolutionizing Viewer Retention on YouTube with These Powerful Strategies for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/snapchats-my-ai-or-chatgpt-which-one-should-you-use/"><u>Snapchat’s My AI or ChatGPT: Which One Should You Use?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-samsung-galaxy-watch-active-deconstructed-is-it-truly-a-health-enthusiasts-dream/"><u>The Samsung Galaxy Watch Active Deconstructed – Is It Truly a Health Enthusiast's Dream?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-ultimate-transfer-guide-5-top-techniques-for-computing-files/"><u>The Ultimate Transfer Guide 5 Top Techniques for Computing Files</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/users-guide-how-to-create-photo-talking-videos-with-the-best-tools-for-2024/"><u>Users Guide How To Create Photo Talking Videos With the Best Tools for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/visual-upgrade-engine-windows-mac-and-online-edition/"><u>Visual Upgrade Engine – Windows, Mac & Online Edition</u></a></li>
 </ul></div>
 
