@@ -1,7 +1,7 @@
 ---
 title: "Discover the Champion of Value: A Comprehensive Guide to Fellowes Microban Wireless Keyboard"
-date: 2024-08-22T16:25:22.074Z
-updated: 2024-08-23T16:25:22.074Z
+date: 2024-12-03T18:09:29.002Z
+updated: 2024-12-10T21:07:23.435Z
 categories:
   - BestProducts
 description: "This Article Describes Discover the Champion of Value: A Comprehensive Guide to Fellowes Microban Wireless Keyboard"
@@ -43,6 +43,10 @@ Lifewire / Yoona Wagener
 
 ![Acer Aspire C27](https://www.lifewire.com/thmb/fqMrcR0G5-QABT1h7yRWLmEjtfo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Acer-Aspire-C27-Desktop-PC-1-c7e2493e16d845bfbacd8624843d4187.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
 [View On Amazon $900](https://www.amazon.com/dp/B088HGGRV4/?tag=lifewire-onsite-prod-20&ascsubtag=5076017%7Cn8650668db03746b1a37038a40907ec2208%7CB088HGGRV4) [View On Walmart $796](https://www.walmart.com/ip/172559576) [View On B&H Photo Video $800](https://www.bhphotovideo.com/c/product/1573885-REG/acer%5Fdq%5Fbdpaa%5F005%5Faspire%5Fc27%5Fi5%5F1035g1%5F8gb%5F512gb%5Fwindows%5F10%5Fhome%5F27.html)
@@ -74,6 +78,10 @@ Lifewire / Yoona Wagener
 
  Another benefit of the manageable weight is access to the ports on the back of the display, which are similar to the options you’ll find on more traditionally sized desktops—including an[HDMI](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) out port to extend your display. Two[USB 3.0](https://www.lifewire.com/what-is-usb-3-0-2626038) ports and two USB 2.0 Type-A ports should cover your peripherals, though one of them will be taken by the nano-USB required to operate the wireless mouse that comes with the machine. And the provided cord organizer that snaps easily onto the arm of the monitor helps tame all of your extras. If you don’t have a great deal of free space or access behind the computer, moving the machine to reveal the ports takes little effort.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Display: Ample visibility and easy to tilt**
 
  One of the most exceptional aspects of the Acer Aspire C27 is the 1920x1080 Full HD[IPS display](https://www.lifewire.com/definition-of-ips-lcd-578662) . It’s easy on the eyes, thanks to a matte design and[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) backlighting, and while it measures 27 inches on the diagonal, it appears even more generous, thanks to a low-profile .14-inch bezel. The manufacturer claims that this distribution of bezel to display means users enjoy 92% more screen across a range of viewing angles.
@@ -85,22 +93,11 @@ Lifewire / Yoona Wagener
 ![Acer Aspire C27](https://www.lifewire.com/thmb/Uz7vMuH09GTPbuzGQD_1VWglDoI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Aspire-C27-Desktop-PC-3-667c0e2c6ea14626adb5811a5bf80dfd.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Good at all the PC basics**
 
  The Acer Aspire C27 operates on a modest Intel Core i5 quad-core, 1GHz speed processor and a NVIDIA GeForce MX130 graphics card, which is similar to what you’ll find on many laptops. While it won’t satisfy your search for one of the best gaming desktops or top picks for video editing or graphic design, the Aspire C27 is suited for the general tasks you expect from your desktop PC. Plus, the 512 GB of SSD storage capacity should be more than adequate for storing all your files, including a few games.
@@ -111,9 +108,6 @@ Lifewire / Yoona Wagener
 
  The 27-inch display appears even more generous, thanks to a low-profile .14-inch bezel.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Productivity: Well-rounded for professional and personal use**
 
  This Acer all-in-one is compatible for the modern office, student, or family. It’s quick to start, navigate, and does all of the usual modern computing tasks without a hitch. Whether you need a machine that can help you multitask with email, web browsing, and word processing or you’d like to stream video, music, and do some light photo editing and gaming too, you won’t be disappointed.
@@ -124,9 +118,6 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ## **Audio: Muffled and best with headphones**
 
  While this desktop features two stereo speakers, they’re on the back of the machine. This created a muffled tin-can effect when I placed the computer on a desk facing the wall. If you have enough free space to keep this unit away from the wall, this will reduce this effect. When I placed it on a free-standing table, the sound quality definitely improved. It was less tinny and rounder, but still on the flat side.
@@ -134,16 +125,17 @@ Lifewire / Yoona Wagener
  Regardless of what I listened to, whether it was a podcast, hip hop, game audio, or a show on Netflix or Hulu, everything sounded slightly muted and obstructed. The best general audio experience was with headphones and the definitively better choice for listening to any kind of music.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Network: Speedy connections all around**
 
  The Acer Aspire C27 is capable of [Gigabit Ethernet](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) performance and uses the 802.11ac wireless standard. Ookla Speedtest results consistently delivered at the high end of my 200Mbps ISP download speed capacity. Over Wi-Fi, I saw an average of 107Mbps and Ethernet speeds floated around 200Mbps.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Camera: Adequate for conference calls**
 
  Whether you telecommute on a full-time basis or on occasion, a decent built-in camera is becoming something of a must-have on modern laptops and the[best desktop PCs](https://www.lifewire.com/best-desktop-pcs-4045927) . Unfortunately, the Aspire C27 720-pixel HD webcam is lackluster. Video conferencing delivers just clear-enough video quality and the audio is just okay. It’s grainy and washed out and on the darker side of the spectrum. If you spend a lot of time chatting over Zoom or Hangouts or other platforms, this won’t provide the best-looking chatting experience.
@@ -164,9 +156,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  The Acer Aspire C27 retails for about $900\. This price point makes this AIO a more affordable option for a range of shoppers, especially those who want to cut down on the amount of desk clutter or like the idea of portability—whether that’s required by a move or a desire for a change of scenery. There are less expensive[all-in-one desktops](https://www.lifewire.com/best-all-in-one-pcs-831942) on the market, at or even below $500, but it’s challenging to find an equivalent that offers the same slim and lightweight form factor and screen and overall quality.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Acer Aspire C27 vs. HP All-in-One 27-dp0170z**
 
  The HP All-in-One 27-dp0170z ([view on HP](https://store.hp.com/us/en/pdp/hp-all-in-one-27-dp0170z) ) overlaps in many of the same areas as and surpasses the Acer Aspire C27 in others. This HP AIO also operates in Windows 10 Home, but it comes standard with 16GB of memory, which is slightly more than the Aspire C27 starts out with (12GB). The HP also features a slightly faster processor, a 10-point touchscreen, and an extra USB port.
@@ -178,6 +167,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  **A budget-friendly AIO that gets most jobs done and saves space.**
 
  The Acer Aspire C27 all-in-one is so slim at first glance you might mistake it for a mere computer monitor. Its unimposing and flexible form factor betrays its hidden ability as a desktop PC that can handle most computing demands with ease and perform a few extra demanding tasks as well.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -197,14 +190,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Software  Windows 10 Home
 * Warranty  1 year
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -213,4 +203,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-discovering-all-in-youtube-shorts-guide/"><u>[New] 2024 Approved Discovering All in YouTube Shorts Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-digital-cinemas-on-iphone-apples-no1-freepluspaid-movie-app-guide/"><u>[New] In 2024, Digital Cinemas on iPhone Apple's No.1, FREE+PAID Movie App Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-crafting-compelling-videos-youtubes-best-thumbnail-practices/"><u>[Updated] Crafting Compelling Videos YouTube's Best Thumbnail Practices</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-mp4-capture-and-analysis-toolkit/"><u>[Updated] In 2024, MP4 Capture & Analysis Toolkit</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-playground-of-champions-celebrating-top-10-epic-game-sagas/"><u>[Updated] In 2024, Playground of Champions Celebrating Top 10 Epic Game Sagas</u></a></li>
+<li><a href="https://blog-min.techidaily.com/bilduppsattningshjalp-vad-som-kanns-bra-lar-dig-att-skapa-en-lasbild-med-tva-video-och-text/"><u>Bilduppsättningshjälp - Vad Som Känns Bra! Lär Dig Att Skapa en Läsbild Med Två Video Och Text</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-anker-powercoreplus-26800-portable-charger-review/"><u>Comprehensive Anker PowerCore+ 26800 Portable Charger Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dissecting-the-t6-dslr-photography-on-a-shoestring/"><u>Dissecting the T6 DSLR: Photography on a Shoestring</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elite-selection-of-outboard-high-capacity-bddvd-drive-units-tech-enthusiasts/"><u>Elite Selection of Outboard High Capacity BD/DVD Drive Units Tech Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-guide-to-asus-rog-gt-ac5300-a-dream-wifi-router-for-gamers-and-technology-buffs/"><u>In-Depth Guide to Asus ROG GT-AC5300 – A Dream Wifi Router for Gamers and Technology Buffs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/motorola-mg7700-review/"><u>Motorola MG7700 Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-moto-g-power-unbeatable-battery-life-in-an-eye-catching-body/"><u>Review of Moto G Power: Unbeatable Battery Life in an Eye-Catching Body</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ios-15-upgrade-path-unveiled/"><u>The iOS 15 Upgrade Path Unveiled</u></a></li>
+</ul></div>
 

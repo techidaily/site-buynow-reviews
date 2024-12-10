@@ -1,7 +1,7 @@
 ---
 title: Why Xiaomi Mi Smart Band 4 Is the Ultimate Choice for Budget-Conscious Health Enthusiasts - Our Review Revealed
-date: 2024-08-22T16:19:47.629Z
-updated: 2024-08-23T16:19:47.629Z
+date: 2024-12-09T21:27:55.604Z
+updated: 2024-12-10T16:37:22.312Z
 categories:
   - BestProducts
 description: This Article Describes Why Xiaomi Mi Smart Band 4 Is the Ultimate Choice for Budget-Conscious Health Enthusiasts - Our Review Revealed
@@ -13,9 +13,17 @@ thumbnail: https://thmb.techidaily.com/410b1a4d385c6e4b30f8c2bafd9b2a73f332bf695
 
 4.3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Xiaomi Mi Smart Band 4
 
 ![Xiaomi Mi Smart Band 4](https://www.lifewire.com/thmb/gu5s-Vyv187eoyORVVMpZu9AOVM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xiaomi-Mi-Band-4-Fitness-Tracker-1-0f0e3854f10a4a2595aacd594e37472b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -75,14 +83,12 @@ Lifewire / Erika Rawes
 
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/oCYh365Kx4bFT1nCDvemWNcGEYI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-6-64089d35ecca457d9f49477537785d34.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Comfort: A water resistant removable band**
 
  The Xiaomi Mi Band 4 is water resistant with a 5 ATM rating. This means the band can go in up to 50 meters of water for up to 10 minutes, and it can tolerate shallow water activities like swimming. You can comfortably shower with the band, wear it in the rain, or wear it while you’re drenched in sweat. It doesn’t feel too hot on the wrist either.
@@ -96,8 +102,9 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Not bad for the price**
 
  The Mi Band 4 has a responsive touch screen that doesn’t lag when switching between screens or loading data. It has an impressive feature set for a fitness tracker in this price range, although some of the tools aren’t always pinpoint accurate, and you won’t get as many perks as you’d get with a fitness tracker in a higher price range. All in all, I was impressed with the fitness tracker’s overall performance.
@@ -110,9 +117,9 @@ Lifewire / Erika Rawes
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/b-bHMwN4n7fkxgT3X0dueEvAuZ8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-2-4e096d92f3324689bed126949cdb0a14.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Software: Mi Fit App**
@@ -124,8 +131,9 @@ Lifewire / Erika Rawes
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/uyTDWcqaPVwpPOnZeijBG5Y2MYM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-5-040745fab732483a957277c9daaa82ca.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Battery: Up to 20 days**
@@ -148,9 +156,6 @@ The 135 mAh battery lasts for up to 20 days.
 
  The Xiaomi Mi Smart Band 4 is incredibly affordable, selling for $29 on Amazon. The next gen band, the Mi Band 5, is now hitting the market, which is lowering the price of the fourth generation model. The Mi Band 4 isn’t perfect by any means, and it won’t provide the same experience that you’d get with a tracker that costs hundreds of dollars, but it’s a steal at its price point.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Xiaomi Mi Smart Band 4 vs. Fitbit Charge 3**
 
  For a light user, the Xiaomi Mi Smart Band 4 will provide a similar experience to the[Fitbit Charge 3](https://www.lifewire.com/fitbit-charge-3-review-5072527) , and for much less cash. The Mi Band 4 sells for less than $30, while the Charge 3 (view on[Amazon](https://www.amazon.com/dp/B07FTN21JL/?tag=lifewire-onsite-prod-20&ascsubtag=5072538%7Cn9a9fa546381a4a599bb0ce1e844da32715%7C) ) sells for closer to $100\. The Mi Band 4 even has a color display, which the Fitbit Charge 3 lacks. If you want a budget tracker with better accuracy, the Charge 3 is probably the way to go. If you just want to try out a fitness tracker, the Mi Band 4 is a good choice.
@@ -186,14 +191,11 @@ The 135 mAh battery lasts for up to 20 days.
 * App  Mi Fit
 * System requirements  Android 4.4, iOS 9.0 or above
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -202,4 +204,17 @@ The 135 mAh battery lasts for up to 20 days.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-mastering-the-veil-of-invisibility-during-instagram-livestreams/"><u>[New] 2024 Approved Mastering the Veil of Invisibility During Instagram Livestreams</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-unleashing-iphones-potential-for-dynamic-shots/"><u>[New] In 2024, Unleashing iPhone’s Potential for Dynamic Shots</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-itel-s23-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Itel S23.</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/comprehensive-assessment-of-digital-entertainers-for-2024/"><u>Comprehensive Assessment of Digital Entertainers for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-run-android-apps-in-windows-10/"><u>How to Run Android Apps in Windows 10</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-rayman-legends-stellar-2d-gaming-fun-for-all-ages/"><u>In-Depth Look at Rayman Legends - Stellar 2D Gaming Fun for All Ages</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-dreame-bot-l10-pro-your-next-advanced-mopping-and-vacuuming-companion/"><u>In-Depth Look at the Dreame Bot L10 Pro – Your Next Advanced Mopping and Vacuuming Companion</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/m1-powerhouse-unveiled-transforming-the-apple-macbook-pro-13-inch-experience-in-2020/"><u>M1 Powerhouse Unveiled: Transforming the Apple MacBook Pro 13-Inch Experience in 2020</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-essential-guide-to-buying-the-best-budget-philips-hf3520-alarm-clock/"><u>The Essential Guide to Buying the Best Budget Philips HF3520 Alarm Clock</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-fast-forward-to-fun-10-best-free-video-speed-changing-apps-for-ios-and-android/"><u>Updated 2024 Approved Fast Forward to Fun 10 Best Free Video Speed Changing Apps for iOS and Android</u></a></li>
+</ul></div>
 

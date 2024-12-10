@@ -1,7 +1,7 @@
 ---
 title: Why Totobay's New Wake-Up Light Is Your Best Budget Option - Full Review Inside!
-date: 2024-08-27T11:06:46.884Z
-updated: 2024-08-28T11:06:46.884Z
+date: 2024-12-03T18:23:48.077Z
+updated: 2024-12-10T16:21:02.487Z
 categories:
   - BestProducts
 description: This Article Describes Why Totobay's New Wake-Up Light Is Your Best Budget Option - Full Review Inside!
@@ -37,6 +37,10 @@ Lifewire / Jeremy Laukkonen
 [View On Amazon $580](https://www.amazon.com/Acer-Aspire-i3-8130U-Memory-E5-576-392H/dp/B079TGL2BZ/?tag=lifewire-onsite-prod-20&ascsubtag=4686717%7Cn4f28d43e30f1457ea7a870c685e75d4f06%7CB079TGL2BZ) [View On Walmart $499](https://www.walmart.com/ip/Acer-Aspire-E-15-E5-576-392H-15-6-LCD-Notebook-Intel-Core-i3-8th-Gen-i3-8130U-Dual-core-2-Core-2-20-GHz-6-GB-DDR3L-SDRAM-1-TB-HDD-Windows-10-Home-64-/350526182)
 
 4.5
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Acer Aspire E 15
 
@@ -75,6 +79,10 @@ Lifewire / Jeremy Laukkonen
 
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/urRsU5n3D2A-nzQe6NGdQgrDGwM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1lW4043278-Acer-Aspire-2-4cb96f03e4c748a583d14f0c8c9224dc.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 ## **Design: A decent plastic case, but not exactly a premium look**
@@ -98,13 +106,11 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/M-q3UXEJ6htBtTcwPWAH9SLwJeI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1lW4043278-Acer-Aspire-4-1cfdfcc543fa4eb5b5e5449b6ea37413.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Display: Full HD display with awesome contrast but washed-out color**
 
  While the Aspire E 15’s screen isn’t the brightest or most colorful in the world, it is a full HD display that absolutely shines compared to the low-resolution screens found on a lot of laptops in this category.
@@ -141,6 +147,10 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/0j4qIM8N-IXUlX66rWrHmqZTjxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1lW4043278-Acer-Aspire-3-8bdb945a491f4f4cbab64c65fa21d9af.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 ## **Audio: Decent speakers, but no bass response**
@@ -148,6 +158,10 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
  The speakers are decent enough, but the audio quality is still one of the Aspire E 15’s weaker points. They just don’t get all that loud, and when we did crank the volume all the way up, we noticed a bit of distortion in some frequency ranges. There isn’t a whole lot of bass, either, so everything sounds a little tinny—and that only gets worse at louder volumes.
 
  Strangely enough, the audio is actually louder and clearer when the[laptop](https://www.lifewire.com/14-16-inch-laptops-833846) is sitting on a flat surface. It seems like there is a lot of sound escaping from the vents as well as through the actual speaker grills, and placing it on a solid surface seems to improve the audio quality.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Network: Great speeds on both 5 GHz and 2.4 GHz networks**
 
@@ -157,16 +171,10 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  We found that the Aspire E 15 was able to achieve download speeds of 260 Mbps and upload speeds of 65 Mbps when connected to our 5 GHz network. When connected to our 2.4 GHz network, it notched speeds of 66 Mbps down and 64 Mbps up. These speeds are pretty good across the board.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Camera: 720p webcam takes grainy stills**
 
  The included webcam is capable of capturing 720p video, and while it works well enough for basic video calls on Skype or Discord, it may not be up to the standards necessary for professional video conferencing. It also takes grainy still images, although that may not be a huge concern unless you really need to take[photos](https://www.lifewire.com/best-laptops-to-buy-4043650) with your webcam for some reason.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Battery: Fantastic battery life that goes all day**
 
  The battery in the Aspire E 15 is exceptional, especially compared to the mediocre offerings found in similarly-priced competitors. Acer advertises a 12-hour battery life, and we found that to be a pretty accurate claim.
@@ -177,23 +185,19 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  In a category where a lot of competing devices die out after four or five hours, that’s pretty remarkable.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: Bogged down by bloatware**
 
  The Acer Aspire E 15 comes with Windows 10, some basic Windows apps, and a free trial of[Microsoft 365](https://www.lifewire.com/how-to-install-office-365-4589808) . It also comes with a whole bunch of bloatware from Acer, Netflix, Evernote, an outdated version of Firefox, and several games you probably won’t want or need.
 
  If you’re a Firefox user, it might be nice to have that already downloaded (just remember to update it immediately). But the rest of this bloatware is most likely going to be an annoyance that needs to get uninstalled.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ## **Price: Extremely competitive pricing**
 
  With an MSRP of just $380, the Aspire E 15 is a fantastic deal. If you can get it for even less than that, then it’s truly a steal. The more expensive configuration with an SSD, discrete graphics, and Core i7, is also a good deal at an MSRP of $599 if you have a little more room in your budget.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Blows the competition out of the water in almost every category**
 
@@ -212,17 +216,15 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
  The Acer Aspire E 15 hits almost all the right notes while keeping the price way, way down. If you have a little room in your budget, it’s worth investing in the more expensive configuration of this laptop, which comes with a discrete NVIDIA graphics card for gaming, extra RAM, and a speedy SSD.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Asus Chromebook C202SA](https://www.lifewire.com/asus-chromebook-c202sa-review-4589359)
 * [Microsoft Surface Go](https://www.lifewire.com/microsoft-surface-go-review-4690827)
 * [Lenovo Ideapad 320](https://www.lifewire.com/lenovo-ideapad-320-review-4686723)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Aspire E 15
@@ -237,14 +239,11 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 * Camera  0.9 MP webcam
 * Display  15.6” 1920 x 1080
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -253,4 +252,23 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/updated-enhance-clarity-in-social-video-downloads-for-smartphonestablets-for-2024/"><u>[Updated] Enhance Clarity in Social Video Downloads for Smartphones/Tablets for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-from-recording-to-revealing-uploading-high-quality-vr-on-fb/"><u>[Updated] In 2024, From Recording to Revealing Uploading High-Quality VR on FB</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-skype-tone-searching-made-easy-pick-from-the-4-ace-lists/"><u>[Updated] In 2024, Skype Tone Searching Made Easy Pick From the 4 Ace Lists</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-motorola-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from Motorola</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-my-data-if-my-iphone-15-pro-max-screen-turns-black-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Can I recover my data if my iPhone 15 Pro Max screen turns black? | Stellar</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-zmi-powerpack-20000-analysis-your-ultimate-portable-energy-solution/"><u>Comprehensive ZMI PowerPack 20000 Analysis - Your Ultimate Portable Energy Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-amazing-world-of-wonder-workshops-dash-a-comprehensive-product-evaluation/"><u>Exploring the Amazing World of Wonder Workshop's Dash - A Comprehensive Product Evaluation</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-samsung-galaxy-s24-ultra-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Samsung Galaxy S24 Ultra Devices</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Tecno Spark 20 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-the-ultimate-guide-to-samsung-galaxy-a15-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Samsung Galaxy A15 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/prime-steps-in-choosing-pre-owned-electronics/"><u>Prime Steps in Choosing Pre-Owned Electronics</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tablet-tussle-assessing-which-fits-better-fire-or-samsung/"><u>Tablet Tussle: Assessing Which Fits Better, Fire or Samsung?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/taking-on-luxury-with-savings-comparing-features-of-apples-latest-ipad-air-4-and-ipad-pro/"><u>Taking on Luxury with Savings: Comparing Features of Apple's Latest iPad Air 4 and iPad Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-of-both-worlds-with-the-lg-24lh4830-smart-tv-on-a-budget/"><u>The Best of Both Worlds with the LG 24LH4830 Smart TV on a Budget</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unbiased-review-the-ultimate-guide-to-using-aphaca-bt69-bluetooth-fm-radio-in-cars/"><u>Unbiased Review: The Ultimate Guide to Using Aphaca BT69 Bluetooth FM Radio in Cars</u></a></li>
+<li><a href="https://win11.techidaily.com/unlock-optimal-performance-with-easy-directx-downloads-and-updates/"><u>Unlock Optimal Performance with Easy DirectX Downloads & Updates</u></a></li>
+</ul></div>
 

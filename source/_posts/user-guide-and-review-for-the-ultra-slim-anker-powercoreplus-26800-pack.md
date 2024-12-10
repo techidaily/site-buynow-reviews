@@ -1,7 +1,7 @@
 ---
 title: User Guide & Review for the Ultra-Slim Anker PowerCore+ 26800 Pack
-date: 2024-08-22T16:21:47.402Z
-updated: 2024-08-23T16:21:47.402Z
+date: 2024-12-05T16:43:56.375Z
+updated: 2024-12-10T18:32:50.504Z
 categories:
   - BestProducts
 description: This Article Describes User Guide & Review for the Ultra-Slim Anker PowerCore+ 26800 Pack
@@ -63,9 +63,6 @@ Lifewire / Gannon Burgett
 
  Anker has made a name for itself as one of the most reliable gadgets and accessories manufacturers in the game. Despite their reasonable prices, the quality continues to impress and its Anker PowerCore+ 26800 PD with 30W Power Delivery Charger is no exception. We've spent some time with this laptop battery charger and put it to the test to see just how well Anker's compact battery pack holds up against a variety of gadgets.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Plush and light for travelers**
 
  If you've owned any Anker products, you'll immediately recognize the PowerCore+ 26800\. It features a minimal rectangular design made of extruded aluminum with rounded edges for a very smooth look and feel. It weighs roughly 1.3 pounds, which gives it a premium feel without feeling too heavy.
@@ -73,25 +70,22 @@ Lifewire / Gannon Burgett
 ![Anker](https://www.lifewire.com/thmb/brfc42RYlVrJLOHjyc0IbNzEQ0k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_5Web-5c90fc18c9e77c0001ac191d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
  The PowerCore+ 26800 features a single button on the top of the device to show remaining battery life and three ports on one of the two flat sides: two 5V/3A PowerIQ USB ports (Power IQ is Anker's proprietary smart-charging standard) and a power delivery[USB Type-C](https://www.lifewire.com/usb-c-4149490) port. It's a no-frills design that gets to the point without any unnecessary details or frills and it looks great when paired with any clean, modern device if you care about form as much as function.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Simple to start, but there’s yet another adapter to carry around**
 
  As with most battery chargers, there's not much to the Anker PowerCore+ 26800\. Inside the box is the battery pack, a 30W USB Type-C wall charger, and two cables: a USB Type-C to USB Type-C and a micro USB to USB Type-C.
 
 ![Anker](https://www.lifewire.com/thmb/Ps-fDFicjMGSS8OppN-xw5yn_mg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_1-Web-5c90fc3dc9e77c0001eb1cc5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -100,8 +94,9 @@ Lifewire / Gannon Burgett
  It's a no-frills design that looks great when paired with any clean, modern device if you care about form as much as function.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Charging Speed and Battery: Slow and steady wins this race**
 
  From zero percent battery life, the PowerCore+ 26800 charged to 100% in four hours flat, both in our initial test and our eight additional battery cycles, with only ten or fifteen-minute variances. This time lines up perfectly with Anker's given timeframe, which states it will charge in four hours when using the included 30W[USB](https://www.lifewire.com/universal-serial-bus-usb-2626039) wall charger and USB Type-C cable.
@@ -115,8 +110,9 @@ Lifewire / Gannon Burgett
 ![Anker](https://www.lifewire.com/thmb/tJwshohQXfV-U0_iKVTCkHEhFLU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_6Web-5c90fcc6c9e77c0001a92733.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
  We tested the PowerCore+ 26800 on our 2016 MacBook Pro 15-inch four different times to get a solid average. With the laptop completely dead, the battery pack managed to charge it to 100% in just three and a half hours with a little battery life to spare.
@@ -139,14 +135,15 @@ Lifewire / Gannon Burgett
 
  Yes, it's a little more expensive than its RAVPower contemporary, but considering the included accessories and more thoughtful design, it makes it worth it to spring the extra cash, especially when you take into account the 18-month warranty Anker offers.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [MaxOak 185Wh/50000mAh Battery Pack](https://www.lifewire.com/maxoak-185wh-50000mah-battery-pack-review-4589398)
 * [Jackery PowerBar Battery Pack](https://www.lifewire.com/jackery-powerbar-battery-pack-review-4589480)
 * [ChargeTech 27000mAh Battery Pack](https://www.lifewire.com/chargetech-27000mah-battery-pack-review-4589409)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -163,14 +160,11 @@ Lifewire / Gannon Burgett
 * Warranty  18 months
 * Compatibility  Android, iOS
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -179,4 +173,24 @@ Lifewire / Gannon Burgett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-pinnacle-racing-experiences-best-of-the-best/"><u>[New] 2024 Approved Pinnacle Racing Experiences Best of the Best</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-detailed-procedure-for-sending-time-synchronized-srt-files-online-for-2024/"><u>[New] Detailed Procedure for Sending Time-Synchronized SRT Files Online for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-the-viral-feast-top-15-easy-innovative-tiktok-dishes/"><u>[Updated] 2024 Approved The Viral Feast Top 15 Easy, Innovative TikTok Dishes</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-an-in-depth-examination-of-samsungs-picture-editing-tech/"><u>[Updated] In 2024, An In-Depth Examination of Samsung’s Picture Editing Tech</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-elevating-your-content-creation-leveraging-vimeo-recorder/"><u>[Updated] In 2024, Elevating Your Content Creation Leveraging Vimeo Recorder</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-framingfraction-analysis/"><u>2024 Approved FramingFraction Analysis</u></a></li>
+<li><a href="https://win-blog.techidaily.com/battle-against-high-processor-usage-in-starfield-proven-fixes-challenges/"><u>Battle Against High Processor Usage in Starfield: Proven Fixes Challenges</u></a></li>
+<li><a href="https://driver-download.techidaily.com/effortless-installation-secure-your-intel-dual-band-ac-amoled-with-the-7260-driver/"><u>Effortless Installation: Secure Your Intel Dual-Band AC Amoled with the 7260 Driver</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your ZTE Axon 40 Lite | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-affordable-monitors-the-ultimate-buyers-guide/"><u>Top Rated Affordable Monitors : The Ultimate Buyer's Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-compact-smartphones/"><u>Top Rated Compact Smartphones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranked-android-smartphones-comprehensive-list/"><u>Top-Ranked Android Smartphones : Comprehensive List</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranked-cfexpress-memory-cards-buyers-guide/"><u>Top-Ranked CFexpress Memory Cards : Buyer's Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranking-4k-television-models-a-comprehensive-guide/"><u>Top-Ranking 4K Television Models - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranking-infant-surveillance-systems/"><u>Top-Ranking Infant Surveillance Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranking-pc-screens-a-comprehensive-review/"><u>Top-Ranking PC Screens : A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-automobile-mobile-holder-selections/"><u>Top-Rated Automobile Mobile Holder Selections</u></a></li>
+</ul></div>
 

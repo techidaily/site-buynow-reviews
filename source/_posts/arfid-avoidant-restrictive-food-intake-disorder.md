@@ -1,7 +1,7 @@
 ---
 title: ARFID = Avoidant Restrictive Food Intake Disorder;
-date: 2024-08-22T16:21:55.426Z
-updated: 2024-08-23T16:21:55.426Z
+date: 2024-12-06T19:40:15.170Z
+updated: 2024-12-10T16:41:53.417Z
 categories:
   - BestProducts
 description: This Article Describes ARFID = Avoidant Restrictive Food Intake Disorder;
@@ -51,6 +51,10 @@ thumbnail: https://www.lifewire.com/thmb/vcPR8sMCFYv5wwuLBGaBwAuPrhk=/400x300/fi
 
 [Jump to Review](https://www.lifewire.com/#toc-compact-alternative-asus-zendrive)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Best Overall
 
 [ASUS BW-16D1X-U Blu-ray Drive](https://www.amazon.com/dp/B071WB35MH?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB071WB35MH)
@@ -81,6 +85,10 @@ PHOTO: Amazon
 
 [Asus BW-16D1X-U Powerful Blu-ray Drive Review](https://www.lifewire.com/asus-bw-16d1x-u-blu-ray-drive-review-4774686)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Budget Buy
 
 [LG GP65NB60 External Drive](https://www.amazon.com/dp/B00ODDE33U?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB00ODDE33U)
@@ -109,8 +117,9 @@ PHOTO: Amazon
  The LG GP65NB60 needs a single USB connection for all its power and data transfer needs. Further rounding out the package, the LG GP65NB60 supports Windows and Mac, can burn archival-quality M-Disc, and comes in various colors, with black, gold, white, and silver on offer.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Most Compact
 
 [Verbatim External Slimline Blu-ray Writer](https://www.amazon.com/dp/B09PY6SC9Y?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB09PY6SC9Y)
@@ -139,9 +148,6 @@ PHOTO: Amazon
 
  It can write CDs at 24x, DVDs at 8x, and Blu-rays at 6x — even supporting M-Disc. It’s a CD/DVD/BD drive weighing less than half a pound. The Verbatim 70102 is a mobility champion, with power and data transfer over USB, so you’ll only need one cable.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## Budget Alternative
 
 [Dell DW316 External USB Slim DVD Drive](https://www.amazon.com/dp/B00VWVZ0V0?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB00VWVZ0V0)
@@ -170,8 +176,9 @@ PHOTO: Amazon
  The Dell DW316 performs in line with what most of the competition offers. It boasts maximum read speeds of 24x for CDs and 8x for DVDs, and it can provide those same speeds for writing as well.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Compact Alternative
 
 [ASUS ZenDrive](https://www.amazon.com/dp/B01A27IUUM?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB01A27IUUM)
@@ -200,8 +207,9 @@ PHOTO: Amazon
  The Asus ZenDrive supports Windows and Mac, and it includes CyberLink software to help you get started storing content on physical media. The drive also comes with six months of free cloud storage from ASUS, so you can rip content from your CDs and DVDs and move it there as needed.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What to Look For
 
  For people who own and consume lots of media, an indispensable external optical drive is one of your best bets. External optical drives allow you to store massive amounts of data, including photos, videos, and software from CDs and DVDs, with easy access whenever and wherever you need it.
@@ -269,8 +277,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -278,4 +284,18 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-elevate-your-imagery-top-lights-tactics-on-iphones/"><u>[New] In 2024, Elevate Your Imagery Top Lights Tactics on iPhones</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-screen-saver-games-the-top-9-independent-titles-for-android-no-wi-fi/"><u>[New] Screen-Saver Games The Top 9 Independent Titles for Android (No Wi-Fi)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-how-to-take-360-videos-on-iphone-for-facebook/"><u>[Updated] How to Take 360 Videos on iPhone for Facebook</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722173504246-chrome-extension-revolutionizing-easy-chatgpt-prompting-now-available/"><u>Chrome Extension Revolutionizing Easy ChatGPT Prompting Now Available</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/essential-enhancements-and-gadgets-for-the-oculus-quest-2-2023-edition/"><u>Essential Enhancements & Gadgets for the Oculus Quest 2 - 2023 Edition</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-how-to-record-screencast-from-youtube-for-free/"><u>In 2024, How To Record Screencast From YouTube For Free</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-innovations-in-smart-alarms-for-2er-2024-expert-picks-and-reviews/"><u>Leading Innovations in Smart Alarms for 2Er 2024 - Expert Picks and Reviews</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-innovations-the-premier-smart-lights-of-the-year-2024/"><u>Leading Innovations: The Premier Smart Lights of the Year 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/maximizing-games-availability-via-steams-sync/"><u>Maximizing Games' Availability via Steam's Sync</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/monitor-tech-news-sites-and-retailers-websites-regularly-to-catch-pre-order-discounts-bundle-deals-or-promotions-for-the-components-you-need/"><u>Monitor Tech News Sites and Retailers' Websites Regularly to Catch Pre-Order Discounts, Bundle Deals, or Promotions for the Components You Need.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/premium-defense-gear-leading-iphone-13-pro-sleeves-and-cases-for-the-new-year/"><u>Premium Defense Gear: Leading iPhone 13 Pro Sleeves and Cases for the New Year</u></a></li>
+</ul></div>
 

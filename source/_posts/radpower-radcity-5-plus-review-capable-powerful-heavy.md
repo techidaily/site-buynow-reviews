@@ -1,7 +1,7 @@
 ---
 title: "RadPower RadCity 5 Plus Review: Capable, Powerful, Heavy"
-date: 2024-08-22T16:24:55.970Z
-updated: 2024-08-23T16:24:55.970Z
+date: 2024-12-08T19:52:40.897Z
+updated: 2024-12-10T19:52:38.293Z
 categories:
   - BestProducts
 description: "This Article Describes RadPower RadCity 5 Plus Review: Capable, Powerful, Heavy"
@@ -38,9 +38,17 @@ Lifewire / Nick Jaynes
 
 4.5
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/kUpys0K04ePH0SuEfAENz--MXSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
 
@@ -64,8 +72,9 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: All-plastic, but sturdy and subtle**
 
  The Anker PowerDrive 2 might not be the sharpest or most cutting-edge looking in-car USB charger, but what it lacks in visual pizazz, it more than makes up for in sturdiness.
@@ -78,9 +87,6 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Fast charging for demanding devices**
 
  The best part of the Anker PowerDrive 2 is its charging. It has the ability to charge iPads simultaneously without getting overheated thanks to its PowerIQ and VoltageBoost technology. Each USB port can output a maximum 5V/2.4A, for a total of 24W. That’s in line with other car[chargers](https://www.lifewire.com/best-wireless-phone-chargers-4138571) we tested, but the PowerIQ technology can help identify device and deliver the fastest possible charge. This also gives you some overvoltage protection to make sure something like a smartwatch doesn’t fry when you plug it in.
@@ -91,9 +97,6 @@ Lifewire / Nick Jaynes
 
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: Middle of the pack**
 
  The list price of $14.99 is positioned in the mid-range of the USB charger market, which ranges from just a few dollars to upwards of $50 for some fancier chargers. However, Anker PowerDrive 2 can be had for a discounted price on some websites. Considering the fact that the Anker PowerDrive 2 includes both the fast-charger and a 3-foot micro USB cable, it is well priced for the marketplace.
@@ -101,8 +104,9 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Competition: A handful of rivals**
 
  The RAVPower 24W charger is one of Anker’s main rivals. It has a metal exterior, a lower price tag, and theoretically identical power output. However, its construction is far less robust. In fact, its metal outside easily separates from the internal components easily making Anker a better pick for longevity.
@@ -118,8 +122,9 @@ Lifewire / Nick Jaynes
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  PowerDrive 2 24W Dual USB Car Charger
@@ -137,8 +142,6 @@ Lifewire / Nick Jaynes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -146,4 +149,16 @@ Lifewire / Nick Jaynes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-mastering-the-art-of-instagram-highlight-curation/"><u>[New] Mastering the Art of Instagram Highlight Curation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-demystifying-youtubes-video-editing-power/"><u>[Updated] 2024 Approved Demystifying YouTube's Video Editing Power</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-seamless-sound-with-ion-audio-tailgater-plus-instant-powerful-bass-and-endless-music/"><u>Experience Seamless Sound with Ion Audio Tailgater Plus - Instant Powerful Bass and Endless Music!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-latest-features-on-mobvois-ticwatch-pro-nv3-gps-capabilities-with-extended-battery-via-dual-displays/"><u>Exploring the Latest Features on Mobvoi's TicWatch Pro Nv3: GPS Capabilities with Extended Battery via Dual Displays</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/high-performance-meets-affordability-detailed-analysis-of-holy-stones-predator-hs170-mini-drone/"><u>High Performance Meets Affordability: Detailed Analysis of Holy Stone's Predator HS170 Mini Drone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Sony Xperia 10 V? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-xiaomi-redmi-note-13-pro-5g-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Xiaomi Redmi Note 13 Pro 5G Phone Now with These Tips</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-sonys-blu-ray-revolution-s6700-updates/"><u>In 2024, Sony's Blu-Ray Revolution S6700 Updates</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/outlook-vs-gmail-showdown-identifying-top-email-solutions-for-your-needs/"><u>Outlook Vs. Gmail Showdown: Identifying Top Email Solutions for Your Needs</u></a></li>
+</ul></div>
 

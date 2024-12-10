@@ -1,7 +1,7 @@
 ---
 title: The Mighty Compact Gaming Machine - A Detailed Look at Xbox Series S Specs and Packaging
-date: 2024-11-29T22:51:59.471Z
-updated: 2024-12-03T23:12:12.615Z
+date: 2024-12-03T20:05:14.314Z
+updated: 2024-12-10T18:38:46.762Z
 categories:
   - BestProducts
 description: This Article Describes The Mighty Compact Gaming Machine - A Detailed Look at Xbox Series S Specs and Packaging
@@ -18,13 +18,13 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Beantech Bitwatch S1 Plus
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/JogmBSjTGQl_gqbjuX8prgeJJPA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -46,16 +46,12 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
 4
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Beantech Bitwatch S1 Plus
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/RIxQYWLMnyHkO9IcguCoRX11EbY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -93,6 +89,10 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
  While it doesn’t have[NFC](https://www.lifewire.com/what-is-nfc-832715) or GPS, it does have a speaker, and you can send basic messages with the watch. The Bitwatch S1 is surprisingly robust for those who want to dip their toes into the smartwatch experience, with many of the features that mid-tier smartwatches possess.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Easy, but unexplained**
 
  Setting up the Bitwatch works as you’d expect. Pair it via the Bluetooth on your phone and download the Beantech app. It works with both Android and iOS, so you should have no difficulty. Alerts will show up in the remote notifier app, and apps such as the calendar are not synced with your phone’s calendar apps, so keep that in mind if you’d like to add any events, notifications, or alarms to your watch.
@@ -113,15 +113,15 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/7GtX2IU-w4sJA-BTqQtHQThxaJo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-3-ade31135cd9d4fe0b6b01286941d2652.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
 
 ## **Battery: It last longer than most flagship smartwatches**
 
  The battery life on the Bitwatch is excellent. With regular usage (GPS, heart rate, Bluetooth all on), we got between two and three days of use before we had to recharge. Charging is a little annoying, though, since it uses a snapping charger base that’s difficult to remove.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Reasonable, but worth paying more**
 
@@ -130,7 +130,7 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
  The Beantech Bitwatch is not a groundbreaking smartwatch, but it provides a lot of essential features for $50.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: If you want more, it will cost more**
@@ -174,24 +174,24 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-hacking-the-meme-game-master-kinemaster-skills/"><u>[New] Hacking the Meme Game Master KineMaster Skills</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-how-to-make-your-mark-active-living-on-facebook-for-2024/"><u>[New] How to Make Your Mark Active Living on Facebook for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-easy-video-calls-with-googles-hangouts-on-your-android/"><u>[New] In 2024, Easy Video Calls with Google's Hangouts on Your Android</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-efficient-video-cutting-techniques-to-boost-your-content/"><u>[Updated] Efficient Video Cutting Techniques to Boost Your Content</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/automate-windows-7-power-off-at-specific-times-for/"><u>Automate Windows 7 Power Off at Specific Times For</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-enhanced-reading-with-the-amazon-kindle-paperwhite-2018-a-comprehensive-review/"><u>Experience Enhanced Reading with the Amazon Kindle Paperwhite (2018): A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-premium-quality-with-sony-xbr65x850f-the-value-packed-65-4k-tv-evaluation-guide/"><u>Experience Premium Quality with Sony XBR65X850F – The Value-Packed 65 4K TV Evaluation Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-lensdirects-prescription-blue-light-filtering-eyewear/"><u>Expert Analysis of LensDirect's Prescription Blue Light Filtering Eyewear</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-photoscape-ultimate-guide-on-the-best-free-image-editor/"><u>Expert Analysis: PhotoScape Ultimate Guide on the Best Free Image Editor</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expertly-curated-collection-of-superior-drawing-interfaces-for-creatives-2024-edition/"><u>Expertly Curated Collection of Superior Drawing Interfaces for Creatives, 2024 Edition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/explore-tamriels-beauty-with-the-elder-scrolls-v-skyrim-switch-version-reviewed/"><u>Explore Tamriel's Beauty with The Elder Scrolls V: Skyrim - Switch Version Reviewed</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/focusing-the-lens-advanced-cinematic-techniques/"><u>Focusing the Lens Advanced Cinematic Techniques</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/get-more-bang-for-your-buck-with-the-highly-praised-arcshell-ar-5/"><u>Get More Bang for Your Buck with the Highly Praised ArcShell AR- 5.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/get-your-hands-on-yn560ivs-speedy-flash-and-master-control-all-for-less/"><u>Get Your Hands on YN560IV's Speedy Flash & Master Control, All for Less</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-nest-sound-system-perfectly-tuned-for-your-musical-tastes/"><u>In-Depth Analysis of the Nest Sound System: Perfectly Tuned for Your Musical Tastes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pioneering-filters-the-mondly-pearson-collaboration/"><u>Pioneering Filters: The Mondly-Pearson Collaboration</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/things-you-must-know-for-screen-mirroring-apple-iphone-6-drfone-by-drfone-ios/"><u>Things You Must Know for Screen Mirroring Apple iPhone 6 | Dr.fone</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-reduce-file-size-not-quality-9-best-free-video-compressors-for-windows-10/"><u>Updated 2024 Approved Reduce File Size, Not Quality 9 Best Free Video Compressors for Windows 10</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1725289049511-windows-1110-10/"><u>Windows 11/10 上精选的 10 种视频转换工具 [保密且高效]</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-innovative-lecture-title-composing-system/"><u>[New] In 2024, Innovative Lecture Title Composing System</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-quickvideocapture-simple-desktop-app-for-w10/"><u>[New] In 2024, QuickVideoCapture Simple Desktop App for W10</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-compact-guide-to-joining-and-scheduling-zoom-on-your-android-phone/"><u>[New] The Compact Guide to Joining & Scheduling Zoom on Your Android Phone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-access-creative-banners-for-video-makers-at-zero-price/"><u>[Updated] 2024 Approved Access Creative Banners for Video Makers at Zero Price</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-peerless-dialogue-creator-zone/"><u>2024 Approved Peerless Dialogue Creator Zone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-netgear-ac750-ex3700-wireless-range-expansion-device/"><u>Comprehensive Review: Netgear AC750 EX3700 Wireless Range Expansion Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/effortlessly-extract-and-save-pictures-in-microsoft-word/"><u>Effortlessly Extract & Save Pictures in Microsoft Word</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Oppo Reno 11F 5G? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-elevate-your-sims-gaming-with-recording-expertise/"><u>In 2024, Elevate Your Sims Gaming with Recording Expertise</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Oppo A1x 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-transforming-your-videography-from-monochrome-to-high-dynamic-range-masterpieces/"><u>In 2024, Transforming Your Videography From Monochrome to High-Dynamic Range Masterpieces</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-motorola-mg7n00s-fast-and-consistent-connectivity/"><u>In-Depth Analysis of the Motorola MG7n00's Fast and Consistent Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/insightful-analysis-on-byb-e430-the-ultimate-led-lighting-solution-for-every-space/"><u>Insightful Analysis on BYB E430 - The Ultimate LED Lighting Solution for Every Space</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-it-worth-it-a-comprehensive-look-at-the-winegard-fl5500a-flatwave-antenna-and-its-costly-price-tag/"><u>Is It Worth It? A Comprehensive Look at the Winegard FL5500A FlatWave Antenna and Its Costly Price Tag</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-holy-stone-racing-carts-the-perfect-toy-car-races-for-kids/"><u>Review of Holy Stone Racing Carts: The Perfect Toy Car Races for Kids</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sabrents-compact-travel-mouse-where-efficiency-meets-durability-in-a-portable-package/"><u>Sabrent's Compact Travel Mouse: Where Efficiency Meets Durability in a Portable Package</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/step-by-step-iphone-camera-adjustment-guide/"><u>Step-by-Step iPhone Camera Adjustment Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-premier-sound-cards-for-pc-gamers-and-producers/"><u>The Premier Sound Cards for PC Gamers & Producers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-power-and-portability-with-the-revolutionary-lg-gram-156-inch-notebook-2018-a-comprehensive-review/"><u>Unleashing Power & Portability with the Revolutionary LG Gram 15.6-Inch Notebook (2018): A Comprehensive Review</u></a></li>
 </ul></div>
 

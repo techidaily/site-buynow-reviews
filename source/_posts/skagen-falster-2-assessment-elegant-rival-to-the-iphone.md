@@ -1,7 +1,7 @@
 ---
 title: "Skagen Falster 2 Assessment: Elegant Rival to the iPhone"
-date: 2024-08-22T16:22:06.157Z
-updated: 2024-08-23T16:22:06.157Z
+date: 2024-12-05T17:31:26.611Z
+updated: 2024-12-10T18:34:44.784Z
 categories:
   - BestProducts
 description: "This Article Describes Skagen Falster 2 Assessment: Elegant Rival to the iPhone"
@@ -40,6 +40,10 @@ Lifewire / Gannon Burgett
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/hOzU-Ut_6g-s5JwzT08s3wa0tSo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4045927-1-625cb1ba7a894cc38db8565dd81072b3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Gannon Burgett
 
 [View On Amazon $969](https://www.amazon.com/dp/B072JW4Z9S/?tag=lifewire-onsite-prod-20&ascsubtag=4689108%7Cn4e541e22b8624c9292b46a113b9d60a708%7CB072JW4Z9S)
@@ -68,9 +72,6 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Beautiful, with room for improvements**
 
  It shouldn’t come as a surprise that the Apple iMac 21.5-inch 4K is a[beautiful machine](https://www.lifewire.com/best-desktop-pcs-4045927) from top to bottom. Before even turning it on, the design of the computer a striking, aluminum-clad body that’s still subtle enough that it will blend in with nearly any office or home environment.
@@ -86,22 +87,15 @@ Lifewire / Gannon Burgett
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/gM_JxuZjDbSUs7DYtXIwUIqqz0Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-3-d30c5f8414e94cbd9b1ec8aea9b18950.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup Process: One plug and you’re good to go**
 
  One of Apple’s core tenets is simplicity, and the 4K iMac is no exception to this rule. Inside the box is the computer itself and a box which contains the Magic Keyboard and Magic Mouse 2\. Additional components include the power connection for the computer, a Lightning cable for charging the mouse and keyboard, and a small package of documentation.
@@ -110,9 +104,6 @@ Lifewire / Gannon Burgett
 
  Going through the setup process took us approximately five minutes, which included setting up our iCloud account and getting the various login settings in place. We opted to set this up as a new computer, but there’s also the ability to set it up from an Apple Time Capsule backup or transfer content from a PC via USB. The amount of time those options take will vary depending on the device you’re transferring the information from as well as the amount of data being transferred.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Display: Bright, brilliant, and ready to shine**
 
  With a resolution of 4096 x 2304 pixels, the 4K iMac has more than 9.4 million pixels and features a pixel density of 217 pixels per inch, more than enough to make individual pixels indistinguishable at normal viewing distances. Text was clear across nearly every application and browser and photos just came to life with ridiculous levels of detail.
@@ -125,11 +116,12 @@ Lifewire / Gannon Burgett
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/IKZ75jBAosAG3M1Py_-E0ElYAfM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-5-a705ea67b88b4cf694c53e4715a9aceb-f57b3be92a934d8ab579d90728e23fe8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Performance: Impressive performance from an all-in-one**
 
  Our particular iMac model for this review was the 3.4GHz quad-core Intel Core i5 iMac with 8GB of RAM and a 1TB Fusion Drive.
@@ -146,11 +138,19 @@ Lifewire / Gannon Burgett
 
  All-in-all, the iMac seems to punch right at or above its specifications when compared to similar hardware. It’s not going to be pumping out 8K footage, but for basic 4K video editing and image post-processing, the graphics card is more than enough. As for productivity, there’s not much you can throw at the iMac that it can’t handle. The only thing we noticed slowing down the computer was the 8GB of RAM when we had over a dozen applications open, but that can be fixed by upgrading to the 16GB or 32GB model (although it’s not a cheap upgrade).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Network: Fast and reliable**
 
  The 21.5-inch 4K iMac features both wired and wireless connectivity for internet access. As previously mentioned, the iMac features a Gigabit Ethernet (RJ-45) port on the rear of the computer for a hardwired internet connection. For Wi-Fi, the iMac uses an 802.11ac network adapter with support for IEEE 802.11a/b/g/n.
 
  In our hardwired tests, the iMac maxed out our Gigabit fiber optic internet no problem, with steady download and upload speeds. Wireless connectivity was equally impressive, regardless of whether the iMac was in the same room as the router or a few rooms over. We didn’t notice any drops throughout our tests and both uploading and downloading content was consistent.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Camera: Decent built-in option for basic tasks**
 
@@ -160,9 +160,6 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## **Software: Everything you need and nothing more**
 
  As with all Apple computers, the 21.5-inch 4K iMac comes with macOS Mojave pre-installed. If you’re used to macOS as a whole, you’ll feel right at home as we did. Compared to past versions of macOS, Mojave improves in a number of areas, including an integrated Dark mode that turns much of the user interface dark grey to spare your eyes. There’s also a feature called “Stacks” that intelligently combines files of the same type on your[desktop](https://www.lifewire.com/best-desktop-pcs-4045927) . Improved[screenshot functionality](https://www.lifewire.com/what-is-a-screenshot-1701742) also makes snapping your screen easier.
@@ -195,16 +192,16 @@ Lifewire / Gannon Burgett
 
  The 21.5-inch 4K iMac is a solid all-in-one computer that packs a lot of power into a tiny, well-designed package. It’s not going to blow anyone away on benchmarks and it’s not cheap for the internal components you’re getting, but it has a lot to offer for multimedia and productivity. That’s not to mention the sheer convenience of having everything simply work out of the box.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Microsoft Surface Studio 2](https://www.lifewire.com/microsoft-surface-studio-2-review-4689102)
 * [Alienware Aurora R7](https://www.lifewire.com/alienware-aurora-r7-review-4689097)
 * [Lenovo ThinkCentre M720 Tower](https://www.lifewire.com/lenovo-thinkcentre-m720-tower-review-4776238)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  iMac 21.5-inch 4K
@@ -221,14 +218,11 @@ DbSchema database designer for all databases, schema design in the team, schema 
 * Connections  3.5 mm headphone jack, SDXC card slot, Four USB 3 ports (compatible with USB 2), Two Thunderbolt 3 (USB-C) ports, 10/100/1000BASE-T Gigabit
 * What’s in the box  21.5‑inch iMac with Retina 4K display Magic Keyboard Magic Mouse 2 Power cord Lightning to USB Cable
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -237,4 +231,24 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-borrow-premium-image-footage-via-top-rated-4-youtube-channels/"><u>[Updated] 2024 Approved Borrow Premium Image Footage via Top-Rated 4 YouTube Channels</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-syncing-tiktok-creativity-across-chrome-android-ios/"><u>[Updated] In 2024, Syncing TikTok Creativity Across Chrome, Android, iOS</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-kinemaster-tutorial-seamless-integration-of-green-screen-techniques/"><u>[Updated] Kinemaster Tutorial Seamless Integration of Green Screen Techniques</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-motorola-g24-power-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Motorola G24 Power</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-motorola-moto-g-5g-2023-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Motorola Moto G 5G (2023)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/mastering-the-art-of-uploading-youtube-videos-on-fb-for-2024/"><u>Mastering the Art of Uploading YouTube Videos on FB for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nebula-capsule-3-mini-projector-reviewed-superior-performance-under-low-light-conditions/"><u>Nebula Capsule 3 Mini Projector Reviewed: Superior Performance Under Low Light Conditions</u></a></li>
+<li><a href="https://win-tips.techidaily.com/new-release-alert-jammtext-13-upgrade-discover-the-latest-functional-improvements-and-additions/"><u>New Release Alert: JammText 1.3 Upgrade - Discover the Latest Functional Improvements and Additions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/overcoming-console-barriers-methods-for-accessing-region-locked-titles-across-nintendo-switch-playstation-and-xbox-platforms/"><u>Overcoming Console Barriers: Methods for Accessing Region-Locked Titles Across Nintendo Switch, PlayStation, and Xbox Platforms</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revamped-netflix-tv-application-undergoing-trials/"><u>Revamped Netflix TV Application Undergoing Trials</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/save-big-with-plex-get-your-all-access-card-at-a-huge-discount-today/"><u>Save Big with Plex: Get Your All-Access Card at a Huge Discount Today!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-benefits-of-google-play-pass-a-fantastic-deal-with-room-for-enhancement/"><u>The Benefits of Google Play Pass: A Fantastic Deal with Room for Enhancement</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-potential-of-ultra-high-definition-will-the-next-generation-consoles-support-8k-gaming/"><u>The Potential of Ultra-High Definition: Will the Next Generation Consoles Support 8K Gaming?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-15-unbeatable-deals-on-pc-gaming-titles-during-steams-summer-sale-all-below-5/"><u>Top 15 Unbeatable Deals on PC Gaming Titles During Steam’s Summer Sale – All Below $5</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-3-benefits-of-reviewing-all-the-shows-you-binge-watch/"><u>Top 3 Benefits of Reviewing All the Shows You Binge-Watch</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-final-cut-pro-tips-and-tricks-flipping-clips-with-ease-4-steps/"><u>Updated In 2024, Final Cut Pro Tips and Tricks Flipping Clips with Ease (4 Steps)</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-editor/"><u>What Is an AI Editor?</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Perfect Blend: Price & Performance Evaluation for the Mohu Leaf 30 Indoor Antenna"
-date: 2024-12-02T21:18:30.025Z
-updated: 2024-12-04T06:18:22.547Z
+date: 2024-12-08T16:58:04.947Z
+updated: 2024-12-10T19:40:37.091Z
 categories:
   - BestProducts
 description: "This Article Describes The Perfect Blend: Price & Performance Evaluation for the Mohu Leaf 30 Indoor Antenna"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/3098d762b6d8dcd72acd0532421367ade2e95fba7
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Samsung UN65NU8000FXZA
 
@@ -78,10 +74,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Big and tough**
 
  The Samsung NU8000 is an elegant television with an attractive rear exterior, thin profile, and discretely sized bezels. As a 65” display you can expect it to dominate all but the most cavernous living rooms, but thanks to that slim profile and its slender bezels it occupies the minimum amount of space possible for such a large screen.
@@ -99,7 +91,7 @@ Lifewire / Andy Zahn
  We did encounter one troublesome bug where the remote partially de-synced from the display so that only the power button functioned properly. This is obviously a known issue, as on-screen instructions immediately appeared to reset the remote and re-establish the connection, and we found these instructions repeated inside the battery compartment of the remote. We also missed having dedicated buttons for popular streaming services such as Netflix and Hulu.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Some assembly required**
@@ -109,10 +101,6 @@ Lifewire / Andy Zahn
  The software side of the setup process is simple and straightforward. Since we own a[Samsung phone](https://www.lifewire.com/best-smartphones-4043781) it was made particularly easy by means of the Smartthings app which automatically detected the TV and relayed sign-in information. It took us under ten minutes total to power on the UN8000 and start watching our favorite shows. Some fine-tuning was necessary to get the best-looking image but the settings are easy to access and simple to manipulate.
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/bOGvBL3-atPnw9kBu9ugoXGE9ag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-3-44ef4614305946739623813ea1476c2b.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -134,10 +122,14 @@ Lifewire / Andy Zahn
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/0imcVI8dzYw11TAOKkt8EnXJE5k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-2-0c325c2d3f1e448d9d0b10f24152a097.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Audio Quality: Surprisingly good**
@@ -147,6 +139,10 @@ Lifewire / Andy Zahn
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/AXYnUtoRwLv0QLo0Xm0_W28X-zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-5-531f7de77d9746ba993c9966f10920be.jpg)
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: A little slow**
 
@@ -161,7 +157,7 @@ Lifewire / Andy Zahn
  With an MSRP of $999 the NU8000 is certainly no bargain, especially considering that superior displays are available for the same cost. However, as this is an older TV it may be possible to find steep discounts that make up for its deficiencies.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: NU8000 vs RU8000**
@@ -177,6 +173,10 @@ Lifewire / Andy Zahn
 **Hard to recommend.**
 
  The Samsung UN65NU8000FXZ is capable, provides high resolution, and has excellent, flexible software with a good selection of apps. It's also exceptionally thin with a screen that's almost bezel-less, but unless the extremely sturdy stand is the most important feature to you, then RU8000 is just a better display at the exact same MSRP.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -206,24 +206,19 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-top-ranked-cloud-stores-analysis-and-pricing-insights/"><u>[New] Top-Ranked Cloud Stores Analysis & Pricing Insights</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-artistic-zoomers-handbook-a-filters-journey/"><u>[Updated] The Artistic Zoomer's Handbook A Filters Journey</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-record-facebook-messenger-calls-full-solutions/"><u>2024 Approved Record Facebook Messenger Calls [Full Solutions]</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-reimagining-home-entertainment-with-lgs-bp550-update/"><u>2024 Approved Reimagining Home Entertainment with LG's BP550 Update</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-tips-for-effective-vimeo-broadcasting/"><u>2024 Approved Tips for Effective Vimeo Broadcasting</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-xiaomi-redmi-note-13-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Xiaomi Redmi Note 13 5G Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-infinix-hot-30-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Infinix Hot 30 5G Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://games-able.techidaily.com/game-the-best-way-ultrawide-monitors-at-144hz/"><u>Game the Best Way: Ultrawide Monitors at 144Hz</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-from-apple-iphone-15-pro-max-to-samsung-galaxy-s20-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer from Apple iPhone 15 Pro Max to Samsung Galaxy S20? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sky-high-indoors-unveiling-the-fun-of-syma-s111g-rc-helicopter/"><u>Sky High Indoors: Unveiling the Fun of Syma S111G RC Helicopter</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-dell-inspiron-3671-desktop-insight-an-average-pc-with-reliable-capabilities/"><u>The Dell Inspiron 3671 Desktop Insight: An Average PC with Reliable Capabilities</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-essential-guide-to-the-google-pixel-4a-perfectly-balanced-features-for-casual-users/"><u>The Essential Guide to the Google Pixel 4A: Perfectly Balanced Features for Casual Users</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-lenovo-ideapad-reviewed-where-functionality-meets-attractive-construction/"><u>The Lenovo Ideapad Reviewed - Where Functionality Meets Attractive Construction</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-revolutionary-raspberry-pi-400-examined-a-dual-purpose-computing-solution/"><u>The Revolutionary Raspberry Pi 400 Examined: A Dual-Purpose Computing Solution</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-2024-course-picks-on-linkedin-learning-a-comprehensive-guide/"><u>Top 2024 Course Picks on LinkedIn Learning: A Comprehensive Guide</u></a></li>
-<li><a href="https://win11.techidaily.com/troubleshooting-missing-second-display-on-w11/"><u>Troubleshooting Missing Second Display on W11</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-review-of-j5-tactical-prov1-flashlight-robust-construction-and-compact-glow/"><u>Unboxing and Review of J5 Tactical ProV1 Flashlight – Robust Construction & Compact Glow</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/uncharted-waters-of-assassins-creed-valhalla-a-detailed-review-of-the-epic-nordic-quest/"><u>Uncharted Waters of Assassin's Creed: Valhalla - A Detailed Review of the Epic Nordic Quest</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleashing-powerhouse-performance-a-comprehensive-review-of-the-xbox-series-x-delivering-stunning-4k-gaming/"><u>Unleashing Powerhouse Performance: A Comprehensive Review of the Xbox Series X Delivering Stunning 4K Gaming</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-deciphering-the-art-of-voice-documentation/"><u>[New] 2024 Approved Deciphering the Art of Voice Documentation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-setting-up-seamless-network-video-broadcasts-with-vlc-for-2024/"><u>[New] Setting Up Seamless Network Video Broadcasts with VLC for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-most-popular-free-photography-and-film-archives/"><u>[Updated] 2024 Approved Most Popular Free Photography and Film Archives</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-the-complete-guide-to-motion-without-touch-sensors/"><u>[Updated] 2024 Approved The Complete Guide to Motion Without Touch Sensors</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/complete-tutorial-on-extracting-images-from-your-word-docs/"><u>Complete Tutorial on Extracting Images From Your Word Docs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-fitness-routine-with-cubefits-terramat-a-comprehensive-user-review/"><u>Elevate Your Fitness Routine with CubeFit's TerraMat - A Comprehensive User Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-discover-the-power-and-reliability-of-fujitsus-scansnap-ix1600-desktop-unit/"><u>Expert Review: Discover the Power and Reliability of Fujitsu's ScanSnap iX1600 Desktop Unit</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/futureproof-your-sketches-with-our-curated-list-of-elite-drawing-devices/"><u>Futureproof Your Sketches with Our Curated List of Elite Drawing Devices</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-nokia-c300-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Nokia C300 to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-console-marketplace-crucial-5-points-for-savvy-gamers-pre-purchase/"><u>Navigating the Console Marketplace: Crucial 5 Points for Savvy Gamers Pre-Purchase</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/noise-cancelling-necessities-apple-vs-samsung-hearing-device-showdown/"><u>Noise Cancelling Necessities: Apple Vs. Samsung Hearing Device Showdown</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ram-availability/"><u>RAM Availability</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-seamless-blend-of-images-into-majestic-collage-art-for-2024/"><u>The Seamless Blend of Images Into Majestic Collage Art for 2024</u></a></li>
 </ul></div>
 

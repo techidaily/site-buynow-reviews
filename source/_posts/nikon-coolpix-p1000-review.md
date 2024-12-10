@@ -1,7 +1,7 @@
 ---
 title: Nikon COOLPIX P1000 Review
-date: 2024-12-03T01:24:01.417Z
-updated: 2024-12-04T03:32:13.579Z
+date: 2024-12-07T20:52:31.995Z
+updated: 2024-12-10T17:28:17.495Z
 categories:
   - BestProducts
 description: This Article Describes Nikon COOLPIX P1000 Review
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/Yva4wEIlM_zg0OgIqsotXVCVIYg=/400x300/fi
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/NltNTWtb6Y6gHFCHDQXlLsrWKTI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -51,6 +47,10 @@ Lifewire / Andy Zahn
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -96,16 +96,12 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Battery life: No worries**
@@ -115,7 +111,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
@@ -126,10 +122,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Autofocus: Blazing fast**
 
  We were shocked by how fast and consistent the autofocus is in the SX70 HS, even in low-light situations. It rarely fails to lock on to your intended subject, and focus tracking works flawlessly.
@@ -137,6 +129,10 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -154,6 +150,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -167,10 +167,6 @@ Lifewire / Andy Zahn
  A problem with all these automated modes and scene settings is that the images they produce are exclusively JPEG, with RAW being unavailable. Fortunately, Program mode is essentially the same as Auto, and you can enable RAW image recording there.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
 
@@ -224,6 +220,10 @@ Lifewire / Andy Zahn
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  PowerShot SX70
@@ -258,24 +258,18 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-reviews.techidaily.com/1722676471430-dying-light-co-op-gaming-review-mastering-first-person-adrenaline-pumped-parkour-challenges-together/"><u>'Dying Light' Co-Op Gaming Review: Mastering First-Person, Adrenaline-Pumped Parkour Challenges Together</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-expert-selection-of-10-premium-spotify-soundscape-tools-for-2024/"><u>[New] Expert Selection of 10 Premium Spotify Soundscape Tools for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevating-video-sharing-from-youtube-to-insta/"><u>[Updated] 2024 Approved Elevating Video Sharing From YouTube to Insta</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-top-creations-unique-and-chic-minecraft-dwellings/"><u>[Updated] In 2024, Top Creations Unique and Chic Minecraft Dwellings</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-precision-and-proficiency-youtube-edits-in-adobe-premiere/"><u>2024 Approved Precision & Proficiency YouTube Edits in Adobe Premiere</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-subtitle-extraction-top-10-free-apps-rated/"><u>2024 Approved Subtitle Extraction Top 10 Free Apps Rated</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/an-in-depth-analysis-of-fongo-your-guide-to-canadas-reliable-voice-over-ip-service/"><u>An In-Depth Analysis of Fongo – Your Guide to Canada's Reliable Voice Over IP Service</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/asus-rt-ac88u-gaming-router-review-lives-up-to-the-hype/"><u>Asus RT-AC88U Gaming Router Review: Lives Up to the Hype</u></a></li>
-<li><a href="https://video-capture.techidaily.com/1726029547136-clipbox/"><u>Clipboxにて再生・ダウンロードに失敗する際の解決方法</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722691394839-dbpower-600a-the-ultimate-guide-to-its-dependable-jump-starting-and-18000mah-power-supply-capabilities/"><u>DBPOWER 600A - The Ultimate Guide to Its Dependable Jump Starting and 18,000mAh Power Supply Capabilities</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722968736622-get-the-newest-version-of-brother-hl-l237n-drivers-download-now/"><u>Get the Newest Version of Brother HL-L237n Drivers – Download Now!</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-after-effects-textwork-essentials-the-10-best-presets/"><u>In 2024, After Effects Textwork Essentials The 10 Best Presets</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/supercharge-your-device-point-processor-for-peak-performance/"><u>Supercharge Your Device’ Point Processor for Peak Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-best-under-100-router-an-experts-take-on-the-tp-link-archer-c80-speeds/"><u>The Best Under $100 Router - An Expert's Take on the TP-Link Archer C80 Speeds</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-gaomon-pd1560-revealed-crafting-masterpieces-with-this-top-tier-drawing-pad/"><u>The Gaomon PD1560 Revealed: Crafting Masterpieces with This Top-Tier Drawing Pad?</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209853357-9780473402792-the-matapaua-conversations/"><u>The Matapaua Conversations | Free Book</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-dells-alienware-aurora-r9-a-revolutionary-future-of-gaming/"><u>Ultimate Guide to Dell's Alienware Aurora R9: A Revolutionary Future of Gaming</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-pros-and-cons-of-microsofts-expensive-all-in-one-surface-studio-2/"><u>Unveiling the Pros and Cons of Microsoft's Expensive All-in-One, Surface Studio 2</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1726029705230-1/"><u>マルチビデオプレイアウト: 1つの画面に異なるフィードバックを並べてリアルタイム再生する方法</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-essential-recording-tips-capturing-video-from-macbook-pro-for-2024/"><u>[New] Essential Recording Tips Capturing Video From MacBook Pro for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-the-xbox-chronicles-essential-steps-in-gameplay-documentation/"><u>[New] In 2024, The Xbox Chronicles Essential Steps in Gameplay Documentation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unravel-time-on-your-screen-fresh-perspectives-to-watch-youtube-backwards-for-2024/"><u>[Updated] Unravel Time on Your Screen Fresh Perspectives to Watch YouTube Backwards for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-oppo-find-x7-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Oppo Find X7? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/audience-favorites-unveiled-2024s-best-tv-streaming-applications-for-an-immersive-viewing-journey/"><u>Audience Favorites Unveiled: 2024'S Best TV Streaming Applications for an Immersive Viewing Journey</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/how-to-correct-fisheye-lens-distortion-from-gopro-footage/"><u>How to Correct Fisheye (Lens Distortion) From GoPro Footage</u></a></li>
+<li><a href="https://win-hot.techidaily.com/how-to-effortlessly-move-iphone-playlists-and-songs-onto-a-windows-or-mac-desktop/"><u>How to Effortlessly Move iPhone Playlists and Songs Onto a Windows or Mac Desktop</u></a></li>
+<li><a href="https://common-error.techidaily.com/lost-control-over-display-intensity/"><u>Lost Control Over Display Intensity</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-10-best-drones-with-camera-for-filming-and-photography-for-2024/"><u>Top 10 Best Drones with Camera for Filming and Photography for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-8-must-play-titles-exclusive-to-google-play-pass/"><u>Top 8 Must-Play Titles Exclusive to Google Play Pass</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-netgear-nighthawk-ax8-wi-fi-6-router-range-extender-is-it-future-ready/"><u>Ultimate Guide to the Netgear Nighthawk AX8 Wi-Fi 6 Router Range Extender: Is It Future-Ready?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-online-play-how-to-set-up-a-nintendo-network-account-for-your-3ds/"><u>Unlocking Online Play: How to Set Up a Nintendo Network Account for Your 3DS</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unveiling-past-images-3-approaches-for-fb-reverse-search/"><u>Unveiling Past Images 3 Approaches for FB Reverse Search</u></a></li>
 </ul></div>
 

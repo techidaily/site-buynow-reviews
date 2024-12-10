@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Guide to Barnes & Noble's Nook GlowLight Plus - Marvel at the Largest Kindle Display!
-date: 2024-08-22T16:24:23.258Z
-updated: 2024-08-23T16:24:23.258Z
+date: 2024-12-04T16:57:43.362Z
+updated: 2024-12-10T19:31:53.632Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Guide to Barnes & Noble's Nook GlowLight Plus - Marvel at the Largest Kindle Display!
@@ -37,9 +37,17 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -63,10 +71,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -89,13 +93,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ## **Setup Process: T-minus one minute**
 
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
@@ -103,8 +100,9 @@ No advertising on the website.
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Reliable, accurate, quick and loud**
 
  When we tested the tire inflator, we took it on a road trip that took us to the states of Nevada, Utah, Idaho, and Wyoming. Along the way, we stopped at rural rest areas and gas stations. In order to use them in the circumstances, they were designed for. Throughout it all, the Kensun Portable Tire Inflator never failed to work when we needed it.
@@ -126,15 +124,17 @@ No advertising on the website.
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
  The Kensun Portable Tire Inflator is similar to the Jaco Digital Tire Inflator, they have similar cord and hose lengths, and can continually run for about half an hour. But the Kensun is more than twice the size of the Jaco, so it can deliver more power to fill your tires faster. Additionally, the Jaco lacks the ability to plug into an AC socket, so you can only use it in your car.
@@ -149,10 +149,6 @@ No advertising on the website.
 
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  AC/DC Portable Air Pump Tire Inflator
@@ -169,8 +165,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -178,4 +172,24 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-skys-best-friends-top-11-drone-gear-for-phantom/"><u>[New] Sky's Best Friends Top 11 Drone Gear for Phantom</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-pioneering-path-of-vr-technology-for-2024/"><u>[New] The Pioneering Path of VR Technology for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/npacking-t-series-earnings-through-youtube-channels/"><u>[New] Unpacking T-Series' Earnings Through YouTube Channels</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-birds-eye-view-duel-dji-pro-max-against-gopro-hero6/"><u>2024 Approved Bird's Eye View Duel DJI Pro Max Against GoPro HERO6</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/advanced-recovery-tech-for-apple-phones-claim-your-tool-today/"><u>Advanced Recovery Tech for Apple Phones - Claim Your Tool Today!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/all-about-the-new-apple-ring-pricing-predictions-expected-debut-date-and-latest-gossip/"><u>All About the New Apple Ring - Pricing Predictions, Expected Debut Date & Latest Gossip</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-linksys-ea8300-mastering-multi-device-connectivity/"><u>Comprehensive Analysis of Linksys EA8300: Mastering Multi-Device Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-top-rated-lightzone-photo-editor-cross-platform-windowsmaclinux-free/"><u>Comprehensive Guide: Top-Rated LightZone Photo Editor - Cross-Platform (Windows/Mac/Linux) - Free!</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-oppo-a2-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Oppo A2 to New Phone | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-features-and-performance-on-samsung-galaxy-note20-ultra-with-5g-connectivity/"><u>In-Depth Analysis of the Features and Performance on Samsung Galaxy Note20 Ultra with 5G Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-comparison-and-evaluation-dji-air-2s-vs-competitors-drones/"><u>In-Depth Comparison & Evaluation: DJI Air 2S vs Competitors' Drones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-through-tech-enhancements-an-in-depth-look-at-the-linksys-ea9500s-intelligent-network-solutions/"><u>Navigating Through Tech Enhancements: An In-Depth Look at the Linksys EA9500's Intelligent Network Solutions</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/reclaiming-default-settings-for-folder-display-mode/"><u>Reclaiming Default Settings for Folder Display Mode</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-e-reader-guide-how-the-impressive-features-of-the-kobo-forma-change-your-reading-habits/"><u>The Ultimate E-Reader Guide: How the Impressive Features of the Kobo Forma Change Your Reading Habits</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranking-htpc-picks-the-ultimate-guide-to-the-ideal-htpc-systems/"><u>Top-Ranking HTPC Picks: The Ultimate Guide to the Ideal HTPC Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-flight-simulator-x-gold-continues-to-dominate-the-skies-in-player-reviews/"><u>Why Flight Simulator X Gold Continues to Dominate the Skies in Player Reviews</u></a></li>
+</ul></div>
 

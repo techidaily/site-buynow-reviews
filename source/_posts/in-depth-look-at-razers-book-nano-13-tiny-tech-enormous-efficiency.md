@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Look at Razer's Book Nano 13: Tiny Tech, Enormous Efficiency"
-date: 2024-11-30T16:18:44.661Z
-updated: 2024-12-03T22:09:48.584Z
+date: 2024-12-09T18:29:26.171Z
+updated: 2024-12-10T20:52:04.296Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Look at Razer's Book Nano 13: Tiny Tech, Enormous Efficiency"
@@ -18,16 +18,12 @@ thumbnail: https://thmb.techidaily.com/f567dab373423469fdd9df8f70e7990588879bfed
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## AmazonBasics 7 Port USB 3.0
 
 ![AmazonBasics 7 Port USB 3.0](https://www.lifewire.com/thmb/61zrtwf2XnDfg9oA0igeVIB2E3M=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_HeroSquare-b4652c2651b5474f84409577b3760479.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
@@ -52,6 +48,10 @@ Lifewire / Jonno Hill
 ## AmazonBasics 7 Port USB 3.0
 
 ![AmazonBasics 7 Port USB 3.0](https://www.lifewire.com/thmb/lDufXTneOT2NDnXEOTNXauWZKtU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_HeroSquare-b4652c2651b5474f84409577b3760479.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -80,10 +80,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: A clean look, with some awkward ports**
 
  Measuring 5.7 x 2.6 x 1.1 inches (HWD), the AmazonBasics 7 Port USB 3.0 Hub is not a particularly petite or compact device, but it does do itself some favors in the design department. The slanted body contains two connections on its left, one for the power and one for the USB-B port. On the back, you’ll find five standard USB 3.0 Type-A ports. The right side contains two fast-charge ports capable of supplying more than the standard power, so long as you’ve connected the hub to an outlet using the power cable. Finally, the top contains a simple blue LED, which lit up as soon as we connected the USB cable to the computer.
@@ -100,15 +96,15 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: No trouble at all**
 
  To begin using the AmazonBasics 7 Port USB 3.0 Hub, remove the main hub from its packaging and connect the supplied USB (A-to-B) cable to both the hub and your computer. Then connect the power source to an outlet. That should be all you need. If you encounter any issues, Amazon provides some basic troubleshooting steps in the manual.
 
  The AmazonBasics 7 Port USB 3.0 Hub is an otherwise capable device that is unfortunately marred by quality control issues and cheap construction.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Connectivity: A sufficient number of options**
 
@@ -119,10 +115,6 @@ Lifewire / Jonno Hill
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/Ep4bZmgChjDyFofASwezrrPrDYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_04-e00baf7ec07a4762bf437cde18e2b4de.jpg)
 
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Just what you’d expect**
 
@@ -135,6 +127,10 @@ Lifewire / Jonno Hill
  At a list price of $33.44, the AmazonBasics 7 Port USB 3.0 Hub isn’t a terrible deal, but given the materials used and the quality control issues, it’s definitely not an amazing deal. Buyers looking for a bit more might consider AUKEY’s 10-port powered hub or Amazon’s own AmazonBasics 10 Ports USB 3.0 Charging Hub Docking Station. Both these hubs offer more connections and dedicated power.
 
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/AnTpc7CmLFfbEILGIFkFiA9Ur2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_03-063f9486bd7045c18c0643276029f85e.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
@@ -149,6 +145,10 @@ Lifewire / Jonno Hill
 **A capable hub with some quality control issues.**
 
  The AmazonBasics 7 Port USB 3.0 Hub is an otherwise capable device that is unfortunately marred by quality control issues and cheap construction. That said, if you don’t care as much about design and construction quality, it might still be a good affordable option.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -179,16 +179,18 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-memetic-mastery-creating-viral-content-on-facebook-and-insta/"><u>[New] In 2024, Memetic Mastery Creating Viral Content on Facebook and Insta</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-directing-tweeted-vids-to-fb-audiences/"><u>[Updated] 2024 Approved Directing Tweeted Vids to FB Audiences</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-reversing-live-on-twitch-a-top-ten-guide/"><u>[Updated] Reversing Live on Twitch A Top Ten Guide</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-the-blueprint-of-an-engaging-podcast-blurb-for-2024/"><u>[Updated] The Blueprint of an Engaging Podcast Blurb for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/a-user-friendly-guide-to-leveraging-windows-10-and-zoom-for-2024/"><u>A User-Friendly Guide to Leveraging Windows 10 and Zoom for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fitbit-versa-smartwatch-review-quality-functionality-and-value-for-money/"><u>Fitbit Versa Smartwatch Review: Quality, Functionality and Value for Money</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-the-apple-iphone-12-mini-proves-size-doesnt-limit-quality-a-comprehensive-review/"><u>How the Apple iPhone 12 Mini Proves Size Doesn’t Limit Quality - A Comprehensive Review</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-vivo-v27e-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Vivo V27e To iPhone 15/14/13? | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-the-ultimate-cheat-sheet-inserting-vimeo-videos-into-slides/"><u>In 2024, The Ultimate Cheat Sheet Inserting Vimeo Videos Into Slides</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-why-skagen-falster-2-is-a-refined-competitor-to-apple-gadgets/"><u>In-Depth Analysis: Why Skagen Falster 2 Is a Refined Competitor to Apple Gadgets</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-superior-apple-watch-series-4/"><u>In-Depth Look at the Superior Apple Watch Series 4</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-value-of-a-million-viewing-spree-on-youtube/"><u>[New] The Value of a Million-Viewing Spree on YouTube</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-stardews-best-guide-to-ginger-island/"><u>[Updated] In 2024, Stardew's Best Guide to Ginger Island</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-skies-testing-the-holy-stone-hs170-predator-mini-drone/"><u>Budget-Friendly Skies: Testing the Holy Stone HS170 Predator Mini Drone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/combat-ennui-with-these-10-engaging-gaming-options-when-boredom-strikes/"><u>Combat Ennui with These 10 Engaging Gaming Options When Boredom Strikes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-latest-apple-tv-4k-siri-controls-and-stunning-hd-streaming-delivered/"><u>Comprehensive Review of the Latest Apple TV 4K : Siri Controls and Stunning HD Streaming Delivered.</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/illustrate-effortlessly-prime-ios-design-software-for-2024/"><u>Illustrate Effortlessly Prime iOS Design Software for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-effective-ways-to-fix-checkra1n-error-31-from-apple-iphone-12-mini-by-drfone-ios/"><u>In 2024, Effective Ways To Fix Checkra1n Error 31 From Apple iPhone 12 mini</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-honor-play-40c-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Honor Play 40C to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-testing-the-samsung-galaxy-budsplus/"><u>In-Depth Review: Testing the Samsung Galaxy Buds+</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/iphone-evolution-at-your-fingertips-trade-in-perks-unveiled/"><u>IPhone Evolution at Your Fingertips: Trade-In Perks Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nickwatch-now-available-in-the-us-the-perfect-way-to-watch-kids-choice-awards-live/"><u>NickWatch Now Available in the US - The Perfect Way to Watch Kids' Choice Awards Live</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unmatched-add-ons-supercharging-your-gpt-experience-in-vs-code/"><u>Unmatched Add-Ons: Supercharging Your GPT Experience in VS Code</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/what-happens-to-your-pc-when-windows-11-requires-compatible-hardware-insights-from-microsofts-update-policy-digital-trends/"><u>What Happens to Your PC When Windows 11 Requires Compatible Hardware – Insights From Microsoft's Update Policy | Digital Trends</u></a></li>
 </ul></div>
 

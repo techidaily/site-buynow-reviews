@@ -1,7 +1,7 @@
 ---
 title: "Top Picks: Sturdy & Portable Kensun Air Compressor – The Ultimate Roadside Companion"
-date: 2024-12-02T00:00:27.893Z
-updated: 2024-12-03T21:26:10.412Z
+date: 2024-12-07T18:05:33.077Z
+updated: 2024-12-10T16:20:26.139Z
 categories:
   - BestProducts
 description: "This Article Describes Top Picks: Sturdy & Portable Kensun Air Compressor – The Ultimate Roadside Companion"
@@ -42,10 +42,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
@@ -72,6 +68,10 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -95,7 +95,7 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: T-minus one minute**
@@ -105,7 +105,7 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
@@ -133,7 +133,7 @@ Lifewire / Jeffrey Daniel Chadwick
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
@@ -151,7 +151,7 @@ Lifewire / Jeffrey Daniel Chadwick
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -179,20 +179,19 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-extract-your-favorites-best-playlist-tools-reviewed-and-rated/"><u>[New] 2024 Approved Extract Your Favorites Best Playlist Tools Reviewed and Rated</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-visual-voice-expressing-through-deformed-photovideo-texts/"><u>[New] In 2024, Visual Voice Expressing Through Deformed Photo/Video Texts</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-unbeatable-ways-to-archive-lol-encounters/"><u>[Updated] 2024 Approved Unbeatable Ways to Archive LOL Encounters</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-speed-up-instagram-videos-on-desktop-effective-techniques/"><u>[Updated] Speed Up Instagram Videos on Desktop Effective Techniques</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-the-visual-splendor-of-blade-cameras-in-full-hd-for-2024/"><u>[Updated] The Visual Splendor of Blade Cameras in Full HD for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-no-cost-endless-chuckles-the-meme-makers-manual/"><u>2024 Approved No Cost, Endless Chuckles The Meme Makers' Manual</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-mobvoi-ticwatch-e2-is-it-worth-the-price/"><u>Affordable Mobvoi TicWatch E2 - Is It Worth the Price?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/analyzing-the-pros-and-cons-of-the-thermaltake-massive-tm-laptop-chiller-value-for-money-insights/"><u>Analyzing the Pros & Cons of the Thermaltake Massive TM Laptop Chiller: Value for Money Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/asus-x441ba-review/"><u>Asus X441BA Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-the-chargetech-27000mah-battery-ultimate-energy-storage-solution/"><u>Comprehensive Evaluation: The ChargeTech 27000mAh Battery - Ultimate Energy Storage Solution</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-samsung-galaxy-note20-ultra-with-5g-connectivity-features/"><u>Comprehensive Review of the Samsung Galaxy Note20 Ultra with 5G Connectivity Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-anthropics-smart-photo-editor-features-and-user-experience/"><u>Comprehensive Review: Anthropics Smart Photo Editor – Features & User Experience</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-permanent-start-up-delays-for-skyrim-players/"><u>Troubleshooting Permanent Start-Up Delays for Skyrim Players</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-advancements-in-apple-watch-series-4-greatness-redefined-and-refined/"><u>Unveiling the Advancements in Apple Watch Series 4: Greatness Redefined and Refined</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-ultimate-5-android-photo-fixers/"><u>[New] In 2024, Ultimate 5 Android Photo Fixers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-learn-to-record-mac-display-like-a-pro-in-2024/"><u>[New] Learn to Record MAC Display Like a Pro, In 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-beauty-tutorials-unveiled-creating-a-youtube-channel-from-scratch/"><u>2024 Approved Beauty Tutorials Unveiled Creating a YouTube Channel From Scratch</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-unlocking-social-media-success-rising-through-the-facebook-leaderboard/"><u>2024 Approved Unlocking Social Media Success Rising Through the Facebook Leaderboard</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ankers-cost-effective-solutions-for-ev-owners-faster-in-car-charging-options-available-now/"><u>Anker's Cost-Effective Solutions for EV Owners: Faster In-Car Charging Options Available Now</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-apples-2e2o-iphone-se-a-reasonable-alternative-to-premium-models/"><u>Comprehensive Review of Apple's 2E2o iPhone SE: A Reasonable Alternative to Premium Models</u></a></li>
+<li><a href="https://win-blog.techidaily.com/convert-music-files-at-no-cost-mpgmpeg-to-mp4-online-via-movavi/"><u>Convert Music Files at No Cost: MPG/MPEG to MP4 Online via Movavi</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My OnePlus Ace 2V? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-infinix-hot-40i-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Infinix Hot 40i Activity | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-lenovo-ideapad-stunning-construction-for-essential-use/"><u>In-Depth Analysis of the Lenovo Ideapad: Stunning Construction for Essential Use</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/map-my-ride-review/"><u>Map My Ride Review</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/mp3-ma4mp4awindowsmac/"><u>MP3への移行ガイド: MA4・MP4AビデオファイルをWindows/Mac上で簡単に変換する方法</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-asus-ax6000-rt-ax88u-unveiled-an-elite-wi-fi-6-smart-router-with-exceptional-functionality-explored-in-this-review/"><u>The Asus AX6000 (RT-AX88U) Unveiled - An Elite Wi-Fi 6 Smart Router with Exceptional Functionality Explored in This Review</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/two-ways-to-track-my-boyfriends-apple-iphone-13-mini-without-him-knowing-drfone-by-drfone-virtual-ios/"><u>Two Ways to Track My Boyfriends Apple iPhone 13 mini without Him Knowing | Dr.fone</u></a></li>
 </ul></div>
 

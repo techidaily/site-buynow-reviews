@@ -1,7 +1,7 @@
 ---
 title: Inside Scoop on the Mohu Blade – How This Non-Traditional TV Antenna Delivers Excellent Signal Quality Indoors
-date: 2024-12-02T21:40:58.888Z
-updated: 2024-12-03T21:27:30.147Z
+date: 2024-12-06T20:27:55.771Z
+updated: 2024-12-10T18:08:56.298Z
 categories:
   - BestProducts
 description: This Article Describes Inside Scoop on the Mohu Blade – How This Non-Traditional TV Antenna Delivers Excellent Signal Quality Indoors
@@ -18,17 +18,9 @@ thumbnail: https://www.lifewire.com/thmb/VAWXTe9JaW2K7A_aJc7PNoeBY6E=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## ClearStream 2V Indoor/Outdoor HDTV Antenna
 
 ![ClearStream 2V HDTV Antenna](https://www.lifewire.com/thmb/rpogaEx5qG81ylcoefvlfcIwyIw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_HeroSquare-b07d5067648049ecb987e39b62796406.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -51,7 +43,7 @@ Lifewire / Jonno Hill
 4.3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## ClearStream 2V Indoor/Outdoor HDTV Antenna
@@ -83,6 +75,10 @@ Lifewire / Jonno Hill
 
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/vY1j7QoS0FLwOKNhPlSfR3XMlmo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_02-e97897fe03b74f5faa2eefad3b3b7208.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 ## **Design: Glimpsing an ugly future**
@@ -101,10 +97,6 @@ Lifewire / Jonno Hill
 
  Once the entire device is assembled, the real work begins in my opinion. Now you have to figure out how and where to mount this beast of an antenna. Antenna’s Direct has you covered here, including a hefty bracket and swiveling mast that will help you mount the antenna to just about anywhere with a flat surface that you don’t mind screwing some bolts into.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: Top tier**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna might be an unsightly space jail, but it sure gets good reception. I tested the antenna indoors along with the rest of the suite of indoor antennas, and in the same orientation. Perhaps it would have benefited from being placed outside, but in the interest of fairness I used the same method for all.
@@ -113,17 +105,21 @@ Lifewire / Jonno Hill
 
  In my channel acquisition test, the ClearStream managed 76 channels consistently, far and away the best result from any of the devices I tested. The worst antenna I tested picked up just 47 channels, and the second best, 69\. Needless to say, all the wires, cages, and bulbous plastic spheres are clearly doing something here, because this was the best result I saw.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Range: Extensive**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna is rated for up to 60 miles. These ratings are generally based on relatively unobstructed paths between the signal and your device. There is a lot less than 60 miles between me and my local TV broadcast source, but if the other results are any indication, the ClearStream has a fighting chance at living up to these claims.
 
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/NoQoQy3-EFUpi1z9oMTpD2JGWHQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_04-70f5a48ac9a347d286c71240b85cbc1c.jpg)
 
- Lifewire / Jonno Hill
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Jonno Hill
 
 ## **Price: Performance doesn’t come cheap**
 
@@ -139,6 +135,10 @@ Lifewire / Jonno Hill
 
 **Great performance for those that need it.**
  The ClearStream 2V Indoor/Outdoor HDTV Antenna isn’t the cheapest or best-looking antenna on the market, but it gets the job done better than any of the other antennas we tested. Buyers who know they need an antenna with better range and performance will find this to be a noticeable bump from cheaper indoor antennas.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -166,20 +166,15 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-confirming-correct-youtube-ad-revenue-allocation/"><u>[New] In 2024, Confirming Correct YouTube Ad Revenue Allocation</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-scalable-success-lawful-techniques-for-video-visibility/"><u>[Updated] 2024 Approved Scalable Success Lawful Techniques for Video Visibility</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-advanced-system-stitching-gopro-images-into-a-circular-videography-canvas/"><u>[Updated] Advanced System Stitching GoPro Images Into a Circular Videography Canvas</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-activate-funimate-pro-with-a-simple-apk-click/"><u>2024 Approved Activate Funimate Pro with a Simple APK Click</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-and-update-windows-7-wifi-drivers-quick-and-simple-steps/"><u>Download & Update Windows 7 WiFi Drivers: Quick and Simple Steps</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-infinix-smart-7-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Infinix Smart 7 to iOS not Working Problems | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-tips-and-tricks-for-apple-id-locked-issue-from-apple-iphone-15-plus-by-drfone-ios/"><u>In 2024, Tips and Tricks for Apple ID Locked Issue From Apple iPhone 15 Plus</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-the-samsung-un65nu8000fxza-worth-its-premium-cost-in-depth-review-reveals-all/"><u>Is the Samsung UN65NU8000FXZA Worth Its Premium Cost? In-Depth Review Reveals All</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-comfort-and-style-a-detailed-look-at-the-mavix-m9-for-gamers-haven/"><u>Mastering Comfort & Style: A Detailed Look at the Mavix M9 for Gamers' Haven</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/nikon-d3400-review/"><u>Nikon D3400 Review</u></a></li>
-<li><a href="https://driver-download.techidaily.com/radeon-rx-470-driver-update-made-simple-quick-and-easy-downloads/"><u>Radeon RX 470 Driver Update Made Simple: Quick and Easy Downloads</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/reviewing-marvels-spider-man-miles-morales-smaller-world-greater-impact-unveiled/"><u>Reviewing Marvel's Spider-Man: Miles Morales - Smaller World, Greater Impact Unveiled</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/snout-adventures-gaming-with-your-dog/"><u>Snout Adventures: Gaming with Your Dog</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/step-into-smartphones-with-confidence-the-comprehensive-review-of-nokia-c3-plus/"><u>Step Into Smartphones with Confidence: The Comprehensive Review of Nokia C3 Plus</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unlocking-universal-access-discover-how-gpt-4-is-now-available-to-all/"><u>Unlocking Universal Access: Discover How GPT-4 Is Now Available to All</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unleashing-creativity-writing-scripts-for-youtube-content-excellence/"><u>[Updated] 2024 Approved Unleashing Creativity Writing Scripts for YouTube Content Excellence</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-a-guide-to-navigating-vimeos-free-premium-and-pro-membership-levels/"><u>[Updated] In 2024, A Guide to Navigating Vimeo’s Free, Premium & Pro Membership Levels</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-beginners-blueprint-for-speedy-video-on-snapchat/"><u>2024 Approved Beginner’s Blueprint for Speedy Video on Snapchat</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-zte-blade-a73-5g-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On ZTE Blade A73 5G</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-dreame-bot-l10-pro-advanced-sweeping-and-cleaning-autonomous-robot-powered-by-lidar/"><u>Expert Analysis of Dreame Bot L10 Pro: Advanced Sweeping & Cleaning Autonomous Robot Powered by LiDAR</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-asus-rog-rapture-gt-ax11000-review-unleashing-top-gaming-performance-and-lightning-fast-connectivity/"><u>In-Depth Asus ROG Rapture GT-AX11000 Review – Unleashing Top Gaming Performance and Lightning-Fast Connectivity</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-oneplus-12r-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On OnePlus 12R? Fixed | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stanleys-large-jaw-crusher-j5c09-an-in-depth-review-for-heavy-duty-rock-breaking/"><u>Stanley's Large Jaw Crusher J5C09: An In-Depth Review for Heavy Duty Rock Breaking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-dbpower-600a-peak-charger-with-18000mah-capacity-unbiased-review/"><u>Ultimate Guide: DBPower 600A Peak Charger with 18,000mAh Capacity - Unbiased Review</u></a></li>
+<li><a href="https://techidaily.com/what-can-you-do-with-face-id-on-iphone-13-mini-by-drfone-ios-unlock-ios-unlock/"><u>What can you do with Face ID on iPhone 13 mini?</u></a></li>
 </ul></div>
 

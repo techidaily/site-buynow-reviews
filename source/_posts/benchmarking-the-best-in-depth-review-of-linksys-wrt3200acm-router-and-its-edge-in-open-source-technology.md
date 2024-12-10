@@ -1,7 +1,7 @@
 ---
 title: "Benchmarking the Best: In-Depth Review of Linksys WRT3200ACM Router and Its Edge in Open Source Technology"
-date: 2024-08-22T16:23:44.964Z
-updated: 2024-08-23T16:23:44.964Z
+date: 2024-12-06T18:49:21.002Z
+updated: 2024-12-10T18:48:33.530Z
 categories:
   - BestProducts
 description: "This Article Describes Benchmarking the Best: In-Depth Review of Linksys WRT3200ACM Router and Its Edge in Open Source Technology"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/fc8887d59721c7da8e208813dadb0a36f15829b69
 ## Withings Withings Move Hybrid Smartwatch
 
 ![Withings Move](https://www.lifewire.com/thmb/lRf4MewZgHR7jJoirox43xON-Ds=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4161013-1-a308b649704344f6b5fd15dc900e5742.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -88,11 +92,16 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/Qz1dlsE8jl99mXc7-kQ5LCVoiK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-3-b1e97631284d40829bd5714c59dc5f2a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup Process** :**As easy as 1-2-3**
 
  Given such a simple and clean design, it’s natural to expect the setup process to be the same. We found that to be the case.
@@ -103,9 +112,6 @@ Lifewire / Yoona Wagener
 
  First, we paired the Withings Move with our phone via Bluetooth, which was instantaneous. Next, we provided profile information for better activity metrics, downloaded an update, made sure the watch dials were working and the time was set correctly, and we were good to go.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Comfort: Light as a feather, even while sleeping**
 
  Some watches can feel heavy by the end of the day, but we didn’t encounter that weighed-down feeling with the Withings Move. The watch is really lightweight and the band is soft, flexible, and slim, which made sleeping with it a non-issue. It was also easy to achieve a good fit—especially for smaller wrists—thanks to the plentiful notches and the tab to keep the band in place.
@@ -118,11 +124,6 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ## **Performance: Limited activity tracking**
 
  While hybrid smartwatches like the Withings Move offer ease of use and versatility with your wardrobe and daily wear, they’re limited when it comes to tracking performance. Some activities are automatically recorded: walking, running, hiking, and swimming. With outdoor exercising, you can also track distance and elevation with the connected GPS feature.
@@ -142,8 +143,9 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
  Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Battery: Long-lasting and hassle-free**
 
  The Withings Move is reported to have a battery life of up to 18 months, and we really enjoyed that aspect over the week we tested it. Unlike typical smartwatches, we didn’t have to worry about draining the battery and recharging. The internal battery is a typical replaceable watch battery, and the user guide offers directions for removal and replacement when the time comes.
@@ -151,8 +153,9 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 ![Withings Move](https://www.lifewire.com/thmb/02bkMrpkzqBOue1ffhHNfQqaIuk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-4-df866fafd70a44c592e0e06e0ea53ae7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
 ## **Software: An emphasis on general wellness**
@@ -173,10 +176,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  Those looking for a dressier and more substantial watch may find these Fossil models to be better alternatives. Other devices that are comparable in price, like the Fitbit Inspire Fitness Tracker, lack the analog watch qualities and look like designated activity trackers. The Withings Move splits the difference at a modest price.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ## **Withings Move vs. Misfit Phase**
 
  The Misfit Phase is another hybrid smartwatch with a classic wristwatch look, maybe even more so than the Withings Move. Priced at around $175, the Misfit Phase is more expensive, but also comes with a few bonuses that the Withings Move lacks, like text notifications, playing and pausing music on your phone, and also taking selfies.
@@ -190,6 +189,10 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 **Best for those who prefer the analog experience.**
 
  The Withings Move is a strong entry-level fitness tracker for the person who wants to track activities without going all-in on a smartwatch. It’s inexpensive, sporty, and subtle, which makes it compelling for those who don’t want to be distracted by notifications and all the hands-on features smartwatches bring to the table.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -209,8 +212,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -218,4 +219,21 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-a-step-by-step-manual-swiftly-produce-captions-for-facebook-videos/"><u>[New] A Step-by-Step Manual Swiftly Produce Captions for Facebook Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-boosting-channel-profitability-famebit-powered-sponsorship-tactics/"><u>[New] Boosting Channel Profitability FameBit-Powered Sponsorship Tactics</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/reating-a-clickable-thumbnail-enhancing-video-visibility-without-costs/"><u>[New] Creating a Clickable Thumbnail Enhancing Video Visibility without Costs</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-quick-guide-to-screen-capture-on-laptops-and-chromeos/"><u>[New] In 2024, Quick Guide to Screen Capture on Laptops and ChromeOS</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-the-ultimate-guide-to-selecting-facebook-live-capturers/"><u>[New] The Ultimate Guide to Selecting Facebook Live Capturers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-the-must-have-gear-for-new-youtubers/"><u>[Updated] Unveiling the Must-Have Gear for New YouTubers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/barnes-and-nobles-nook-evolution-continues-with-the-expansive-screen-of-the-glowlight-plus-a-detailed-review/"><u>Barnes & Noble's Nook Evolution Continues with the Expansive Screen of the GlowLight Plus: A Detailed Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/compactness-and-affordability-combined-in-mp3-music-devices/"><u>Compactness and Affordability Combined in MP3 Music Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-why-the-samsung-galaxy-s21-ultra-is-androids-best-phone/"><u>Expert Review: Why the Samsung Galaxy S21 Ultra Is Android’s Best Phone</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-nubia-red-magic-9-pro-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Nubia Red Magic 9 Pro? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-complete-periscope-users-handbook/"><u>In 2024, The Complete Periscope User's Handbook</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/parrot-mambo-complete-review/"><u>Parrot Mambo Complete Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-finest-selection-of-wireless-mice-unveiled/"><u>The Finest Selection of Wireless Mice Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-performance-the-ultimate-guide-to-the/"><u>Unleashing Performance: The Ultimate Guide to The</u></a></li>
+</ul></div>
 

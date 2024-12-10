@@ -1,7 +1,7 @@
 ---
 title: "Zombie Survival Guide: A Motorcyclist's Review of 'Days Gone'"
-date: 2024-12-02T18:00:38.769Z
-updated: 2024-12-03T16:21:54.925Z
+date: 2024-12-09T17:40:47.566Z
+updated: 2024-12-10T17:45:20.473Z
 categories:
   - BestProducts
 description: "This Article Describes Zombie Survival Guide: A Motorcyclist's Review of 'Days Gone'"
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/ff27900c09b1e7c1dbf788a17f82a6622f15751a0
 ![7 Days to Die](https://www.lifewire.com/thmb/VJoNxFQndEBfEN4NQeMVjVAovNk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4164252-1-e8b8c3eb31dd46e8a63e8e40a5a9d04b.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
@@ -52,6 +52,10 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/mKaiRcg5xaWaOPRj0Ph1dRjUbSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4164252-1-e8b8c3eb31dd46e8a63e8e40a5a9d04b.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
 
 [View On Amazon](https://www.amazon.com/7-Days-Die-PlayStation-4/dp/B01DPUVMNU/?tag=lifewire-onsite-prod-20&ascsubtag=4771121%7Cn6d0ad33beb4d40d5925c2a807d89db2412%7CB01DPUVMNU) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/7-days-to-die/10129841.html)
@@ -76,10 +80,6 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/MW5wYA5ujBjG5LdXn-w9bTJd5WQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-2-a59091cd21c04d99a42270199349fc2a.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
 
 ## **Setup Process: Easy thanks to Steam**
@@ -91,10 +91,6 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/Eq0YCIdbj82yj3lOCWEdZS7jX6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-4-341174c3997543728bd2b024c6e2a309.jpg)
 
  Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Plot: Open world horror sandbox**
 
@@ -110,10 +106,14 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/U2XChOqkiQvFhP69V0cQ5mYcYME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-3-d19d9b4d19734cffb022d6e0db90382e.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Gameplay: Could be better, but solid overall**
@@ -136,10 +136,14 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/O0do2JbbpgP_VF7azi5OhENnDpc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-5-13eba1dcdd7d45b48c0c3d07711686e6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Graphics: Outdated, but detailed on optimal**
@@ -149,10 +153,6 @@ Lifewire / Rebecca Isaacs
  7 Days has a decent 3D graphics system that they’ve definitely improved as the alpha updates have been released. As a consequence, the minimum requirements have also increased. Those who play on minimum settings may want to take note of that. While we hope they’ll improve these over the next alpha updates, we are taking the graphics as they are at the time of this review, and right now, while they’re detailed on optimal settings, they could be better.
 
  Because the graphics are a rather mixed bag, the frames per second (fps) can vary dramatically. We experienced drops as low as 18 fps when playing. When surrounded by a horde, that can cost you your life.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Platform: It’s complicated**
 
@@ -209,20 +209,20 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-essential-strategies-boosting-brand-prominence-on-social-platforms/"><u>[New] 2024 Approved Essential Strategies Boosting Brand Prominence on Social Platforms</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-digital-portraits-proven-the-science-of-social-snap-validation-for-2024/"><u>[New] Digital Portraits Proven The Science of Social Snap Validation for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-oscillation-crafting-box/"><u>[New] Oscillation Crafting Box</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-markets-best-gpus-for-uhd-video-processing/"><u>[Updated] 2024 Approved Market's Best GPUs for UHD Video Processing</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-invisible-insights-into-instagram-story-viewing-for-2024/"><u>[Updated] Invisible Insights Into Instagram Story Viewing for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-seamless-blend-of-images-into-majestic-collage-art/"><u>2024 Approved The Seamless Blend of Images Into Majestic Collage Art</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Oppo A58 4G | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/the-best-methods-to-unlock-the-iphone-locked-to-owner-for-iphone-14-drfone-by-drfone-ios/"><u>The Best Methods to Unlock the iPhone Locked to Owner for iPhone 14 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-prime-day-bargains-unbeatable-acer-discounts/"><u>Top Prime Day Bargains: Unbeatable Acer Discounts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-video-game-systems-of-2024-your-ultimate-guide/"><u>Top-Rated Video Game Systems of 2024 - Your Ultimate Guide!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/uncovering-the-value-detailed-analysis-of-the-feature-rich-cost-effective-ambient-ws-2902a-weather-station-by-osprey/"><u>Uncovering the Value: Detailed Analysis of the Feature-Rich, Cost-Effective Ambient WS-2902A Weather Station by Osprey</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/voip-showdown-2023-can-vonage-keep-up-with-emerging-contenders/"><u>VoIP Showdown 2023: Can Vonage Keep Up With Emerging Contenders?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-you-shouldnt-overlook-the-samsung-galaxy-tab-s3-a-comprehensive-examination/"><u>Why You Shouldn't Overlook the Samsung Galaxy Tab S3 – A Comprehensive Examination</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/yakuza-like-a-dragon-released-why-this-jrpg-is-an-absolute-must-play/"><u>Yakuza: Like A Dragon Released! Why This JRPG Is an Absolute Must-Play</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/yt-microphone-match-wallet-friendly-finds-and-favorites-for-2024/"><u>YT Microphone Match Wallet-Friendly Finds & Favorites for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-redefining-wanderlust-with-virtual-reality-tours/"><u>[New] In 2024, Redefining Wanderlust with Virtual Reality Tours</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-simple-screen-capture-techniques-to-grab-youtube-soundtracks/"><u>[New] In 2024, Simple Screen-Capture Techniques to Grab YouTube Soundtracks</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-master-fast-photoshop-edits-on-windows-11/"><u>[Updated] Master Fast Photoshop Edits on Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-bang-for-your-buck-in-depth-asus-chromebook-flip-c302ca-review/"><u>Best Bang-for-Your-Buck: In-Depth Asus Chromebook Flip C302CA Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-why-the-huion-kamvas-gt-191-is-a-masterpiece-pen-display-for-artists/"><u>Expert Review: Why the Huion Kamvas GT-191 Is a Masterpiece Pen Display for Artists</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/get-the-future-today-introducing-keychron-q1-he-the-cutting-edge-wireless-mechanical-keyboard/"><u>Get the Future Today: Introducing Keychron Q1 HE, the Cutting-Edge Wireless Mechanical Keyboard</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/how-to-secure-your-flipbook-with-a-password-on-flipbuilder-a-comprehensive-guide/"><u>How To Secure Your FlipBook with a Password on FlipBuilder - A Comprehensive Guide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-xiaomi-redmi-note-12t-pro-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Xiaomi Redmi Note 12T Pro Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-let-us-talk-about-the-famous-photoshop-and-most-commonly-used-glitch-effect-the-article-understudy-will-discuss-in-detail-about-photo-glitch-effect-for-/"><u>New Let Us Talk About the Famous Photoshop and Most Commonly Used Glitch Effect. The Article Understudy Will Discuss in Detail About Photo Glitch Effect for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/score-an-epic-steal-save-big-on-hp-victus-15-at-515-with-exclusive-best-buy-prime-day-bargain-insights/"><u>Score an Epic Steal: Save Big on HP Victus 15 at $515 With Exclusive Best Buy Prime Day Bargain - Insights</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-fallacy-of-relying-on-ai-for-safe-key-crafting/"><u>The Fallacy of Relying on AI for Safe Key Crafting</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-smooth-way-to-transition-to-apples-latest-ventura/"><u>The Smooth Way to Transition to Apple's Latest Ventura</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-device-guide-to-chilling-by-seapool/"><u>Ultimate Device Guide to Chilling by Sea/Pool</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-totobays-2nd-generation-wake-up-light-top-pick-on-a-tight-budget/"><u>Ultimate Guide to Totobay's 2Nd Generation Wake-Up Light: Top Pick on a Tight Budget</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/your-guide-to-choosing-the-ideal-handheld-console-2024-edition/"><u>Your Guide to Choosing the Ideal Handheld Console - 2024 Edition</u></a></li>
 </ul></div>
 

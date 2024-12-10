@@ -1,7 +1,7 @@
 ---
 title: "ION Tailgater Plus Portable Speaker: Features, Performance & Bass-Boosting Capabilities Explored in Review"
-date: 2024-08-22T16:25:09.859Z
-updated: 2024-08-23T16:25:09.859Z
+date: 2024-12-06T21:30:30.036Z
+updated: 2024-12-10T16:02:48.581Z
 categories:
   - BestProducts
 description: "This Article Describes ION Tailgater Plus Portable Speaker: Features, Performance & Bass-Boosting Capabilities Explored in Review"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/1139b752cbc32f334a7708e871f23f8ed96ff0366
 ## Garmin Forerunner 45
 
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/9iHW-uJhBOq8W0g0_3J6JJ3oe10=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-HeroSquare-2cc58de569434b0fa44a3c79eb0c1777.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -79,7 +83,15 @@ Lifewire / Todd Braylor
 
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/dDyZtrCdCkQOgVcBV6cAwVcFi68=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-04-2c87d86b2b60411b9ebf6696851a2d3b.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Todd Braylor
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Traditional digital watch design with all-day comfort**
 
@@ -94,22 +106,11 @@ Lifewire / Todd Braylor
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/nHZkcIXB7C8qBgrCAwhmdxoMV0Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-03-b3713bbdd0f244b889d434fbe17613b7.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Sport modes, sleep tracking, and Garmin Coach**
 
  We tested the Forerunner 45 on a series of daily trail runs plus a long run and were pleased with its functionality. It features an optical heart rate sensor that charts your average and max heart rates plus an estimation of your V02 max⁠ (the maximum amount of oxygen you can uptake during exercise).
@@ -130,9 +131,6 @@ Lifewire / Todd Braylor
 
  Garmin Coach can also adjust itself based on performance metrics like heart rate and V02 max to either push you if you’re improving or dial things back if you're going too hard.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Battery: Long battery life for days of activity or races**
 
  The Garmin Forerunner 45 has a rechargeable lithium battery that can last up to seven days in normal watch mode and up to 13 hours continuously when in GPS mode.
@@ -141,10 +139,11 @@ Lifewire / Todd Braylor
 
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/n0CH4Oi-eCGFGFAbYCvyN1zYh5s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-05-60bd2ccaf84c4b588407fb69ec57cf39.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Todd Braylor
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Minimal graphics with widgets in place of apps**
 
@@ -160,9 +159,6 @@ Lifewire / Todd Braylor
 
  The safety alert is similar, allowing you to send a preset alert message with your location as a follow link to a designated emergency contact. But unlike incident detection, the safety alert is sent manually and designed to be used any time you find yourself in a potentially unsafe situation while out running or biking. Both of these features require that your smartphone is within Bluetooth range.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ## **Price: Training essentials for a decent price**
 
  The Garmin Forerunner 45 carries an MSRP of $199.99, which is a pretty decent deal for a GPS watch with the added Garmin Coach features.
@@ -171,9 +167,6 @@ Lifewire / Todd Braylor
 
  Unless you are specifically looking for other features in a Garmin GPS watch for specific uses, chances are you won't miss them for daily running with the Forerunner 45.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Competition: Garmin Forerunner 45 vs. Polar Ignite**
 
  Options abound in the active lifestyle wearables market, and the $200 range is a good benchmark price for getting a full-GPS watch with a variety of training tools.
@@ -193,6 +186,10 @@ Lifewire / Todd Braylor
 **A top-quality running watch at a decent price.**
 
  The Garmin Forerunner 45 is streamlined to provide all your core training features at a good price. It is definitely geared towards runners and relies pretty heavily on a smartphone connection for its more advanced features. But if you are looking for a reliable GPS watch to help you train—and you don't want to spend too much—the Forerunner 45 is worth considering.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -226,8 +223,6 @@ Lifewire / Todd Braylor
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -235,4 +230,21 @@ Lifewire / Todd Braylor
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-ten-best-practices-for-meme-creation/"><u>[New] 2024 Approved Ten Best Practices for Meme Creation</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-how-much-money-can-you-score-with-youtube-short-videos/"><u>[New] How Much Money Can You Score with YouTube Short Videos?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-cost-effective-growth-tactic-for-youtube-fanbases/"><u>[New] In 2024, Cost-Effective Growth Tactic for YouTube Fanbases</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-leading-add-ons-to-improve-sea-camera-shots/"><u>[Updated] Leading Add-Ons to Improve Sea Camera Shots</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/beyond-playful-interfaces-snapchats-my-ai-offers-six-surprising-utilities/"><u>Beyond Playful Interfaces: Snapchat's My AI Offers Six Surprising Utilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/horizon-hours-exploring-automotive-innovations-through-reading-book-four-of-fourth-series-in-new-york-city-rev/"><u>Horizon Hours - Exploring Automotive Innovations Through Reading, Book Four of Fourth Series in New York City (Rev.)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-unpacking-the-features-and-performance-of-anker-powercore-plus-26800-bundle/"><u>In-Depth Look: Unpacking the Features & Performance of Anker PowerCore + 26800 Bundle</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ipad-pro-against-macbook-pro-what-sets-them-apart/"><u>IPad Pro Against MacBook Pro: What Sets Them Apart?</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-the-animation-artists-toolkit-7-best-drawing-software-for-exceptional-results/"><u>New The Animation Artists Toolkit 7 Best Drawing Software for Exceptional Results</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/simplified-processes-for-adobe-presenter-video-saves-for-2024/"><u>Simplified Processes for Adobe Presenter Video Saves for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/step-by-step-guide-customizing-your-iphone-lock-screen-with-widgets/"><u>Step-by-Step Guide: Customizing Your iPhone Lock Screen with Widgets</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/thorough-review-of-winegards-fl55n0a-antenna-performance-excellence-at-a-premium/"><u>Thorough Review of Winegard's FL55n0A Antenna - Performance Excellence at a Premium</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-things-to-evaluate-before-a-new-screen/"><u>Top Things to Evaluate Before a New Screen</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-premier-cable-modem-plus-router-sets/"><u>Ultimate Guide to the Premier Cable Modem + Router Sets</u></a></li>
+</ul></div>
 

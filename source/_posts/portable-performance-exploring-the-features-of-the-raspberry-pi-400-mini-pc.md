@@ -1,7 +1,7 @@
 ---
 title: "Portable Performance: Exploring the Features of the Raspberry Pi 400 Mini PC"
-date: 2024-08-27T11:08:25.558Z
-updated: 2024-08-28T11:08:25.558Z
+date: 2024-12-04T20:41:01.418Z
+updated: 2024-12-10T20:37:46.195Z
 categories:
   - BestProducts
 description: "This Article Describes Portable Performance: Exploring the Features of the Raspberry Pi 400 Mini PC"
@@ -69,9 +69,14 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/uXDVHaBrdIlv5tI-qRgiPK0Iig4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460721-e6a53664e7eb4e65a75bf5cceb928e28.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Plot: A huge world with loads to explore**
 
@@ -91,10 +96,11 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/1fxH7ty_kqxpugJDk2tIQndKvI0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546078-6bdc67e56311473f9c1edeab00d2caa5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Gameplay: Not as smooth as on other platforms**
 
@@ -114,9 +120,6 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/2Fk-UTwglmoCdE7IXrXqlnXs9do=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460712-6cec58625d13430db671be3144451cbc.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
 ## **Graphics: A bit outdated**
@@ -136,13 +139,11 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/Iik6f_7RIRMWo5R6zGYxgGeL4n0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546076-8fb741faa7144fa6bafe386d2b7d8296.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: A tad expensive**
 
  The Elder Scrolls V: Skyrim costs roughly $60 dollars for the Switch (MSRP). You might be able to find it on sale on Amazon for less, but it’s still on the more expensive side like other popular Switch games. This is disappointing since you can find Skyrim on other platforms for a fraction of the cost, even snatching it up for sale on Steam for $25 or less on PC. Considering the cost difference, the PC version of the game is the better deal, especially since the gameplay is better looking. But if you’re looking to take Skyrim on the go, or a Switch is your preferred gaming system, the price isn’t unreasonable.
@@ -150,9 +151,14 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Other action RPGs**
 
@@ -164,9 +170,6 @@ Lifewire / Kelsey Simon
 
  Even though The Elder Scrolls V: Skyrim is a great game and the Switch is an amazing platform, our advice is only to buy Skyrim for the Switch if you’re looking to play on the go. Otherwise, we’d suggest purchasing Skyrim for the PC, where you’ll really be able to enjoy superior graphics and customization options.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [The Legend of Zelda: Breath of the Wild](https://www.lifewire.com/the-legend-of-zelda-breath-of-the-wild-review-4685759)
@@ -180,14 +183,11 @@ Lifewire / Kelsey Simon
 * Price  $59.99
 * Available Platforms  Microsoft Windows, Nintendo Switch, PlayStation 3, PlayStation 4, Xbox 360, Xbox One
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -196,4 +196,23 @@ Lifewire / Kelsey Simon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-a-deep-dive-into-panasonics-hx-a1-camera-features/"><u>[New] A Deep Dive Into Panasonic's HX-A1 Camera Features</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-the-great-streamer-challenge-obs-vs-twitch/"><u>[New] In 2024, The Great Streamer Challenge OBS vs Twitch</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/apping-out-the-next-wave-of-social-media-graphs-for-2024/"><u>[New] Mapping Out the Next Wave of Social Media Graphs for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-complete-overview-screenflow-v4-for-macos/"><u>2024 Approved Complete Overview ScreenFlow v4 for macOS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-securing-youtube-partnership-a-comprehensive-guide-for-video-creators/"><u>2024 Approved Securing YouTube Partnership A Comprehensive Guide for Video Creators</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/comment-transformer-gratuitement-un-fichier-mkv-en-dvd-avec-winx-dvd-author-sous-windows-11-8-ou-7/"><u>Comment Transformer Gratuitement Un Fichier MKV en DVD Avec WinX DVD Author Sous Windows 11, 8 Ou 7?</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/complete-overhaul-of-your-smartwatch-a-detailed-apple-watch-reset-process-insights-from-zdnet/"><u>Complete Overhaul of Your Smartwatch: A Detailed Apple Watch Reset Process (Insights From ZDNET)</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discover-how-learning-chatgpt-can-advance-your-job-search-and-performance/"><u>Discover How Learning ChatGPT Can Advance Your Job Search & Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-why-the-motorola-one-hyper-is-topping-charts-as-an-impressive-mid-tier-phone/"><u>Discover Why The Motorola One Hyper Is Topping Charts as an Impressive Mid-Tier Phone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-protective-power-and-performance-pace-of-the-cat-s42-smartphone/"><u>Evaluating the Protective Power and Performance Pace of the CAT S42 Smartphone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hero7-black-the-pinnacle-of-professional-action-cameras/"><u>HERO7 Black: The Pinnacle of Professional Action Cameras?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-the-world-of-ipads-a-detailed-model-comparison-guide/"><u>Inside the World of iPads: A Detailed Model Comparison Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/protect-your-iphone-from-malware-the-top-six-cybersecurity-apps-you-need/"><u>Protect Your iPhone From Malware: The Top Six Cybersecurity Apps You Need</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-tutorial-to-restore-windows-combo-shortcuts-focusing-on-win-plus-shift-plus-s-glitches/"><u>Step-by-Step Tutorial to Restore Windows Combo Shortcuts, Focusing on Win + Shift + S Glitches</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-gps-running-watches-a-comprehensive-guide/"><u>Top-Rated GPS Running Watches : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/vintage-gaming-spotlight-in-depth-review-of-the-nintendo-game-and-watch-super-mario-bros-edition/"><u>Vintage Gaming Spotlight: In-Depth Review of the Nintendo Game & Watch - Super Mario Bros Edition</u></a></li>
+</ul></div>
 

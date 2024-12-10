@@ -1,7 +1,7 @@
 ---
 title: "The Evolution of Setting in Video Games: A Focused Look at Ubisoft's Watch Dogs: Legion"
-date: 2024-08-27T11:07:31.906Z
-updated: 2024-08-28T11:07:31.906Z
+date: 2024-12-05T18:30:40.438Z
+updated: 2024-12-10T19:24:06.487Z
 categories:
   - BestProducts
 description: "This Article Describes The Evolution of Setting in Video Games: A Focused Look at Ubisoft's Watch Dogs: Legion"
@@ -38,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
 
 3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
@@ -62,8 +66,9 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -72,19 +77,12 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
 
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Humans have never been so annoying**
 
  The game begins with a multi-hour long tutorial program, which I highly recommend you undertake before playing the game. There are so many various aspects to the game—basic needs, threats to your colony, resources to import and export—that it would be disastrous not to get caught up to speed. It took me a total of five hours to complete these tutorials, but I had to restart a couple after a couple operator error moments when I accidentally destroyed my only water vaporizer and had no idea how to rebuild it. So, it will probably take you less.
@@ -99,9 +97,6 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
 
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
  The colonists also come with their own unique personality traits, from veganism to survivalist to alcoholic, so they all have their own service needs. You’ll have to factor this into your game as you build up your population. If someone doesn’t get their needs met, it can land them in the hospital, or worse, on a rocket back home. And don’t get me started on the chaos that erupts when humans start freezing during a cold spell or complain when they don’t have enough oxygen. The nerve of some colonists!
@@ -129,8 +124,9 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Competition: Other city-building games**
 
  What makes Surviving Mars unique is that technically it is a city-[building game](https://www.lifewire.com/best-offline-building-games-4580415) , but instead of building bus lines, you have to build oxygen and water lines to ensure colony survival. However, just like city-building games, you are building infrastructure. If you’re solely focused on building up a city, Surviving Mars would be a great addition to your library, but so would[Cities: Skylines](https://store.steampowered.com/app/255710/Cities%5FSkylines/) (view on Steam). Both focus on creating a habitat from scratch—one just happens to be hundreds of thousands of miles away while the other could be in a tropical or a Midwestern climate.
@@ -144,8 +140,9 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Surviving Mars
@@ -158,14 +155,11 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
 * Graphics  HD 4600/Geforce 620/Radeon 6450 or equivalent GPUs with 1 GB of video RAM
 * Game Updates  Green Planet, Project Laika, Space Race, Colony Design Set, Marsvision Song Contest
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -174,4 +168,24 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-revolutionizing-online-content-the-power-of-time-stamps/"><u>[New] In 2024, Revolutionizing Online Content The Power of Time-Stamps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ios-handbook-for-effective-youtube-video-posting/"><u>[New] IOS Handbook for Effective YouTube Video Posting</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-maximum-memory-accessory-for-sony-a7s-ii/"><u>[Updated] In 2024, Maximum Memory Accessory for Sony A7S II</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-videos-making-a-statement-on-instagram/"><u>[Updated] YouTube Videos Making a Statement on Instagram</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/1728467489989-windows-117/"><u>消えてしまったWindows 11のデータを取り戻す！7つの確実な方法</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-your-champion-a-detailed-look-at-the-apple-iphone-15-pro-against-the-pro-max-variant/"><u>Choosing Your Champion: A Detailed Look at the Apple iPhone 15 Pro Against the Pro Max Variant</u></a></li>
+<li><a href="https://win11.techidaily.com/1719337262601-cure-frozen-shift-key-woes-quickly/"><u>Cure Frozen Shift Key Woes Quickly.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/debunking-starlink-myths-4-compelling-reasons-for-switch/"><u>Debunking Starlink Myths: 4 Compelling Reasons for Switch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-unrivaled-speed-with-apples-latest-innovation-the-imac-with-m1-chip/"><u>Experience Unrivaled Speed with Apple's Latest Innovation: The iMac with M1 Chip</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-seatechs-external-blu-ray-drive-with-usb-connection-inconsistent-writing-quality/"><u>Expert Analysis of SeaTech's External Blu-Ray Drive with USB Connection - Inconsistent Writing Quality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-compromises-with-the-hp-stream-14-your-guide-to-a-wallet-friendly-windows-machine/"><u>Navigating Compromises with the HP Stream 14 - Your Guide to a Wallet-Friendly Windows Machine</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-features-of-a-low-budget-lenovo-chromebook-duet-an-expert-review-on-the-versatile-convertible-notebook/"><u>Navigating the Features of a Low Budget Lenovo Chromebook Duet - An Expert Review on the Versatile Convertible Notebook</u></a></li>
+<li><a href="https://win-dash.techidaily.com/nvidias-quick-fix-for-geforce-gt-730-secure-your-driver-software-now/"><u>NVIDIA's Quick Fix for GeForce GT 730 - Secure Your Driver Software Now</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-realme-gt-5-240w-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Realme GT 5 (240W) Phone Hassle-Free</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-invisible-culprits-behind-chat-and-social-outages/"><u>The Invisible Culprits Behind Chat and Social Outages</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-picks-for-kids-outdoor-entertainment-in-depth-review-of-maistos-rc-rock-crawler/"><u>Top Picks for Kid's Outdoor Entertainment: In-Depth Review of Maisto's RC Rock Crawler!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-impact-of-physical-design-on-the-speeds-of-netgears-120amps-powerline-technology-is-bigger-not-always-better/"><u>Unpacking the Impact of Physical Design on the Speeds of Netgear's 120Amps Powerline Technology – Is Bigger Not Always Better?</u></a></li>
+</ul></div>
 

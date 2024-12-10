@@ -1,7 +1,7 @@
 ---
 title: "Syma S111G RC Helicopter Review: Low-Cost Indoor Fun"
-date: 2024-11-27T19:52:36.988Z
-updated: 2024-12-04T04:16:12.251Z
+date: 2024-12-07T19:05:54.480Z
+updated: 2024-12-10T19:12:25.164Z
 categories:
   - BestProducts
 description: "This Article Describes Syma S111G RC Helicopter Review: Low-Cost Indoor Fun"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/9841b29c6cea5f5f780b6eadf9d0ee4bcbe0f046f
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Microsoft Sculpt Ergonomic Keyboard
 
@@ -54,10 +50,6 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Emily Isaacs
 
 [View On Walmart $138](https://www.walmart.com/ip/Microsoft-Sculpt-Ergonomic-Desktop-Black-Wireless-USB-Keyboard-Keypad-and-Mouse/31390902?slfpid=3) [View On Best Buy $66](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F1818024.p) [View On Newegg.com $169](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.newegg.com%2Fmicrosoft-sculpt-ergonomic-desktop-l5v-00001-usb-rf-wireless%2Fp%2FN82E16823109349%3Fitem%3D9SIA24G28N0197%26slfpid%3D3)
@@ -79,7 +71,7 @@ Lifewire / Emily Isaacs
  You can tell Microsoft put a considerable amount of thought into the Sculpt Ergonomic Keyboard’s design. From the manta ray style folds, which keep shoulders and hands at a relaxed, comfortable angle, to the detached numpad and magnetized risers for increased customization options when you want them, the Sculpt is quite the package. As with anything new, it took a period of adjustment, but we found it relatively quick thanks to the intuitive, easy-to-use design.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Made for comfort**
@@ -97,7 +89,7 @@ Lifewire / Emily Isaacs
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Batteries required**
@@ -124,7 +116,15 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
@@ -139,7 +139,7 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
@@ -184,18 +184,22 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-mystery-of-missing-movies-a6400s-quandary/"><u>[Updated] 2024 Approved Mystery of Missing Movies A6400's Quandary</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-interface-interlink-bridging-ig-and-tiktok-worlds/"><u>2024 Approved The Interface Interlink Bridging IG & TikTok Worlds</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ar-5-arcshell-augmented-reality-glasses-exceptional-value-and-quality/"><u>AR-5 ArcShell Augmented Reality Glasses: Exceptional Value and Quality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comparing-kindle-devices-to-fire-tablets-what-sets-them-apart/"><u>Comparing Kindle Devices to Fire Tablets: What Sets Them Apart?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-realme-12-proplus-5g-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Realme 12 Pro+ 5G to Laptop Without USB | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-fix-iphone-se-2022-passcode-not-working-drfone-by-drfone-ios/"><u>In 2024, How to Fix iPhone SE (2022) Passcode not Working? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-samsung-galaxy-xcover-6-pro-tactical-edition-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Samsung Galaxy XCover 6 Pro Tactical Edition?</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-keep-it-steady-photo-and-video-clarity/"><u>In 2024, Keep It Steady Photo & Video Clarity</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-nubia-red-magic-9-proplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-the-leading-exterior-discs-drives-of-236/"><u>Ultimate Guide: The Leading Exterior Discs Drives of 2#36</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-the-finest-steam-deck-titles-of-2023/"><u>Ultimate Selection: The Finest Steam Deck Titles of 2023</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-aesthetics-and-lightweight-advantage-of-the-acer-chromebook-r-11/"><u>Unveiling the Aesthetics and Lightweight Advantage of the Acer Chromebook R 11</u></a></li>
-<li><a href="https://windows11.techidaily.com/windows-11-clear-pin-lockouts-with-ease/"><u>Windows 11: Clear PIN Lockouts with Ease</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-how-to-clear-the-clutter-blurring-backgrounds-for-engaging-yt/"><u>[New] How to Clear the Clutter Blurring Backgrounds for Engaging YT</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-funimate-simplified-your-compreayer-guide/"><u>[Updated] In 2024, Funimate Simplified Your Compreayer Guide</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/5-effective-techniques-for-refreshing-the-downloads-folder-on-windows-11/"><u>5 Effective Techniques for Refreshing the Downloads Folder on Windows 11</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/activating-stealthy-search-function-on-windows-11-bar/"><u>Activating Stealthy Search Function on Windows 11 Bar</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exclusive-review-of-the-eufy-t82er-video-doorbell-the-freedom-from-monthly-fees/"><u>Exclusive Review of the Eufy T82er Video Doorbell: The Freedom From Monthly Fees</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-features-of-samsungs-latest-gem-a-detailed-look-at-the-qn55q6f-4k-hdr-smart-tv/"><u>Exploring the Features of Samsung's Latest Gem: A Detailed Look at the QN55Q6F 4K HDR Smart TV</u></a></li>
+<li><a href="https://win-news.techidaily.com/how-to-free-up-disk-space-by-removing-obsolete-files-and-enhance-your-pcs-performance-tips-from-yl-software/"><u>How to Free Up Disk Space by Removing Obsolete Files and Enhance Your PC's Performance - Tips From YL Software</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-the-world-of-the-serious-reader-unveiling-the-powerful-features-of-the-kobo-forma/"><u>Inside the World of the Serious Reader: Unveiling the Powerful Features of the Kobo Forma</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/investing-in-new-battery-life-apples-phones-and-pods/"><u>Investing in New Battery Life: Apple's Phones & Pods</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-up-your-screen-the-9-most-innovative-camgear-for-video-creators/"><u>Light Up Your Screen The 9 Most Innovative CamGear for Video Creators</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/navigate-the-world-of-instagram-videos-for-maximum-impact-for-2024/"><u>Navigate the World of Instagram Videos for Maximum Impact for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-features-of-the-razer-blade-pro-17-a-top-gaming-laptop-compacted/"><u>Navigating the Features of the Razer Blade Pro 17 - A Top Gaming Laptop Compacted</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pioneers-ultimate-mounting-system-review/"><u>Pioneer's Ultimate Mounting System Review</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/step-by-step-guide-building-secure-unidentifiable-emails-with-malwarefox/"><u>Step-by-Step Guide: Building Secure, Unidentifiable Emails with MalwareFox</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transform-your-photos-effortlessly-premium-features-of-the-free-lightzone-editor-on-windows-mac-and-linux/"><u>Transform Your Photos Effortlessly: Premium Features of the Free LightZone Editor on Windows, Mac & Linux</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-evaluation-of-the-ps4-pro-achieving-4k-visuals/"><u>Ultimate Evaluation of the PS4 Pro: Achieving 4K Visuals</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unleashing-the-power-of-spotifys-ad-platform-for-marketers/"><u>Unleashing the Power of Spotify's Ad Platform for Marketers</u></a></li>
 </ul></div>
 

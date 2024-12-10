@@ -1,7 +1,7 @@
 ---
 title: "Panasonic Lumix DC-FZ80 Review: An All-Purpose Camera with Value"
-date: 2024-08-22T16:20:07.272Z
-updated: 2024-08-23T16:20:07.272Z
+date: 2024-12-09T16:12:07.572Z
+updated: 2024-12-10T17:34:11.797Z
 categories:
   - BestProducts
 description: "This Article Describes Panasonic Lumix DC-FZ80 Review: An All-Purpose Camera with Value"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/402a192fa8f9a76c25001597879db6a11d907dc8f
 ## Fossil Sport Smartwatch
 
 ![Fossil Sport Smartwatch](https://www.lifewire.com/thmb/5x3QF2xeDjzPJii5hKe3LYqWN2M=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Fossil-Sport-Smart-Watch-1-b30f7a06ff534614a2afa0261ce1905f.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -72,11 +76,19 @@ Lifewire / Andy Zahn
 
 ![Fossil Sport Smartwatch](https://www.lifewire.com/thmb/09nYIY5js64r3HdZV05shTtw6aI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fossil-Sport-Smart-Watch-3-596e9d29b0634b1a9abfa429e619733e.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
  The Fossil Sport is controlled using both a[touchscreen](https://www.lifewire.com/what-is-a-touchscreen-4144770) and three dedicated buttons. The central button features a rotating dial that’s great for scrolling through menus and notifications. The other two can be programmed as shortcuts to access different functions. It’s water-resistant down to 5 ATM, or 164 feet, though it’s not a diving watch.
 
  The Fossil Sport is one slick looking watch, and it’s impressively customizable.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup process: Streamlined with lots of prompts**
 
@@ -84,26 +96,21 @@ Lifewire / Andy Zahn
 
 ![Fossil Sport Smartwatch](https://www.lifewire.com/thmb/DdOVg5yJzQTRZs3QPo_qPoBT7mA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fossil-Sport-Smart-Watch-4-653a372a18904e089de460ed88380344.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Comfort: Highly adjustable**
 
  I appreciated that Fossil included a watch band large enough to fit my extra-large 9-inch wrists with room to spare. I found it comfortable to wear all day long; its lightweight prevented it from being overly burdensome on my wrist.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Performance: Accurate stats**
 
  I was impressed by the accuracy of the Fossil Sport’s heart rate sensor and its other fitness tracking features. It read my correct heart rate right off the bat, which is something other smartwatches have failed to do due to my chunky wrists. The GPS and pedometer accurately kept track of my progress on walks and other activities, and these statistics are handled and gamified to some degree through Google Fit. This makes detailed statistics readily available on your phone, though it doesn’t provide quite as much detail and analysis as other fitness tracking software.
 
  The 1.2-inch 390 PPI AMOLED display is wonderfully crisp, clear, and bright enough to see even in strong sunlight. It’s so pretty to look at with deep blacks and bright colors that I found myself occasionally glancing at the watch just to enjoy this startlingly nice screen.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Battery: 24-hour power**
 
@@ -111,9 +118,6 @@ Lifewire / Andy Zahn
 
 ![Fossil Sport Smartwatch](https://www.lifewire.com/thmb/a8TojyXavE05a-LRkRQauxY7ChM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fossil-Sport-Smart-Watch-2-cb6ea34d0ed1441c8c0dac4542d0dd1d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andy Zahn
 
 ## **Software: The Highs and Lows of Wear OS**
@@ -128,16 +132,14 @@ Lifewire / Andy Zahn
 
  Just because an app runs on WearOS, this doesn’t mean it will run flawlessly on any WearOS device.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ## **Price: An excellent value**
 
  Since launch, the MSRP of the Vivoactive 3 Music has plummeted from $275 to just $99, making it a genuine bargain. The watch is ridiculously high quality for such a low price.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Fossil Sport vs. Garmin Vivoactive 3 Music**
 
  If you want to dive deeper into fitness tracking, then you may want to consider the Garmin Vivoactive 3 Music.[The Vivoactive 3 Music](https://www.lifewire.com/garmin-vivoactive-3-music-review-5069587) (view on[Amazon](https://www.amazon.com/dp/B07DB3F6M2?tag=lifewire-onsite-prod-20&ascsubtag=5069585%7Cn5c2d2db9c33044f3bef91a93ac72349f12%7C) ) features a wide range of granular fitness tracking capabilities that outclass Fossil Sport in this respect. However, it’s twice as expensive as the Fossil Sport, which is superior in most other ways. It’s worth mentioning that the Vivoactive 3 Music easily ran Spotify, which was a definitive advantage for me.
@@ -147,6 +149,10 @@ Lifewire / Andy Zahn
  **Fossil Sport has all the basic features a Smartwatch needs at an attractive price point.**
 
  The value of Fossil Sport is beyond dispute. Between its capable feature set, excellent design, and bargain price point, this smartwatch is a versatile and good looking companion.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -170,8 +176,6 @@ Lifewire / Andy Zahn
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -179,4 +183,24 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-high-quality-duo-of-photo-and-sound-capture-software/"><u>[New] High-Quality Duo of Photo & Sound Capture Software</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-turning-trends-into-timeless-gifs-with-tiktok-converters/"><u>[New] Turning Trends Into Timeless GIFs with TikTok Converters</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-video-frame-techniques-applying-letterboxing-and-black-bars-to-fb-media/"><u>[Updated] Video Frame Techniques Applying Letterboxing & Black Bars to FB Media</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-take-control-of-your-tiktok-videos-learn-numeric-editing-techniques/"><u>2024 Approved Take Control of Your TikTok Videos Learn Numeric Editing Techniques</u></a></li>
+<li><a href="https://common-error.techidaily.com/airpods-wont-pair-with-windows-11-expert-fixes-and-updates-connection-woes/"><u>AirPods Won't Pair With Windows 11? Expert Fixes and Updates Connection Woes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-streaming-devices-clash-chromecast-vs-roku-in-the-ultimate-fight/"><u>Best Streaming Devices Clash: Chromecast Vs. Roku in the Ultimate Fight</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-prices-to-value-in-apples-max-earbuds/"><u>Comparing Prices to Value in Apple's Max Earbuds</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/discover-the-concealed-trackpoint-and-more-in-this-portable-lenovo-laptop-exclusive-insights/"><u>Discover the Concealed TrackPoint and More in This Portable Lenovo Laptop - Exclusive Insights</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/discovering-tomtoms-adventurecam-revolution-2023-edition/"><u>Discovering TomTom’s AdventureCam Revolution - 2023 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhancing-your-fitness-routine-with-garmin-vivoactive-3-exercise-and-enjoy-quality-sound/"><u>Enhancing Your Fitness Routine with Garmin Vivoactive 3: Exercise and Enjoy Quality Sound!</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/erfolgreiches-transferieren-von-hd-videodateien-aus-ihrem-iphone-auf-den-desktop-funf-effiziente-strategien/"><u>Erfolgreiches Transferieren Von HD-Videodateien Aus Ihrem iPhone Auf Den Desktop: Fünf Effiziente Strategien</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/immersive-gaming-on-the-go-with-samsungs-q60r-series-4k-qled-tv-reviewed/"><u>Immersive Gaming on the Go with Samsung's Q60R Series 4K QLED TV Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-road-safety-on-a-budget-with-the-z3-plus-by-z-edge-an-intuitive-review/"><u>Navigating Road Safety on a Budget with the Z3 Plus by Z-Edge: An Intuitive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/premium-vertical-computer-mice-best-picks-of-2024/"><u>Premium Vertical Computer Mice - Best Picks of 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722977340987-simple-steps-installing-the-latest-epson-drivers-on-your-windows-pc/"><u>Simple Steps: Installing the Latest Epson Drivers on Your Windows PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tp-link-re5n-x-wi-fi-range-enhancement-appraisal-a-comprehensive-guide/"><u>TP-Link RE5n X Wi-Fi Range Enhancement Appraisal - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-toshiba-55lf711u2n3-55-fire-tv-smart-tv-perfect-for-amazon-prime-subscribers/"><u>Ultimate Guide to the Toshiba 55LF711U2n3 55” Fire TV Smart TV: Perfect for Amazon Prime Subscribers</u></a></li>
+</ul></div>
 

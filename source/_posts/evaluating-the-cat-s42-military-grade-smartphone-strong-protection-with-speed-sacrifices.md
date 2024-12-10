@@ -1,7 +1,7 @@
 ---
 title: "Evaluating the CAT S42 Military-Grade Smartphone: Strong Protection with Speed Sacrifices"
-date: 2024-08-22T16:21:12.889Z
-updated: 2024-08-23T16:21:12.889Z
+date: 2024-12-08T16:04:49.639Z
+updated: 2024-12-10T18:56:32.018Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating the CAT S42 Military-Grade Smartphone: Strong Protection with Speed Sacrifices"
@@ -13,9 +13,17 @@ thumbnail: https://thmb.techidaily.com/c2c5f7637a1a98a896ffa1ab11bfad790f7bce8ce
 
 4.5
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/mk2ndJKMrOgGOYfE8uNwJVYkaTk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
 
@@ -63,9 +71,6 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ## **Design: All-plastic, but sturdy and subtle**
 
  The Anker PowerDrive 2 might not be the sharpest or most cutting-edge looking in-car USB charger, but what it lacks in visual pizazz, it more than makes up for in sturdiness.
@@ -79,12 +84,9 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Fast charging for demanding devices**
 
  The best part of the Anker PowerDrive 2 is its charging. It has the ability to charge iPads simultaneously without getting overheated thanks to its PowerIQ and VoltageBoost technology. Each USB port can output a maximum 5V/2.4A, for a total of 24W. That’s in line with other car[chargers](https://www.lifewire.com/best-wireless-phone-chargers-4138571) we tested, but the PowerIQ technology can help identify device and deliver the fastest possible charge. This also gives you some overvoltage protection to make sure something like a smartwatch doesn’t fry when you plug it in.
@@ -95,9 +97,6 @@ No advertising on the website.
 
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Middle of the pack**
 
  The list price of $14.99 is positioned in the mid-range of the USB charger market, which ranges from just a few dollars to upwards of $50 for some fancier chargers. However, Anker PowerDrive 2 can be had for a discounted price on some websites. Considering the fact that the Anker PowerDrive 2 includes both the fast-charger and a 3-foot micro USB cable, it is well priced for the marketplace.
@@ -105,8 +104,9 @@ No advertising on the website.
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Competition: A handful of rivals**
 
  The RAVPower 24W charger is one of Anker’s main rivals. It has a metal exterior, a lower price tag, and theoretically identical power output. However, its construction is far less robust. In fact, its metal outside easily separates from the internal components easily making Anker a better pick for longevity.
@@ -122,13 +122,9 @@ No advertising on the website.
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  PowerDrive 2 24W Dual USB Car Charger
@@ -146,8 +142,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -155,4 +149,22 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/new-premium-alert-tones-top-selection-of-websites/"><u>[New] Premium Alert Tones Top Selection of Websites</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-a-comprehensive-breakdown-of-live-streaming-and-downloading-tv/"><u>2024 Approved A Comprehensive Breakdown of Live Streaming and Downloading TV</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-master-controls-navigating-the-world-of-switch-pro-and-steam-gaming/"><u>2024 Approved Master Controls Navigating the World of Switch Pro and Steam Gaming</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/eclipse-antenna-from-clearstream-delivers-outstanding-results-with-effortless-setup/"><u>Eclipse Antenna From ClearStream Delivers Outstanding Results with Effortless Setup</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-mini-pc-revolutionized-into-a-keyboard-the-raspberry-pi-400-review/"><u>Expert Analysis of the Mini PC Revolutionized Into a Keyboard - The Raspberry Pi 400 Review</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Samsung Galaxy A15 4G? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mythos-makers-mecca-prime-pantheon-seven/"><u>In 2024, Mythos Makers’ Mecca - Prime Pantheon Seven</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/secure-your-entryway-like-never-before-with-the-ring-video-doorbell-2/"><u>Secure Your Entryway Like Never Before with the Ring Video Doorbell 2</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723015268435-specific-heat-capacity-is-the-energy-required-to-raise-1-gram-of-substance-by-1-kelvin/"><u>Specific Heat Capacity Is the Energy Required to Raise 1 Gram of Substance by 1 Kelvin.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-cordless-phones-of-2024/"><u>The Best Cordless Phones of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-complete-review-of-linksys-ac1900-max-stream-router-your-all-inclusive-home-networking-companion/"><u>The Complete Review of Linksys AC1900 Max-Stream Router: Your All-Inclusive Home Networking Companion</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-lava-blaze-2-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Lava Blaze 2 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-tips-stop-nioh-2-full-version-from-crashing/"><u>Troubleshooting Tips: Stop Nioh 2 (Full Version) From Crashing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-full-potential-of-minecraft-an-ultimate-exploration-of-this-beloved-sandbox-game-for-players-of-every-age-group/"><u>Unlocking the Full Potential of Minecraft: An Ultimate Exploration of This Beloved Sandbox Game for Players of Every Age Group</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-best-smart-home-security-devices-ring-video/"><u>Unveiling the Best Smart Home Security Devices: Ring Video</u></a></li>
+</ul></div>
 

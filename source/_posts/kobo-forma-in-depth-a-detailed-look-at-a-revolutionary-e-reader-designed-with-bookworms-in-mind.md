@@ -1,7 +1,7 @@
 ---
 title: "Kobo Forma In Depth: A Detailed Look at a Revolutionary E-Reader Designed with Bookworms in Mind"
-date: 2024-11-28T03:26:23.719Z
-updated: 2024-12-03T16:02:03.804Z
+date: 2024-12-09T18:04:06.184Z
+updated: 2024-12-10T18:58:32.156Z
 categories:
   - BestProducts
 description: "This Article Describes Kobo Forma In Depth: A Detailed Look at a Revolutionary E-Reader Designed with Bookworms in Mind"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/d4011b13ce09e30b67e00ca49a12c263fc568d55d
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Netgear Powerline PL1200
 
@@ -74,14 +70,10 @@ Lifewire / Jordan Oloman
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/pTY-hBlPDWY0Ns6j4BVyAl75U-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_04-cd509045b4a3477fab85fdf3c69cacb4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jordan Oloman
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Design: Sharp edges and frustration**
 
@@ -99,6 +91,10 @@ Lifewire / Jordan Oloman
 
  Lifewire / Jordan Oloman
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Delightfully quick and efficient**
 
  The Netgear Powerline 1200 is a dream to start, since all it takes is plugging the devices in for them to work. Simply place one near your router, attach the Ethernet cable, then head to the room where you want to expand the network and do the same there, attaching the Ethernet to a console, smart TV or electronic device with an internet connection.
@@ -114,7 +110,7 @@ Lifewire / Jordan Oloman
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LvSmrJJnFItVzQEAPCzBexfSn2M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_03-8fb5af44f82449b49fc780fd23bcb2af.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jordan Oloman
@@ -136,7 +132,7 @@ Lifewire / Jordan Oloman
  Out of the adapters we tested, the Netgear Powerline 1200 was one of the cheaper ones on Amazon, ranging between $70-$85\. You can see why when you study the design and the many aesthetic flaws that come with this product. Besides the fact it is bulky and doesn’t play nice with other plugs, it’s a reliable means to improve your home network through the wonders of Powerline. It’s still quite a hard sell at this price compared to other products that hover around the same and offer more ports and socket functionality, but it’s still a worthwhile purchase if you just want to plug and play.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Netgear Powerline 1200 vs. TP-Link AV2000 Powerline Adapter**
@@ -152,6 +148,10 @@ Lifewire / Jordan Oloman
  **A Powerline kit with solid speeds and an easy setup undermined by poor design.**
 
  The Netgear Powerline 1200 is incredibly reliable, albeit poorly designed. It is obstructive in the design department, fairly ugly to look at and comes with just one connection and awfully short Ethernet cables. Yet it has a true plug and play setup process with no compromises, and offers a reliable upgrade to your home network speeds. If you can look past the strange design choices this is the perfect introductory kit for Powerline beginners that does everything you need it to.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -177,19 +177,19 @@ Lifewire / Jordan Oloman
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/iscovering-where-youtube-video-management-happens-for-2024/"><u>[New] Discovering Where YouTube Video Management Happens for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/egitimate-protocols-for-achieving-over-a-million-viewership-for-2024/"><u>[New] Legitimate Protocols for Achieving Over a Million Viewership for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-pros-and-cons-gopro-hero-4-vs-drift-ghost-s-racing-edition/"><u>2024 Approved Pros & Cons GoPro Hero 4 Vs. Drift Ghost-S Racing Edition</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/mp3-adts/"><u>高音質MP3への変換: ADTSファイルをうまく保ちながら効率良く変更する方法</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722656085522-a-closer-look-at-apples-latest-imac-the-stunning-design-meets-the-formidable-m1-technology-reviewed-here/"><u>A Closer Look at Apple's Latest iMac - The Stunning Design Meets the Formidable M1 Technology Reviewed Here!</u></a></li>
-<li><a href="https://blog-min.techidaily.com/comprehensive-guide-to-windows-movie-maker-in-2cuity4-benefits-and-drawbacks-explored/"><u>Comprehensive Guide to Windows Movie Maker in 2Cuity4 - Benefits and Drawbacks Explored</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/conversion-de-archivos-mod-a-mp4-sin-coste-herramienta-en-linea-gratis-de-movavi/"><u>Conversión De Archivos MOD a MP4 Sin Coste - Herramienta en Línea Gratis De Movavi</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Honor Magic 6 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722715049305-sonys-offering-a-comprehensive-review-of-the-65-inch-4k-xbr-65x850f-led-tv-at-a-reasonable-price/"><u>Sony's Offering: A Comprehensive Review of the 65-Inch 4K XBR-65X850F LED TV at a Reasonable Price</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722571073827-the-ultimate-tcl-50s425-50-smart-led-4k-tv-roku-2019-review-for-budget-shoppers/"><u>The Ultimate TCL 50S425 50 Smart LED 4K TV - Roku 2019 Review for Budget Shoppers!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-5k-tcl-tvs-in-depth-look-at-the-tcl-50s425-50-inch-smart-roku-tv-of-2019/"><u>Top 5K TCL TVs: In-Depth Look at the TCL 50S425 50-Inch Smart Roku TV of 2019</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/transition-mechanisms/"><u>Transition Mechanisms</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/ultimate-live-soundscape-websites/"><u>Ultimate Live Soundscape Websites</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleashing-aerial-thrills-at-home-an-expert-review-of-the-syma-yali-672-rc-helicopter/"><u>Unleashing Aerial Thrills at Home: An Expert Review of the Syma Yali 672 RC Helicopter</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/itch-youtube-sounds-into-imovie-tracks-swiftly-for-2024/"><u>[New] Hitch YouTube Sounds Into iMovie Tracks Swiftly for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-pivotal-software-in-shaping-a-vtubers-sound-identity/"><u>[New] Pivotal Software in Shaping a Vtuber's Sound Identity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-guffaw-generator-pictorial-mixer/"><u>2024 Approved Guffaw Generator Pictorial Mixer</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/7-ways-to-unlock-a-locked-honor-x7b-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Honor X7b Phone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-extraordinary-elite-straps-with-energy-enhancing-battery-and-robust-carrying-case-for-oculus-quest-2/"><u>Comprehensive Review of the Extraordinary Elite Straps with Energy-Enhancing Battery & Robust Carrying Case for Oculus Quest 2</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploration-5-reasons-to-add-an-ipad-to-your-tech-lineup/"><u>Exploration: 5 Reasons to Add an iPad to Your Tech Lineup</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hp-omen-obelisk-assessment-exceptional-deals-on-powerful-gaming-pcs/"><u>HP Omen Obelisk Assessment: Exceptional Deals on Powerful Gaming PCs</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-motion-control-in-vr-keeping-nausea-at-bay/"><u>In 2024, Motion Control in VR Keeping Nausea at Bay</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/keyword-research/"><u>Keyword Research</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-netgear-nighthawk-x4-mesh-wireless-networking-solution/"><u>Review of the Netgear Nighthawk X4 Mesh Wireless Networking Solution</u></a></li>
+<li><a href="https://extra-support.techidaily.com/smooth-operation-seamless-addition-of-linktree-to-tiktok-bios-for-2024/"><u>Smooth Operation Seamless Addition of Linktree to TikTok Bios for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/unleash-call-record-potential-essential-free-and-paid-tactics-for-skype-on-computers/"><u>Unleash Call Record Potential - Essential Free & Paid Tactics for Skype on Computers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unlocking-the-power-of-videos-to-drive-fb-traffic-for-2024/"><u>Unlocking the Power of Videos to Drive FB Traffic for 2024</u></a></li>
 </ul></div>
 

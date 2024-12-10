@@ -1,7 +1,7 @@
 ---
 title: Comprehensive TP-Link Archer C80 Analysis - Top Under $100 Routers
-date: 2024-12-03T01:55:51.241Z
-updated: 2024-12-03T17:59:12.146Z
+date: 2024-12-04T18:23:11.675Z
+updated: 2024-12-10T16:49:03.409Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive TP-Link Archer C80 Analysis - Top Under $100 Routers
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/hnfn1HKm08TJxpBixlaHeqOfiug=/400x300/fi
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/6eJwPC0xPwMxCh4aQhG73X9dkzU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -51,7 +47,7 @@ Lifewire / Erika Rawes
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -76,7 +72,7 @@ Lifewire / Erika Rawes
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Reversible faux wood finish**
@@ -90,7 +86,7 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -113,6 +109,10 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Range: Could be better**
 
  My test home is in a rural area, and there’s a lot of tree cover on the property. The omnidirectional Antop AT-127 has a 40-mile range, which was enough to pick up local channels from neighboring cities.
@@ -130,7 +130,7 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
@@ -174,16 +174,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-advanced-tricks-for-ios-screenshots-just-got-updated/"><u>[New] Advanced Tricks for iOS Screenshots - Just Got Updated</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-crafting-success-the-premier-list-of-ai-namesmiths/"><u>[New] Crafting Success The Premier List of AI Namesmiths</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/best-motorola-moto-e13-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Motorola Moto E13 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-reviews-on-the-netgear-nighthawk-x6-range-expander-unveiling-its-highlights-and-features/"><u>Expert Reviews on the Netgear Nighthawk X6 Range Expander – Unveiling Its Highlights and Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-brilliance-of-huawei-p20-pro-a-balanced-blend-of-fantastic-camera-and-solid-performance/"><u>Exploring the Brilliance of Huawei P20 Pro: A Balanced Blend of Fantastic Camera and Solid Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/garmin-forerunner-265-gps-watch-reviewed-pros-cons-and-performance/"><u>Garmin Forerunner 265 GPS Watch Reviewed: Pros, Cons & Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/google-maps-app-assessment-for-iphones-features-usability-and-performance-insights/"><u>Google Maps App Assessment for iPhones: Features, Usability & Performance Insights</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-lava-yuva-3-pro-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Lava Yuva 3 Pro to New Android? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-vivo-y78plus-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Vivo Y78+ Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/in-depth-look-at-the-lg-k51-when-elegant-exterior-meets-lagging-processing-power/"><u>In-Depth Look at the LG K51: When Elegant Exterior Meets Lagging Processing Power</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-crafting-compelling-lower-thirds-fcpx-essentials/"><u>New 2024 Approved Crafting Compelling Lower Thirds FCPX Essentials</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-speaking-through-screens-effective-communication-on-youtube/"><u>[New] 2024 Approved Speaking Through Screens Effective Communication on YouTube</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-screenflow-mastery-on-macos-uncovered/"><u>[New] ScreenFlow Mastery on macOS Uncovered</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-saving-smiles-the-ultimate-list-of-twitvid-tools/"><u>[Updated] 2024 Approved Saving Smiles The Ultimate List of TwitVid Tools</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722881003369-ace-those-classes-with-youtube-premiums-exclusive-student-deals/"><u>Ace Those Classes with YouTube Premium's Exclusive Student Deals!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/culinary-carnage-uncovered-a-riveting-overview-of-overcooked-2/"><u>Culinary Carnage Uncovered: A Riveting Overview of Overcooked! 지 2</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-enjoyable-gaming-experiences-with-pokemon-shining-pearl/"><u>Discover Enjoyable Gaming Experiences with Pokemon Shining Pearl</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-unexpected-wonders-of-yokus-island-express-adventure-game/"><u>Exploring the Unexpected Wonders of Yoku's Island Express Adventure Game</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-investing-in-quality-the-path-to-top-tier-fb-video-ads/"><u>In 2024, Investing in Quality The Path to Top-Tier FB Video Ads</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovos-revolutionary-foldable-laptop-the-x1-fold-exploring-its-exceptional-features-and-limitations/"><u>Lenovo's Revolutionary Foldable Laptop - The X1 Fold: Exploring Its Exceptional Features and Limitations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/marvels-avengers-movie-critique-surpassingly-ordinary-or-just-fine/"><u>Marvel's Avengers Movie Critique: Surpassingly Ordinary or Just Fine?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-elegance-and-intelligence-an-essential-review-of-the-samsung-galaxy-watch/"><u>Mastering Elegance and Intelligence - An Essential Review of the Samsung Galaxy Watch</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211375438-9780061748950-papal-magic/"><u>Papal Magic | Free Book</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/snickerscribble-program-for-2024/"><u>SnickerScribble Program for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/systems-daylight-savings-failure-wont-rise/"><u>System's Daylight Savings Failure: Won't Rise</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tablet-vs-e-reader-comparison-ipad-against-kindle-and-nook-devices/"><u>Tablet Vs. E-Reader Comparison: IPad Against Kindle and Nook Devices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/top-20-open-access-free-pubg-montages-for-2024/"><u>Top 20 Open Access, Free PUBG Montages for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/understanding-superior-performance-of-evs-over-traditional-gas-powered-cars/"><u>Understanding Superior Performance of EVs Over Traditional Gas-Powered Cars</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-performance-of-new-imacs-m1-chip-a-comprehensive-review-and-visual-exploration/"><u>Unveiling the Performance of New iMac's M1 Chip - A Comprehensive Review and Visual Exploration</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/what-to-consider-with-googles-password-protection/"><u>What to Consider with Google's Password Protection</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Evaluation of the Lenovo ThinkPad X12 Detachable: A Highly Effective Hybrid and Exceptional Keyboard"
-date: 2024-08-27T11:06:52.887Z
-updated: 2024-08-28T11:06:52.887Z
+date: 2024-12-04T21:28:50.698Z
+updated: 2024-12-10T18:08:20.315Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Evaluation of the Lenovo ThinkPad X12 Detachable: A Highly Effective Hybrid and Exceptional Keyboard"
@@ -40,6 +40,10 @@ Lifewire / Gannon Burgett
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/hOzU-Ut_6g-s5JwzT08s3wa0tSo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4045927-1-625cb1ba7a894cc38db8565dd81072b3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Gannon Burgett
 
 [View On Amazon $969](https://www.amazon.com/dp/B072JW4Z9S/?tag=lifewire-onsite-prod-20&ascsubtag=4689108%7Cn4e541e22b8624c9292b46a113b9d60a708%7CB072JW4Z9S)
@@ -68,9 +72,6 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Beautiful, with room for improvements**
 
  It shouldn’t come as a surprise that the Apple iMac 21.5-inch 4K is a[beautiful machine](https://www.lifewire.com/best-desktop-pcs-4045927) from top to bottom. Before even turning it on, the design of the computer a striking, aluminum-clad body that’s still subtle enough that it will blend in with nearly any office or home environment.
@@ -85,7 +86,15 @@ Lifewire / Gannon Burgett
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/gM_JxuZjDbSUs7DYtXIwUIqqz0Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-3-d30c5f8414e94cbd9b1ec8aea9b18950.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: One plug and you’re good to go**
 
@@ -94,6 +103,10 @@ Lifewire / Gannon Burgett
  Setting up the iMac is as simple as unwrapping it from its protective cover, setting it on the desk, plugging it in with the included power cord, and pressing the power button. As it boots up, we turned on the Magic Keyboard and Magic Mouse 2\. By the time the iMac was to the setup screen — a process that took approximately 60 seconds — the two were already paired with the computer and ready to be used.
 
  Going through the setup process took us approximately five minutes, which included setting up our iCloud account and getting the various login settings in place. We opted to set this up as a new computer, but there’s also the ability to set it up from an Apple Time Capsule backup or transfer content from a PC via USB. The amount of time those options take will vary depending on the device you’re transferring the information from as well as the amount of data being transferred.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Display: Bright, brilliant, and ready to shine**
 
@@ -107,14 +120,12 @@ Lifewire / Gannon Burgett
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/IKZ75jBAosAG3M1Py_-E0ElYAfM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-5-a705ea67b88b4cf694c53e4715a9aceb-f57b3be92a934d8ab579d90728e23fe8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Impressive performance from an all-in-one**
 
  Our particular iMac model for this review was the 3.4GHz quad-core Intel Core i5 iMac with 8GB of RAM and a 1TB Fusion Drive.
@@ -132,17 +143,15 @@ Lifewire / Gannon Burgett
  All-in-all, the iMac seems to punch right at or above its specifications when compared to similar hardware. It’s not going to be pumping out 8K footage, but for basic 4K video editing and image post-processing, the graphics card is more than enough. As for productivity, there’s not much you can throw at the iMac that it can’t handle. The only thing we noticed slowing down the computer was the 8GB of RAM when we had over a dozen applications open, but that can be fixed by upgrading to the 16GB or 32GB model (although it’s not a cheap upgrade).
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Network: Fast and reliable**
 
  The 21.5-inch 4K iMac features both wired and wireless connectivity for internet access. As previously mentioned, the iMac features a Gigabit Ethernet (RJ-45) port on the rear of the computer for a hardwired internet connection. For Wi-Fi, the iMac uses an 802.11ac network adapter with support for IEEE 802.11a/b/g/n.
 
  In our hardwired tests, the iMac maxed out our Gigabit fiber optic internet no problem, with steady download and upload speeds. Wireless connectivity was equally impressive, regardless of whether the iMac was in the same room as the router or a few rooms over. We didn’t notice any drops throughout our tests and both uploading and downloading content was consistent.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## **Camera: Decent built-in option for basic tasks**
 
  The only camera on the 4K iMac is the integrated webcam, which sits dead center above the display. We would’ve liked to see a 1080p or even 4K webcam included, but the 720p resolution is good enough for basic video messaging.
@@ -150,8 +159,9 @@ Lifewire / Gannon Burgett
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/rFu0_k9BjbUxQdoEYOcNGU35LJA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-2-a3d2f38b9509480ba41bbb5b33815d1a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
 ## **Software: Everything you need and nothing more**
@@ -192,9 +202,6 @@ Lifewire / Gannon Burgett
 * [Alienware Aurora R7](https://www.lifewire.com/alienware-aurora-r7-review-4689097)
 * [Lenovo ThinkCentre M720 Tower](https://www.lifewire.com/lenovo-thinkcentre-m720-tower-review-4776238)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  iMac 21.5-inch 4K
@@ -211,14 +218,11 @@ Lifewire / Gannon Burgett
 * Connections  3.5 mm headphone jack, SDXC card slot, Four USB 3 ports (compatible with USB 2), Two Thunderbolt 3 (USB-C) ports, 10/100/1000BASE-T Gigabit
 * What’s in the box  21.5‑inch iMac with Retina 4K display Magic Keyboard Magic Mouse 2 Power cord Lightning to USB Cable
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -227,4 +231,24 @@ Lifewire / Gannon Burgett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-astonishing-critique-and-comparable-products-for-2024/"><u>[New] Astonishing Critique & Comparable Products for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-transition-from-standard-to-intelligent-hdr-imaging/"><u>[New] Transition From Standard to Intelligent HDR Imaging</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-frugal-flight-assemblies-budget-friendly-drones-ranking-for-2024/"><u>[Updated] Frugal Flight Assemblies Budget-Friendly Drones Ranking for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/deciding-between-streaming-giants-roku-vs-fire-tv-stick-features-faceoff-to-help-you-decide/"><u>Deciding Between Streaming Giants: Roku vs Fire TV Stick, Features Faceoff to Help You Decide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhance-visual-comfort-while-reading-or-working-on-digital-screens-prescription-eyeglass-lenses-effectively-block-blue-light/"><u>Enhance Visual Comfort While Reading or Working on Digital Screens: Prescription Eyeglass Lenses Effectively Block Blue Light</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-how-the-fitbit-charge-4-balances-aesthetics-with-effectiveness/"><u>Expert Review: How the Fitbit Charge 4 Balances Aesthetics with Effectiveness</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-latest-geforce-rtx-3060-ti-graphics-card-drivers-free-download-for-windows-11/"><u>Get the Latest GeForce RTX 3060 Ti Graphics Card Drivers [Free Download] for Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-pick-a-lightweight-portable-tablet-a-comprehensive-guide/"><u>How to Pick a Lightweight, Portable Tablet: A Comprehensive Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-harnessing-hues-iphone-low-light-mastery/"><u>In 2024, Harnessing Hues IPhone Low-Light Mastery</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-vyncs-monitoring-software-excellent-capabilities-but-bewildering-payment-schemes/"><u>In-Depth Review of Vyncs Monitoring Software: Excellent Capabilities but Bewildering Payment Schemes</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/integrating-multimedia-elements-for-engaging-facebook-slideshows/"><u>Integrating Multimedia Elements for Engaging Facebook Slideshows</u></a></li>
+<li><a href="https://article-files.techidaily.com/mastering-the-art-of-profile-age-precision-on-tiktok-for-2024/"><u>Mastering the Art of Profile Age Precision on TikTok for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/play-hevc-h-265-on-xiaomi-13t-pro-is-it-possible-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Play HEVC H.265 on Xiaomi 13T Pro, is it possible?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/playstation-5s-lineup-a-showcase-of-unparalleled-gaming-experiences/"><u>PlayStation 5’S Lineup: A Showcase of Unparalleled Gaming Experiences</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-versatile-omnicharge-omni-20-a-comprehensive-guide-to-its-multi-charger-capabilities-and-qi-wireless-features/"><u>Review of the Versatile Omnicharge Omni 20: A Comprehensive Guide to Its Multi-Charger Capabilities & QI Wireless Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-pick-in-depth-analysis-of-the-stylish-silver-55-inch-waterproof-4k-tv-by-sealoc-suited-for-coastal-settings/"><u>Top Pick: In-Depth Analysis of the Stylish Silver, 55-Inch Waterproof 4K TV by Sealoc Suited for Coastal Settings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-8-superior-mobile-adventures-your-ultimate-guide-to-gamification-on-the-go/"><u>Unveiling the 8 Superior Mobile Adventures - Your Ultimate Guide to Gamification On-the-Go</u></a></li>
+</ul></div>
 

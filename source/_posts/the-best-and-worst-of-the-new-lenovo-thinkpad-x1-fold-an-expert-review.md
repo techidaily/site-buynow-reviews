@@ -1,7 +1,7 @@
 ---
 title: The Best and Worst of the New Lenovo ThinkPad X1 Fold - An Expert Review
-date: 2024-08-22T16:24:00.321Z
-updated: 2024-08-23T16:24:00.321Z
+date: 2024-12-09T18:18:58.815Z
+updated: 2024-12-10T20:54:31.027Z
 categories:
   - BestProducts
 description: This Article Describes The Best and Worst of the New Lenovo ThinkPad X1 Fold - An Expert Review
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/AEe-qDWS5Ow23scMyPrW_CUdINM=/400x300/fi
 ## Amazon Echo Dot (4th Gen)
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/keJ5E0aZJqydWO0ehe3iUZ1hYB8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Amazon-Echo-Dot-4th-Generation-1-fc73a047312d4d588ffcbeae7bdd3368.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -68,8 +72,9 @@ Lifewire / Erika Rawes
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/TtbQpfhvpeKgt-Aso1WoKQ6m2VI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-2-89fbd54fb6a14efba195a0094b8d7b6f.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
  As time has passed and Amazon has released newer versions of its Echo Dot speaker, the company has shied away from sharp edges and hard plastic shells in favor of softer designs. You may remember the 2nd-gen model had more of a puck-shape, with a hard plastic shell and more defined edges. The earlier Dots looked more like networking equipment than home devices. However, this changed with the[3rd-Gen Dot](https://www.lifewire.com/echo-dot-3rd-gen-review-4772274#:~:text=The%20Amazon%20Echo%20Dot%20%283rd,Dot%20is%20a%20great%20buy.) , which had an airier feel, slightly rounded edges, and a fabric surround. This made the Dot feel more like a speaker made for the home and less like an office product.
@@ -80,29 +85,28 @@ Lifewire / Erika Rawes
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/HELf_jWdoxnVe1w7XOL9sC7GoO8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-4-f100069b4b7d40dc8661b1614e150934.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
  The 4th Gen Dot still has a 3.5 mm output jack, which I was really pleased to see. Google’s Nest Mini (2nd Gen) lacks a 3.5 mm jack. However, unlike Google’s newest mini smart speaker, the Echo Dot does not have a keyhole mount for mounting on a wall. The speaker is meant for placement on a flat surface, as evidenced by the rubberized bottom that prevents slipping and helps the Echo Dot stay in place.
 
  Overall, I really appreciate the design of the new Dot. Modern and elegant, it fits into my living room, kitchen, or bedroom, as it doesn’t have a cold feel that takes away from the space. The 4th-Gen Dot is made from environmentally conscious materials like post-consumer recycled plastics and fabrics, thus securing it a “Climate Pledge Friendly” tag on Amazon.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Easy as ever**
 
 [Setting up the Echo Dot](https://www.lifewire.com/set-up-amazon-echo-4153561) is simple, especially if you already have the Alexa app downloaded. In the Alexa app, you just go to the devices menu, select on the “+” to add a device, and follow the prompts to add the Echo Dot 4th Gen speaker. The process only takes a moment.
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/dVUkRuy5SxFHmCHXxSseZY5tjhw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-3-320d298cdb18405d9d326c272464ef0d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Sound Quality: A front-firing speaker**
 
  The new Echo Dot has good sound, it’s just not all that much better than the Echo Dot (3rd Gen). When testing speakers, I frequently use the song_Titanium_ by David Guetta featuring Sia because it has a range of low, mid, and high tones. For testing bass, I often use the song_Chains_ by Nick Jonas. The Echo Dot (4th Gen) sounds pretty clear on all volume levels. There is a very slight hiss on the highest volume, but it’s barely noticeable, and it doesn’t take too much away from the listening experience.
@@ -121,6 +125,10 @@ Lifewire / Erika Rawes
 
  The Echo Dot (4th Gen) is powered by[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) . The Alexa voice assistant on the new Echo Dot is the same Alexa that you get on the Echo Dot (3rd Gen). You’ll be able to control your smart devices, listen to music, hear the news, set routines, shop, manage your schedule, and do all of the same things you could do before.[Alexa is always learning new skills](https://www.lifewire.com/alexa-skills-4126799) though. Amazon announced new Alexa features (coming soon) like Care Hub, which is a free feature that lets you check in on loved ones.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Echo Dot (4th Gen) With Clock: A Design Game Changer**
 
  The Echo Dot (4th Gen) comes in two other iterations: The Echo Dot (4th Gen) with Clock and the Echo Dot (4th Gen) Kids Edition. I tested the “with clock” iteration as a part of this review, but I did not test the kids model.
@@ -129,9 +137,6 @@ Lifewire / Erika Rawes
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/bnVMEDjyf8t4zDkpRwr4-5msD2s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-7-with-Clock-9b93a56f3d0049c5a2064cd4b21c7cb5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
  It actually makes a huge difference in the looks of the Dot speaker. The addition of the clock improves the aesthetics big time, making the Dot look less like a speaker and more like a really cool smart clock. Because the Dot is round, it ends up having a large space on the front—almost like a face; it's a perfect home for the clock display.
@@ -139,6 +144,10 @@ Lifewire / Erika Rawes
  The “with clock” version displays the time, and you can turn the display on or off, as well as adjust the brightness. The clock can also display the temperature or work as a stopwatch. In the previous generation, the clock felt like an afterthought. The clock on the new 4th Gen model feels so intentional—it truly improves the design and makes the “with clock” version a much more desirable model in the Echo lineup.
 
  I like the Echo Dot (4th Gen) with Clock better than the regular Echo Dot (4th Gen), as the regular version feels like it’s missing something.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: $60 with clock, $50 without**
 
@@ -148,9 +157,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Amazon Echo Dot (4th Gen) vs. Apple HomePod Mini**
 
  Apple announced the release of its[HomePod](https://www.lifewire.com/apple-homepod-4146975) Mini speaker, and it’s available for sale in November. The Siri-powered HomePod Mini is 3.3 inches tall, and it has a somewhat similar spherical shape to the Echo Dot. The HomePod Mini has a three-mic array, compared to the Dot’s four-mic array. However, the HomePod Mini has Apple’s S5 chip, and it’s in a higher price category at $99.
@@ -161,9 +167,6 @@ Lifewire / Erika Rawes
 
  The new Echo Dot is a great speaker at a great price, but it’s not worth an upgrade if you already have the 3rd-gen Dot unless you’re going with the clock version. For first time buyers, it's a no-brainer.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Echo Dot (4th Gen)
@@ -187,8 +190,6 @@ Lifewire / Erika Rawes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -196,4 +197,24 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-indispensable-top-vr-movie-adventures/"><u>[New] In 2024, Indispensable Top VR Movie Adventures</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-secure-your-preference-with-these-9-leading-websites-offering-3d-typography/"><u>[New] Secure Your Preference With These 9 Leading Websites Offering 3D Typography</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-taking-control-youtube-visibility-personalization/"><u>[New] Taking Control YouTube Visibility Personalization</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-boost-your-social-interaction-skills-with-these-simple-snapchat-steps/"><u>[Updated] Boost Your Social Interaction Skills with These Simple Snapchat Steps</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-boosting-skypes-performance-with-advanced-zoom-functionalities/"><u>2024 Approved Boosting Skype's Performance with Advanced Zoom Functionalities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dysregulated-signaling-pathways-contribute-to-the-development-of-either-osteolytic-or-osteoblastic-metastatic-bone-lesions/"><u>Dysregulated Signaling Pathways Contribute to the Development of Either Osteolytic or Osteoblastic Metastatic Bone Lesions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/getting-up-close-with-the-apple-iphone-15-pro-performance-and-design-evaluation/"><u>Getting Up Close with the Apple iPhone 15 Pro: Performance and Design Evaluation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/how-to-captivate-audiences-in-youtube-live-with-tiny-subscriber-counts-for-2024/"><u>How to Captivate Audiences in YouTube Live with Tiny Subscriber Counts for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-tecno-spark-20-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Tecno Spark 20 to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-the-lenovo-thinkpad-x12-detachable-a-highly-effective-hybrid-and-exceptional-keyboard/"><u>In-Depth Evaluation of the Lenovo ThinkPad X12 Detachable: A Highly Effective Hybrid and Exceptional Keyboard</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-edit-mov-files-for-free-top-10-video-editors/"><u>New Edit MOV Files for Free Top 10 Video Editors</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-7-underappreciated-issues-in-games-on-the-go/"><u>The 7 Underappreciated Issues in Games on the Go</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-unrivaled-power-of-xbox-one-x-a-comprehensive-gaming-console-assessment/"><u>The Unrivaled Power of Xbox One X: A Comprehensive Gaming Console Assessment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-collection-the-7-finest-film-teaser-platforms/"><u>Ultimate Collection: The 7 Finest Film Teaser Platforms</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleash-portable-energy-with-the-poweradd-pilot-pro2-a-comprehensive-charger-guide-for-tech-gadgets/"><u>Unleash Portable Energy with the POWERADD Pilot Pro2 – A Comprehensive Charger Guide for Tech Gadgets</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-pros-and-cons-of-thermaltakes-elite-laptop-cooling-pad-is-it-worth-the-investment/"><u>Unpacking the Pros and Cons of Thermaltake's Elite Laptop Cooling Pad: Is It Worth the Investment?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-totobays-new-wake-up-light-is-your-best-budget-option-full-review-inside/"><u>Why Totobay's New Wake-Up Light Is Your Best Budget Option - Full Review Inside!</u></a></li>
+</ul></div>
 

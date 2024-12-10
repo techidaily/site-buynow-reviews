@@ -1,7 +1,7 @@
 ---
 title: AR-5 Augmented Reality Glasses From ArcShell - Outstanding Functionality at an Attractive Price Point
-date: 2024-11-28T00:46:48.104Z
-updated: 2024-12-03T21:24:21.659Z
+date: 2024-12-05T16:15:30.433Z
+updated: 2024-12-10T18:36:00.851Z
 categories:
   - BestProducts
 description: This Article Describes AR-5 Augmented Reality Glasses From ArcShell - Outstanding Functionality at an Attractive Price Point
@@ -43,13 +43,13 @@ Lifewire / Jeremy Laukkonen
 
 4.3
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Extollo LANSocket 1500 Powerline Adapter
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/KabMCV8f8k1Pxtd-vhM86zkedrw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-HeroSquare-41f20e9c72b84bfd92f578807ae1edaf.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -93,11 +93,11 @@ Lifewire / Jeremy Laukkonen
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/Ahhqweppp7LoE4s2gervkZuyOS8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-04-e086de486a5a4e16ac16cff8ae813b22.jpg)
 
- Lifewire / Jeremy Laukkonen
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Jeremy Laukkonen
 
 ## **Setup Process: Pain-free plug and play**
 
@@ -113,10 +113,6 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Connectivity: MIMO with beamforming**
 
  The Extollo LANSocket 1500 powerline adapters use the HomePlug AV2 specification, which includes support for[multi-in, multi-out (MIMO)](https://www.lifewire.com/mimo-wifi-routers-818332) with beamforming, which increases both speed and the allowable distance between adapters. This is a significant improvement over the HomePlug AV specification, which is slower and requires you to place your adapters more closely together.
@@ -124,6 +120,10 @@ Lifewire / Jeremy Laukkonen
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/B7pek1jOL0gtn-sl7QsuHcO3_CU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-03-04f860db31f049e1a2ecb40196f7aaf7.jpg)
 
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Network Performance: Blazing fast and low latency**
 
@@ -138,7 +138,7 @@ Lifewire / Jeremy Laukkonen
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/s7sBTQQEDT14u1i6nHyeA6O4hEw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-05-d60cab3cba9446c1b398076a39432b70.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
@@ -157,10 +157,6 @@ Lifewire / Jeremy Laukkonen
 
  The embedded Linux distro does open up some security concerns, but they can be mostly erased if you connect through a firewalled router. You can find cheaper options, but the bottom line is that you won’t find a cheaper alternative that provides the same high speed, low latency, video buffering, and pass-through socket that you get with the LANSocket 1500.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Decent price for such good performance**
 
  The Extollo LANSocket 1500 has an MSRP of $90 for a set of two. That places these adapters right in the same general price range as other similar devices. You can find HomePlug AV2 compatible adapters for a little less, but they typically don’t perform quite as well.
@@ -168,7 +164,7 @@ Lifewire / Jeremy Laukkonen
  Since the LANSocket 1500 adapters are so easy to use, and provide such a high level of performance, it’s our judgment that they’re worth the $10 or so premium you’ll typically pay compared to similar competitors.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: Wins on transfer speeds with some security concerns**
@@ -192,6 +188,10 @@ Lifewire / Jeremy Laukkonen
  **Buy this powerline adapter kit, but secure it behind a firewall.**
 
  The Extollo LANSocket 1500 checks all the right boxes, with some of the highest speeds on the market, a pass-through electrical socket, and a decent price. The high speeds and low latency make this kit a good choice if you need to connect a game console, and the extra memory allowed by the use of Linux really helps out if you stream a lot of video, just be wary of security considerations.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -223,22 +223,21 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/eading-software-lineup-8-linux-editing-sleuths/"><u>[New] Leading Software Lineup 8 Linux Editing Sleuths</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-blitz-30-second-guide-to-fast-thumbnails/"><u>[Updated] Blitz 30-Second Guide to Fast Thumbnails</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-effective-call-to-actions-boosting-video-engagement/"><u>[Updated] Effective Call-to-Actions Boosting Video Engagement</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-how-to-fix-obs-not-recording-audio-for-2024/"><u>[Updated] How to Fix OBS Not Recording Audio for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-a-closer-look-at-luminance-and-its-hdr-achievements/"><u>[Updated] In 2024, A Closer Look at Luminance and Its HDR Achievements</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-new-imac-a-visual-and-powerful-upgrade-with-the-m1-processor/"><u>Comprehensive Review of the New iMac: A Visual and Powerful Upgrade with the M1 Processor</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-sony-xperia-5-tiny-yet-towering-in-quality-with-a-premium-price/"><u>Comprehensive Review of the Sony Xperia 5 - Tiny Yet Towering in Quality with a Premium Price</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/deciding-between-apples-iphone-and-samsung-devices-pros-cons-and-recommendations/"><u>Deciding Between Apple's iPhone and Samsung Devices – Pros, Cons & Recommendations</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-fastest-most-reliable-usb-drives-on-the-market-2024-edition/"><u>Discover the Fastest, Most Reliable USB Drives on the Market - 2024 Edition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-why-the-budget-friendly-samsung-galaxy-a20-continues-to-impress-in-todays-market/"><u>Discover Why the Budget-Friendly Samsung Galaxy A20 Continues to Impress in Today's Market</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dive-into-the-benefits-that-make-walmartplus-worth-it/"><u>Dive Into the Benefits That Make Walmart+ Worth It</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dominion-in-the-classical-world-mastering-strategy-with-imperator-rome/"><u>Dominion in the Classical World: Mastering Strategy with Imperator: Rome</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/eero-pro-mesh-wi-fi-system-review/"><u>Eero Pro Mesh Wi-Fi System Review</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/evaluating-xbox-series-ss-stellar-hardware-and-compact-design-for-gamers/"><u>Evaluating Xbox Series S's Stellar Hardware & Compact Design for Gamers</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Xiaomi Redmi 13C | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/samsungs-galaxy-ai-growth-dominates-as-google-faces-antitrust-challenges-in-latest-tech-rankings-insight/"><u>Samsung’s Galaxy AI Growth Dominates as Google Faces Antitrust Challenges in Latest Tech Rankings - Insight</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/staying-competitive-the-continued-performance-of-dual-core-intel-processors-on-benchmarks/"><u>Staying Competitive: The Continued Performance of Dual-Core Intel Processors on Benchmarks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-top-strategies-to-shoot-a-flawless-green-screen-scene/"><u>[Updated] Top Strategies to Shoot a Flawless Green Screen Scene</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-wrapping-up-with-impactful-endings/"><u>[Updated] Wrapping Up with Impactful Endings</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1-effective-techniques-for-effortless-movie-score-retrieval/"><u>1. Effective Techniques for Effortless Movie Score Retrieval</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-mp4-and-webm-creation-from-social-media-videos/"><u>2024 Approved MP4 and WebM Creation From Social Media Videos</u></a></li>
+<li><a href="https://techtrends.techidaily.com/anticipating-the-next-big-apple-announcement-essential-info-you-need-to-know/"><u>Anticipating the Next Big Apple Announcement – Essential Info You Need to Know</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/budget-friendly-twit-to-gif-guide-for-2024/"><u>Budget-Friendly Twit-to-GIF Guide for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/converting-mac-image-types-a-step-by-step-process/"><u>Converting Mac Image Types A Step-by-Step Process</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhancing-your-blog-revenue-using-buysellads-promotion-services/"><u>Enhancing Your Blog Revenue Using BuySellAds Promotion Services</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/ensuring-total-privacy-methods-to-completely-erase-your-iphone-data-permanently-with-the-help-of-stellar/"><u>Ensuring Total Privacy: Methods to Completely Erase Your iPhone Data Permanently with the Help of Stellar</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-xiaomi-civi-3-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Xiaomi Civi 3 Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-tp-link-archer-ax6000-worth-upgrading-from-a-netgear-nighthawk-ax12/"><u>Is the TP-Link Archer AX6000 Worth Upgrading From a NETGEAR Nighthawk AX12?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/motorola-edgeplus-analysis-not-quite-a-top-tier-contender/"><u>Motorola Edge+ Analysis: Not Quite a Top-Tier Contender</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-through-signal-clarity-a-detailed-examination-of-the-affordable-and-powerful-onebyone-amplified-indoor-tv-antenna/"><u>Navigating Through Signal Clarity: A Detailed Examination of the Affordable and Powerful Onebyone Amplified Indoor TV Antenna</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sennheiser-uc-bridging-the-distance-smoothly/"><u>Sennheiser UC: Bridging the Distance Smoothly</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smart-escort-ix-examination-a-radar-detector-adapting-to-your-driving-habits/"><u>Smart Escort iX Examination: A Radar Detector Adapting to Your Driving Habits</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-selection-of-best-in-class-netgear-routers-2024-edition/"><u>The Ultimate Selection of Best-in-Class Netgear Routers, 2024 Edition</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Jaco SmartPro Digital Tire Inflator Review
-date: 2024-08-22T16:25:07.590Z
-updated: 2024-08-23T16:25:07.590Z
+date: 2024-12-05T16:53:58.343Z
+updated: 2024-12-10T16:58:16.660Z
 categories:
   - BestProducts
 description: This Article Describes Jaco SmartPro Digital Tire Inflator Review
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/o1okyGjx4BQeRIcTbf35W31RRAY=/400x300/fi
 ## Experts' Take on the Jaco SmartPro: Ultimate Compact and Robust Tire Inflator Reviewed
 
 4.9
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Jaco SmartPro Digital Tire Inflator Pump
 
@@ -38,9 +42,17 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.9
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Jaco SmartPro Digital Tire Inflator Pump
 
 ![Jaco SmartPro Digital Tire Inflator](https://www.lifewire.com/thmb/fTLjCd9CqbSCdmXD-XxJjBhyfSw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/JacoTireInflator_HeroSquare-3363a32b2cad4c91b4662ed6f6a93ce1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -65,8 +77,9 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design and Features: Simple, compact, intuitive**
 
  At just 7.5 inches wide, 2.5 inches tall and 6 inches long, this is the smallest, most compact portable tire inflator we tested. When it’s in its carrying case, it only weighs 2 pounds, 31 ounces. Even small children should be able to carry it. If you need a portable tire inflator but don't have a lot of space, this pump is exactly what you want.
@@ -91,9 +104,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process: Up and running in less than three minutes**
 
  Jaco provides a brief, but informative user manual tucked in the carrying case. Despite how intuitive this pump is to use, you should take five minutes to read the whole thing. During testing, we timed how long it takes to get out of your driver’s seat, retrieve the pump from the trunk, connect it to power, attach it to an under-inflated tire, set the pressure and start the pump. On average, the whole process took about 1 minute, 30 seconds.
@@ -102,9 +112,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Performance: Reliable across the highways of America**
 
  In order to recreate the situations that you’re most likely to use a portable tire inflator, we took the models we tested on a long road trip through the states of Nevada, Utah, and Wyoming. When we stopped at rural rest areas and gas stations along the way, we deflated the tires on our car to 20 PSI—the point where they are dangerously low to drive on.
@@ -119,18 +126,12 @@ Lifewire / Jeffrey Daniel Chadwick
 
  That also shouldn’t be an issue because the pump automatically cycles down after 30 minutes of continuous use, and you’ll have to wait until it cools down to use it again. This shouldn't be a problem, since you can conceivably fill all four of your car’s tires in under 10 minutes. You’d have to inflate something exceptionally large to run this pump for that long.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: On the expensive end, but worth it for the peace of mind**
 
  With a list price of $90, this is the most expensive portable tire inflator we tested, but it’s typically on sale for half the price. That makes it more reasonable, especially if you need a portable compressor but are really tight on space. Or if you want to ensure maximum safety and visibility at night. But it certainly isn’t a budget model like the Audew Portable Air Compressor Pump.
 
  It’s impossible to predict how long a product will last after just a few days or using it, however, the warranty period is a good indicator of the long-term durability. Jaco offers a lifetime warranty on this compressor, so it should last a really long time, or at least until you forget it’s still under warranty.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Jaco SmartPro Digital Tire Inflator vs. Kensun Portable Tire Inflator**
 
  We tested this the SmartPro Digital Tire Inflator side-by-side with the Kensun Portable Tire Inflator. Although the Kensun is about twice as large as the Jaco, they’re designed to do the same thing. For example, they both draw power from your car’s 12V socket, but if you want to get away from your car, the Kensun comes with an AC power cord that you can plug into a wall socket. This makes the Kensun a much more versatile pump. And while the built-in light on the Kensun provides great illumination at night, it lacks the hazard and emergency lights you get with Jaco.
@@ -144,17 +145,9 @@ Lifewire / Jeffrey Daniel Chadwick
  The Jaco SmartPro Digital Tire Inflator is a great addition to the jumper cables and triangle reflectors in your trunk. Its focus on safety, portability, and accuracy makes it very attractive for people looking to be prepared, and you can usually find it on sale for a reasonable price.
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  SmartPro Digital Tire Inflator Pump
@@ -172,8 +165,6 @@ Lifewire / Jeffrey Daniel Chadwick
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -181,4 +172,19 @@ Lifewire / Jeffrey Daniel Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-craft-a-richer-user-experience-in-windows-photos-with-music-and-aesthetic-filters/"><u>[New] 2024 Approved Craft a Richer User Experience in Windows Photos with Music and Aesthetic Filters</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-ultimate-facebook-video-players-list/"><u>[New] 2024 Approved The Ultimate Facebook Video Players List</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/best-ios-video-editing-cameo-vs-filmorago-for-2024/"><u>Best iOS Video Editing Cameo Vs. FilmoraGo for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/high-performance-meets-low-price-a-comprehensive-look-at-the-topmate-c302-cooling-pad-solution/"><u>High Performance Meets Low Price: A Comprehensive Look at the TopMate C30^2 Cooling Pad Solution</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/how-to-use-your-switch-pro-controller-on-steam/"><u>How to Use Your Switch Pro Controller on Steam</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-the-cat-s42-phone-review-topnotch-durability-meets-below-average-speed/"><u>Inside the CAT S42 Phone Review: Topnotch Durability Meets Below-Average Speed</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/maximize-your-gaming-experience-with-kinemaster-and-its-top-competitors-reviewed-for-2024/"><u>Maximize Your Gaming Experience with KineMaster and Its Top Competitors Reviewed for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-your-network-in-depth-review-of-netgear-nighthawk-x10-ad7200-high-speed-wifi-experience/"><u>Maximize Your Network: In-Depth Review of Netgear Nighthawk X10 (AD7200) High-Speed WiFi Experience</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-elite-set-selecting-the-best-gaming-streamers-webcams-for-2024/"><u>The Elite Set Selecting the Best Gaming Streamers Webcams for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-external-blu-ray-players-and-burners-2024-edition/"><u>Top Rated External Blu-Ray Players & Burners - 2024 Edition</u></a></li>
+<li><a href="https://win-docs.techidaily.com/understanding-indexability-key-definitions-and-seo-strategies-with-powersuite-insights/"><u>Understanding Indexability: Key Definitions and SEO Strategies with PowerSuite Insights</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Xiaomi 14 | Dr.fone</u></a></li>
+</ul></div>
 

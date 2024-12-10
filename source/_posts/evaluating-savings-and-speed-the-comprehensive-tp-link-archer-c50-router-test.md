@@ -1,7 +1,7 @@
 ---
 title: "Evaluating Savings and Speed: The Comprehensive TP-Link Archer C50 Router Test"
-date: 2024-11-26T18:01:31.616Z
-updated: 2024-12-03T21:19:08.687Z
+date: 2024-12-08T21:01:19.549Z
+updated: 2024-12-10T18:18:11.118Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating Savings and Speed: The Comprehensive TP-Link Archer C50 Router Test"
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/bb71352b27a9f0530f59cc2c36b568ff3e277e8a2
 
 ![Max Oak](https://www.lifewire.com/thmb/CeiJTW7zTopZdtR_zhtXz9_P-Mw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Gannon Burgett
 
  What We Like
@@ -41,6 +45,10 @@ Lifewire / Gannon Burgett
 [View On Amazon $91](https://www.amazon.com/dp/B00YP823NA?tag=lifewire-onsite-prod-20&ascsubtag=4589398%7Cn970af9c77c9d48e5afeadf350862a65723%7CB00YP823NA)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
@@ -74,10 +82,6 @@ Lifewire / Gannon Burgett
 
 ![Max Oak](https://www.lifewire.com/thmb/SHsB9QkFaBbOrU6sw55TzNOqC7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_4Web-5c8ff4adc9e77c0001ff0b36.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Gannon Burgett
 
  As for the materials, the metal enclosure and place ends give it a fairly solid feel, but the metal doesn't sit perfectly flush with the plastic ends, at least not in our model. It could be a one-off quality control issue or it might simply be the way in which the charger is constructed, but it's definitely noticeable.
@@ -95,7 +99,7 @@ Lifewire / Gannon Burgett
  The point of a charger is to have extra battery power on hand when needed so you don't have to carry around unnecessary cables when traveling. Unfortunately, the MaxOak battery pack doesn't use any kind of USB or standardized port. Rather than charging it with a[USB Type-C](https://www.lifewire.com/usb-c-4149490) or even a micro-USB port, the MaxOak battery pack relies on its own proprietary power supply that's nearly as large as most laptop chargers. Sure, the 50000mAh onboard is likely enough that you could leave both the battery pack charger and your laptop charger behind for most events, but eventually you'll run out of juice and rather than reaching for a cable you would probably already have in your bag, you're stuck bringing along a proprietary charger.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Charging Speed and Battery: Slow and steady wins this race**
@@ -116,17 +120,9 @@ Lifewire / Gannon Burgett
 
  Moving onto laptops, our ASUS X555LA was able to be charged four and a half times from 0% with the MaxOak power bank, with an average charge time of three hours or so. The ASUS X555LA has a relatively small battery compared to most laptops, which means it falls in line with MaxOak’s claims that its power bank can charge a laptop two times over give or take a little.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Right down the middle**
 
  The MaxOak 50000mAh power bank comes in at $135.99 at the time of this review. This is a reasonable price when taking into consideration how much battery capacity you're getting with it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: One in the same**
 
@@ -144,6 +140,10 @@ Lifewire / Gannon Burgett
 
  Overall, the MaxOak 50000mAh is a decent power bank with massive capacity. However, it isn't designed with newer computers and devices in mind. If you have an older laptop on hand that isn't a MacBook (the MaxOak doesn't support any MagSafe connectors) or doesn't use USB Type-C for charging, it'll get the job done. But if your smartphone or laptop is newer and relies on more recent and powerful connections, you're going to want to look elsewhere.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Jackery PowerBar Battery Pack](https://www.lifewire.com/jackery-powerbar-battery-pack-review-4589480)
@@ -151,7 +151,7 @@ Lifewire / Gannon Burgett
 * [Anker PowerCore+ 26800 Battery Pack Bundle](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -184,18 +184,24 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-expert-strategies-for-fbx-filming-in-video-games/"><u>[New] In 2024, Expert Strategies for FBX Filming in Video Games</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-understanding-facebooks-chat-language-through-its-blue-signature-marker-for-2024/"><u>[New] Understanding Facebook's Chat Language Through Its Blue Signature Marker for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-belly-laughs-ledger-no-fee-funny-templates/"><u>[Updated] Belly Laughs Ledger No-Fee Funny Templates</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-tech-on-the-go-amazon-fire-hd-8-8th-gen-features-and-value-insights/"><u>Affordable Tech on the Go: Amazon Fire HD 8 (8Th Gen) Features and Value Insights.</u></a></li>
-<li><a href="https://article-helps.techidaily.com/cropped-frames-in-media-pro-whats-the-cause/"><u>Cropped Frames in Media Pro What's the Cause?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722707245661-ddpai-mini3-revealed-how-this-dashcam-is-shaking-up-the-norm-with-fun/"><u>DDpai Mini3 Revealed: How This Dashcam Is Shaking Up the Norm with Fun!</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-a-clear-view-ahead-how-to-pick-your-ideal-4k-monitor-wisely/"><u>In 2024, A Clear View Ahead How to Pick Your Ideal 4K Monitor Wisely</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-troubleshooting-error-connecting-to-the-apple-id-server-from-apple-iphone-14-pro-by-drfone-ios/"><u>In 2024, Troubleshooting Error Connecting to the Apple ID Server From Apple iPhone 14 Pro</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/revamp-your-gaming-experience-5-easy-fixes-for-crashing-in-wow-sea-battles-on-pc/"><u>Revamp Your Gaming Experience: 5 Easy Fixes for 'Crashing' In WoW Sea Battles on PC</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-2024s-premier-video-game-platforms-unveiled/"><u>Ultimate Selection: 2024'S Premier Video Game Platforms Unveiled!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-nikons-waterproof-affordable-photography-companion/"><u>Unveiling Nikon's Waterproof, Affordable Photography Companion</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/what-to-consider-before-you-buy-an-unlocked-smartphone/"><u>What to Consider Before You Buy an Unlocked Smartphone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-the-linksys-ac1900-is-the-ultimate-wi-fi-solution-for-users-of-all-levels/"><u>Why the Linksys AC1900 Is the Ultimate Wi-Fi Solution for Users of All Levels</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-ultimate-guide-to-eradicate-green-screen-from-mac-produced-videos/"><u>[Updated] 2024 Approved The Ultimate Guide to Eradicate Green Screen From Mac-Produced Videos</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-unleash-creativity-with-android-and-iphones-top-free-layering-apps/"><u>[Updated] Unleash Creativity with Android & iPhone's Top FREE Layering Apps</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-vivo-t2-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Vivo T2 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cities-skylines-review-an-addictive-city-builder/"><u>Cities: Skylines Review: An Addictive City-Builder</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discovering-the-future-the-top-features-of-ios-18-showcased-at-wwdc-2024-and-how-ai-is-shaping-it-zdnet/"><u>Discovering the Future: The Top Features of iOS 18 Showcased at WWDC 2024 and How AI Is Shaping It | ZDNET</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-the-power-of-the-latest-samsung-galaxy-s24-ultra-model/"><u>Discovering the Power of the Latest Samsung Galaxy S24 Ultra Model</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-elevation-tripod-capture-from-anywhere/"><u>Expert Elevation Tripod: Capture From Anywhere</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-to-engage-with-openais-security-rewards-a-guide-to-their-bug-bounty-program/"><u>How to Engage with OpenAI's Security Rewards: A Guide to Their Bug Bounty Program</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-the-art-of-shopping-for-oculus-quest2-vr-games-a-comprehensive-guide/"><u>Mastering the Art of Shopping for Oculus Quest^2 VR Games: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-hewlett-packard-budget-notebook-with-amd-cpu-effective-workstation-or-just-a-bargain-bin-find/"><u>Review of the Hewlett-Packard Budget Notebook with AMD CPU: Effective Workstation or Just a Bargain Bin Find?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/seamless-movements-and-reliable-connections-discover-the-power-of-sabrents-premium-travel-mouse/"><u>Seamless Movements and Reliable Connections - Discover the Power of Sabrent's Premium Travel Mouse</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/secure-and-savvy-why-the-fintie-case-is-your-best-bet-for-macbook-pro-13-defense-check-out-our-review/"><u>Secure and Savvy: Why the Fintie Case Is Your Best Bet for MacBook Pro 13 Defense Check Out Our Review!</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-art-of-memory-in-ai-how-to-retrieve-and-revive-lost-chatgpt-history/"><u>The Art of Memory in AI: How to Retrieve and Revive Lost ChatGPT History</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-benefits-and-limitations-a-comprehensive-review-of-webex-as-an-online-meeting-platform/"><u>The Benefits and Limitations: A Comprehensive Review of Webex as an Online Meeting Platform</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-future-is-here-diving-into-the-review-of-chromecasts-latest-upgrade-google-tv-vs-firetv/"><u>The Future Is Here: Diving Into the Review of Chromecast's Latest Upgrade, Google TV Vs. FireTV</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-perfect-blend-of-tech-and-fashion-why-i-love-my-apple-watch-ultra-2-plus-get-an-extra-100-off-this-labor-day/"><u>The Perfect Blend of Tech & Fashion: Why I Love My Apple Watch Ultra 2 - Plus, Get an Extra $100 Off This Labor Day!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-15-best-no-cost-uninstaller-programs-you-should-know-about/"><u>Top 15 Best No Cost Uninstaller Programs You Should Know About</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-5-best-video-converters-for-macos-sierra-for-2024/"><u>Top 5 Best Video Converters for macOS Sierra for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-indoor-hobby-syma-s111g-rc-helicopter-unveiled/"><u>Top Rated Indoor Hobby - Syma S111G RC Helicopter Unveiled</u></a></li>
 </ul></div>
 

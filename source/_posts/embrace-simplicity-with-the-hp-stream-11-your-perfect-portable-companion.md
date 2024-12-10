@@ -1,7 +1,7 @@
 ---
 title: Embrace Simplicity with the HP Stream 11 - Your Perfect Portable Companion
-date: 2024-08-22T16:23:48.375Z
-updated: 2024-08-23T16:23:48.375Z
+date: 2024-12-04T21:20:23.275Z
+updated: 2024-12-10T19:49:22.904Z
 categories:
   - BestProducts
 description: This Article Describes Embrace Simplicity with the HP Stream 11 - Your Perfect Portable Companion
@@ -13,9 +13,17 @@ thumbnail: https://www.lifewire.com/thmb/YP-_HwnGcSH5SBllWXQ49ty0-2U=/400x300/fi
 
 4.4
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Clearstream ECLIPSE
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/C1hoQetKMx7bAHqwsQ9gt0Fz_S0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -39,6 +47,10 @@ Lifewire / Jonno Hill
 ## Clearstream ECLIPSE
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/0gXsFyigpZzsnNAEj3tIrKImB8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -66,15 +78,17 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Inoffensive but unexceptional**
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup: Simple and easy**
 
  The ClearStream Eclipse Antenna has the simplest setup of all the HDTV antennas I’ve tested. There is no mounting hardware, no power adapter, and nothing else to worry about. The antenna comes with a strip of adhesive that can be used to affix it directly to a wall or other preferred surface.
@@ -87,23 +101,14 @@ Lifewire / Jonno Hill
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## **Range: Fair to middling**
 
  Antenna’s Direct rates the ClearStream Eclipse Antenna for up to 35 miles of range, although I’ve seen reports of people getting good results from further, or having trouble from much closer. My apartment is well within the supported range, so my sentiments reflect its use in city settings more than suburbs or exurbs.
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
@@ -118,9 +123,6 @@ Lifewire / Jonno Hill
 
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  ECLIPSE
@@ -133,14 +135,11 @@ Lifewire / Jonno Hill
 * Range  35 miles
 * Warranty  Lifetime parts
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -149,4 +148,22 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-expert-chosen-speeds-modifying-tools-pc-phone/"><u>[New] 2024 Approved Expert-Chosen Speeds Modifying Tools (PC, Phone)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-studio-techniques-decoded-xvideostudio-edition/"><u>[New] Studio Techniques Decoded XVideoStudio Edition</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-insta-flip-fundamentals-understanding-video-angles-for-max-impact/"><u>[Updated] 2024 Approved Insta-Flip Fundamentals Understanding Video Angles for Max Impact</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-inspiring-movies-to-ignite-your-inner-strength/"><u>2024 Approved Inspiring Movies to Ignite Your Inner Strength</u></a></li>
+<li><a href="https://fox-links.techidaily.com/a-list-ringtone-picks-for-adoring-tyrion-lannister-fans-for-2024/"><u>A-List Ringtone Picks for Adoring Tyrion Lannister Fans for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-latest-iphone-12-top-pick-from-apple/"><u>Comprehensive Analysis of the Latest iPhone 12 - Top Pick From Apple</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-super-fast-charges-in-jabras-v25/"><u>Discovering Super-Fast Charges in Jabra's V25</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/evaluating-chatgpt-plus-find-out-why-these-5-points-make-it-a-must-have-service/"><u>Evaluating ChatGPT Plus - Find Out Why These 5 Points Make It a Must-Have Service!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-photo-edits-with-gimp-in-depth-analysis-for-free-software-on-all-platforms/"><u>Mastering Photo Edits with GIMP: In-Depth Analysis for Free Software on All Platforms</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/portable-performance-exploring-the-features-of-the-raspberry-pi-400-mini-pc/"><u>Portable Performance: Exploring the Features of the Raspberry Pi 400 Mini PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/practical-walkthrough-for-implementing-arlos-protective-solutions/"><u>Practical Walkthrough for Implementing Arlo's Protective Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/provoking-the-giants-a-detailed-comparison-between-iphone-15-and-pro-max-features/"><u>Provoking the Giants: A Detailed Comparison Between iPhone 15 and Pro Max Features</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolving-geforce-experience-errors-a-complete-guide/"><u>Resolving GeForce Experience Errors: A Complete Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/save-big-with-premium-acer-offers-during-2024s-exclusive-prime-day-sale/"><u>Save Big with Premium Acer Offers During 2024'S Exclusive Prime Day Sale!</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlocking-iphone-7-plus-passcode-without-a-computer-drfone-by-drfone-ios/"><u>Unlocking iPhone 7 Plus Passcode without a Computer | Dr.fone</u></a></li>
+</ul></div>
 

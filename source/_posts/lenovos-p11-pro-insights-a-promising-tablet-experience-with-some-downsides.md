@@ -1,7 +1,7 @@
 ---
 title: Lenovo's P11 Pro Insights - A Promising Tablet Experience With Some Downsides
-date: 2024-11-27T05:23:55.799Z
-updated: 2024-12-03T17:39:39.740Z
+date: 2024-12-05T18:37:02.962Z
+updated: 2024-12-10T16:55:43.707Z
 categories:
   - BestProducts
 description: This Article Describes Lenovo's P11 Pro Insights - A Promising Tablet Experience With Some Downsides
@@ -45,10 +45,6 @@ Lifewire / Emily Isaacs
 
 4.9
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## LG OLED C9 65" 4K Smart TV
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/-RQ5Ui3BjE0KxHGHYE-UjNz7EY4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_HeroSquare-b4b1522941d44a18b75a586155788477.jpg)
@@ -91,14 +87,10 @@ Lifewire / Emily Isaacs
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/mxKfDJGuIKYcsSIQoKfzwDbYYmg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_02-3da87ff8439343f691cf02e9234d1f04.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Do it yourself worthy, but you’ll need a hand**
@@ -116,7 +108,7 @@ Lifewire / Emily Isaacs
  Once the TV has been installed, LG’s WebOS guides the first-time setup process by prompting inputs for settings ranging from time zone and language up to and including any necessary user agreements. The LG C9 will complete a scan in order to identify the devices and then you’re free to customize the TV’s settings by pressing the gear button on the LG Magic Remote. The first setting we changed was the Auto Power Saving (APS) picture mode, which reduces power use by dimming the brightness of the TV. The other important setting to disable is TruMotion, which smooths motion in TV shows and movies by altering the frame rate of the programming. If your LG’s picture looks a bit too much like a soap opera, chances are you need to disable this setting.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Image Quality: Stunning picture**
@@ -129,6 +121,10 @@ Lifewire / Emily Isaacs
 
  These pictures are further enhanced with LG’s α9 Gen 2 intelligent processor, new to 2019’s model. It excels at drawing out detail and correcting quality discrepancies within the picture, such as banding which creates textures and strips in areas of the screen that would otherwise be smooth. This is particularly important given the large screen size and high resolution. While it’s not as bright as an LED TV since it lacks backlighting, it doesn’t need it as the TV already possesses excellent color, a change here would risk washing out the inky blacks on the screen.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Audio: Better than expected**
 
  While OLED TVs aren’t generally known for their great sound quality, the LG C9 has a surprisingly good sound system all things considered—but a soundbar would still be recommended. Audio in TV or movies is generally good, but it struggles to regulate loud and soft noises in a scene. Streaming Lizzo’s_Cuz I Love You_ on Spotify produces a surprising depth of sound, but it’s simply not comparable to a more robust system that a soundbar or home theater system would provide.
@@ -137,6 +133,10 @@ Lifewire / Emily Isaacs
 
 Lifewire / Emily Isaacs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: Smooth and easy to use**
 
  As with earlier models, the LG WebOS powers the C9\. It’s a user-friendly interface that makes navigating the TV incredibly smooth, enabling you to switch between apps and features built into the[smart TV](https://www.lifewire.com/best-smart-tvs-4135681) with ease. Meanwhile, the LG Magic Remote can function as a traditional remote control, as a mouse would for a computer screen, or issue voice commands with Google Assistant and Alexa, making navigating the menus second nature. While most major streaming services are already included (Hulu, Netflix, Amazon Prime, Google Play Movies & TV, to name a few) it’s also possible to download additional apps through the LG store. The drawback to the store, however, is that the apps are somewhat limited in availability.
@@ -144,6 +144,10 @@ Lifewire / Emily Isaacs
  In addition to the WebOS software, the LG C9 also comes with[Google Assistant](https://www.lifewire.com/what-is-google-assistant-4120911) as well as[Amazon’s Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) . It makes it easy to search content, switch between apps and features, or check the weather, among other things. These controls extend into your home as well, enabling you to make use of any basic home control features already in place like updating the temperature on your Nest Smart Thermostat. You simply choose which assistant you want at a given time by pressing either the Amazon button on the Magic Remote to toggle Alexa or the microphone button to toggle Google Assistant.
 
  In addition to the WebOS software, the LG C9 also comes with Google Assistant as well as Amazon’s Alexa. It makes it easy to search content, switch between apps and features, or check the weather, among other things.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: A premium price for a premium TV**
 
@@ -170,10 +174,6 @@ Lifewire / Emily Isaacs
  **An excellent TV you shouldn’t hesitate to buy if you value ease of use and superb image quality.**
 
  With its excellent smart features, gorgeous 4K image quality, and an easy-to-use interface, LG has only improved on last year’s model with the LG OLED C9\. That said, these improvements aren’t significant leaps, mainly coming from processor improvements and the addition of HDMI 2.1 ports. If you’re simply looking for the best TV from last year and price isn’t a consideration, look no further. On the other hand, there are other great 65-inch 4K TV models that may not have all the extra features the C9 does, but do have comparable quality without breaking the bank.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -216,18 +216,18 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-the-latest-from-samsung-galaxy-tab-s6-reviewed-for-its-advanced-s-pen-features-and-dex-mode/"><u>A Closer Look at the Latest From Samsung - Galaxy Tab S6 Reviewed for Its Advanced S Pen Features and DeX Mode</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On ZTE Axon 40 Lite | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-practical-measures-for-capturing-vimeo-videos/"><u>In 2024, Practical Measures for Capturing Vimeo Videos</u></a></li>
-<li><a href="https://win-outstanding.techidaily.com/mastering-your-pcs-configuration-essential-tips-from-the-windows-control-panel-yl-software-insights/"><u>Mastering Your PC's Configuration: Essential Tips From the Windows Control Panel - YL Software Insights</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1726029185253-mp3/"><u>MP3へのインスタグラム動画変換ガイド: 簡単な手順</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/uninterrupted-boosted-bass-exploring-the-wonders-of-ion-audio-tailgater-plus/"><u>Uninterrupted, Boosted Bass: Exploring the Wonders of ION Audio Tailgater Plus</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unlocking-potential-the-best-6-for-nft-artistry-for-2024/"><u>Unlocking Potential The Best 6 for NFT Artistry for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-samsung-galaxy-s10e-premium-performance-at-a-smaller-scale-and-lower-cost/"><u>Unpacking The Samsung Galaxy S10e: Premium Performance at a Smaller Scale and Lower Cost</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-success-of-rayman-legends-the-ultimate-2d-platformer-reviewed/"><u>Unpacking the Success of Rayman Legends - The Ultimate 2D Platformer Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-benefits-a-complete-review-of-the-toshiba-55lf7nu20-the-ideal-fire-tv-edition-set-for-your-amazon-prime-library/"><u>Unveiling the Benefits: A Complete Review of the Toshiba 55LF7nU20, The Ideal Fire TV Edition Set for Your Amazon Prime Library</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-the-ultimate-guide-to-mac-green-screen-software-solutions-for-2024/"><u>Updated The Ultimate Guide to Mac Green Screen Software Solutions for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-the-samsung-galaxy-tab-se-is-a-must-have-in-your-tech-arsenal-an-unbiased-review/"><u>Why the Samsung Galaxy Tab S#@e Is a Must-Have in Your Tech Arsenal - An Unbiased Review</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/wma-mp4/"><u>WMA피사체를 무료로 MP4로 바꾸는 방법 - 이동성 가용성</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-cultivating-connection-not-compulsion-in-subscriptions-for-2024/"><u>[New] Cultivating Connection, Not Compulsion in Subscriptions for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-mastering-chapter-division-in-youtube-videos/"><u>[New] In 2024, Mastering Chapter Division in YouTube Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-stepwise-approach-to-mastering-vimeo-recording/"><u>[Updated] 2024 Approved Stepwise Approach to Mastering Vimeo Recording</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-accelerated-video-maker-time-lapse-edition/"><u>2024 Approved Accelerated Video Maker Time-Lapse Edition</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-mastering-high-dynamic-range-effects-in-adobes-realm/"><u>2024 Approved Mastering High Dynamic Range Effects in Adobe's Realm</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/canon-powershot-g9-x-mark-ii-review/"><u>Canon PowerShot G9 X Mark II Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-it-just-an-update-or-a-full-blown-software-revamp/"><u>Is It Just an Update or a Full-Blown Software Revamp?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/masterclass-on-the-eero-pro-wi-fi-solution-a-thorough-review-of-whole-house-connectivity-and-reliability/"><u>Masterclass on the Eero Pro Wi-Fi Solution: A Thorough Review of Whole-House Connectivity & Reliability</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-lack-of-touchpen-responsiveness-on-displays/"><u>Resolving Lack of Touch/Pen Responsiveness on Displays</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sony-hdrcx405-budget-price-top-image-quality/"><u>Sony HDRCX405: Budget Price, Top Image Quality</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/stop-fm2019-from-freezing-a-step-by-step-guide-to-eliminate-game-crashes/"><u>Stop FM2019 From Freezing: A Step-by-Step Guide to Eliminate Game Crashes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-power-and-size-of-acers-chromebook-15-insights-from-our-latest-evaluation/"><u>The Power and Size of Acer's Chromebook 15: Insights From Our Latest Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-rca-video-doorbell-camera-security-meets-style/"><u>The Ultimate Review of RCA Video Doorbell Camera – Security Meets Style</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Top Ranking VoIP Services: Has Vonage Lost Its Crown?"
-date: 2024-08-27T11:08:13.586Z
-updated: 2024-08-28T11:08:13.586Z
+date: 2024-12-06T21:14:04.275Z
+updated: 2024-12-10T20:29:56.178Z
 categories:
   - BestProducts
 description: "This Article Describes Top Ranking VoIP Services: Has Vonage Lost Its Crown?"
@@ -40,9 +40,17 @@ Lifewire / Matthew S. Smith
 
 4.5
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Microsoft Surface Laptop 4
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/iXEfhVk6SvvDJJJVMnrbl8sG6hw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Microsoft-Surface-Laptop-4-1-6dfa98797a3d4223834c350422c3cb57.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -81,6 +89,10 @@ Lifewire / Matthew S. Smith
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/LKKMWXF9Y9QgcLz3uT0B5mx2h-Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-6-d4eff9347d784715b769c5bc6a8d196e.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
 
  Microsoft’s minimalist aesthetic has aged well, too. Clean, sharp lines and expanses of smooth, matte metal define the laptop, providing a luxurious yet professional look. It’s easy to forget the Surface Laptop 4, though not a budget laptop, undercuts the more luxurious pricing of ThinkPad and Dell XPS models.
@@ -91,9 +103,6 @@ Lifewire / Matthew S. Smith
 
  Size is the Surface Laptop 4’s only downside. It has a 13.5-inch screen with large bezels, and it’s significantly larger than a typical 13.3-inch laptop with a 16:9 display aspect ratio. The Laptop 4 takes up more space than you’d expect in a bag or on your desk, and its overall footprint is closer to a 14-inch laptop.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Display: Pixel dense but mediocre
 
  The 13.5-inch Surface Laptop 4 has a[3:2 display aspect ratio](https://www.lifewire.com/what-is-aspect-ratio-1846860) with a resolution of 2,496 by 1,664\. That works out to 201 pixels per inch, which is less than the 220 pixels per inch that Apple shoots for with[Retina displays](https://www.lifewire.com/what-is-retina-display-2000362) , but I doubt you’ll notice a difference. The display looks crystal-clear when using Word or viewing 1440p video.
@@ -103,8 +112,9 @@ Lifewire / Matthew S. Smith
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/R0s49jnCo3YtH06-VrsuVbmKx0c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-2-2ba46ec5877c4c809b945380501eaf44.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
 
  Brightness is an issue. The Surface Laptop 4’s maximum brightness on battery power is roughly 40 percent less than when connected to a wall socket. Many laptops reduce brightness on battery power, but this is more aggressive than usual. To make matters worse, the mirror-like screen does nothing to reduce reflections. Outdoors use is unpleasant and even a bright, sunlit window creates enough glare to be a distraction.
@@ -113,10 +123,6 @@ Lifewire / Matthew S. Smith
 
  The touchscreen is compatible with the Surface Pen. This isn’t especially useful given that the Surface Laptop 4 is, well, a laptop, but it’s nice to have the option. I often use the touchscreen as an alternative to the touchpad in casual use, like online shopping or watching YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ## Performance: AMD and Intel options hold their own
 
  Microsoft offers both AMD and Intel processors for the Surface Laptop 4\. I tested the base model, which has AMD’s Ryzen 5 4680U six-core processor with nine AMD Radeon graphics cores. It also had 8GB of RAM and a 256GB solid-state drive.
@@ -128,6 +134,10 @@ Lifewire / Matthew S. Smith
  The AMD processor includes nine Radeon Vega graphics cores. These led the Surface Laptop 4 to a 3DMark Fire Strike score of 2,681 and a GFX Bench Car Chase 2.0 result of 24.6 frames per second. These numbers are respectable but not outstanding. The ThinkPad X1 Titanium Yoga and Dell XPS 13 can achieve better scores with Intel’s latest Iris Xe graphics.
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/MrzPvS6-5_LUBvEOlNjt4wv1BTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-3-e45e7bbc46054a69b2065cedce12519a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -149,9 +159,6 @@ Lifewire / Matthew S. Smith
 
  The Surface Laptop 4’s touchpad is large, measuring four and a half inches wide by three inches deep. It’s responsive but doesn’t pick up unintended input. Multi-touch gestures work extremely well, helping you get the most out of[Windows’ underrated multitasking touchpad shortcuts](https://www.lifewire.com/how-to-use-windows-10-touchpad-gestures-4587314) .
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Audio: Going loud
 
  The Surface Laptop 4 has punchy speakers with excellent volume. There’s great separation between lows, mids, and highs, which avoids the muddy sound that is common to many laptops as speaker volume nears maximum. There’s no subwoofer, so bass can sound flat, but the Laptop 4 provides some sense of depth without overwhelming the rest of the track you’re enjoying.
@@ -164,14 +171,15 @@ Lifewire / Matthew S. Smith
 
  4G LTE cellular data is not available. That’s a bit disappointing, as LTE is available in some Surface Pro devices and in competitors like the ThinkPad X1 Titanium Yoga and HP Spectre x360 13t. Optional LTE would be a match for the Surface Laptop 4’s productivity-first design.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Camera: An okay webcam with Windows Hello
 
  The Surface Laptop 4 has a 720p front-facing camera that suffers all the shortcomings you’d expect from a laptop webcam. It looks ok in a bright room, but even a moderately dim setting will lead to grainy, soft video. The camera fails at proper exposure when lighting is uneven.
 
  An IR camera is standard, so[Windows Hello](https://www.lifewire.com/what-is-windows-hello-4782168) facial recognition login is supported. This feature is easy to enable and extremely quick once set up. It works well in poor or uneven lighting.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Battery: It’s good, but don’t believe the hype
 
@@ -186,8 +194,9 @@ Lifewire / Matthew S. Smith
  You can drain the battery more quickly, however. I used the laptop for an hour-long session of heavier photo editing in GIMP and chewed through about 20 percent of the battery. This is a downside of the laptop’s fast six-core processor.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Software: Keep It Stock
 
  The Surface Laptop 4 ships with[Windows 10 Home](https://www.lifewire.com/windows-10-home-vs-pro-4177144) installed. There’s otherwise not much to say about the software which, for most people, will be good news. The Laptop 4’s stock Windows installation has zero bloatware.
@@ -200,9 +209,6 @@ Lifewire / Matthew S. Smith
 
  This is similar to Apple’s approach with the MacBook Air; even the base model is great. Dell’s XPS 13 is a different story. It starts at $1,000, but the base model has a lackluster Intel Core i3 processor. Upgrading to the Intel Core i5 sets you back another $100.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What’s New: A small, useful upgrade
 
  The 13.5-inch models of the Surface Laptop 3 and Laptop 4 are nearly identical in design, connectivity, display, keyboard, and touchpad. Most changes are under the hood, as the Laptop 4 receives new AMD and Intel processors. These extend battery life and provide a small boost in performance.
@@ -212,8 +218,9 @@ Lifewire / Matthew S. Smith
  I think most buyers will be happy with either laptop, but the Laptop 4’s performance feels worth the extra $100\.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Microsoft Surface Laptop 4 vs. Apple MacBook Air
 
  The Microsoft Surface Laptop 4 and Apple MacBook Air are both portable laptops that start at $999\. Microsoft’s option is larger and heavier with a more useful screen, while the MacBook Air has a smaller but more attractive display.
@@ -238,10 +245,6 @@ Lifewire / Matthew S. Smith
 * [Microsoft Surface Pro 7](https://www.lifewire.com/microsoft-surface-pro-7-review-4797020)
 * [Microsoft's Surface Laptop 2](https://www.lifewire.com/microsoft-surface-laptop-2-review-4779760)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Surface Laptop 4
@@ -267,8 +270,6 @@ Lifewire / Matthew S. Smith
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -276,4 +277,19 @@ Lifewire / Matthew S. Smith
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-streamlining-your-instagram-video-experience/"><u>[New] In 2024, Streamlining Your Instagram Video Experience</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-affordable-pc-screen-recorder-comparisons/"><u>[Updated] Affordable PC Screen Recorder Comparisons</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-mastering-recording-techniques-with-adobe-presenter/"><u>2024 Approved Mastering Recording Techniques with Adobe Presenter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-gimp-software-assessment-the-ultimate-free-cross-platform-photo-tool/"><u>Comprehensive GIMP Software Assessment: The Ultimate Free Cross-Platform Photo Tool</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-ultimate-hash-list-boosting-youtube-views-to-6000plus/"><u>In 2024, The Ultimate Hash List Boosting Youtube Views to $6,000+</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-the-lg-k51-attractive-appearance-with-performance-restrictions/"><u>In-Depth Review of the LG K51: Attractive Appearance with Performance Restrictions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/prime-day-specials-save-big-on-popular-samsung-gadgets-today/"><u>Prime Day Specials: Save Big on Popular Samsung Gadgets Today</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-amazons-fire-tv-cube-the-ultimate-speedy-media-streamer/"><u>Review of Amazon's Fire TV Cube - The Ultimate Speedy Media Streamer</u></a></li>
+<li><a href="https://fox-that.techidaily.com/simple-steps-to-carry-out-a-soft-reset-of-your-iphone-without-data-loss/"><u>Simple Steps to Carry Out a Soft Reset of Your iPhone Without Data Loss</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/swift-guide-to-screenshots-via-ipados-for-2024/"><u>Swift Guide to Screenshots via iPadOS for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-spores-of-b-anthracis-and-c-botulinum-have-significant-implications-for-public-health-due-to-their-role-in-diseases-like-anthrax-and-botulism-respective75/"><u>The Spores of B. Anthracis and C. Botulinum Have Significant Implications for Public Health Due to Their Role in Diseases Like Anthrax and Botulism, Respectively.</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/views-into-earnings-monetize-with-more-than-500-subscribers-for-2024/"><u>Turn Views Into Earnings Monetize with More than 500 Subscribers for 2024</u></a></li>
+</ul></div>
 

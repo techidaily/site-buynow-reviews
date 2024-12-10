@@ -1,7 +1,7 @@
 ---
 title: "Review of the Motorola One Hyper: An Impressive Entry Into the Mid-Range Smartphone Arena"
-date: 2024-08-22T16:23:36.939Z
-updated: 2024-08-23T16:23:36.939Z
+date: 2024-12-04T18:13:29.974Z
+updated: 2024-12-10T17:17:10.621Z
 categories:
   - BestProducts
 description: "This Article Describes Review of the Motorola One Hyper: An Impressive Entry Into the Mid-Range Smartphone Arena"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/0087bea05b577dbfb71c5ba8ff49de27f95d036e8
 ## Fun in the Cosmos: Constructing Cities on Mars with a Side of Interplanetary Gusts
 
 3
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Paradox Interactive Surviving Mars
 
@@ -70,13 +74,11 @@ thumbnail: https://thmb.techidaily.com/0087bea05b577dbfb71c5ba8ff49de27f95d036e8
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Humans have never been so annoying**
 
  The game begins with a multi-hour long tutorial program, which I highly recommend you undertake before playing the game. There are so many various aspects to the game—basic needs, threats to your colony, resources to import and export—that it would be disastrous not to get caught up to speed. It took me a total of five hours to complete these tutorials, but I had to restart a couple after a couple operator error moments when I accidentally destroyed my only water vaporizer and had no idea how to rebuild it. So, it will probably take you less.
@@ -92,8 +94,9 @@ thumbnail: https://thmb.techidaily.com/0087bea05b577dbfb71c5ba8ff49de27f95d036e8
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
  The colonists also come with their own unique personality traits, from veganism to survivalist to alcoholic, so they all have their own service needs. You’ll have to factor this into your game as you build up your population. If someone doesn’t get their needs met, it can land them in the hospital, or worse, on a rocket back home. And don’t get me started on the chaos that erupts when humans start freezing during a cold spell or complain when they don’t have enough oxygen. The nerve of some colonists!
@@ -112,21 +115,22 @@ thumbnail: https://thmb.techidaily.com/0087bea05b577dbfb71c5ba8ff49de27f95d036e8
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Competition: Other city-building games**
 
  What makes Surviving Mars unique is that technically it is a city-[building game](https://www.lifewire.com/best-offline-building-games-4580415) , but instead of building bus lines, you have to build oxygen and water lines to ensure colony survival. However, just like city-building games, you are building infrastructure. If you’re solely focused on building up a city, Surviving Mars would be a great addition to your library, but so would[Cities: Skylines](https://store.steampowered.com/app/255710/Cities%5FSkylines/) (view on Steam). Both focus on creating a habitat from scratch—one just happens to be hundreds of thousands of miles away while the other could be in a tropical or a Midwestern climate.
@@ -139,9 +143,6 @@ The ultimate burning program for all your needs!</a>
 
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Surviving Mars
@@ -154,14 +155,11 @@ The ultimate burning program for all your needs!</a>
 * Graphics  HD 4600/Geforce 620/Radeon 6450 or equivalent GPUs with 1 GB of video RAM
 * Game Updates  Green Planet, Project Laika, Space Race, Colony Design Set, Marsvision Song Contest
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -170,4 +168,22 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-turning-videos-into-dollars-the-ultimate-mobile-focused-youtubers-manual-for-2e24/"><u>[New] Turning Videos Into Dollars The Ultimate Mobile-Focused YouTuber's Manual for 2E24</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-green-thumbs-united-top-10-agrigames-for-friends-and-family/"><u>2024 Approved Green Thumbs United Top 10 AgriGames for Friends and Family</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-3-nokia-g310-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Nokia G310 Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-iphone-15-pro-max-and-samsung-galaxy-s24-ultra-key-features-and-performance/"><u>Comparing iPhone 15 Pro Max and Samsung Galaxy S24 Ultra: Key Features & Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/crafting-perfect-urban-landscapes-in-city-skylines-a-gamers-perspective/"><u>Crafting Perfect Urban Landscapes in 'City Skylines': A Gamer's Perspective</u></a></li>
+<li><a href="https://fox-http.techidaily.com/cutting-edge-tactics-for-engaging-social-media-medical-ads-for-2024/"><u>Cutting-Edge Tactics for Engaging Social Media Medical Ads for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/differences-between-apples-ipad-pro-and-microsofts-surface-pro-examined/"><u>Differences Between Apple's iPad Pro and Microsoft's Surface Pro Examined</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-ideal-tasks-during-your-podcast-sessions/"><u>In 2024, Ideal Tasks During Your Podcast Sessions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-mastering-audio-transformation-complete-morphvox-techniques/"><u>In 2024, Mastering Audio Transformation Complete MorphVOX Techniques</u></a></li>
+<li><a href="https://win11.techidaily.com/switching-shades-a-guide-to-paints-dark-mode/"><u>Switching Shades: A Guide to Paint's Dark Mode</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/theodore-standing-desk-by-flexispot-a-contemporary-and-sophisticated-solution-for-your-workspace/"><u>Theodore Standing Desk by Flexispot: A Contemporary & Sophisticated Solution for Your Workspace</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-12-prominent-poco-x6-pro-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Poco X6 Pro Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/understanding-the-iseebell-doorbell-camera-top-reviews-for-affordable-security/"><u>Understanding the ISeeBell Doorbell Camera - Top Reviews for Affordable Security</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-potential-upgrading-from-win7-to-win11/"><u>Unleashing Potential: Upgrading From Win7 To Win11</u></a></li>
+</ul></div>
 

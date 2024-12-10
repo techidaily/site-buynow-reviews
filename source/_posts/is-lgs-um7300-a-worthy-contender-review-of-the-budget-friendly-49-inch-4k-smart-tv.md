@@ -1,7 +1,7 @@
 ---
 title: Is LG's UM7300 a Worthy Contender? Review of the Budget-Friendly, 49-Inch 4K Smart TV
-date: 2024-08-22T16:19:46.291Z
-updated: 2024-08-23T16:19:46.291Z
+date: 2024-12-03T20:04:11.845Z
+updated: 2024-12-10T19:08:50.661Z
 categories:
   - BestProducts
 description: This Article Describes Is LG's UM7300 a Worthy Contender? Review of the Budget-Friendly, 49-Inch 4K Smart TV
@@ -69,6 +69,10 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Cute and compact**
 
  It's hard not to swoon at the sight of the Switch Lite. The handheld console is cute and compact, featuring unique color options, bright white buttons, and joysticks wrapped around a downsized screen. The whole unit is about the size of a beefy phablet. The screen alone is about the size of an iPhone SE.
@@ -95,9 +99,6 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7502vZ1Vh2D4nRux6hEnq4BL3Rk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-5-2fb7aa309cc54dd79c07bd799ef7fe84.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
 ## **Setup Process: Hit the switch**
@@ -127,13 +128,11 @@ Lifewire / Zach Sweat
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/kQx9K3tATPBWAMgyJJymqBqYPao=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-3-7349fa7d79f34dbaa50c25cb59aec820.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Decent for mobile gaming, but no FHD**
 
  Much like the original Switch, the Lite is by no means a powerhouse console sporting top-of-the-line graphics and hardware. That said, it doesn't necessarily need to be. The Switch Lite performs similarly to its larger counterpart while in handheld mode, but let's delve into specifics.
@@ -172,9 +171,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: Still a bit drab, but smooth and snappy**
 
  If you’ve got an older Switch already or at least spent some time with one, the software found on the Switch Lite is exactly the same. Thankfully, that means it’s clean and snappy, but also a bit boring.
@@ -192,9 +188,14 @@ Lifewire / Zach Sweat
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/eFyBn6jL7cdHOO4q7zc6pALdQzw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-6-42a5bc5ea4e544bdb6d3fbbd074583c2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Battery Life: Slightly better, but not the best**
 
@@ -210,6 +211,10 @@ Lifewire / Zach Sweat
 
  Lastly, the battery is internal, so you can't easily pop in a new one when it starts to degrade. While I haven't seen any degradation with mine, it'll happen at some point. When it does, sending it to Nintendo for repair is the only real option.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Inexpensive console gaming in your hands**
 
  It’s no surprise that since Nintendo removed many features from the Switch to create the Lite model, the price has also decreased considerably. The Switch is already at a pretty sweet price of $300, so how does the Lite stack up?
@@ -218,11 +223,12 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7XA6hgAK2B4hDSlWdmB8VQddrjw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-7-Comparison-44dcf88ec51247a2b0756445a3c7884d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Nintendo Switch Lite vs. Nintendo Switch**
 
  The biggest competitor to the Switch Lite is the original Switch. Nintendo has done an excellent job with both of these devices, but they each have some strengths and weaknesses you should consider before buying.
@@ -244,8 +250,9 @@ Lifewire / Zach Sweat
  Despite being stripped of some of the Switch’s more unique features and strengths, the Switch Lite is a perfect console for gamers on the go or those who prefer handheld. It features an extensive library of exclusives that are perfect for a highly mobile system like Animal Crossing—and it’s hard to argue with the price.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 [Nintendo Switch Review](https://www.lifewire.com/nintendo-switch-review-4707563)
@@ -279,8 +286,6 @@ Lifewire / Zach Sweat
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -288,4 +293,26 @@ Lifewire / Zach Sweat
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-best-for-broadcasting-is-obs-superior-to-twitch-studio/"><u>[Updated] 2024 Approved Best for Broadcasting Is OBS Superior to Twitch Studio?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-enhancing-imagery-a-look-at-samsung-image-studio-tools/"><u>[Updated] In 2024, Enhancing Imagery A Look at Samsung Image Studio Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-master-the-craft-essential-filmmaking-advice-from-youtube-pros/"><u>[Updated] In 2024, Master the Craft Essential Filmmaking Advice From YouTube Pros</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/antop-at-127-the-ultimate-guide-to-a-beautiful-and-efficient-free-tv-signal-receiver-review/"><u>Antop AT- 127: The Ultimate Guide to a Beautiful and Efficient Free TV Signal Receiver - Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/capture-the-best-print-with-webs-leading-services-in-24/"><u>Capture the Best, Print with Web's Leading Services in '24</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/criacrs-compact-fm-transmitter-cp24-with-built-in-bluetooth-a-thorough-review-for-audio-enthusiasts/"><u>CRIACR's Compact FM Transmitter (CP24) with Built-In Bluetooth - A Thorough Review for Audio Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-lightzone-exceptional-photo-editing-program-compatible-with-pcs-and-macs/"><u>Discover LightZone: Exceptional Photo Editing Program Compatible with PCs & Macs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/distinguishing-ipad-from-ipad-air-understanding-key-contrasts/"><u>Distinguishing iPad From iPad Air: Understanding Key Contrasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-improvements-with-canons-new-eos-t7-kit/"><u>Exploring Improvements with Canon's New EOS T7 Kit</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-realme-11x-5g-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Realme 11X 5G FRP In 3 Different Ways</u></a></li>
+<li><a href="https://extra-information.techidaily.com/how-to-maximize-instagrams-potential-with-podcasts/"><u>How to Maximize Instagram's Potential with Podcasts</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-samsung-galaxy-xcover-6-pro-tactical-edition-to-mac-drfone-by-drfone-android/"><u>How to Mirror Samsung Galaxy XCover 6 Pro Tactical Edition to Mac? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Realme GT 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Samsung Galaxy M34 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-sonys-bdp-s6700-a-modernized-take/"><u>In 2024, Sony's BDP-S6700 A Modernized Take</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-realme-c33-2023-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Realme C33 2023 to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-amazon-luna-assessment-exceptionally-slick-gaming-streaming-experience/"><u>In-Depth Amazon Luna Assessment: Exceptionally Slick Gaming Streaming Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-wi-fi-6-with-the-stunning-netgear-nighthawk-rax80-review/"><u>Unveiling the Power of Wi-Fi 6 with the Stunning Netgear Nighthawk RAX80 Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/youtube-tv-benefits-unveiled-a-case-for-signing-up-now/"><u>YouTube TV Benefits Unveiled: A Case for Signing Up Now?</u></a></li>
+</ul></div>
 

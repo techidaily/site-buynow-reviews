@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Gen 2 Upgrade to the Google Nest Hub - Understanding Its Full Potential Without Video Support
-date: 2024-12-02T23:42:05.543Z
-updated: 2024-12-03T21:49:25.114Z
+date: 2024-12-05T16:28:09.695Z
+updated: 2024-12-10T19:39:26.104Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Gen 2 Upgrade to the Google Nest Hub - Understanding Its Full Potential Without Video Support
@@ -18,9 +18,17 @@ thumbnail: https://www.lifewire.com/thmb/_nOB6lzooA58y-fATbEsfRW2Rn8=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Cyberpunk 2077
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/lg-rMa42Ti9heFLfXVc2qNkjwk0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cyberpunk-2077-1-d90f62b5a126437681da9916c0360527.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -51,10 +59,6 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/sG6odS-sTBDQKNtpoev0kWtdSGg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cyberpunk-2077-1-d90f62b5a126437681da9916c0360527.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Andy Zahn / Lifewire
 
 [View On Amazon $55](https://www.amazon.com/dp/B07T8BP118/?tag=lifewire-onsite-prod-20&ascsubtag=5113844%7Cn1caa6f424ed249b0ba9a31e582ec71b217%7CB07T8BP118) [View On Steampowered.com](https://store.steampowered.com/app/1091500/Cyberpunk%5F2077/) [View On Gamestop.com](https://www.gamestop.com/video-games/pc-gaming/games/products/cyberpunk-2077/11094594.html)
@@ -84,10 +88,14 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/YQBwL9wFHphVzIqJYlYwd0J2OYU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-2-7e358ac09a2c48fbb0f6aaec1e9381e9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Story: Engaging and well written
@@ -101,10 +109,6 @@ Andy Zahn / Lifewire
  There is clearly a lot more polish put on the main story missions than on some other parts of the game, and if you follow it closely, the flaws of Cyberpunk 2077 don’t show quite so much. You get to experience the massive open world of Night City in a way that makes narrative sense and see the most exciting set-piece sequences. With that said, there are some really entertaining side stories to be found if you venture off the straight and narrow path of the main campaign.
 
  Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Gameplay: Fun, but deeply flawed
 
@@ -150,6 +154,10 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/Uqy4AEm6VMUR3LFH9U2FK5UDvo0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-3-28901c5bd3564eeea8e98bc9dbb8ae07.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
 
  Another area of customization is your cybernetic implants. These can affect everything from your netrunning skills to giving you swords and rocket launchers that pop out of your arms. You’ll need to visit a Ripperdoc to buy and install them, and they cost a pretty penny, so you’ll need to pull off a few jobs to afford them.
@@ -159,10 +167,6 @@ Andy Zahn / Lifewire
  Of course, if you get a weapon you can’t bear to part with you can upgrade it, and you will pick up legendary and epic gear that you will want to hold onto (including clothing). However, I found it to be a bit of a headache figuring out the crafting system, and you need to invest points in the necessary skills to do so.
 
 At launch, Cyberpunk 2077 is something of a bug-riddled mess.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bugs: Welcome to Glitch City
 
@@ -177,7 +181,7 @@ At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/JM3cD1pX6maee1yiQYZnSgc-9pw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-4-624da4fa8225434eb59ba999a53dafd6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
@@ -203,7 +207,7 @@ Andy Zahn / Lifewire
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/toUXDFSRFZjol-BOgnhnVEyJTYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-8-7b54b824c3bc4dcfb04234f69204d2f6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
@@ -239,7 +243,7 @@ Andy Zahn / Lifewire
  At launch and for long after Cyberpunk 2077 will be a single-player game. However, CDPR has said that a few years down the road they will be launching a multiplayer mode, and a lot of people are looking forward to that. Of course, it is impossible to predict if this will be any good or if some circumstances might prevent its release, but there is a lot of potential for Cyberpunk to become a better experience when Night City goes online. With that said, CDPR really needs to fix the single-player game before they even think about launching multiplayer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Price: A refreshing lack of micro-transactions
@@ -259,10 +263,6 @@ Andy Zahn / Lifewire
  **An open-world RPG with enormous potential that’s sadly incomplete and unpolished.**
 
  Cyberpunk 2077 had enormous potential, but it launched long before it was complete and the result is a deeply conflicting experience. Game-breaking bugs, performance issues, missing features, and demanding hardware requirements make it difficult to recommend, but there is the core of something great lying within. There are hundreds of hours of content to enjoy if you can temper your expectations and employ a saintly degree of patience.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -288,18 +288,16 @@ Andy Zahn / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-transfer-tactics-for-youtube-to-dailymotion-success/"><u>[New] 2024 Approved Transfer Tactics for YouTube to Dailymotion Success</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-unraveling-360-degree-vision-a-new-cinematic-experience-for-2024/"><u>[New] Unraveling 360-Degree Vision A New Cinematic Experience for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-engaging-subjects-for-consistent-vlogging/"><u>[Updated] In 2024, Engaging Subjects for Consistent Vlogging</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/ppmtiff-movavi/"><u>線上無成本轉PPM文件為TIFF格式 – 運用Movavi工具</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Motorola Defy 2? | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-kodi-remote-x-wmps-easy-alternative/"><u>In 2024, Kodi Remote X WMP's Easy Alternative</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/introspection-and-understanding-the-gpt-way-to-emotional-mastery/"><u>Introspection & Understanding: The GPT Way to Emotional Mastery</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/overcoming-fixed-color-voids-in-recording-software-for-2024/"><u>Overcoming Fixed Color Voids in Recording Software for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/simple-guide-get-the-latest-intel-dual-band-ac-7260-wifi-adapter-software/"><u>Simple Guide: Get the Latest Intel Dual Band AC 7260 WiFi Adapter Software</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-enhancing-your-home-wi-fi-with-the-netgear-nighthawk-x4-range-extender/"><u>The Ultimate Guide to Enhancing Your Home Wi-Fi with the Netgear Nighthawk X4 Range Extender.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-ipad-showdown-a-comprehensive-buying-guide-and-comparison/"><u>Top iPad Showdown: A Comprehensive Buying Guide and Comparison</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-strategies-for-increasing-nes-classics-gaming-selection/"><u>Ultimate Strategies for Increasing NES Classic's Gaming Selection</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-soundcores-affordable-life-q30-anc-performance/"><u>Unveiling Soundcore's Affordable Life Q30 ANC Performance</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-10-best-blurred-background-tools/"><u>[New] 2024 Approved The 10 Best Blurred Background Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-explore-the-10-most-influential-makeup-personalities-online/"><u>[Updated] In 2024, Explore the 10 Most Influential Makeup Personalities Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-channel-growth-the-5-key-youtube-strategies/"><u>[Updated] Mastering Channel Growth The 5 Key YouTube Strategies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-vg245h-the-ultimate-monitor-that-dominates-console-playing-field/"><u>Asus VG245H: The Ultimate Monitor That Dominates Console Playing Field</u></a></li>
+<li><a href="https://win-webster.techidaily.com/effiziente-tricks-zum-speichern-ihrer-fotos-aus-google-photos-in-der-icloud-kostenlos/"><u>Effiziente Tricks Zum Speichern Ihrer Fotos Aus Google Photos in Der iCloud Kostenlos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nate-cacophony-perfecting-sound-quality-for-youtube/"><u>Eliminate Cacophony Perfecting Sound Quality for YouTube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-the-dreame-bot-l10-pro-transforms-your-home-an-in-depth-evaluation-of-its-mopping-vacuuming-and-lidar-capabilities/"><u>How the Dreame Bot L10 Pro Transforms Your Home: An In-Depth Evaluation of Its Mopping, Vacuuming, and LiDAR Capabilities</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-12-pro-to-other-iphone-11-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 12 Pro to other iPhone 11 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-it-time-to-retire-your-current-ipad-model/"><u>Is It Time to Retire Your Current iPad Model?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-google-pixel-5-examined-fusing-affordable-capability-with-high-end-attributes/"><u>The Google Pixel 5 Examined - Fusing Affordable Capability with High-End Attributes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/yn560iv-high-end-flash-at-a-value-price/"><u>YN560IV: High-End Flash at a Value Price</u></a></li>
 </ul></div>
 

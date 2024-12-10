@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Latest Features on Mobvoi's TicWatch Pro Nv3: GPS Capabilities with Extended Battery via Dual Displays"
-date: 2024-08-22T16:19:08.537Z
-updated: 2024-08-23T16:19:08.537Z
+date: 2024-12-09T17:27:06.977Z
+updated: 2024-12-10T20:43:20.816Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring the Latest Features on Mobvoi's TicWatch Pro Nv3: GPS Capabilities with Extended Battery via Dual Displays"
@@ -77,9 +77,6 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/DZ-_Yk02QL0fYrm0o3TDO7zXv3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_05-e2623904845848a3841272c93ab139f1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Andy Zahn
 
  The keyboard and trackpad really steal the show here, as they are exceptionally high quality for a laptop in this price range. The keyboard is quiet and tactile with soft, almost luxurious keycaps. I was able to write this review on it quite comfortably. The trackpad is one of the best I’ve seen on a laptop of this size. It’s large, easy to use, and compares very well to the top-notch trackpads on the[Dell XPS 13](https://www.lifewire.com/dell-xps-13-9370-review-4779836) . For navigation, the Surface Laptop Go also has a touchscreen, which I found to be responsive and accurate.
@@ -94,6 +91,10 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/kz6EW4svzivooWEtdVJ5TAnOYOs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_06-07315e6a9862481bba3820f745d49887.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
 ## **Speakers: Loud and proud**
@@ -103,8 +104,9 @@ Lifewire / Andy Zahn
  Bass was underwhelming, but that’s really to be expected in any laptop, particularly one with this form factor. It still provided a pleasant listening experience for both rock and classical music and provided excellent audio for watching movies and shows.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Camera: Low quality**
 
  Cameras on laptops are never very good, but the one on the Surface Laptop Go is particularly poor. It’s only capable of 720p, but it’s not the low resolution itself that really lets it down. Even in decent lighting conditions the video and still images produced by this camera are extremely grainy and low quality so it’s not a great option even for[Zoom](https://www.lifewire.com/what-is-zoom-and-how-does-it-work-4800476) meetings.
@@ -124,29 +126,29 @@ Lifewire / Andy Zahn
  Another limiting factor is the storage capacity of the Surface Laptop Go. The configuration I tested only had 128GB of space on its solid-state drive, and the maximum configuration only comes with 256GB. You’re not going to be storing a lot of data locally on this machine forcing you to resort to cloud storage most of the time.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Connectivity: Modern hardware**
 
  With[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) and[Bluetooth 5.0](https://www.lifewire.com/bluetooth-5-4160255) , the Surface Laptop Go is equipped with a competent range of communications capabilities. I had no issues utilizing the full power of my home Wi-Fi network or connecting Bluetooth devices.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Battery Life: Long-lasting**
 
  A well-advertised feature of the Surface Laptop Go is its 13-hour battery life. I found this to be a pretty accurate estimate and was able to use it all day without having to recharge. It’ll comfortably fill out a workday or last for a long plane flight.
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/R8WVIj9pTzxwTOIwiZpDPRc6Bws=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_03-d503f456e6df4db4a3ad76a6a9a49e72.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Software: A decision to make**
 
  The Surface Laptop Go ships with[Windows 10](https://www.lifewire.com/windows-10-2626217) in[S mode](https://www.lifewire.com/what-is-windows-10-s-4173113#:~:text=Windows%2010%20in%20S%20mode%20can%20only%20run%20Windows%20apps,and%20potentially%20longer%20battery%20life.) . This means that the device gains an extra degree of security, but also that it’s limited to apps available in the Windows Store. However, you can take the computer out of S mode to use a fully-functional version of Windows 10\. However, think carefully before doing so because there’s no going back.
@@ -164,8 +166,9 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Microsoft Surface Laptop Go vs. HP Pavilion 14 HD**
 
  If you need more ports and storage, you might consider the HP Pavilion 14 HD, which also has a larger 14-inch display with a 16:9 aspect ratio. However, it’s a little long in the tooth with a 7th gen Core i5 and no touchscreen capability. Also, the Surface Laptop Go has a superior keyboard and trackpad and is considerably more portable due to its superior battery life.
@@ -181,8 +184,9 @@ Lifewire / Andy Zahn
  The Microsoft Surface Laptop Go looks and feels like a much more expensive device. It’s thin and light, with a great keyboard and trackpad paired with fast and responsive components. This is an ideal option for anyone who needs an affordable ultra-portable laptop for work, school, or travel.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
@@ -203,14 +207,11 @@ Lifewire / Andy Zahn
 * Connectivity  Bluetooth 5.0, Wi-Fi 6
 * Fingerprint Sensor  Yes
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -219,4 +220,26 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-top-30-windows-10-camcorders/"><u>[New] In 2024, Top 30 Windows 10 Camcorders</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/outube-shorts-revenue-sharing-how-much-do-creators-get-paid-for-2024/"><u>[New] YouTube Shorts Revenue Sharing How Much Do Creators Get Paid for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-culinary-cinematography-step-by-step-recipe-tutorials/"><u>[Updated] 2024 Approved Culinary Cinematography Step-by-Step Recipe Tutorials</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-the-innovators-playbook-for-premiere-pro-fullscreen-edits/"><u>[Updated] 2024 Approved The Innovator's Playbook for Premiere Pro Fullscreen Edits</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-apex-legends-mastery-exploring-single-platform-potential-for-2024/"><u>[Updated] Apex Legends Mastery Exploring Single Platform Potential for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/10-good-places-to-find-music-for-podcast-intro/"><u>10 Good Places to Find Music for Podcast Intro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-ipad-pro-and-macbook-pro-unveiling-key-distinctions/"><u>Comparing iPad Pro and MacBook Pro: Unveiling Key Distinctions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-netgear-c3000-wireless-gigabit-router-is-it-behind-the-times/"><u>Comprehensive Analysis of the Netgear C3000 Wireless Gigabit Router - Is It Behind the Times?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-netgear-orbi-assessment-why-its-a-must-have-for-unmatched-wi-fi-performance/"><u>Comprehensive Netgear Orbi Assessment: Why It's a Must-Have for Unmatched Wi-Fi Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dash-and-dot-robotic-duo-evaluation-the-all-ready-smart-playmate-with-movement-capabilities/"><u>Dash and Dot Robotic Duo Evaluation: The All-Ready Smart Playmate with Movement Capabilities</u></a></li>
+<li><a href="https://win-able.techidaily.com/expert-tips-for-handling-memory-glitch-in-call-of-duty-modern-warfare-3-error-12707-fixed/"><u>Expert Tips for Handling Memory Glitch in Call of Duty: Modern Warfare 3 - Error 12707 Fixed</u></a></li>
+<li><a href="https://driver-error.techidaily.com/fixing-keyboard-mismatches-with-windows-10s-elan/"><u>Fixing Keyboard Mismatches with Windows 10'S Elan</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-meizu-21-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Meizu 21 Pro Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-apple-ipad-air-4-your-next-best-investment-ipad-pro-alternative-insights/"><u>Is the Apple iPad Air 4 Your Next Best Investment? - iPad Pro Alternative Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-spotless-floors-expert-analysis-on-dreame-bot-l10-pros-lidar-guided-cleaning-system/"><u>Navigating Spotless Floors: Expert Analysis on Dreame Bot L10 Pro's LiDAR-Guided Cleaning System</u></a></li>
+<li><a href="https://win11.techidaily.com/navigating-the-future-artificial-intelligence-for-windows-enthusiasts/"><u>Navigating the Future: Artificial Intelligence for Windows Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-game-changer-how-the-new-cpu-elevates-the-2020-apple-macbook-pro-13-to-unprecedented-heights/"><u>The Game Changer: How the New CPU Elevates the 2020 Apple MacBook Pro 13 to Unprecedented Heights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-testing-the-fitbit-inspire-hr-a-non-stop-health-monitor-for-daily-workouts-reviewed/"><u>Unboxing & Testing the Fitbit Inspire HR – A Non-Stop Health Monitor for Daily Workouts Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-savings-with-beantech-bitwatch-s1-plus-a-detailed-smartwatch-assessment/"><u>Unlocking Savings with Beantech Bitwatch S1 Plus – A Detailed Smartwatch Assessment</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Review of the Economical AmazonBasics 6-Sheet Shredder with Cross-Cut Technology
-date: 2024-08-22T16:23:20.113Z
-updated: 2024-08-23T16:23:20.113Z
+date: 2024-12-07T18:33:49.246Z
+updated: 2024-12-10T20:03:26.506Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Review of the Economical AmazonBasics 6-Sheet Shredder with Cross-Cut Technology
@@ -37,6 +37,10 @@ Lifewire / Jeremy Laukkonen
 [View On Amazon $580](https://www.amazon.com/Acer-Aspire-i3-8130U-Memory-E5-576-392H/dp/B079TGL2BZ/?tag=lifewire-onsite-prod-20&ascsubtag=4686717%7Cn4f28d43e30f1457ea7a870c685e75d4f06%7CB079TGL2BZ) [View On Walmart $499](https://www.walmart.com/ip/Acer-Aspire-E-15-E5-576-392H-15-6-LCD-Notebook-Intel-Core-i3-8th-Gen-i3-8130U-Dual-core-2-Core-2-20-GHz-6-GB-DDR3L-SDRAM-1-TB-HDD-Windows-10-Home-64-/350526182)
 
 4.5
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Acer Aspire E 15
 
@@ -75,11 +79,12 @@ Lifewire / Jeremy Laukkonen
 
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/urRsU5n3D2A-nzQe6NGdQgrDGwM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1lW4043278-Acer-Aspire-2-4cb96f03e4c748a583d14f0c8c9224dc.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ## **Design: A decent plastic case, but not exactly a premium look**
 
  Aesthetics may be the Acer Aspire E 15’s weakest area — it’s a big, chunky[laptop](https://www.lifewire.com/best-laptops-for-college-students-to-buy-4071769) that measures in at over an inch thick at the rear and tapers to a bit less than an inch at the front. It also tips the scales at over five pounds, which is definitely on the heavy side for a 15.6” laptop.
@@ -92,9 +97,6 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  The keyboard is roomy and comfortable and the keys feel sharp and springy. The trackpad is massive and responsive, but it doesn’t feel as robust as the keyboard. The left and right buttons are incorporated into the main body of the trackpad, and they have far too much give—if we pressed down with more than the absolute minimum necessary force, it felt like the trackpad might collapse.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process:** **A ton of bloatware to remove**
 
  The Acer Aspire E 15 comes with[Windows 10](https://www.lifewire.com/windows-10-2626217) preloaded, and the setup process isn’t really anything out of the ordinary for a Windows 10 laptop. Acer requests some contact information during the initial setup, which is something that most of the[OEMs](https://www.lifewire.com/what-is-oem-software-1701736) do to help with warranties and support. We timed the process from start to finish, and it took about 10 minutes to go from plugging it in and turning it on, to hitting the desktop for the first time.
@@ -111,9 +113,6 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  The display has decent viewing angles and great contrast, but the colors are a bit washed out. It’s fine for watching videos on YouTube and Netflix—and DVDs, of course—but it wouldn’t be our first choice for movie night. It’s definitely a display that’s best suited for work, with media and gaming as afterthoughts.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Outperforms the competition, but suffers from a slow HDD**
 
  The Acer Aspire E 15 suffers a bit from a slow hard drive, and it could stand to have a bit more RAM, but it performs exceedingly well for a laptop in this category. It beats most of the competition in all important benchmarks and is a joy to use for productivity tasks, web browsing, and even light[gaming](https://www.lifewire.com/best-gaming-laptops-under-1000-4148125) .
@@ -136,9 +135,6 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  The takeaway is that we absolutely wouldn’t recommend buying this laptop for the purpose of playing games, but it is capable of rising to the task if you’re willing to lower the settings and stick to older games.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Productivity: Gets the job done at work, home, or on the go**
 
  The Aspire E 15 is designed with productivity in mind. While we found that it was capable of some light gaming, it’s definitely intended for students and people who need a basic[business laptop](https://www.lifewire.com/best-laptops-to-buy-4043650) .
@@ -147,9 +143,6 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/0j4qIM8N-IXUlX66rWrHmqZTjxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1lW4043278-Acer-Aspire-3-8bdb945a491f4f4cbab64c65fa21d9af.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jeremy Laukkonen
 
 ## **Audio: Decent speakers, but no bass response**
@@ -157,6 +150,10 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
  The speakers are decent enough, but the audio quality is still one of the Aspire E 15’s weaker points. They just don’t get all that loud, and when we did crank the volume all the way up, we noticed a bit of distortion in some frequency ranges. There isn’t a whole lot of bass, either, so everything sounds a little tinny—and that only gets worse at louder volumes.
 
  Strangely enough, the audio is actually louder and clearer when the[laptop](https://www.lifewire.com/14-16-inch-laptops-833846) is sitting on a flat surface. It seems like there is a lot of sound escaping from the vents as well as through the actual speaker grills, and placing it on a solid surface seems to improve the audio quality.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Network: Great speeds on both 5 GHz and 2.4 GHz networks**
 
@@ -166,13 +163,18 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  We found that the Aspire E 15 was able to achieve download speeds of 260 Mbps and upload speeds of 65 Mbps when connected to our 5 GHz network. When connected to our 2.4 GHz network, it notched speeds of 66 Mbps down and 64 Mbps up. These speeds are pretty good across the board.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Camera: 720p webcam takes grainy stills**
 
  The included webcam is capable of capturing 720p video, and while it works well enough for basic video calls on Skype or Discord, it may not be up to the standards necessary for professional video conferencing. It also takes grainy still images, although that may not be a huge concern unless you really need to take[photos](https://www.lifewire.com/best-laptops-to-buy-4043650) with your webcam for some reason.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Battery: Fantastic battery life that goes all day**
 
  The battery in the Aspire E 15 is exceptional, especially compared to the mediocre offerings found in similarly-priced competitors. Acer advertises a 12-hour battery life, and we found that to be a pretty accurate claim.
@@ -189,13 +191,18 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  If you’re a Firefox user, it might be nice to have that already downloaded (just remember to update it immediately). But the rest of this bloatware is most likely going to be an annoyance that needs to get uninstalled.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Extremely competitive pricing**
 
  With an MSRP of just $380, the Aspire E 15 is a fantastic deal. If you can get it for even less than that, then it’s truly a steal. The more expensive configuration with an SSD, discrete graphics, and Core i7, is also a good deal at an MSRP of $599 if you have a little more room in your budget.
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Competition: Blows the competition out of the water in almost every category**
 
  The Acer Aspire E 15 beats most of the competition in its price range thanks to superior hardware. It has a full HD screen, where competitors like the HP Notebook 15 and Lenovo Ideapad 320, priced at $288 and $299 respectively, both have 1366 x 768 displays. The Aspire E 15 also has more RAM than either of those laptops, a better CPU, and faster Wi-Fi speeds.
@@ -212,9 +219,6 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  The Acer Aspire E 15 hits almost all the right notes while keeping the price way, way down. If you have a little room in your budget, it’s worth investing in the more expensive configuration of this laptop, which comes with a discrete NVIDIA graphics card for gaming, extra RAM, and a speedy SSD.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Asus Chromebook C202SA](https://www.lifewire.com/asus-chromebook-c202sa-review-4589359)
@@ -235,14 +239,11 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 * Camera  0.9 MP webcam
 * Display  15.6” 1920 x 1080
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -251,4 +252,16 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-metaverse-mirth-makers-top-tips-for-crafting-hilarious-virtual-images-for-2024/"><u>[New] Metaverse Mirth Makers Top Tips for Crafting Hilarious Virtual Images for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assessing-the-value-of-budget-ssls-certs/"><u>Assessing the Value of Budget SSLS Certs</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-of-android-collage-a-curation-of-superiority/"><u>Best-Of Android Collage A Curation of Superiority</u></a></li>
+<li><a href="https://fox-info.techidaily.com/command-the-field-with-a-customized-in-game-character-voice-in-free-fire-for-2024/"><u>Command the Field with a Customized In-Game Character Voice in Free Fire for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/exporting-repaired-email-database-edb-files-to-a-functional-exchange-network-comprehensive-video-walkthrough/"><u>Exporting Repaired Email Database (EDB) Files to a Functional Exchange Network: Comprehensive Video Walkthrough</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hp-omen-obelisk-50th-anniversary-edition-reviewed-high-end-gaming-desktop-for-less/"><u>HP OMEN Obelisk 50Th Anniversary Edition Reviewed – High-End Gaming Desktop for Less?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ios-or-android-showdown-determining-the-ideal-phone-for-your-needs/"><u>IOS or Android Showdown: Determining The Ideal Phone For Your Needs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/professional-panoramas-and-cinematography-with-hero5-black-for-2024/"><u>Professional Panoramas & Cinematography with Hero5 Black for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-asus-ax6e6000-rt-ax88u-router-mastering-wi-fi-6-with-cutting-edge-features/"><u>The Ultimate Guide to Asus AX6e6000 RT-AX88U Router: Mastering Wi-Fi 6 with Cutting-Edge Features</u></a></li>
+</ul></div>
 

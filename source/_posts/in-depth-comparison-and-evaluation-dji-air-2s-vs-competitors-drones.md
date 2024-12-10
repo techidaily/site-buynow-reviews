@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Comparison & Evaluation: DJI Air 2S vs Competitors' Drones"
-date: 2024-08-22T16:23:04.180Z
-updated: 2024-08-23T16:23:04.180Z
+date: 2024-12-05T20:15:50.438Z
+updated: 2024-12-10T17:31:26.829Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Comparison & Evaluation: DJI Air 2S vs Competitors' Drones"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/56330953ffdc4465c49b828b7088926c62fd587a1
 ## The Outer Worlds
 
 ![The Outer Worlds](https://www.lifewire.com/thmb/ilSMK7MdhAHIYF1KI5F6dWzNOnI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-HeroSquare-5886d4533ee146b18daef3a40898b264.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -38,9 +42,17 @@ Lifewire / Kelsey Simon
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Outer Worlds
 
 ![The Outer Worlds](https://www.lifewire.com/thmb/pXP4DrL3GC0-M_12FqdQQWlLjXk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-HeroSquare-5886d4533ee146b18daef3a40898b264.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -60,9 +72,6 @@ Lifewire / Kelsey Simon
 
  The Outer Worlds is a single-player[action-adventure game](https://www.lifewire.com/game-play-and-streaming-4781449) full of guns, colonists, spaceships, and monsters. You’ll venture out into a sci-fi world and try to save your ship which has had a serious malfunction. The shooting in Outer Worlds is fun, but the game’s best feature is its choice-driven story. We played the game on PC for roughly 20 hours, thoroughly enjoying its dark humor and fun gameplay.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Story: Engaging dialogue and dark humor**
 
  The Outer Worlds is a science fiction game with a focus on dry, dark humor. You’ll start the game by waking up on a malfunctioning spaceship. A man has woken you from stasis and says he needs you to save the ship and all the people living in stasis upon it. His name is Phineas Welles, and he’ll give you a very brief rundown that you’re to meet a smuggler who will take you to someone who can save your ship and people. As you go through this short cutscene sequence, you’ll be prompted to make your character, select your aptitude, skills, and attributes, before Phineas will drop you in a pod down to a planet where you’re to meet the smuggler, Hawthorne.
@@ -86,8 +95,9 @@ Lifewire / Kelsey Simon
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Gameplay: Shooting enemies for story progression**
 
  The Outer Worlds is a first-person shooter role-playing adventure. The game allows for a fairly open world exploration, but has a more linear story path with main missions, and the occasional side mission. You can choose to explore open areas and kill the enemies that lurk out in the wild, but there isn’t really the same incentive to doing so as there is in games such as[Skyrim](https://www.lifewire.com/the-elder-scrolls-v-skyrim-review-4685718) . Mostly, you’ll stick to the main story path and occasionally venture off it to finish a simple side mission before venturing back.
@@ -102,10 +112,11 @@ Lifewire / Kelsey Simon
 
 ![The Outer Worlds](https://www.lifewire.com/thmb/ax345l2R5dAgwtloXADYi2mrtKE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-03-933e9037c06d4754b04cca743675f3e5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Graphics: Average, but solid**
 
@@ -115,16 +126,10 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Not bad if you enjoy story-driven games**
 
  The Outer Worlds costs $60 new, although you might be able to catch it on sale if you watch closely. Even at full cost, it’s a game worth buying if you enjoy science fiction inspired first-person shooters―or more specifically, single-player shooter games with a focus on storytelling. As someone who often doesn’t like spending loads of money on a new game, I will say that Outer Worlds was one I didn’t mind buying. The game is fun and well written. It’s an adventure to be had, and while it’s not the best game that’s ever been made, it’s a solid, well-made game that most will enjoy.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Sci-fi games with strong series**
 
  As mentioned earlier in the review, it is easy to see where else The Outer Worlds (view on[Amazon](https://www.amazon.com/Outer-Worlds-PS4-playstation-4/dp/B07SPKJRWX/?tag=lifewire-onsite-prod-20&ascsubtag=5077238%7Cnf824de6f2b6d448fa046a9bad43a687209%7C) ) takes inspiration. Mass Effect is a series with a lot of similarities. First, Mass Effect is also a sci-fi shooter focused on story-telling and decision-making. Its gameplay will feel very similar to Outer Worlds, although Outer Worlds has a better sense of humor. The second game that is similar and worth looking into is the Bioshock series. Bioshock is also a science fiction shooter with an apocalyptic feeling. It has a very similar gameplay experience as Mass Effect and Outer Worlds, and comes with a darker, well-written plot.
@@ -135,9 +140,6 @@ Lifewire / Kelsey Simon
 
  The Outer Worlds is a story-drive first-person shooter that has a great sense of humor. Each decision you make will impact how the game unfolds. The shooting, while basic, is fun and provides the perfect vehicle to propel you forward on your adventure. Overall, The Outer Worlds is a solid game if you’re looking for a fun, humorous single-player experience.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  The Outer Worlds
@@ -146,14 +148,11 @@ Lifewire / Kelsey Simon
 * ESRB Descriptors  Blood and gore, Intense violence, Strong language
 * Genre  Role Playing
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,4 +161,20 @@ Lifewire / Kelsey Simon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-game-on-easy-ways-to-record-your-overwatch-experience/"><u>[New] 2024 Approved Game On! Easy Ways to Record Your Overwatch Experience</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-reimagining-storytelling-through-vr-screens/"><u>[Updated] 2024 Approved Reimagining Storytelling Through VR Screens</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-netgear-routers-reviewed-your-comprehensive-buying-guide/"><u>Best Netgear Routers Reviewed - Your Comprehensive Buying Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/echo-dot-gen-3-showcase-how-this-small-device-packs-all-the-punch-of-full-size-alexa-units/"><u>Echo Dot (Gen 3) Showcase: How This Small Device Packs All the Punch of Full-Size Alexa Units</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exclusive-listing-high-quality-free-streamers-for-webm-files-for-2024/"><u>Exclusive Listing High-Quality, Free Streamers for WebM Files for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-dailymotion-vs-youtubes-revenue-battle-analysis/"><u>In 2024, Dailymotion vs YouTubes Revenue Battle Analysis</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/next-level-efficiency-an-in-depth-look-at-the-razer-blade-stealth-13s-trailblazing-ultrabook-features/"><u>Next-Level Efficiency: An In-Depth Look at the Razer Blade Stealth 13'S Trailblazing Ultrabook Features</u></a></li>
+<li><a href="https://common-error.techidaily.com/reappear-your-vanished-system-trays-volume-icon-on-windows-10-a-visual-guide/"><u>Reappear Your Vanished System Tray's Volume Icon on Windows 10: A Visual Guide</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-itel-a60-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Itel A60 Screen | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-alluring-and-agile-dell-xps-13-7390-an-in-depth-look-at-this-remarkable-2-in-1-laptop/"><u>The Alluring and Agile Dell XPS 13 (7390): An In-Depth Look at This Remarkable 2-in-1 Laptop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-pet-tracker-reviews-unveiling-petcube-wonders/"><u>Top Pet Tracker Reviews: Unveiling Petcube Wonders</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-secrets-to-a-flawlessly-connected-home-the-netgear-nighthawk-x4-wi-fi-mesh-extender-testimony/"><u>Unveiling the Secrets to a Flawlessly Connected Home: The Netgear Nighthawk X4 Wi-Fi Mesh Extender Testimony</u></a></li>
+</ul></div>
 

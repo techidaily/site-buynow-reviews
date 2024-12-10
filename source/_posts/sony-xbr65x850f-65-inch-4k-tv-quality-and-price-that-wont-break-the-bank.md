@@ -1,7 +1,7 @@
 ---
 title: "Sony XBR65X850F (65-Inch) 4K TV: Quality & Price That Won't Break The Bank"
-date: 2024-08-22T16:20:11.793Z
-updated: 2024-08-23T16:20:11.793Z
+date: 2024-12-04T17:17:06.636Z
+updated: 2024-12-10T16:45:38.927Z
 categories:
   - BestProducts
 description: "This Article Describes Sony XBR65X850F (65-Inch) 4K TV: Quality & Price That Won't Break The Bank"
@@ -71,9 +71,6 @@ thumbnail: https://thmb.techidaily.com/8805f4d9fd76617ab713149a133229b90048f9ca9
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/v7wi7isxu06LAoWNZK3dJ908mCk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-4-cb1a370bd78244b383c802010a570313.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
  The rear panel is entirely matte black plastic. It’s pretty basic, but you also won’t be staring at the back of your TV a whole lot either. On the left you’ll find the power cable all by its lonesome, with the rest of the inputs and ports on the right. These are split between a hub facing the right side of the unit, and another cluster that stick straight out the back. This might be annoying if you want to get the TV super close to a wall, but the main ports most people will be using are found on the right side anyway.
@@ -94,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/8805f4d9fd76617ab713149a133229b90048f9ca9
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vvIZMf3BNAr8JmiDAVdv4o3ceHg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-2-7eabd63fb6c0415ab75fd927d664a841.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
  Sony has done a solid job here of making the setup process simple, or maybe we should be thanking Google for that, as this is an Android TV. All you need to do is follow along with the on-screen instructions and complete them as necessary. Using the remote, you’ll be prompted to choose a language, location, internet connection, sign into accounts, etc. Just stick to the guide.
@@ -101,9 +102,9 @@ thumbnail: https://thmb.techidaily.com/8805f4d9fd76617ab713149a133229b90048f9ca9
  With the initial process done, you will likely need to run a quick update check. This should automatically pop up, but check under the settings tab if it doesn’t. An update to the firmware should improve things considerably, especially if you need to upgrade to the latest version of Android TV. Updating takes a bit of time to do, so maybe go watch some TV while…oh right. Well, whatever you do during this process, just remember not to unplug the power while it’s running through updates.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Image Quality: Impressive 4K for IPS with some shortcomings**
 
  This section is perhaps the most important for a TV, and while the XBR65X850F performs pretty well in some aspects here, it also has a few weak points.
@@ -113,8 +114,9 @@ thumbnail: https://thmb.techidaily.com/8805f4d9fd76617ab713149a133229b90048f9ca9
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/r5reh9LkA7QvieX1JzBg5J8qNjY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-5-00a73edbf91c48c6aa2718ab211f2e5d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
  However, IPS panels are notoriously bad for black uniformity and backlight bleed, which can cause clouding around the edges. We found this to be the case on our XBR65X850F, and while not unusable, it’s probably not the best option for viewing in dark environments because of this. The TV does have solid gray uniformity however, with no dirty screen effect. This is a huge boon if you’re a big sports fan.
@@ -131,10 +133,6 @@ thumbnail: https://thmb.techidaily.com/8805f4d9fd76617ab713149a133229b90048f9ca9
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## **Audio Quality: Loud, but distorted**
 
  Built-in speakers are never going to be great, but they’re nice to have if you’re lacking an[external sound system](https://www.lifewire.com/connect-tv-to-external-audio-system-1846816) like a soundbar. While we’d recommend getting an external setup for the best experience, let’s take a quick look at what the XBR65X850F has to offer with the included setup.
@@ -142,8 +140,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  Right off the bat, this TV can get quite loud and you shouldn’t run into any volume issues. That being said, the overall experience is mediocre at best. The louder you turn it up, the more distortion is added. These speakers should suffice in quiet environments if you’re primarily looking for nice clear dialogue with treble and mid, but the bass is not so good.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Software: A bit sluggish but good enough**
 
  Android TV has come a long way since its debut, but not all TVs are getting timely updates, and these lower-end Sony TVs are notoriously slow for this. While some TVs are already running Android TV 9.0, many are stuck with older versions.
@@ -158,6 +157,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  One last thing, your phone can also be used as a remote if you so choose. All you need to do is download the app and connect it to the TV. This works with both Android and iOS devices (thanks Google). While it’s not a good as the regular remote, it works fine enough if you’re too lazy to get up and find the standard remote.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Not bad for the size, but not the cheapest**
 
  The X850F series come in a range of sizes, from 65 to 85 inches, so the prices can vary considerably depending on which one you go with. Any TV in this size range is going to cost a good bit of coin, no matter the manufacturer, but Sony isn’t too bad here.
@@ -167,9 +170,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  But how do these prices stack up against comparable TVs from competitors like LG or Samsung? Taking a quick look around online, you can easily save a few hundred dollars by going with a comparable LG TV, while Samsung was pretty closely matched with Sony. In the end, the price for the X850F series isn’t the best bang for your buck, but it ain’t bad either.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Sony XBR65X850F vs. Samsung UN65RU8000**
 
  Now there are a ton of comparable 4K TVs out there stacked up against the Sony XBR65X850F, but Samsung is a similarly reputable brand, so let’s compare their UN65RU8000 (view on[Amazon](https://www.amazon.com/Samsung-UN65RU8000-Ultimate-SurgePro-6-Outlet/dp/B07Q6VCCLF?tag=lifewire-onsite-prod-20&ascsubtag=4796693%7Cn899f0376278d4881a5af76b596b54aa000%7C) ).
@@ -202,14 +205,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * Speakers  2 full range, 2ch
 * Connectivity Options  4 HDMI
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -218,4 +218,26 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-elite-7-secure-platforms-for-smaller-companies/"><u>[New] In 2024, Elite 7 Secure Platforms for Smaller Companies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ptimal-film-and-camera-choices-for-youtube-vloggers-for-2024/"><u>[New] Optimal Film & Camera Choices for YouTube Vloggers for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/access-advanced-control-panel-to-change-screen-after-dark-mode/"><u>Access Advanced Control Panel to Change Screen After Dark Mode</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/anticipated-debut-of-arrow-lake-s-cpu-from-intel-in-early-winter/"><u>Anticipated Debut of Arrow Lake-S CPU From Intel in Early Winter</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/die-beste-methode-fur-die-sicherung-ihrer-ext4-partitionsdaten-mit-kostenloser-software/"><u>Die Beste Methode Für Die Sicherung Ihrer Ext4 Partitionsdaten Mit Kostenloser Software</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-youtube-tv-5-compelling-reasons-for-membership/"><u>Evaluating YouTube TV: 5 Compelling Reasons for Membership</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-perfection-with-apples-latest-innovation-series-4-unleashed/"><u>Experience Perfection with Apple's Latest Innovation: Series 4 Unleashed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-of-netgear-orbi-the-superior-mesh-networking-solution-for-your-home-or-office/"><u>Expert Review of Netgear Orbi: The Superior Mesh Networking Solution for Your Home or Office</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fossil-watches-exceptional-performance-meets-great-affordability-in-our-latest-reviews/"><u>Fossil Watches: Exceptional Performance Meets Great Affordability in Our Latest Reviews</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-boost-gaming-and-design-on-your-computer-by-upgrading-the-graphics-unit/"><u>How to Boost Gaming and Design on Your Computer by Upgrading the Graphics Unit</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-efficiently-organize-and-resolve-issues-with-your-iphone-photography-collection/"><u>How to Efficiently Organize and Resolve Issues with Your iPhone Photography Collection</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-removing-device-from-apple-id-for-your-iphone-15-plus-by-drfone-ios/"><u>In 2024, Removing Device From Apple ID For your iPhone 15 Plus</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/next-gen-gaming-unleashed-a-comprehensive-review-of-the-alienware-aurora-r9-by-dell/"><u>Next-Gen Gaming Unleashed: A Comprehensive Review of the Alienware Aurora R9 by Dell</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/oneplus-8t-assessment-speed-shines-camera-quality-dulls/"><u>OnePlus 8T Assessment: Speed Shines, Camera Quality Dulls</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/riciclaggio-di-file-video-flv-in-formato-immagine-gif-senza-costi-conversion-gratuita-con-movavi/"><u>Riciclaggio Di File Video FLV in Formato Immagine GIF Senza Costi - Conversion Gratuita Con Movavi</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/selecting-the-ideal-iphone-for-gaming-performance/"><u>Selecting the Ideal iPhone for Gaming Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-asus-chromebook-c202sa-perfect-durability-for-classroom-use/"><u>The Ultimate Guide to the Asus Chromebook C202SA: Perfect Durability for Classroom Use</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-10-entertaining-games-for-overcoming-boredom/"><u>Top 10 Entertaining Games for Overcoming Boredom</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-elevate-your-videos-from-ordinary-to-extraordinary-for-2024/"><u>Updated Elevate Your Videos From Ordinary to Extraordinary for 2024</u></a></li>
+</ul></div>
 

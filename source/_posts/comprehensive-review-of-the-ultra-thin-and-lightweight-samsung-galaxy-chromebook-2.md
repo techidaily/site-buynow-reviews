@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Review of the Ultra-Thin & Lightweight Samsung Galaxy Chromebook 2
-date: 2024-08-22T16:22:10.708Z
-updated: 2024-08-23T16:22:10.708Z
+date: 2024-12-05T20:07:24.503Z
+updated: 2024-12-10T18:01:47.036Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Review of the Ultra-Thin & Lightweight Samsung Galaxy Chromebook 2
@@ -69,9 +69,6 @@ Lifewire / Andy Zahn
 
  An[ultrabook](https://www.lifewire.com/best-laptops-to-buy-4043650) is typically a thing of compromises, and if you want a laptop that’s thin and light, power is often sacrificed. However, the Razer Book 13 challenges that stereotype and offers a sleek and attractive alternative to other high-end[ultra-portables](https://www.lifewire.com/best-lightweight-laptops-to-buy-4065134) . I tested it for 40 hours to find if it can live up both to its stunning ultrabook looks and Razer’s prowess in building high-powered gaming laptops.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Design: Beauty in minimalism
 
  Razer is known for their flashy gaming-focused laptops, mice, and keyboards that are clearly marketed towards gamers, but they have always also employed a certain degree of restraint over some more exuberant gaming products. With the Book 13, that restraint is pushed even further with only a few tasteful reminders of the laptop’s gaming heritage—the twisted snaky Razer logo on the top, and of course RGB backlighting for the keyboard.
@@ -89,18 +86,26 @@ Lifewire / Andy Zahn
  For such a thin laptop, there’s a surprising amount of ports included with the Book 13\. You get 4[Thunderbolt ports](https://www.lifewire.com/what-is-thunderbolt-832713) , a USB type-A port,[HDMI port](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) , a microSD slot, and a 3.5mm headphone/microphone combo port. Such a versatile array of inputs is not to be taken for granted these days, and is a big point in the Book 13’s favor.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Setup Process: Very straightforward
 
  There’s not a lot to say about setting up the Razer Book 13\. It’s just a standard install of Windows 10 Home with no surprises along the way so you can be up and running in just a few minutes.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Display: Positively stunning
 
  The Razer Book 13 configuration we tested comes with an absolutely gorgeous 13.5-inch UHD 60Hz display that is both very color accurate and provides stunning visuals. This is great for both creative tasks that require color accuracy, and for media consumption. The 16:10 aspect ratio is definitely tailored for productivity. The bezel is attractively thin, and the screen is made of Gorilla Glass 6, making it highly scratch resistant.
 
 ![Razer Book 13](https://www.lifewire.com/thmb/C308jEtLYxnwMp68uF5Sd-2hjyA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_02-4da7b450ac1c4b879f1b0bebfa9815b5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -116,16 +121,21 @@ Lifewire / Andy Zahn
 
  The Book 13 is equipped with a 512GB SSD. This is good enough, but it would have been nice to have a full terabyte of storage.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Software: No bloat
 
  I’m pleased to report that the Book 13 is pretty much free of bloat. Aside from the usual bits and bobs you get with Windows 10 Home, the laptop does come with Razer Synapse installed, which is absolutely essential as it allows you to control the customizable RGB backlighting in the keyboard, among a few other useful functions.
 
 ![Razer Book 13](https://www.lifewire.com/thmb/hKfA1c1e0-bRVVhMU22PtI2GewM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_03-23b08f335541443ebe1e7d7763140eca.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Connectivity: The latest and greatest
 
@@ -139,30 +149,24 @@ Lifewire / Andy Zahn
 
 Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ## Audio: Big sound for a small laptop
 
  You wouldn’t expect to get good audio out of such a small laptop, but the Book 13 does quite well in this regard. It features THX spatial audio and delivers a remarkably good listening experience. It’s certainly loud enough to deliver sound at max volume without noticeable distortion. 2Cellos cover of “Thunderstruck” is my go-to song for testing speakers and headphones, and I also listened to their new cover of “Livin’ on a Prayer.” The Book 13 rendered them both beautifully.
 
 ![Razer Book 13](https://www.lifewire.com/thmb/PL2MokPWQ_egcxv3fE0tw_k09Yo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_04-6eed60095cbe467c9552c651ba4c9d46.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Andy Zahn
 
  It’s particularly good in the mids and highs, but as you’d expect, loses something in the bass range. However, it’s more than adequate for listening to music, gaming, or watching movies.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Camera: Competent webcam
 
  The webcam on the Book 13 is about average for a laptop. It captures 720p video and is perfectly acceptable, though not exceptional in any way. Video quality looks decent, even in relatively challenging situations.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Price: The cost of quality
 
  The configuration of the Razer Book 13 I tested is definitely pricey at $2,000\. That’s a decent chunk of change, and you could certainly buy a laptop with more graphical power for the money, but the Book 13 isn’t made for high-end gaming.
@@ -172,8 +176,9 @@ Lifewire / Andy Zahn
  This is a premium, ultra-portable device designed more for professional work, and its ability to game is basically a nice bonus. Considering the competition from Dell and Apple, it’s not unreasonably priced.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Razer Book 13 vs. Dell XPS 13 7390 2-in-1
 
  There are a few big competitors that the Razer Book 13 is going up against, and perhaps the most significant is the excellent Dell XPS 13 7390 2-in-1\. Dell’s XPS laptops are great, and the 13 2-in-1 is no exception. Its main advantage over the Razer is its ability to transform into a tablet, but the Razer wins over in terms of raw power, and of course the Book 13 features that wonderful RGB backlighting.
@@ -192,9 +197,6 @@ Lifewire / Andy Zahn
 * [Asus Zephyrus G14](https://www.lifewire.com/asus-zephyrus-g14-review-a-no-compromises-gaming-laptop-5084841)
 * [Razer Blade 15](https://www.lifewire.com/razer-blade-15-review-4845229)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Book 13
@@ -218,8 +220,6 @@ Lifewire / Andy Zahn
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -227,4 +227,26 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-decoding-youtubes-5-second-tales/"><u>[New] 2024 Approved Decoding YouTube's 5-Second Tales</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-unlocking-perfect-presentation-youtubes-video-ratio-insights/"><u>[New] 2024 Approved Unlocking Perfect Presentation YouTube's Video Ratio Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazon-fire-tv-screen-saver-update-introducing-new-ad-supported-features/"><u>Amazon Fire TV Screen Saver Update: Introducing New Ad-Supported Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/avoid-external-gaming-capture-tools-stream-your-game-sessions-with-steam/"><u>Avoid External Gaming Capture Tools: Stream Your Game Sessions with Steam</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/can-shifting-to-arm-processors-revolutionize-microsoft-groaming-consoles/"><u>Can Shifting to ARM Processors Revolutionize Microsoft' Groaming Consoles?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/closure-announcement-redboxs-service-discontinuation-imminent/"><u>Closure Announcement: Redbox's Service Discontinuation Imminent</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/crafting-your-story-together-the-role-of-chatgpt-in-book-authorship/"><u>Crafting Your Story Together: The Role of ChatGPT in Book Authorship</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-must-watch-shows-on-leading-streaming-services-tailored-for-anime-lovers/"><u>Discover Must-Watch Shows on Leading Streaming Services Tailored for Anime Lovers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-playtime-with-top-tier-titles-a-guide-to-locating-superior-games-in-a-sea-of-choices/"><u>Elevate Your Playtime with Top-Tier Titles: A Guide to Locating Superior Games in a Sea of Choices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expanded-device-support-youtubes-consistent-audio-levels-now-arriving/"><u>Expanded Device Support: YouTube's Consistent Audio Levels Now Arriving</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-can-you-tell-if-your-fan-is-losing-efficiency-expert-advice-from-yl-computing/"><u>How Can You Tell If Your Fan Is Losing Efficiency? - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-a-compreenas-guide-to-auto-and-advanced-camera-exposure-methods/"><u>In 2024, A Compreenas Guide to Auto and Advanced Camera Exposure Methods</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-vivo-y78plus-t1-edition-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Vivo Y78+ (T1) Edition Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-steps-to-post-music-on-social-media-stories/"><u>In 2024, Steps to Post Music on Social Media Stories</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-shaky-footage-no-problem-fcpx-stabilization-techniques/"><u>New In 2024, Shaky Footage? No Problem! FCPX Stabilization Techniques</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tcl-50s425-50-inch-roku-tv-2019-review-a-4k-tv-big-on-value/"><u>TCL 50S425 50-Inch Roku TV (2019) Review: A 4K TV Big on Value</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlock-professional-subtitle-transformation-at-zero-price-for-2024/"><u>Unlock Professional Subtitle Transformation at Zero Price for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/unlock-the-secrets-to-enthralling-unboxing-content-on-insta/"><u>Unlock the Secrets to Enthralling Unboxing Content on Insta</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/windows-fans-alert-netflix-terminates-in-system-downloading-service/"><u>Windows Fans Alert: Netflix Terminates In-System Downloading Service</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: NBA 2K19 - Ultimate Virtual Basketball Experience
-date: 2024-08-27T11:07:45.742Z
-updated: 2024-08-28T11:07:45.742Z
+date: 2024-12-09T17:39:26.540Z
+updated: 2024-12-10T21:17:57.440Z
 categories:
   - BestProducts
 description: This Article Describes NBA 2K19 - Ultimate Virtual Basketball Experience
@@ -64,8 +64,9 @@ Lifewire / Erika Rawes
  The[best PC games](https://www.lifewire.com/best-pc-games-4147292) offer something unique that keeps you coming back for more. Yakuza: Like a Dragon takes the standard Yakuza formula and stands it on its head, moving the fighting system from real-time to turn-based and making this entry to the series feel like a true JRPG. I played Yakuza: Like a Dragon[on PC](https://www.lifewire.com/best-pc-games-4147292) to find out if these changes make this game better or worse. Should you play the new Yakuza or skip it? Read on to check out my full review of Yakuza: Like a Dragon.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Setting and Plot: A very long intro
 
  Yakuza: Like a Dragon places you in the shoes of Ichiban Kasuga, a young Yakuza upstart who was raised as an orphan in a Soap House by the owner and the women who worked there. Kasuga gets into a bit of trouble with a Yakuza family but is saved by Masumi Arakawa, the patriarch of the Arakawa family. Because of this, Kasuga pledges his life to Arakawa, promising to repay the debt.
@@ -81,8 +82,9 @@ Lifewire / Erika Rawes
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/_ksFqEWrm3B3MbfrBujuNtLpcXw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_03-37ca82f2a4cd42c4ad65f34e2ca63b68.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
  Once things open up, the story gets going in what can only be described as a true modern-day JRPG. It has many of the common tropes of a JRPG, like a party system that allows you to manage those who fight with you, turn-based combat, and a long sweeping epic filled with plenty of side quests.
@@ -128,23 +130,21 @@ Lifewire / Erika Rawes
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/zrV5S3jL3_76G0PVgT1K_Ty6WWI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_04-e33b82262b344fecae27d668b3c92ba9-55ba8acb6d324eed81fbf5453e770db8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Price: The typical $60
 
  The base version of Yakuza: Like a Dragon comes in at $60 like most new titles. The price is reasonable for the amount of gameplay. However, you have two other purchase options as well. The Hero Edition, which costs $70, includes the Job Set and the Management Mode set and features two extra jobs and three sets of Management mode employees.
 
  The Legendary Hero edition costs $90, and it includes both previously listed sets, as well as the Crafting Mat, Stat Boost, Karaoke, and Ultimate Costume sets. These are all nice bonuses and can certainly add to the experience, but you will also find more than enough gameplay in the base game.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ## Yakuza: Like a Dragon vs. Dragon Quest Series
 
  It’s clear Yakuza: Like a Dragon draws some inspiration from the recent Dragon Quest, Dragon Quest XI. Both games feature turn-based combat, jobs working as roles, and a large sweeping and epic tale. Yakuza: Like a Dragon diverges in one major way, and that is not being afraid to innovate and push the limits of what a JRPG can be. Where Dragon Quest is the basic formula, Yakuza: Like a Dragon is what happens when a mad scientist gets a hold of that formula and creates something both crazy and brilliant.
@@ -156,9 +156,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  A well-crafted masterpiece. Yakuza: Like a Dragon falls into the must-play category for anyone who loves a good story, JRPGs, or a wild game that will make you laugh. It’s definitely a departure from the rest of the series, but that contributes to a lot of the fun and uniqueness of the game.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Cyberpunk 2077](https://www.lifewire.com/cyberpunk-2077-review-5113844)
@@ -184,8 +184,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -193,4 +191,24 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/elightful-yuletide-cinema-on-youtube-savor-nine-whole-film-gems/"><u>[New] Delightful Yuletide Cinema on YouTube Savor Nine Whole-Film Gems</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-anime-based-short-clips-top-20-ideas-on-tiktok-for-2024/"><u>[Updated] Anime-Based Short Clips Top 20 Ideas on TikTok for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-how-to-add-music-to-facebook-videos-for-2024/"><u>[Updated] How to Add Music to Facebook Videos for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-new-year-updated-lg-360-full-review-insights/"><u>[Updated] New Year, Updated LG 360 Full Review Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-propella-7s-40-portability-meets-affordability/"><u>Comprehensive Review of Propella 7S 4.0: Portability Meets Affordability</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footprint-dos-and-donts-for-online-safety/"><u>Digital Footprint Do's & Don'ts for Online Safety</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-logitech-c615-webcam-striking-a-perfect-blend-of-price-and-quality/"><u>Evaluating the Logitech C615 Webcam: Striking a Perfect Blend of Price and Quality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fun-filled-family-adventure-our-in-depth-review-of-plants-vs-zombies-battle-for-neighborville/"><u>Fun-Filled Family Adventure! Our In-Depth Review of Plants Vs. Zombies: Battle for Neighborville</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-fix-a-stereo-receiver-thats-not-making-sound/"><u>How to Fix a Stereo Receiver That's Not Making Sound</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-bypass-apple-iphone-7-passcode-easily-video-inside-drfone-by-drfone-ios/"><u>In 2024, How to Bypass Apple iPhone 7 Passcode Easily Video Inside | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-navigating-full-screen-in-ppro/"><u>In 2024, Navigating Full Screen in PPro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-moto-g-play-impressive-endurance-and-satisfactory-speed/"><u>In-Depth Analysis of Moto G Play: Impressive Endurance & Satisfactory Speed</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/logitech-momo-racing-wheel-driver-download-for-pc/"><u>Logitech MOMO Racing Wheel Driver Download for PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tablet-tug-of-war-a-comprehensive-guide-to-picking-between-the-amazon-fire-and-samsung-models/"><u>Tablet Tug-of-War: A Comprehensive Guide to Picking Between the Amazon Fire and Samsung Models</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tiny-titans-of-tech-an-in-depth-analysis-of-the-razer-book-13/"><u>Tiny Titans of Tech: An In-Depth Analysis of the Razer Book 13</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-potential-an-in-depth-look-at-the-affordable-and-capable-google-pixel-4a-5g/"><u>Unlocking Potential: An In-Depth Look at the Affordable and Capable Google Pixel 4a 5G</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-excellence-of-the-asus-ax600-rt-ax88u-your-go-to-wi-fi-customername/"><u>Unveiling the Excellence of the Asus AX6#00 RT-AX88U: Your Go-To Wi-Fi # Customer_name!</u></a></li>
+</ul></div>
 

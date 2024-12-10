@@ -1,7 +1,7 @@
 ---
 title: "Canon PowerShot: The Efficient SX620 HS Explores Photography"
-date: 2024-11-29T16:56:09.010Z
-updated: 2024-12-04T03:29:56.944Z
+date: 2024-12-03T19:51:45.391Z
+updated: 2024-12-10T21:20:27.565Z
 categories:
   - BestProducts
 description: "This Article Describes Canon PowerShot: The Efficient SX620 HS Explores Photography"
@@ -18,13 +18,13 @@ thumbnail: https://thmb.techidaily.com/68d72132debc55d7a219d5ad96f3f8ade10f55eb9
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/mk2ndJKMrOgGOYfE8uNwJVYkaTk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
 
@@ -52,7 +52,7 @@ Lifewire / Nick Jaynes
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/kUpys0K04ePH0SuEfAENz--MXSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
@@ -77,7 +77,7 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: All-plastic, but sturdy and subtle**
@@ -102,6 +102,10 @@ Lifewire / Nick Jaynes
 
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Middle of the pack**
 
  The list price of $14.99 is positioned in the mid-range of the USB charger market, which ranges from just a few dollars to upwards of $50 for some fancier chargers. However, Anker PowerDrive 2 can be had for a discounted price on some websites. Considering the fact that the Anker PowerDrive 2 includes both the fast-charger and a 3-foot micro USB cable, it is well priced for the marketplace.
@@ -109,7 +113,7 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: A handful of rivals**
@@ -125,10 +129,6 @@ Lifewire / Nick Jaynes
  **The Anker PowerDrive 2 is the workhorse of the in-car USB charger market.**
 
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -156,17 +156,22 @@ Lifewire / Nick Jaynes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-leading-speed-change-audio-utilities-list/"><u>[New] In 2024, Leading Speed-Change Audio Utilities List</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-art-of-crafting-your-own-top-tier-4k-editing-machine/"><u>[New] The Art of Crafting Your Own Top-Tier 4K Editing Machine</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-elevate-your-social-presence-proven-methods-for-fb-fan-expansion-for-2024/"><u>[Updated] Elevate Your Social Presence Proven Methods for FB Fan Expansion for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-permanent-name-shift-on-google-meet-devices/"><u>[Updated] In 2024, Permanent Name Shift on Google Meet Devices</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-essential-guide-to-cinematic-instagram-videos/"><u>2024 Approved The Essential Guide to Cinematic Instagram Videos</u></a></li>
-<li><a href="https://win-able.techidaily.com/fixing-the-unloading-dilemma-top-7-techniques-to-conquer-steam-black-screens/"><u>Fixing the Unloading Dilemma: Top 7 Techniques to Conquer Steam Black Screens</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-photography-gear-totes-the-ultimate-list/"><u>Top-Rated Photography Gear Totes: The Ultimate List</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-buying-an-all-purpose-laptop-the-best-features-of-the-asus-vivobook-11-explored/"><u>Ultimate Guide to Buying an All-Purpose Laptop: The Best Features of the Asus Vivobook 11 Explored</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-comfortable-keyboard-cushions/"><u>Ultimate Guide to Comfortable Keyboard Cushions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/upgrade-to-professional-8-benefits-of-linkedin-plus/"><u>Upgrade to Professional: 8 Benefits of LinkedIn Plus</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/viair-88p-portable-compressor-examined-exceptional-strength-accompanied-by-small-setbacks/"><u>Viair 88P Portable Compressor Examined: Exceptional Strength Accompanied by Small Setbacks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/what-lies-beyond-an-aminy-analysis-of-extraterrestrials/"><u>What Lies Beyond? An Aminy Analysis of Extraterrestrials</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-expert-advice-to-recover-missing-thumbnails-from-videos/"><u>[New] 2024 Approved Expert Advice to Recover Missing Thumbnails From Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-essential-know-how-record-ipad-display-for-2024/"><u>[Updated] Essential Know-How Record iPad Display for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-elevate-your-mobile-surfing-with-these-top-7-blockers/"><u>[Updated] In 2024, Elevate Your Mobile Surfing with These Top 7 Blockers</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-leading-edge-selecting-9-superior-online-microphone-recorders-for-2024/"><u>[Updated] Leading Edge Selecting 9 Superior Online Microphone Recorders for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/blueear-wireless-bluetooth-ear-beanie-evaluation-stylish-and-functional-with-solid-audio-performance/"><u>Blueear Wireless Bluetooth Ear Beanie Evaluation: Stylish and Functional with Solid Audio Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-linksys-ea8300-advanced-device-management/"><u>Comprehensive Analysis of Linksys EA8300: Advanced Device Management</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-minecraft-game-analysis-a-family-friendly-blocky-adventure/"><u>Comprehensive Minecraft Game Analysis: A Family-Friendly Blocky Adventure</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/harmonic-richness-at-reasonable-costs-paww-wavesound-3-analysis/"><u>Harmonic Richness at Reasonable Costs: Paww Wavesound 3 Analysis</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/how-to-upload-3gp-files-to-youtube-conversion-guide/"><u>How to Upload 3GP Files to YouTube - Conversion Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor Magic Vs 2? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-functionality-the-definitive-samsung-galaxy-tab-s-2018-an-in-depth-tablet-evaluation/"><u>Mastering Functionality: The Definitive Samsung Galaxy Tab S 2018 - An In-Depth Tablet Evaluation</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/mastering-iphones-screen-capture-features-for-2024/"><u>Mastering iPhone's Screen Capture Features for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/oneplus-8t-review-spotty-cameras-hold-back-this-speedy-beast/"><u>OnePlus 8T Review: Spotty Cameras Hold Back This Speedy Beast</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/speeding-up-your-periscope-streams-effortlessly-for-2024/"><u>Speeding Up Your Periscope Streams Effortlessly for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-premier-selection-of-consoles-for-enthusiastic-players-this-year/"><u>The Premier Selection of Consoles for Enthusiastic Players This Year</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/understanding-the-differences-between-sonys-flagship-consoles-ps5-and-ps5-slim-models/"><u>Understanding the Differences Between Sony's Flagship Consoles: PS5 and PS5 Slim Models</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-best-value-in-tablets-in-depth-analysis-of-the-new-apple-ipad-102/"><u>Unveiling the Best Value in Tablets: In-Depth Analysis of the New Apple iPad 10.2</u></a></li>
 </ul></div>
 

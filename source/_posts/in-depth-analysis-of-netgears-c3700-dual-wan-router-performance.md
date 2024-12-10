@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of Netgear's C3700 Dual WAN Router Performance
-date: 2024-08-22T16:24:54.847Z
-updated: 2024-08-23T16:24:54.847Z
+date: 2024-12-07T17:40:07.264Z
+updated: 2024-12-10T17:00:56.656Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of Netgear's C3700 Dual WAN Router Performance
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/gviNJgKKnr3PxooAF6y3zR6wYS8=/400x300/fi
 ## Netgear Powerline PL1200
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LJwkWIKV_tIoZmxEqV9kr7ByA1Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_HeroSquare-d40232740fc34cdbb9b7197a7bda177d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jordan Oloman
 
@@ -35,6 +39,10 @@ Lifewire / Jordan Oloman
 [View On Amazon $93](https://www.amazon.com/NETGEAR-PowerLINE-1200-Gigabit-PL1200-100PAS/dp/B00S6DBGJM/?tag=lifewire-onsite-prod-20&ascsubtag=4775706%7Cnd7ef9f90fead488fa5331864dc7d135e18%7CB00S6DBGJM) [View On Walmart $95](https://www.walmart.com/ip/POWERLINE-1200/45611933) [View On Best Buy $48](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-powerline-ac1200-gigabit-ethernet-adapter-2-pack-white%2F4002029.p%3FskuId%3D4002029)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Netgear Powerline PL1200
 
@@ -80,14 +88,8 @@ Lifewire / Jordan Oloman
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LMrQEcpONDZxLUfoMW6U8sX4dQw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_02-a8557f722ac84f29b6efb2a763d22a3c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jordan Oloman
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Delightfully quick and efficient**
 
  The Netgear Powerline 1200 is a dream to start, since all it takes is plugging the devices in for them to work. Simply place one near your router, attach the Ethernet cable, then head to the room where you want to expand the network and do the same there, attaching the Ethernet to a console, smart TV or electronic device with an internet connection.
@@ -102,11 +104,12 @@ Lifewire / Jordan Oloman
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LvSmrJJnFItVzQEAPCzBexfSn2M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_03-8fb5af44f82449b49fc780fd23bcb2af.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jordan Oloman
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## **Performance: A solid improvement**
 
  Using the device across our living room and bedroom, in two different setups across the course of a month, we found that the Netgear Powerline kit gave us a reliable upgrade to internet efficiency. Our initial connection speed (as per[Speedtest](https://www.speedtest.net/) ) offered a 68.4Mbps download speed, with 3.60Mbps upload speed, and sub-10-millisecond ping. The Netgear kit with an Ethernet cable attached to our laptop afforded us an 88Mbps download speeds and 6Mbps upload speeds.
@@ -119,16 +122,14 @@ Lifewire / Jordan Oloman
 
  You can create a secure and powerful network that boasts a dramatic upgrade in efficacy, all for a low price point, with a setup process that is actually plug and play.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Affordable for what you get**
 
  Out of the adapters we tested, the Netgear Powerline 1200 was one of the cheaper ones on Amazon, ranging between $70-$85\. You can see why when you study the design and the many aesthetic flaws that come with this product. Besides the fact it is bulky and doesn’t play nice with other plugs, it’s a reliable means to improve your home network through the wonders of Powerline. It’s still quite a hard sell at this price compared to other products that hover around the same and offer more ports and socket functionality, but it’s still a worthwhile purchase if you just want to plug and play.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Netgear Powerline 1200 vs. TP-Link AV2000 Powerline Adapter**
 
  Comparing the Netgear Powerline 1200 kit to the TP-Link Powerline AV2000, there are some noticeable pros and cons. The TP-Link kit performs better speed-wise, has serviceable cables, lets you use the socket and doesn’t obstruct other plugs. However, the setup process isn’t as simple and we found some easily-fixed, but frustrating issues with connectivity.
@@ -144,8 +145,9 @@ Lifewire / Jordan Oloman
  The Netgear Powerline 1200 is incredibly reliable, albeit poorly designed. It is obstructive in the design department, fairly ugly to look at and comes with just one connection and awfully short Ethernet cables. Yet it has a true plug and play setup process with no compromises, and offers a reliable upgrade to your home network speeds. If you can look past the strange design choices this is the perfect introductory kit for Powerline beginners that does everything you need it to.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Powerline PL1200
@@ -161,8 +163,6 @@ Lifewire / Jordan Oloman
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -170,4 +170,22 @@ Lifewire / Jordan Oloman
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-charting-your-way-to-frequent-payments-from-youtube/"><u>[Updated] In 2024, Charting Your Way to Frequent Payments From YouTube</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-premier-list-all-time-great-general-knowledge-shows-24/"><u>2024 Approved The Premier List All-Time Great General Knowledge Shows '24</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-between-outlookcom-and-gmail-a-comprehensive-guide-to-best-practices/"><u>Choosing Between Outlook.com and Gmail: A Comprehensive Guide to Best Practices</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/combine-sounds-into-powerpoint-narratives-for-2024/"><u>Combine Sounds Into PowerPoint Narratives for 2024</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/for-the-cover-crop-extraction-ignore-common-words-like-and-the-a-etc-but-ensure-all-instances-including-types-of-crops-or-their-effects-on-soil-are-included268/"><u>For the Cover Crop Extraction, Ignore Common Words Like and, the, a, Etc., But Ensure All Instances Including Types of Crops or Their Effects on Soil Are Included.</u></a></li>
+<li><a href="https://driver-error.techidaily.com/high-quality-audio-bus-issue-resolved/"><u>High-Quality Audio Bus Issue Resolved</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/navigating-gadgets-with-tom-expert-hardware-analysis-and-tips/"><u>Navigating Gadgets with Tom: Expert Hardware Analysis & Tips</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-thrills-of-fortnite-a-review-of-its-most-recent-exciting-season/"><u>Navigating the Thrills of Fortnite - A Review of Its Most Recent, Exciting Season</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/secure-your-pcs-future-from-windows-8-upgrade-to-win-11/"><u>Secure Your PC's Future: From Windows 8, Upgrade to Win 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-apex-of-luxury-mobile-tech-a-detailed-look-at-the-exquisite-samsung-galaxy-s10/"><u>The Apex of Luxury Mobile Tech: A Detailed Look at the Exquisite Samsung Galaxy S10</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-karaoke-machines-of-2024/"><u>The Best Karaoke Machines of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-ranking-of-cell-phone-reception-boosters-top-picks/"><u>The Definitive Ranking of Cell Phone Reception Boosters: Top Picks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-lenovo-nook-touch-testing-its-features-in-detail/"><u>The Lenovo Nook Touch - Testing Its Features in Detail</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-harmonizing-movement-with-melody-the-practical-approach-to-adding-music-to-mac-created-gifs-for-2024/"><u>Updated Harmonizing Movement with Melody The Practical Approach to Adding Music to Mac-Created GIFs for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Fellowes Microban Wired Keyboard Unveiled: Why It's the Ultimate Budget Choice for Users"
-date: 2024-08-22T16:23:17.868Z
-updated: 2024-08-23T16:23:17.868Z
+date: 2024-12-06T20:06:41.651Z
+updated: 2024-12-10T19:18:46.086Z
 categories:
   - BestProducts
 description: "This Article Describes Fellowes Microban Wired Keyboard Unveiled: Why It's the Ultimate Budget Choice for Users"
@@ -69,10 +69,6 @@ Lifewire / Erika Rawes
 
  The[Netgear](https://www.lifewire.com/best-netgear-routers-4159862) Nighthawk RAX120 is supposed to provide lightning-fast speeds while serving as one of the[best long-range wireless routers](https://www.lifewire.com/best-long-range-routers-4122554) currently on the market. Fully loaded with[Wi-Fi 6 technology](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , smart home connectivity, and a slew of other features, the AX12 should be an ideal router for small businesses, very large homes, or for homes with multiple devices. I tested the Netgear Nighthawk RAX120 to see how well it performs in the real world.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ## **Design: Batman’s router**
 
  The Netgear Nighthawk RAX120 has a futuristic design—angular, with clean lines. It looks like a cross between a spaceship and the Batmobile. It’s matte black and rectangular, but instead of the multiple antennas you’d typically see protruding from the top of a Nighthawk router, it has two wing-like extensions that come from each side.
@@ -84,8 +80,9 @@ Lifewire / Erika Rawes
 Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup: Quick and easy**
 
  The Netgear Nighthawk app walks you through the setup process. There’s a QR code sticker on the router, as well as a temporary network name and password on the label, which allow you to connect quickly and easily.
@@ -105,8 +102,9 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Network performance: Stellar**
 
  The Nighthawk RAX120 indicates top speeds of 1,200 Mbps on the 2.4Ghz band and 4,800 Mbps on the 5Ghz band. My Internet speed maxes out at 500 Mbps. I have about 50 connected devices, more than half of which are smart home devices like smart light switches, smart appliances, security cameras, and smart speakers and displays. The RAX120 had no problem managing my numerous smart devices, nor did I experience any lag or connectivity issues on streaming and gaming devices. I simultaneously ran a gaming computer, two playstations, and two FireTVs without the connection missing a beat.
@@ -118,6 +116,10 @@ Lifewire / Erika Rawes
  Final Verdict
 
  The RAX120 is backward compatible with 802.11a/b/g/n/ac as well, so it’ll work with virtually all of your devices, Wi-Fi 6 or not.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Key Features: Quality hardware, lacks antivirus**
 
@@ -137,18 +139,20 @@ Lifewire / Erika Rawes
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/MPwp1LtMC7Ua30t8VnJy7bjuqn4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_02-94fbae95ca5d4851a1cf40b197da4161.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Expensive**
 
  The Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router will cost you a pretty penny—it sells for $400, which is $100 lower than its original retail price of $500\. But it’s still on the higher end of the price spectrum, especially considering it doesn’t include any sort of mesh points, and you only get the router, power supply, and an Ethernet cable.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Netgear Nighthawk RAX120 vs. TP-Link Archer AX6000**
 
  More and more Wi-Fi 6 routers continue to hit the market, including the TP-Link Archer AX6000 (view on[Amazon](https://www.amazon.com/TP-Link-AX6000-8-Stream-Smart-Router/dp/B07L56SN8Mhttps:/www.amazon.com/TP-Link-AX6000-8-Stream-Smart-Router/dp/B07L56SN8Mhttps:/www.amazon.com/TP-Link-AX6000-8-Stream-Smart-Router/dp/B07L56SN8M/?tag=lifewire-onsite-prod-20&ascsubtag=4942498%7Cn31dea18fa28a4d9a88e5e3a62470a49720%7C) ). Like the Nighthawk RAX120, the Archer AX6000 has a quad-core processor, but the Nighthawk’s processor is 2.2 GHz, while the TP-Link Archer’s CPU is only 1.8 GHz. The Nighthawk features the WPA3 security protocol, while the Archer AX6000 does not yet have WPA3\. The Nighthawk RAX120 doesn’t outshine the Archer in every area though. The TP-Link Archer AX6000 has eight[LAN](https://www.lifewire.com/what-is-lan-4684071) ports, includes antivirus protection, has better integration with smart home platforms, and it costs $100 less.
@@ -160,8 +164,9 @@ Lifewire / Erika Rawes
  The Nighthawk RAX120 performs impressively, but it‘s costly and lacks some user-friendly features like strong parental controls and easy-to-manage antivirus, so it’ll be more desirable for those with heavier networking demands than the average user.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router
@@ -185,14 +190,11 @@ Lifewire / Erika Rawes
 * Processor  AX optimized powerful 64-bit Quad-core 2.2GHz processor
 * Range  3,500 square feet
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -201,4 +203,26 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-make-youtube-animated-subscribe-button-easily-in-filmora/"><u>[New] 2024 Approved How to Make YouTube Animated Subscribe Button Easily in Filmora</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-data-deluge-infographics-on-youtubes-intriguing-insights/"><u>[New] In 2024, Data Deluge Infographics on YouTube's Intriguing Insights</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-precision-problem-solving-for-youtube-short-success/"><u>[Updated] In 2024, Precision Problem-Solving for YouTube Short Success</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-lenovo-thinkpad-x1-titanium-yoga-a-revolutionary-choice-for-traditional-thinkpad-fans/"><u>Comprehensive Guide to the Lenovo ThinkPad X1 Titanium Yoga: A Revolutionary Choice for Traditional ThinkPad Fans</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/creative-mastery-with-the-gaomon-pd1-560-a-pen-display-review-for-digital-artists/"><u>Creative Mastery with the Gaomon PD1 560: A Pen Display Review for Digital Artists</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/discover-how-to-perform-powerful-image-queries-on-the-facebook-platform/"><u>Discover How to Perform Powerful Image Queries on the Facebook Platform</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-ultimate-selection-of-8-premium-mobile-games/"><u>Discover the Ultimate Selection of 8 Premium Mobile Games</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/echo-dot-vs-homepod-mini-a-comprehensive-side-by-side-analysis/"><u>Echo Dot Vs. HomePod Mini: A Comprehensive Side-by-Side Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-cost-effective-hp-15-laptop-is-it-efficient-with-its-amd-processor/"><u>Evaluating the Cost-Effective HP 15 Laptop – Is It Efficient with Its AMD Processor?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-ensure-perfect-prints-essential-techniques-in-adobe-photoshop/"><u>How to Ensure Perfect Prints: Essential Techniques in Adobe Photoshop</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-update-creative-recon3d-sound-card-drivers-on-your-pc/"><u>How to Update Creative Recon3D Sound Card Drivers on Your PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-gameplay-on-samsung-q60r-qled-4k-smart-tv-the-ultimate-review/"><u>Mastering Gameplay on Samsung Q60R QLED 4K Smart TV – The Ultimate Review</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-pdhdll-error-fixes-tips-and-solutions-for-windows-users/"><u>Mastering Pdh.dll Error Fixes: Tips and Solutions for Windows Users</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/professional-mac-x-movie-editor-dvd-to-digital-format-converter-with-full-ripper-features-for-apple-users/"><u>Professional Mac X Movie Editor - DVD to Digital Format Converter with Full Ripper Features for Apple Users</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/spotlight-play-how-to-stand-out-with-youtube-gaming/"><u>Spotlight Play How to Stand Out with YouTube Gaming</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/taking-the-first-steps-towards-vr-technology-mobile-based-headsets-vs-cabled-gear-for-2024/"><u>Taking the First Steps Towards VR Technology Mobile-Based Headsets Vs. Cabled Gear for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/trendsetting-transit-a-complete-look-at-the-swagtron-swagger-electric-scooter/"><u>Trendsetting Transit: A Complete Look at the Swagtron Swagger Electric Scooter</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1722000453912-unlock-the-potential-communicating-with-chatgpt-revealed/"><u>Unlock the Potential: Communicating with ChatGPT Revealed!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-the-lenovo-thinkpad-x1-titanium-yoga-is-a-game-changer-in-depth-review-and-comparison-for-passionate-thinkpad-lovers/"><u>Why the Lenovo ThinkPad X1 Titanium Yoga Is a Game-Changer: In-Depth Review and Comparison for Passionate ThinkPad Lovers</u></a></li>
+</ul></div>
 

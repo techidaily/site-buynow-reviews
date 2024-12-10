@@ -1,7 +1,7 @@
 ---
 title: Mastering Aerial Imagery with DJI Mavic 2 Pro - A Comprehensive Review by Professionals
-date: 2024-08-22T16:21:01.160Z
-updated: 2024-08-23T16:21:01.160Z
+date: 2024-12-08T18:49:01.178Z
+updated: 2024-12-10T18:34:36.787Z
 categories:
   - BestProducts
 description: This Article Describes Mastering Aerial Imagery with DJI Mavic 2 Pro - A Comprehensive Review by Professionals
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/Kr9zjX6xW9ZD-X8v0TtWKnNdctY=/400x300/fi
 ## Acer Aspire E 15
 
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/c79DXaJ-n7yWNexbj5-KwdH2TP0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1lW4043278-Acer-Aspire-5-c1e432cd86444d3a9d55eb391bdffb0b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -77,6 +81,10 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: A decent plastic case, but not exactly a premium look**
 
  Aesthetics may be the Acer Aspire E 15’s weakest area — it’s a big, chunky[laptop](https://www.lifewire.com/best-laptops-for-college-students-to-buy-4071769) that measures in at over an inch thick at the rear and tapers to a bit less than an inch at the front. It also tips the scales at over five pounds, which is definitely on the heavy side for a 15.6” laptop.
@@ -89,9 +97,6 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  The keyboard is roomy and comfortable and the keys feel sharp and springy. The trackpad is massive and responsive, but it doesn’t feel as robust as the keyboard. The left and right buttons are incorporated into the main body of the trackpad, and they have far too much give—if we pressed down with more than the absolute minimum necessary force, it felt like the trackpad might collapse.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process:** **A ton of bloatware to remove**
 
  The Acer Aspire E 15 comes with[Windows 10](https://www.lifewire.com/windows-10-2626217) preloaded, and the setup process isn’t really anything out of the ordinary for a Windows 10 laptop. Acer requests some contact information during the initial setup, which is something that most of the[OEMs](https://www.lifewire.com/what-is-oem-software-1701736) do to help with warranties and support. We timed the process from start to finish, and it took about 10 minutes to go from plugging it in and turning it on, to hitting the desktop for the first time.
@@ -101,13 +106,11 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/M-q3UXEJ6htBtTcwPWAH9SLwJeI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1lW4043278-Acer-Aspire-4-1cfdfcc543fa4eb5b5e5449b6ea37413.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Display: Full HD display with awesome contrast but washed-out color**
 
  While the Aspire E 15’s screen isn’t the brightest or most colorful in the world, it is a full HD display that absolutely shines compared to the low-resolution screens found on a lot of laptops in this category.
@@ -136,9 +139,6 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  The takeaway is that we absolutely wouldn’t recommend buying this laptop for the purpose of playing games, but it is capable of rising to the task if you’re willing to lower the settings and stick to older games.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Productivity: Gets the job done at work, home, or on the go**
 
  The Aspire E 15 is designed with productivity in mind. While we found that it was capable of some light gaming, it’s definitely intended for students and people who need a basic[business laptop](https://www.lifewire.com/best-laptops-to-buy-4043650) .
@@ -148,13 +148,11 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/0j4qIM8N-IXUlX66rWrHmqZTjxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1lW4043278-Acer-Aspire-3-8bdb945a491f4f4cbab64c65fa21d9af.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Audio: Decent speakers, but no bass response**
 
  The speakers are decent enough, but the audio quality is still one of the Aspire E 15’s weaker points. They just don’t get all that loud, and when we did crank the volume all the way up, we noticed a bit of distortion in some frequency ranges. There isn’t a whole lot of bass, either, so everything sounds a little tinny—and that only gets worse at louder volumes.
@@ -174,8 +172,9 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
  The included webcam is capable of capturing 720p video, and while it works well enough for basic video calls on Skype or Discord, it may not be up to the standards necessary for professional video conferencing. It also takes grainy still images, although that may not be a huge concern unless you really need to take[photos](https://www.lifewire.com/best-laptops-to-buy-4043650) with your webcam for some reason.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Battery: Fantastic battery life that goes all day**
 
  The battery in the Aspire E 15 is exceptional, especially compared to the mediocre offerings found in similarly-priced competitors. Acer advertises a 12-hour battery life, and we found that to be a pretty accurate claim.
@@ -193,8 +192,9 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
  If you’re a Firefox user, it might be nice to have that already downloaded (just remember to update it immediately). But the rest of this bloatware is most likely going to be an annoyance that needs to get uninstalled.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Extremely competitive pricing**
 
  With an MSRP of just $380, the Aspire E 15 is a fantastic deal. If you can get it for even less than that, then it’s truly a steal. The more expensive configuration with an SSD, discrete graphics, and Core i7, is also a good deal at an MSRP of $599 if you have a little more room in your budget.
@@ -221,6 +221,10 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 * [Microsoft Surface Go](https://www.lifewire.com/microsoft-surface-go-review-4690827)
 * [Lenovo Ideapad 320](https://www.lifewire.com/lenovo-ideapad-320-review-4686723)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Aspire E 15
@@ -235,14 +239,11 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 * Camera  0.9 MP webcam
 * Display  15.6” 1920 x 1080
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -251,4 +252,21 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-open-source-banner-resources-a-gift-to-youtubers/"><u>[Updated] 2024 Approved Open Source Banner Resources A Gift to YouTubers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-chart-a-course-to-popularity-the-fundamentals-of-channel-featuring-on-youtube/"><u>[Updated] Chart a Course to Popularity The Fundamentals of Channel Featuring on Youtube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-high-ranking-videos-youtubes-everlasting-classics/"><u>[Updated] In 2024, High-Ranking Videos YouTube’s Everlasting Classics</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-finest-6-economical-4k-hd-projector-picks/"><u>In 2024, Finest 6 Economical 4K HD Projector Picks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-streaming-applications-for-enjoying-your-favorite-shows/"><u>Leading Streaming Applications for Enjoying Your Favorite Shows</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stay-safe-the-premier-storm-monitoring-apps-to-watch/"><u>Stay Safe: The Premier Storm Monitoring Apps to Watch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/step-by-step-guide-moving-from-previous-mac-os-to-catalina/"><u>Step-by-Step Guide: Moving From Previous Mac OS to Catalina</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/streaming-your-favorite-shows-a-guide-to-using-hulu-on-lg-smart-television/"><u>Streaming Your Favorite Shows: A Guide to Using Hulu on LG Smart Television</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/superior-mp4-channel-updater/"><u>Superior MP4 Channel Updater</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-essentials-of-the-lenovo-ideapad-an-analysis-of-durable-design-and-straightforward-functionality/"><u>The Essentials of the Lenovo Ideapad: An Analysis of Durable Design & Straightforward Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-quintessential-6-stores-for-buying-top-quality-laptops/"><u>The Quintessential 6 Stores for Buying Top-Quality Laptops</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-exploring-features-in-apple-books/"><u>The Ultimate Guide: Exploring Features in Apple Books</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-itel-a60-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Itel A60 Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-secrets-of-a-captivating-battle-royale-experience-in-overwatch/"><u>Unlocking the Secrets of a Captivating Battle Royale Experience in Overwatch</u></a></li>
+</ul></div>
 
