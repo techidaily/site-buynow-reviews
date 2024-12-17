@@ -1,7 +1,7 @@
 ---
 title: Maxed Out Apple Earbuds Analysis
-date: 2024-08-22T16:15:59.554Z
-updated: 2024-08-23T16:15:59.554Z
+date: 2024-12-10T19:17:54.314Z
+updated: 2024-12-16T22:34:51.835Z
 categories:
   - BestProducts
 description: This Article Describes Maxed Out Apple Earbuds Analysis
@@ -13,9 +13,17 @@ thumbnail: https://www.lifewire.com/thmb/LGQ8dAXeB87HFs4tEiIVEh_XEi8=/400x300/fi
 
 4.7
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Linksys WRT3200ACM Tri-Stream Gigabit Wi-Fi Router
 
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/xOfa88ZepYRUnftpwYx2wCdtio8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_HeroSquare-e40aba90df584fa4ad4a1053eeb538e6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Benjamin Zeman
 
@@ -37,6 +45,10 @@ Lifewire / Benjamin Zeman
 [View On Amazon $105](https://www.amazon.com/dp/B01JOXW3YE/?tag=lifewire-onsite-prod-20&ascsubtag=4774027%7Cn94392cc575214e6eac53990451f0396f19%7CB01JOXW3YE) [View On Walmart $250](https://www.walmart.com/ip/122088937) [View On B&H Photo Video $240](https://www.bhphotovideo.com/c/product/1281287-REG/linksys%5Fwrt3200acm%5Fmu%5Fmimo%5Fgigabit%5Fwi%5Ffi.html)
 
 4.7
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Linksys WRT3200ACM Tri-Stream Gigabit Wi-Fi Router
 
@@ -68,6 +80,10 @@ Lifewire / Benjamin Zeman
 
 Lifewire / Benjamin Zeman
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: A nostalgic look**
 
  The Linksys WRT3200ACM Router sticks with the familiar black and blue design of its predecessors. At 9.68 x 7.63 x 2.04 inches and 28.16 ounces it’s fairly large, and the four inch antennas add some additional height, though each antenna is adjustable and detachable.
@@ -76,9 +92,6 @@ Lifewire / Benjamin Zeman
 
  We’re divided about the Linksys WRT3200ACM’s aesthetic. On the one hand it’s a pleasant reminder of the past; on the other, it doesn’t blend well into our home decor. In fact, it looks super vintage and really stands out against all our modern tech and furniture. Linksys has released a similar router called the Linksys WRT32X that is geared towards gaming, has basically the same specs, and is all black. From what we can tell, the difference is in the stock software alone, so it may be a better option for blending in. Overall, though, we love the Linksys WRT3200ACM just as much as we loved the WRT54G and WRT1900AC, which is to say a lot.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Simple or complex, your choice**
 
  Basic installation of the Linksys WRT3200ACM Router is as easy as any other Linksys router, but if you’re purchasing an open source router, chances are you aren’t looking for basic. With that said, you can still use the included four step Quick Start Guide and get things up and running quickly. Covering our favorite third-party firmwares, OpenWrt and DD-WRT, is beyond the scope of this review, but we had no problems installing either.
@@ -95,14 +108,8 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/FS8mMgztL5cutF2feLNI4jorFig=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_03-bc6cced22d1c4e12b578da3f8b644d0c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Benjamin Zeman
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Connectivity: 3200ACM and MU-MIMO capable**
 
  The Linksys WRT3200ACM is a MU-MIMO Dual-Band Tri-Stream 160 router with 600+2600 Mbps speeds. It’s powered by a 1.8GHz dual-core processor and uses the latest 802.11ac network standards. The 2.4GHz band and 5GHz band run independently of each other, so the router can simultaneously reach theoretical speeds of 600 Mbps on 2.4GHz and a massive 2600 Mbps on the 5GHz band.
@@ -121,11 +128,12 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/wVmSkbisZVIprvanAm1UGl20r0s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_02-b14c9e4005d248688b03f08126d3f210.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Benjamin Zeman
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## **Software: Stock is great, open source is better**
 
  We’ve said it many times before, Linksys has great stock software. They’ve always been at the forefront when it comes to configuration and advanced settings. The current version of their web browser dashboard and their mobile apps are both great and offer a lot of customization. Everything just works and you won’t run into any frustrations like we did with other companies software.
@@ -140,9 +148,6 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
  If you’re new to open source router firmware, we encourage you to do your research first. Open source firmware is really for users who are familiar with building and debugging their own software. It requires more manual maintenance and you’ll need to keep up with any new releases yourself. There are a lot of other less expensive Linksys routers available if you want to test the waters before jumping in with the WRT3200ACM.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## **Price: Good if you need open source**
 
  The Linksys WRT3200ACM Router typically retails for around $200\. Like other Linksys routers, however, you can find massive deals if you are willing to go refurbished. When available, you can find refurb models on Linksys’ own website for $150, and we’ve seen them elsewhere for as low as $100 in the past.
@@ -150,8 +155,9 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
  Even if you don’t go with a refurb, the WRT3200ACM is a good buy, though it’s not a necessity if you aren’t looking to utilize it for its open source capabilities—there are other, cheaper options on the market that will serve your needs just as well.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Linksys WRT3200ACM Router vs. Asus RT-AC5300 Router**
 
  Another router that tends to top the list of[open source routers](https://www.lifewire.com/best-wireless-routers-4038590) is the Asus RT-AC5300, a Tri-Band AC5300, MU-MIMO-capable router marketed towards gamers. This expensive router has a very large footprint and two antennas on each of the four sides. Its $400 MSRP is significantly higher than the Linksys WRT3200ACM, and the lowest retail price we’ve seen is around $270\. Even refurbished, it still goes for $250, the same price as the MSRP of the Linksys WRT3200ACM.
@@ -194,14 +200,11 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 * Processor  1.8 GHz dual-core
 * Range  Very Large Household (square foot coverage not listed)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -210,4 +213,24 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-25-popular-tiktok-creators-with-anime-flair/"><u>[New] 2024 Approved 25 Popular TikTok Creators with Anime Flair</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-iron-bank-of-erebor-online-resources-for-got-audio-calls/"><u>[Updated] In 2024, The Iron Bank of Erebor Online Resources for GoT Audio Calls</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/deep-dive-into-the-lenovo-yoga-a940-an-ultimate-review-for-potential-buyers/"><u>Deep Dive Into the Lenovo Yoga A940: An Ultimate Review for Potential Buyers</u></a></li>
+<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-honor-x50iplus-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Honor X50i+ in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/het-beste-software-voor-het-behandelen-van-stamppuntsproblemen-eenlijst/"><u>Het Beste Software Voor Het Behandelen Van Stamppuntsproblemen: Eenlijst!</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-vivo-g2-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Vivo G2 Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-12-pro-max-withwithout-sim-card-by-drfone-ios/"><u>How to Unlock iPhone 12 Pro Max with/without SIM Card</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lx310bt-sony-bluetooth-player-thin-and-stylish/"><u>LX310BT Sony Bluetooth Player - Thin & Stylish!</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/precision-filmmaking-high-definition-lens-recommendations/"><u>Precision Filmmaking High-Definition Lens Recommendations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-the-samsung-galaxy-chromebook-2-redefines-productivity-on-the-go/"><u>Review: The Samsung Galaxy Chromebook 2 Redefines Productivity On-the-Go</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-complete-review-assessing-performance-and-aesthetics-of-ankers-powercoreplus-26800-battery-pack-setup/"><u>The Complete Review: Assessing Performance and Aesthetics of Anker's PowerCore+ 26800 Battery Pack Setup</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-reality-check-is-lgs-k92-5g-phone-a-worthy-investment/"><u>The Reality Check: Is LG's K92 5G Phone a Worthy Investment?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/top-tweets-on-screen-expert-guide-for-capturing-vids/"><u>Top Tweets on Screen Expert Guide for Capturing Vids</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/transform-every-moment-top-tasks-to-master-while-listening-to-your-favorite-podcasts-for-2024/"><u>Transform Every Moment Top Tasks to Master While Listening to Your Favorite Podcasts for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-charge-up-analysis-exploring-the-beatit-bt-d11-boost-box-features/"><u>Ultimate Charge Up Analysis - Exploring the Beatit BT-D11 Boost Box Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-raspberry-pi-query-what-is-the-correct-answer-to-this-math-problem-8x-plus-3-5x-6/"><u>Unboxing the Raspberry Pi # Query: What Is the Correct Answer to This Math Problem? $8X + 3 = 5X - 6$</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleash-your-photographic-creativity-using-no-cost-multiplatform-editing-app-the-free-lightzone-suite-windows-mac-linux/"><u>Unleash Your Photographic Creativity Using No-Cost, Multiplatform Editing App – The Free LightZone Suite (Windows, Mac, Linux)</u></a></li>
+</ul></div>
 

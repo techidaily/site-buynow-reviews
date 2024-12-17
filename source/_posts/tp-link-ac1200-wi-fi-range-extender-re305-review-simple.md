@@ -1,7 +1,7 @@
 ---
 title: "TP-Link AC1200 Wi-Fi Range Extender RE305 Review: Simple"
-date: 2024-08-22T16:14:25.178Z
-updated: 2024-08-23T16:14:25.178Z
+date: 2024-12-14T16:49:09.519Z
+updated: 2024-12-16T22:19:42.716Z
 categories:
   - BestProducts
 description: "This Article Describes TP-Link AC1200 Wi-Fi Range Extender RE305 Review: Simple"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/09bf8f46c612c175c9c1b70882f85f23e4a357208
 ## D-Link DHP-P701AV Powerline AV2000
 
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/nsaP3RakwQYiBJEb9bxIZJaE8yE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-HeroSquare-db3b8923e8f945e196de87932b00dc2a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -36,6 +40,10 @@ Lifewire / Jeremy Laukkonen
 [View On Amazon $34](https://www.amazon.com/dp/B00PVD4318/?tag=lifewire-onsite-prod-20&ascsubtag=4778144%7Cn94c71b7219c0486b82576aa70dbaa78c18%7CB00PVD4318) [View On Walmart $115](https://www.walmart.com/ip/D-Link-Powerline-AV2-2000-Gigabit-Passthrough-Starter-Kit-Easily-Expand-Network-DHP-P701AV/114888417)
 
 3.9
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## D-Link DHP-P701AV Powerline AV2000
 
@@ -79,9 +87,6 @@ Lifewire / Jeremy Laukkonen
 
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/xx_XMhVtfwHDrdQV9zP4xFm4PkA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-02-4ccab309a3564682aefbd0a48f39355f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Jeremy Laukkonen
 
 ## **Setup Process: No special knowledge or tools required**
@@ -97,17 +102,15 @@ Lifewire / Jeremy Laukkonen
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/X0oLXEoZMMDp1yHZ4thpEvAY2Sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-05-29cdfecba8e74dc9a126aff93f29b3ce.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Connectivity: HomePlug AV2 with MIMO**
 
  D-Link Powerline AV2000 adapters use the[HomePlug AV2 specification](https://www.lifewire.com/powerline-home-networking-and-homeplug-817720) , so they’re nominally compatible with other AV2 devices. In practice, and when using the secure network function, they work best with other D-Link Powerline AV2000 adapters.
@@ -133,8 +136,9 @@ No advertising on the website.
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/IXQZNi3pFRjm2tdKfPMhwxTE-DA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-06-5a298aa4450e4adfb249aeae86330406.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 ## **Software: D-Link PLC utility available online**
@@ -143,9 +147,6 @@ No advertising on the website.
 
  The D-Link PLC utility has to be run on a Windows PC that’s connected to the same network as your Powerline AV2000 adapters. It’s fairly simple and provides a few management and testing tools. You can update the firmware of your adapters to the latest version, pinpoint a malfunctioning system, change the encryption key used by your devices, or provide custom names for each adapter.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: On the expensive side of the scale**
 
  The D-Link Powerline AV2000 adapters are priced on the upper end of the scale for similarly equipped adapters. The version that doesn’t come with a pass-through has an MSRP of $130 and usually sells in the $100 range. The pass-through version that we tested has an MSRP of $160 and usually sells for around $110.
@@ -171,8 +172,9 @@ No advertising on the website.
  The D-Link Powerline AV2000 is a great powerline adapter, but it isn’t the best. We found that these adapters are extremely easy to set up and use, and they provide fast transfer speeds, but there are alternatives that are both faster and less expensive. If you can find a pair on sale, then the price concern goes out the window, and this is a great product to own. Otherwise, take a look at the Extollo LANSocket 1500, which is both faster and less expensive.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  DHP-P701AV Powerline AV2000
@@ -189,14 +191,11 @@ No advertising on the website.
 * Encryption  128-bit AES
 * Power saving mode  Yes
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -205,4 +204,16 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-charting-your-path-podcast-income-expectations/"><u>[New] 2024 Approved Charting Your Path Podcast Income Expectations</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-beyond-imagination-vr-powered-movies/"><u>[New] Beyond Imagination VR-Powered Movies</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-needlework-nuggets-cultivating-craftsmanship-in-the-creative-sphere-for-2024/"><u>[New] Needlework Nuggets Cultivating Craftsmanship in the Creative Sphere for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/assessing-the-full-video-range-within-a-64128gb-memory-pool-for-2024/"><u>Assessing the Full Video Range Within a 64/128GB Memory Pool for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-how-walmartplus-can-enhance-your-shopping-journey/"><u>Discover How Walmart+ Can Enhance Your Shopping Journey</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exceptional-gaming-and-unbeatable-price-the-inside-scoop-on-the-oculus-quest-2-virtual-reality-headset/"><u>Exceptional Gaming and Unbeatable Price: The Inside Scoop on the Oculus Quest 2 Virtual Reality Headset</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-the-powerful-and-versatile-apc-back-ups-pro-1500va-with-ample-outlets-and-hot-swap-technology/"><u>In-Depth Review: The Powerful and Versatile APC Back-UPS Pro 1500VA with Ample Outlets & Hot-Swap Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sleek-and-swift-discovering-the-potent-performance-of-the-lg-gram-17-in-this-expert-review/"><u>Sleek and Swift: Discovering the Potent Performance of the LG Gram 17 in This Expert Review</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-expert-guide-to-swift-fb-profiling-for-2024/"><u>The Expert Guide to Swift FB Profiling for 2024</u></a></li>
+</ul></div>
 

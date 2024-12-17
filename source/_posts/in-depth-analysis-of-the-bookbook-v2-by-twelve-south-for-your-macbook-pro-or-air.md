@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the BookBook V2 by Twelve South for Your MacBook Pro or Air
-date: 2024-08-22T16:15:14.102Z
-updated: 2024-08-23T16:15:14.102Z
+date: 2024-12-11T19:29:58.084Z
+updated: 2024-12-16T17:13:01.338Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the BookBook V2 by Twelve South for Your MacBook Pro or Air
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/5_jg8y2fXvQNoAMhSzJp3ZZFbkA=/400x300/fi
 ## Unpacking the Strength of the Beatit BT-D11 Charger - An In-Depth Analysis
 
 4.8
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Beatit 800A BT-D11 Car Jump Starter
 
@@ -43,6 +47,10 @@ thumbnail: https://www.lifewire.com/thmb/5_jg8y2fXvQNoAMhSzJp3ZZFbkA=/400x300/fi
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Tony Mitera
 
 [View On EBay](https://www.ebay.com/p/563813511)
@@ -67,8 +75,9 @@ thumbnail: https://www.lifewire.com/thmb/5_jg8y2fXvQNoAMhSzJp3ZZFbkA=/400x300/fi
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: A lot of power packed into a small frame**
 
  The Beatit Jump Starter D11’s main unit's effectively a small black brick with red accents. Roughly the size of a small paperback book, the unit's constructed out of durable plastic and features a flashlight at one end. Along one of the long sides there's a small display that shows battery status, the on/off switch, two USB power outputs, and the device’s charging port. On the opposing side a rubber flap covers the jumper cable port; a unique port that the jumper cable accessory plugs in to.
@@ -79,10 +88,6 @@ thumbnail: https://www.lifewire.com/thmb/5_jg8y2fXvQNoAMhSzJp3ZZFbkA=/400x300/fi
 
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## **Setup Process: It can’t realistically be much simpler**
 
  Should you find yourself in a situation where you need to use the jump start functionality of the Beatit Jump Starter D11, you'll find it quite easy to use. On our Elantra test vehicle we simply had to pop the hood, bring the unit over, and plug the jumper cable accessory into its port. Once in place getting a proper connection is a simple matter of attaching the red clamp to the positive battery terminal and then the black clamp to the negative terminal. With a firm connection in place we simply had to set the unit down someplace where the vibration of the engine wouldn’t make it slide and then start the car. With the unit in place the car immediately started with zero hesitation, at which point we could disconnect the unit and get back on the road.
@@ -90,6 +95,10 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
  Lifewire / Tony Mitera
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Plenty of power for all your needs**
 
@@ -99,10 +108,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
  There aren’t a ton of other features present with the Beatit Jump Starter D11 but there are some of note, including the unit’s built-in flashlight. It’s a nice addition to have if you must jump start a car in the middle of the night, but it doesn’t put out of a ton of light and the beam is pretty narrow. You can pick the unit up and use it as a large flashlight, though doing so while also trying to get the clamps attached is cumbersome.
@@ -112,17 +117,15 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: A ton of value for a tiny cost**
 
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
 **_DBPOWER 600A Peak 18000mAh Portable Car Jump Starter:_**  When it comes down to it these two units are surprisingly similar, down to the case and overall design of the unit. If you really want the ability to use your jump starter to also charge your laptop the DBPOWER is worth a look. Otherwise, save yourself around $10 and stick with the Beatit BT-D11.
@@ -139,9 +142,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  800A BT-D11 Car Jump Starter
@@ -164,8 +164,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -173,4 +171,22 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/updated-prime-pick-for-iphoneandroid-face-modifications/"><u>[Updated] Prime Pick for iPhone/Android Face Modifications</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-the-basic-blueprint-for-choosing-gamer-friendly-recordings-and-edits-for-2024/"><u>[Updated] The Basic Blueprint for Choosing Gamer-Friendly Recordings & Edits for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-capabilities-and-limitations-of-the-midland-lxt500vp3-handheld-radio/"><u>Exploring the Capabilities and Limitations of The Midland LXT500VP3 Handheld Radio</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fun-filled-reviews-of-the-ddpai-mini-3-a-unique-spin-on-dashcam-entertainment/"><u>Fun-Filled Reviews of the DDpai Mini 3 - A Unique Spin on Dashcam Entertainment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/garmin-forerunner/"><u>Garmin Forerunner</u></a></li>
+<li><a href="https://facebook.techidaily.com/january-update-trump-and-fb-account-future/"><u>January Update: Trump and FB Account Future</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/quicktime-mov-file-playback-issues-resolving-error-2048/"><u>QuickTime MOV File Playback Issues: Resolving Error 2048</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolved-how-to-stop-call-of-duty-warzone-from-crashing-in-windows-2024/"><u>Resolved! How to Stop Call of Duty Warzone From Crashing in Windows 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-encore-list-top-pick-for-digital-music-tones/"><u>The Encore List Top Pick for Digital Music Tones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tp-link-re305-router-range-extender-ac1200-test-and-overview/"><u>TP-Link RE305 Router Range Extender AC1200 Test & Overview</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/ultimate-guide-to-installing-latest-zebra-zp450-driver-software-complete-steps-included/"><u>Ultimate Guide to Installing Latest Zebra ZP450 Driver Software (Complete Steps Included)</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unveiling-youtubes-features-adding-images-to-videos-for-2024/"><u>Unveiling YouTube's Features Adding Images to Videos for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/upgrading-streams-with-the-new-chromecast-and-google-tv-an-in-depth-analysis/"><u>Upgrading Streams with the New Chromecast and Google TV – An In-Depth Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/what-you-need-to-know-amazfit-helio-rings-price-point-availability-date-and-full-tech-specs-explained/"><u>What You Need to Know: Amazfit Helio Ring's Price Point, Availability Date, and Full Tech Specs Explained</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/zmi-powerpack-2nkw-comprehensive-examination-of-this-compact-energy-solution/"><u>ZMI PowerPack 2nkW - Comprehensive Examination of This Compact Energy Solution</u></a></li>
+</ul></div>
 

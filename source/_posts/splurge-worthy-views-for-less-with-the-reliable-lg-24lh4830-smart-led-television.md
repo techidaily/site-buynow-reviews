@@ -1,7 +1,7 @@
 ---
 title: Splurge-Worthy Views for Less with the Reliable LG 24LH4830 Smart LED Television
-date: 2024-08-22T16:14:00.668Z
-updated: 2024-08-23T16:14:00.668Z
+date: 2024-12-09T19:01:59.081Z
+updated: 2024-12-16T23:04:28.426Z
 categories:
   - BestProducts
 description: This Article Describes Splurge-Worthy Views for Less with the Reliable LG 24LH4830 Smart LED Television
@@ -62,6 +62,10 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -81,9 +85,14 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels (in a rural area)**
 
@@ -91,14 +100,12 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Range: 35 miles**
 
  The AmazonBasics antenna has a 35-mile range, which isn’t very far considering 50 plus miles is becoming more common. It is omnidirectional, however, so you don’t need to point it in a specific direction. It supports UHF/VHF, so I was able to get a decent selection of channels.
@@ -107,18 +114,12 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
@@ -132,8 +133,9 @@ Lifewire / Erika Rawes
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Ultra-Thin Antenna
@@ -150,14 +152,11 @@ Lifewire / Erika Rawes
 * Ports  Coax
 * Cable length  10-foot Coax Cable
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -166,4 +165,26 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-learn-youtube-editing-tricks-for-flawless-shortening/"><u>[New] 2024 Approved Learn YouTube Editing Tricks for Flawless Shortening</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nsightful-analysis-the-impact-and-mechanics-of-youtubes-shorts-fund-for-2024/"><u>[New] Insightful Analysis The Impact and Mechanics of YouTube's Shorts Fund for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-the-full-spectrum-slomo-recording-app-evaluation-for-2024/"><u>[New] The Full Spectrum SloMo Recording App Evaluation for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-gopro-hero4-vs-drift-ghost-ultimate-performance-showdown/"><u>2024 Approved GoPro Hero4 Vs. Drift Ghost - Ultimate Performance Showdown</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-battle-of-av1-and-vp9-outcomes-revealed/"><u>2024 Approved The Battle of AV1 and VP9 Outcomes Revealed</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Gionee F3 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/capture-memories-a-users-manual-for-recording-tango-call-sessions-on-various-gadgets/"><u>Capture Memories: A User's Manual for Recording Tango Call Sessions on Various Gadgets</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/download-the-smart-switch-application-on-your-iphone/"><u>Download the Smart Switch Application on Your iPhone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-picks-best-cell-phone-reception-amplifiers/"><u>Expert Picks: Best Cell Phone Reception Amplifiers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-the-best-rock-cricketer-for-off-road-adventures/"><u>Expert Review: The Best ROCK CRICKETER for Off-Road Adventures</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-examination-why-choose-fongo-for-canadian-business-communications/"><u>In-Depth Examination: Why Choose Fongo for Canadian Business Communications?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-apc-150n-ups-unit-explore-its-capacity-outlet-variety-and-convenient-battery-swapping-details/"><u>In-Depth Look at the APC 150N UPS Unit - Explore Its Capacity, Outlet Variety & Convenient Battery Swapping Details</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-samsung-qn55q6f-revolutionary-hdr-technology-in-a-smart-tv/"><u>In-Depth Look at the Samsung QN55Q6F: Revolutionary HDR Technology in a Smart TV</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ipados-transformations-for-enhanced-productivity-a-look-at-the-updated-102-inch-model/"><u>IPadOS Transformations for Enhanced Productivity: A Look at the Updated 10.2-Inch Model</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/subscribing-to-hulu-heres-why-now-is-prime-time/"><u>Subscribing to Hulu? Here's Why Now Is Prime Time</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-choosing-the-best-for-you-a-detailed-look-at-the-linksys-wrt1900acs-an-open-source-wifi-masterpiece/"><u>The Ultimate Guide to Choosing the Best for You - A Detailed Look at the Linksys WRT1900ACS, An Open-Source WiFi Masterpiece</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-full-potential-rokus-sound-plus-stream-enhancements/"><u>Unlock Full Potential: Roku's Sound + Stream Enhancements</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-wireless-potential-an-in-depth-look-at-the-tp-link-re505x-range-extender/"><u>Unlocking Wireless Potential: An In-Depth Look at the TP-Link RE505X Range Extender</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-convert-4k-videos-with-ease-top-picks/"><u>Updated Convert 4K Videos with Ease Top Picks</u></a></li>
+</ul></div>
 

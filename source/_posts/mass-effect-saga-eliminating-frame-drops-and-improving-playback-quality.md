@@ -1,7 +1,7 @@
 ---
 title: Mass Effect Saga - Eliminating Frame Drops and Improving Playback Quality
-date: 2024-11-28T00:18:02.332Z
-updated: 2024-12-04T02:40:28.322Z
+date: 2024-12-14T17:36:33.504Z
+updated: 2024-12-16T23:27:40.688Z
 tags:
   - win11
   - win10
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/d021ea19d35ef3673abfe0bc9bdff457eb34791e5
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Fix WOW crashing?
 
@@ -62,17 +66,21 @@ thumbnail: https://thmb.techidaily.com/d021ea19d35ef3673abfe0bc9bdff457eb34791e5
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bd6b336957ab.jpg)
 3. Click the**Update** button next to the flagged video card to automatically download the correct version of their driver (you can do this with the**FREE** version). Then install it in your computer.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Or click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click**Update All** ).  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bd6b351ec11a.jpg)
 4. Restart your computer to take effect.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Open Word of Warcraft and see if the crashing issue has been resolved.
 
  If WOW keeps crashing, don’t worry. There is something else to try.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 3: Run Scan and Repair for your game
 
@@ -83,20 +91,16 @@ Open Word of Warcraft and see if the crashing issue has been resolved.
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b8fa6c02c345.jpg)
 3. Click the**Options** button and select**Scan and Repair** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b8fa6fe36d60.jpg)
 4. Click**Begin Scan** , and follow the on-screen instructions to finish. It may take a while.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b8fa7275b199.jpg)
 
 Once finish, restart your game and see if it works properly.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 4: Disable DVR app in Xbox
 
@@ -114,10 +118,6 @@ Here’s what you can do:
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bd6b3bdbf4aa.jpg)
 4. Click the**Game DVR** tab, and turn it**off** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bd6b3e5954b9.png)
 5. Restart your computer and open World of Warcraft to see if it stops crashing.
 
@@ -131,7 +131,7 @@ Here’s what you can do:
 3. Click**Game DVR** on the left, and make sure to turn off**Record** **in the background while I’m playing a game** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bd6b4223cc30.jpg)
@@ -159,16 +159,20 @@ Here’s what you can do:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-choosing-between-obs-and-streamlabs-for-broadcast-excellence/"><u>[New] 2024 Approved Choosing Between OBS and Streamlabs for Broadcast Excellence</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-free-guide-to-windows-desktop-captures-and-recordings/"><u>[Updated] 2024 Approved Free Guide to Windows Desktop Captures & Recordings</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-best-5-chromebook-screen-capture-tools-unveiled/"><u>2024 Approved Best 5 Chromebook Screen Capture Tools Unveiled</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-lenovo-tab-m10-fhdplus-with-stunning-hd-display-2020-model-review/"><u>Affordable Lenovo Tab M10 (FHD+) with Stunning HD Display - 2020 Model Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/analyzing-the-changes-in-samsungs-latest-galaxy-s21-model-a-step-towards-simplicity/"><u>Analyzing the Changes in Samsung's Latest Galaxy S21 Model: A Step Towards Simplicity</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722742173312-conquer-power-shortages-the-beatit-bt-d11s-mighty-performance-unveiled/"><u>Conquer Power Shortages: The Beatit BT-D11's Mighty Performance Unveiled</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722762176603-discover-why-the-2018-apple-ipad-pro-11-inch-dominates-the-market-a-comprehensive-review/"><u>Discover Why the 2018 Apple iPad Pro 11-Inch Dominates the Market: A Comprehensive Review!</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-vivo-y17s-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Vivo Y17s | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-5-solutions-for-tecno-spark-20-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Tecno Spark 20 Unlock Without Password</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/iphone-15-in-depth-analysis-and-top-picks-a-must-have-device-pros-and-cons-unveiled-zdnet/"><u>IPhone 15 In-Depth Analysis & Top Picks - A Must-Have Device, Pros and Cons Unveiled! (ZDNet)</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/y-youtube-video-visibility-with-ease-for-2024/"><u>Modify YouTube Video Visibility with Ease for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-injecting-spark-into-your-unique-podcast-format/"><u>[New] Injecting Spark Into Your Unique Podcast Format</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-hidden-treasures-10-newest-coolest-fb-meme-pages/"><u>[Updated] Hidden Treasures 10 Newest, Coolest FB Meme Pages</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-pre-upload-best-practices-to-maintain-tiktoks-integrity/"><u>[Updated] In 2024, Pre-Upload Best Practices to Maintain TikTok's Integrity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-apple-books-application-a-reviewers-perspective/"><u>Comprehensive Analysis of the Apple Books Application: A Reviewer's Perspective</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-asus-rog-phone-7-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Asus ROG Phone 7 Phone? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-the-essential-checklist-for-adding-videos-to-tweets/"><u>In 2024, The Essential Checklist for Adding Videos to Tweets</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/on-the-go-with-books-a-comprehensive-review-of-the-innovative-kobo-clara-hd-e-reader/"><u>On The Go with Books: A Comprehensive Review of the Innovative Kobo Clara HD E-Reader</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/online-and-offline-photo-fusion-guide/"><u>Online and Offline Photo Fusion Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/premium-smartphone-showdown-why-apples-iphone-xs-max-stands-out-as-number-one/"><u>Premium Smartphone Showdown: Why Apple's iPhone XS Max Stands Out as Number One</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/professional-audio-quality-and-wireless-connectivity-insights-into-tascams-cd-200bt-review/"><u>Professional Audio Quality and Wireless Connectivity: Insights Into Tascam's CD-200BT Review</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/quick-fixes-for-converting-msv-audio-files-into-mp3-format/"><u>Quick Fixes for Converting MSV Audio Files Into MP3 Format</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/tech-rumors-the-next-gen-irobot-for-your-home-release-date-and-price-guesswork/"><u>Tech Rumors: The Next-Gen iRobot for Your Home - Release Date & Price Guesswork</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-karaoke-systems-ultimate-guide/"><u>Top Karaoke Systems : Ultimate Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-weather-alert-apps-a-comprehensive-guide/"><u>Top-Rated Weather Alert Apps : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-photoscapes-capabilities-the-ultimate-guide-to-a-gratis-editing-suite/"><u>Unveiling PhotoScape's Capabilities: The Ultimate Guide to a Gratis Editing Suite</u></a></li>
 </ul></div>
 

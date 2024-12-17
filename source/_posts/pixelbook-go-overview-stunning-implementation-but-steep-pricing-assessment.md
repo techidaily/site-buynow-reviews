@@ -1,7 +1,7 @@
 ---
 title: "Pixelbook Go Overview: Stunning Implementation but Steep Pricing Assessment"
-date: 2024-12-06T18:02:25.676Z
-updated: 2024-12-10T20:26:08.876Z
+date: 2024-12-11T00:12:31.628Z
+updated: 2024-12-16T18:19:40.027Z
 categories:
   - BestProducts
 description: "This Article Describes Pixelbook Go Overview: Stunning Implementation but Steep Pricing Assessment"
@@ -44,9 +44,17 @@ Lifewire / Andrew Hayward
 
 4.5
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ASUS Chromebook Flip C302CA-DHM4
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/A6HRRNfYS6KrVqW-2K3fI0NN7EI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_HeroSquare-01d50171ef9c411f82467742bfad1126.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -77,11 +85,11 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/3Q2pRvweVt3Gf6RfBaAwQ15QBag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_bottom_04-1508a99e93e94312a9477c6ec5c15022.jpg)
 
- Lifewire / Andrew Hayward
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Andrew Hayward
 
 ## **Design and Features: It’s flippin’ nice**
 
@@ -107,15 +115,7 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/AFQh-ERthm-g0pAMcnQlyA2Rjgw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_bent_02-3dfd0720309d4d12beb5ae695a007aa1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Display: Small, but strong**
 
@@ -137,19 +137,23 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/7B1-43v0GHPcS2HESabWT97_XPQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_Keyboard_03-8bc37c7c2d0243bb8ed1fa10e338374f.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 ## **Audio: Sounds fine**
 
  The tiny speaker grates on the left and right side of the Chromebook Flip don’t look too promising, but the playback quality was better than expected. Music output isn’t big and bold, but it’s pretty clear and it can get loud without getting too muddled. Video playback via YouTube and Netflix was sometimes too quiet at full volume, however.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Network: No complaints here**
 
  The Chromebook Flip has dual-band Wi-Fi that can connect to both 2.4Ghz and 5Ghz networks, and we had no issues with either during our testing. We went online at a home network and a Starbucks Google network alike, and things were routinely speedy. On the home network, we saw speeds of about 33Mbps and upload speeds in excess of 10Mbps—essentially the same as we’ve seen with[other laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) and[smartphones](https://www.lifewire.com/best-smartphones-4043781) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Battery: Nearly a day’s worth**
 
@@ -160,6 +164,10 @@ Lifewire / Andrew Hayward
  Our laptop video rundown test, which streams a Netflix movie over Wi-Fi while at 100 percent brightness, delivered a similar result: it lasted 6 hours, 57 minutes before the Chromebook Flip shut down. In both use cases, we were pleasantly surprised by the battery performance of the device—it even beat the 2018 MacBook Air.
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/VR5Y-1tDILHowNSeA408pnLVtgg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_closed_04-bde5ec8f988c4bb49e4019f95cc47c31.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -175,10 +183,6 @@ Lifewire / Andrew Hayward
 
  Luckily, the Chromebook’s reputation as an online-only device isn’t true. For example, Google Docs can be used offline, you can view and edit photos, watch locally-stored media, and play games that don’t require an online connection. It’s really not that different in approach to other PCs, but the overall feel and flow of the experience varies in some key ways.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: It feels like a steal**
 
  Here’s where the Asus Chromebook Flip really makes its biggest impact. As mentioned, it’s a capable computer for most everyday tasks, it has a very good screen, and the battery life is stellar. Best of all, it’s priced at $499, although you can find it for a little bit less (we’re seeing it around $400-450 lately). There are cheaper Chromebooks out there that skimp on features and functionality, such as skipping the convertible hinge or touch functionality, or using a lower-end processor. You can spend a lot less and still get a solid laptop.
@@ -187,15 +191,7 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/NHrMPSrgOWsOuCEYg0M-STQUfsU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Air-v-Surface-Comparison-a255967a27e14762b5c2ad9c442df77f.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Asus Chromebook Flip C302CA vs. Apple MacBook Air**
 
@@ -210,6 +206,10 @@ Lifewire / Andrew Hayward
  **It’s an excellent, affordable laptop.**
 
  Just as the recent crop of cheap, strong mid-range phones has made many flagship smartphones seem excessive and unnecessary, the Asus Chromebook Flip C302CA does much the same for laptops. This is a seriously impressive and versatile notebook without any major deficiencies, and it’s priced at just $499—less than half the price of the cheapest Apple laptop right now.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -243,22 +243,16 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-precision-toolkit-for-flawless-webp-to-jpg-changeover/"><u>[New] 2024 Approved Precision Toolkit for Flawless WebP to JPG Changeover</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-androids-prime-portable-gba-simulators-ranked-for-2024/"><u>[New] Android's Prime Portable GBA Simulators Ranked for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-hero5-black-in-action-essential-shooting-advice-for-amazing-results/"><u>[New] Hero5 Black in Action Essential Shooting Advice for Amazing Results</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-tackle-intermittent-fb-reels-display/"><u>[New] In 2024, Tackle Intermittent FB Reels Display</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-perfect-pairing-with-yi-accessory-guide-for-pros/"><u>[Updated] In 2024, Perfect Pairing with YI Accessory Guide for Pros</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-profitable-pursuits-on-youtube-the-non-ad-revenue-roadmap-for-2024/"><u>[Updated] Profitable Pursuits on YouTube The Non-Ad Revenue Roadmap for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-pushing-boundaries-with-high-speed-video-discovering-polaroids-xs/"><u>[Updated] Pushing Boundaries with High-Speed Video - Discovering Polaroid's XS</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/brilliant-imagery-unleashed-with-the-49-ultra-hd-4k-samsung-tv-an-exclusive-review-of-model-xbr-49x90/"><u>Brilliant Imagery Unleashed with the 49 Ultra HD, 4K Samsung TV - An Exclusive Review of Model XBR-49X90#</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-apple-tvs-latest-model-the-4k-upgrade-with-siri-accessibility/"><u>Comprehensive Guide to Apple TV's Latest Model: The 4K Upgrade with Siri Accessibility</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-the-perfect-harmony-of-exercise-and-tunes-on-the-garmin-vivoactive-3-watch/"><u>Experience the Perfect Harmony of Exercise and Tunes on the Garmin Vivoactive 3 Watch</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209780350-9781633411784-futhark/"><u>Futhark | Free Book</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/introducing-the-t6-dslr-easy-on-wallet/"><u>Introducing the T6 DSLR: Easy on Wallet</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/moto-g-power-analysis-exceptional-longevity-and-stellar-efficiency/"><u>Moto G Power Analysis: Exceptional Longevity & Stellar Efficiency</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-streaming-in-depth-analysis-of-the-new-chromecast-with-google-tv/"><u>Revolutionizing Streaming: In-Depth Analysis of the New Chromecast with Google TV</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sabrent-mini-travel-mouse-review-where-effortless-precision-meets-reliable-corded-performance/"><u>Sabrent Mini Travel Mouse Review: Where Effortless Precision Meets Reliable Corded Performance</u></a></li>
-<li><a href="https://win11.techidaily.com/tailored-windows-11-cleanup-say-goodbye-to-junk-software/"><u>Tailored Windows 11 Cleanup: Say Goodbye to Junk Software</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-apple-users-should-choose-freestyle2-blue-on-mac-detailed-review-and-recommendations/"><u>Why Apple Users Should Choose Freestyle2 Blue on Mac: Detailed Review & Recommendations</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-pro-level-7-dslrs-that-transform-your-digital-storytelling/"><u>[New] 2024 Approved Pro-Level 7 DSLRs That Transform Your Digital Storytelling</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-nokia-c22-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Nokia C22</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-vivo-x90s-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Vivo X90S</u></a></li>
+<li><a href="https://windows11.techidaily.com/desk-clean-up-restoring-windows-11-desktop-symbols/"><u>Desk Clean-Up: Restoring Windows 11 Desktop Symbols</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dual-recording-and-stability-in-sony-hdrcx405-camcorder/"><u>Dual Recording & Stability in Sony HDRCX405 Camcorder</u></a></li>
+<li><a href="https://win-news.techidaily.com/fonetool-komplettieren-sie-den-loschvorgang-synchronisierte-bilder-auf-dem-ipad-entfernen/"><u>FoneTool: Komplettieren Sie Den Löschvorgang - Synchronisierte Bilder Auf Dem iPad Entfernen</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/silly-and-fun-shooting-gameplay-in-plants-vs-zombies-battle-for-neighborville-a-full-reveal/"><u>Silly and Fun Shooting Gameplay in 'Plants Vs. Zombies: Battle for Neighborville' - A Full Reveal</u></a></li>
+<li><a href="https://extra-information.techidaily.com/superior-extra-memory-solution-for-sony-a7c/"><u>Superior Extra Memory Solution for Sony A7C</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-motorola-one-hyper-reviewed-exceptional-specs-and-value-for-a-budget-friendly-device/"><u>The Motorola One Hyper Reviewed - Exceptional Specs and Value for a Budget-Friendly Device</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/troubleshooting-and-solving-dell-optiplex-790-driver-woes-in-windows/"><u>Troubleshooting and Solving Dell OptiPlex 790 Driver Woes in Windows</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-youtube-tv-benefits-key-points-to-consider/"><u>Unlocking YouTube TV Benefits: Key Points to Consider</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of the Spyro Remastered Series: A Small Creature's Great Gift"
-date: 2024-12-07T20:17:58.807Z
-updated: 2024-12-10T20:08:54.627Z
+date: 2024-12-11T22:28:26.184Z
+updated: 2024-12-16T21:12:08.247Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis of the Spyro Remastered Series: A Small Creature's Great Gift"
@@ -46,10 +46,6 @@ Lifewire / Emily Isaacs
 
 4.4
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
@@ -74,11 +70,19 @@ Lifewire / Emily Isaacs
 
  You can tell Microsoft put a considerable amount of thought into the Sculpt Ergonomic Keyboard’s design. From the manta ray style folds, which keep shoulders and hands at a relaxed, comfortable angle, to the detached numpad and magnetized risers for increased customization options when you want them, the Sculpt is quite the package. As with anything new, it took a period of adjustment, but we found it relatively quick thanks to the intuitive, easy-to-use design.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Made for comfort**
 
  The Sculpt is an ergonomic keyboard with a split design akin to that of a manta ray. The two halves of the keyboard sweep outwards and downwards creating an empty, raised space in the center of its swoop design. Its keys vary in size, with those nearest to the split being slightly wider than those on the outer edges of the keyboard. It’s largely made with plastic and has a bit of a clacky sound as you type. The Sculpt employs a standard layout with a fabric wrist pad at the front for extra comfort. This intuitive, split design combined with the wrist pad help your wrists, hands, and shoulders sit at a neutral, natural angle in order to[alleviate repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) that frequent typists are prone to over time.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -87,6 +91,10 @@ Lifewire / Emily Isaacs
  Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key.
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Batteries required**
 
@@ -106,19 +114,11 @@ Lifewire / Emily Isaacs
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -135,7 +135,7 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
@@ -151,7 +151,7 @@ Lifewire / Emily Isaacs
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -184,22 +184,22 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-elevate-your-biz-game-youtube-channels-that-succeeded/"><u>[New] 2024 Approved Elevate Your Biz Game YouTube Channels That Succeeded</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-essence-of-authenticity-applying-personalized-watermarks-in-insta-for-2024/"><u>[New] The Essence of Authenticity Applying Personalized Watermarks in Insta for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-how-to-use-luts-to-obs-studio-and-download-free-luts/"><u>[Updated] 2024 Approved How to Use LUTs to OBS Studio & Download Free LUTs</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-ringtune-guide-downloading-and-cutting-tamil-melodies/"><u>[Updated] 2024 Approved RingTune Guide Downloading and Cutting Tamil Melodies</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-elevating-channel-excellence-with-best-ideas/"><u>[Updated] In 2024, Elevating Channel Excellence with Best Ideas</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-babel-redefining-language-acquisition-in-the-modern-world/"><u>Bridging Babel: Redefining Language Acquisition in the Modern World</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-raspberry-pi-400-assessment-the-ultimate-all-in-one-keyboard-computer/"><u>Comprehensive Raspberry Pi 400 Assessment: The Ultimate All-in-One Keyboard Computer</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/cool-down-tools-for-coastal-vacations/"><u>Cool Down Tools for Coastal Vacations</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dying-light-walkthrough-unpacking-the-cooperative-and-parkour-adventure/"><u>Dying Light Walkthrough: Unpacking the Cooperative & Parkour Adventure</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/email-address-(contactcalmskiescentrecom)/"><u>Email Address: <contact@calmskiescentre.com></u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-unboxing-and-first-thoughts-on-samsung-galaxy-buds-plus-headphones/"><u>Experience Unboxing & First Thoughts on Samsung Galaxy Buds Plus Headphones</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-on-synology-rt2600ac-a-dual-purpose-wi-fi-device-with-long-range-and-robust-parental-controls/"><u>Expert Analysis on Synology RT2600ac: A Dual-Purpose Wi-Fi Device with Long Range and Robust Parental Controls</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/improving-your-gaming-experience-boosting-fps-for-forza-horizon-5-on-pc/"><u>Improving Your Gaming Experience: Boosting FPS for Forza Horizon 5 on PC</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-a-comprehensive-overview-of-multiscreen-streaming-techniques-on-social-media-platforms-like-facebook/"><u>In 2024, A Comprehensive Overview of Multiscreen Streaming Techniques on Social Media Platforms Like Facebook</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 14 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/land-the-biggest-bargains-must-have-deals-on-roku-products-during-prime-days/"><u>Land the Biggest Bargains: Must-Have Deals on Roku Products During Prime Days!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-future-of-play-elite-console-picks/"><u>Navigating the Future of Play: Elite Console Picks</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-enhancing-social-engagement-with-zoom-fb-live-streams-for-2024/"><u>[New] Enhancing Social Engagement with Zoom-FB Live Streams for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/city-skylines-game-analysis-a-captivating-urban-planning-experience/"><u>City Skylines Game Analysis: A Captivating Urban Planning Experience</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/comment-resoudre-le-blocage-des-mises-a-jourtelechargements-pour-windows-11-guides-dinstallation-faciles/"><u>Comment Résoudre Le Blocage Des Mises À Jour/Téléchargements Pour Windows 11 : Guides D'Installation Faciles</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-why-the-samsung-galaxy-s10-stands-out-as-a-premier-device/"><u>Comprehensive Evaluation: Why the Samsung Galaxy S10 Stands Out as a Premier Device</u></a></li>
+<li><a href="https://games-able.techidaily.com/expert-tips-affordable-stunning-1440p-gaming-monitors-under-500/"><u>Expert Tips: Affordable, Stunning 1440P Gaming Monitors Under $500</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-vivo-y27-4g-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Vivo Y27 4G Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-effective-guide-to-cast-apple-iphone-13-to-macbook-without-hindrance-drfone-by-drfone-ios/"><u>In 2024, Effective Guide to Cast Apple iPhone 13 to MacBook without Hindrance | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/incredible-features-and-performance-expert-review-of-lgs-156-laptop-for-2018-slim-design-impressive-endurance/"><u>Incredible Features and Performance: Expert Review of LG's 15.6 Laptop for 2018 - Slim Design, Impressive Endurance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nokia-72-analysis-surpassing-expectations-in-the-mid-tier-segment/"><u>Nokia 7.2 Analysis - Surpassing Expectations in the Mid-Tier Segment</u></a></li>
+<li><a href="https://extra-information.techidaily.com/revamped-look-at-sonys-s6500-bdp/"><u>Revamped Look at Sony's S6500 BDP</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/srgb-adoption-over-traditional-rgb-techniques/"><u>Srgb Adoption Over Traditional Rgb Techniques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-perfect-blend-of-strength-and-ease-dive-into-the-kensun-tire-air-bottle-review/"><u>The Perfect Blend of Strength and Ease - Dive Into the Kensun Tire Air Bottle Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-showdown-google-nest-audio-vs-nest-mini-detailed-review/"><u>The Showdown: Google Nest Audio Vs. Nest Mini - Detailed Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-truth-about-tp-link-av130er-wifi-range-extenders-power-delivery-an-in-depth-review/"><u>The Truth About TP-Link AV130er WiFi Range Extender's Power Delivery - An In-Depth Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-advanced-features-in-apple-watch-series-4/"><u>The Ultimate Guide to the Advanced Features in Apple Watch Series ‪4</u></a></li>
+<li><a href="https://driver-error.techidaily.com/1721101056785-windows-wireless-keyboard-issues-heres-what-you-can-do/"><u>Windows Wireless Keyboard Issues? Here's What You Can Do!</u></a></li>
 </ul></div>
 

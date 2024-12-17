@@ -1,7 +1,7 @@
 ---
 title: Top-Rated Substitutes for Microsoft Office
-date: 2024-10-25T16:14:26.536Z
-updated: 2024-10-30T16:35:28.066Z
+date: 2024-12-16T01:01:47.050Z
+updated: 2024-12-16T17:16:57.571Z
 categories:
   - BestProducts
 description: This Article Describes Top-Rated Substitutes for Microsoft Office
@@ -46,6 +46,10 @@ thumbnail: https://www.lifewire.com/thmb/pmzOK2SOMQ0ZK4wbNCSSHMBgQW4=/540x405/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Best Overall
 
 [Logitech Ergo K860](https://www.amazon.com/Logitech-Wireless-Ergonomic-Keyboard-Wrist/dp/B07ZWK2TQT/?tag=lifewire-onsite-prod-20&ascsubtag=4147386%7Cn326e10e09a2e4a42be05879465b0c31513%7CB07ZWK2TQT)
@@ -76,10 +80,7 @@ PHOTO: Amazon
 **Type:** Membrane | **Connectivity:** Wireless receiver, Bluetooth | **RGB:** None | **Tenkeys:** Yes | **Palm Rest:** Yes | **Dedicated Media Controls:** No
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Bluetooth
@@ -140,10 +141,7 @@ PHOTO: Amazon
 [Kinesis Freestyle2 Blue (Mac) Review](https://www.lifewire.com/freestyle2-blue-review-4780187)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best for Gaming
@@ -177,26 +175,20 @@ PHOTO: Amazon
 
 ## What to Look For in an Ergonomic Keyboard
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Usage**
 
  Where will you be using this keyboard? Is it mainly for personal use, or will you take it to the office? Do you need an ergonomic keyboard explicitly made with gamers in mind? While you can use a keyboard for multiple purposes, you may enjoy customizing which one you buy based on how you will use it the most.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Mac vs. PC**
 
  Do you have a Mac or a PC? While it seems like keyboards should be usable with both, that’s not always the case. You need to make sure whatever keyboard you buy is compatible with your system (this is usually a bigger problem for Macs rather than PCs). Additionally, the two operating systems have slightly different keys. While you can often use mapping software to alleviate these issues, you may want to purchase a keyboard specifically designed for your type of machine.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Keyboard size**
@@ -243,22 +235,20 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-hdr-editing-essentials-for-pc-users/"><u>[Updated] In 2024, HDR Editing Essentials for PC Users</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-stepwise-approach-for-professional-screen-recordings-in-adobe-captive/"><u>[Updated] Stepwise Approach for Professional Screen Recordings in Adobe Captive</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-top-live-stream-scenery-ideas-2023/"><u>2024 Approved Top Live Stream Scenery Ideas 2023</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/assessing-the-lenovo-thinkpad-x1-fold-innovative-yet-not-without-its-quirks/"><u>Assessing the Lenovo ThinkPad X1 Fold: Innovative Yet Not without Its Quirks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/behind-the-funny-lines-an-overview-of-elgoegs-unique-mirror-domain/"><u>Behind the Funny Lines: An Overview of elgoeG's Unique Mirror Domain</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/dont-miss-out-get-the-new-echo-spot-as-an-amazing-deal-at-40-off-on-prime-day-find-it-here-on-zdnet/"><u>Don’t Miss Out! Get the New Echo Spot as an Amazing Deal at 40% Off on Prime Day - Find It Here on ZDNET!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enhancing-outdoor-connectivity-with-the-netgear-orbi-rbs50y-in-depth-analysis-and-review/"><u>Enhancing Outdoor Connectivity with the Netgear Orbi RBS50Y - In-Depth Analysis and Review</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Sony Xperia 5 V | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-simplify-note-capture-with-mematic-app/"><u>In 2024, Simplify Note Capture with Mematic App</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-the-samsung-galaxy-tab-s3-still-a-top-tablet-choice-an-in-depth-review/"><u>Is the Samsung Galaxy Tab S3 Still a Top Tablet Choice? An In-Depth Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/master-your-photography-no-cost-multiplatform-darkroom-software-lightzone-for-all-users/"><u>Master Your Photography: No Cost, Multiplatform Darkroom Software (Lightzone) for All Users</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-time-lapse-like-a-pro-advanced-techniques-in-final-cut-pro/"><u>New Time Lapse Like a Pro Advanced Techniques in Final Cut Pro</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/premium-aural-accessories-for-screen-entertainment/"><u>Premium Aural Accessories for Screen Entertainment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-tab-s3-review-still-worth-it/"><u>Samsung Galaxy Tab S3 Review: Still Worth It</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-choosing-a-value-smartphone-spotlight-on-oneplus-nord-n100/"><u>The Ultimate Guide to Choosing a Value Smartphone: Spotlight on OnePlus Nord N100</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-review-crisp-conversations-with-the-midland-gxt1000vp4-unit/"><u>Top Review: Crisp Conversations with the Midland GXT1000VP4 Unit</u></a></li>
-<li><a href="https://win-able.techidaily.com/winning-the-battle-against-latency-expert-fixes-for-valheims-network-delays-pc/"><u>Winning the Battle Against Latency: Expert Fixes for Valheim's Network Delays (PC)</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-expertise-in-image-colors-pro-techniques-revealed/"><u>[Updated] Expertise in Image Colors Pro Techniques Revealed</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/1715860076174-updated-infinite-jest-joyride-top-kids-game-lineup/"><u>[Updated] Infinite Jest Joyride - Top Kids' Game Lineup!</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-proper-way-to-link-zoom-and-your-gmail-accounts/"><u>2024 Approved The Proper Way to Link Zoom and Your Gmail Accounts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bluetooth-battleground-jabras-resilient-model/"><u>Bluetooth Battleground: Jabra's Resilient Model</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/bridging-the-gap-between-individual-images-using-picshot-for-2024/"><u>Bridging the Gap Between Individual Images Using Picshot for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-c67-5g-get-deleted-pictures-back-with-ease-and-safety-by-fonelab-android-recover-pictures/"><u>How to C67 5G Get Deleted Pictures Back with Ease and Safety?</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-jujutsu-kaisens-tiktok-a-creative-journey/"><u>In 2024, Jujutsu Kaisen's TikTok A Creative Journey</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-lava-agni-2-5g-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Lava Agni 2 5G Screen | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/quick-guide-to-precision-photo-backdrop-clean-up-for-2024/"><u>Quick Guide to Precision Photo Backdrop Clean-Up for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>Set Your Preferred Job Location on LinkedIn App of your Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-pc-sound-cards-of-2024/"><u>The Best PC Sound Cards of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-indestructible-companion-in-darkness-in-depth-analysis-of-the-j5-tactical-v1-pro-flashlights-advanced-features-and-nighttime-clarity/"><u>The Indestructible Companion in Darkness: In-Depth Analysis of the J5 Tactical V1 Pro Flashlight's Advanced Features and Nighttime Clarity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-perfect-amazon-prime-companion-toshiba-55-fire-tv-edition-reviewed/"><u>The Perfect Amazon Prime Companion - Toshiba 55 Fire TV Edition Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-power-player-moto-g-play-reviewed-for-its-remarkable-battery-longeaturity-and-steady-performance-output/"><u>The Power Player: Moto G Play Reviewed for Its Remarkable Battery Longeaturity and Steady Performance Output</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-performance-evaluation-linksys-wrt3200acm-leading-open-source-wifi-router/"><u>Top Performance Evaluation: Linksys WRT3200ACM - Leading Open-Source WiFi Router</u></a></li>
 </ul></div>
 

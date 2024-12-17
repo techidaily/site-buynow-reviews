@@ -1,7 +1,7 @@
 ---
 title: "Retro Meets New Age in Ratchet & Clank Review: An Iconic Journey Reimagined"
-date: 2024-12-07T21:44:03.100Z
-updated: 2024-12-10T21:34:30.170Z
+date: 2024-12-13T22:31:54.555Z
+updated: 2024-12-16T22:33:18.191Z
 categories:
   - BestProducts
 description: "This Article Describes Retro Meets New Age in Ratchet & Clank Review: An Iconic Journey Reimagined"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/c0270bb78c702f180d69e641fb9f373f4cd07e8ef
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/JA3JlwOuidCKxo4M92FWCfYUoI4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -42,7 +46,7 @@ Lifewire / Kelsey Simon
 3.8
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
@@ -77,11 +81,11 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/uXDVHaBrdIlv5tI-qRgiPK0Iig4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460721-e6a53664e7eb4e65a75bf5cceb928e28.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Plot: A huge world with loads to explore**
 
@@ -103,10 +107,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Gameplay: Not as smooth as on other platforms**
 
  The first real interactive thing you do with the game is to create your character, and true to other Elder Scrolls games, you can change your character’s appearance in the most minute way. Pick your race, gender, hairstyle, eye color, and even tweak the height of your cheekbones and brows if you want. This is the first sign of just how encompassing and involved the role-playing aspects of Skyrim are.
@@ -125,15 +125,19 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/2Fk-UTwglmoCdE7IXrXqlnXs9do=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460712-6cec58625d13430db671be3144451cbc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Graphics: A bit outdated**
 
  The graphics in Skyrim aren’t awful, but they haven't progressed much since 2011\. If you’ve played any other version of Skyrim, you can overlook it, simply because you know what you’re getting into. Bethesda attempted to make Skyrim look realistic, likely in their desire to give you a fully immersive experience. But these days, Skyrim’s graphics just aren’t as realistic as what other, more recent games have accomplished. In places, the mountains look blocky and the grass a little patchy. Character’s faces sometimes seem deeply sunken around the eyes, with the skin looking more like leather than flesh. It’s not that the graphics are overly bad, they’re just not as good as what you can get with better hardware on the PC.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Platform: Take Skyrim on the go**
 
@@ -147,11 +151,11 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/Iik6f_7RIRMWo5R6zGYxgGeL4n0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546076-8fb741faa7144fa6bafe386d2b7d8296.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: A tad expensive**
 
@@ -170,10 +174,6 @@ Lifewire / Kelsey Simon
 **Good if you want to play on the go.**
 
  Even though The Elder Scrolls V: Skyrim is a great game and the Switch is an amazing platform, our advice is only to buy Skyrim for the Switch if you’re looking to play on the go. Otherwise, we’d suggest purchasing Skyrim for the PC, where you’ll really be able to enjoy superior graphics and customization options.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -203,20 +203,21 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-how-youtube-manages-content-post-upload/"><u>[Updated] How YouTube Manages Content Post-Upload</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-a-complete-resource-for-aspiring-xbox-streaming-pros/"><u>2024 Approved A Complete Resource for Aspiring Xbox Streaming Pros</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-unveiling-the-secrets-of-a-comfortable-workspace-with-cumuluspro-mats/"><u>Expert Review: Unveiling the Secrets of a Comfortable Workspace with CumulusPRO Mats</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/explore-the-world-of-streaming-with-roku-express-top-reviews-on-quality-and-savings/"><u>Explore the World of Streaming with Roku Express - Top Reviews on Quality & Savings</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-meizu-21-pro-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Meizu 21 Pro Without PUK Codes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/invest-in-peace-of-mind-with-smaller-devices-how-miniscule-trackers-can-deliver-maximum-security-for-belongings/"><u>Invest in Peace of Mind with Smaller Devices - How Miniscule Trackers Can Deliver Maximum Security for Belongings</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/nokia-c210-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Nokia C210 Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Realme GT 3 | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/secure-and-simple-downloads-for-amd-ryzen-graphics-drivers/"><u>Secure and Simple Downloads for AMD Ryzen Graphics Drivers</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Infinix Hot 30 5G | Dr.fone</u></a></li>
-<li><a href="https://win-webster.techidaily.com/switching-from-apple-a-firsthand-review-of-the-microsoft-surface-pro-and-laptop-am-i-finally-convinced/"><u>Switching From Apple: A Firsthand Review of the Microsoft Surface Pro & Laptop - Am I Finally Convinced?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-revolutionary-samsung-galaxy-chromebook-2-unveiling-portability-and-performance-in-a-review/"><u>The Revolutionary Samsung Galaxy Chromebook 2: Unveiling Portability and Performance in a Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-verdict-on-the-samsung-galaxy-tab-s5e-a-detailed-android-tablet-assessment/"><u>The Ultimate Verdict on the Samsung Galaxy Tab S5e: A Detailed Android Tablet Assessment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rating-and-economical-comprehensive-guide-to-the-tp-link-re200-ac750-range-extender/"><u>Top Rating and Economical: Comprehensive Guide to the TP-Link RE200 AC750 Range Extender</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-reviews-for-razers-portable-wi-fi-solution-the-portal/"><u>Top Reviews for Razer's Portable Wi-Fi Solution - The Portal</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-comprehensive-breakdown-vsco-photography-tools/"><u>[New] 2024 Approved Comprehensive Breakdown VSCO Photography Tools</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-ios-champions-best-ps2-emulation-programs-for-2024/"><u>[Updated] IOS Champions Best PS2 Emulation Programs for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-smart-shoppers-guide-to-inexpensive-recording-gear/"><u>[Updated] Smart Shopper's Guide to Inexpensive Recording Gear</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-capture-screenshots-of-a-full-page/"><u>2024 Approved Capture Screenshots of a Full Page</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/aac-webm-mp4/"><u>移動網隨時無限 AAC版本 - WEBM 到 MP4 自由搬家工具</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-kensun-tire-inflator-assessment-robust-dependable-and-easily-transportable/"><u>Comprehensive Kensun Tire Inflator Assessment: Robust, Dependable & Easily Transportable</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-music-from-vivo-y27s-by-fonelab-android-recover-music/"><u>Easy steps to recover deleted music from Vivo Y27s</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-10-premier-websites-offering-quality-digital-learning-experiences/"><u>Explore 10 Premier Websites Offering Quality Digital Learning Experiences</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fundamental-tips-for-second-hand-computing-purchase/"><u>Fundamental Tips for Second-Hand Computing Purchase</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/immerse-in-advanced-gadgets-explore-the-features-of-a-dell-display-unit-superior-noise-cancelling-headset-and-high-definition-camera/"><u>Immerse in Advanced Gadgets: Explore the Features of a Dell Display Unit, Superior Noise Cancelling Headset, & High-Definition Camera</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-directsnap-recorder-for-modern-oses/"><u>In 2024, DirectSnap Recorder for Modern OSes</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Teleport Your GPS Location On Apple iPhone XS? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-top-5-gif-making-software-with-the-highest-ratings/"><u>In 2024, Top 5 GIF Making Software with the Highest Ratings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovo-thinkpad-x1-nano-assessment-the-ultimate-guide-to-a-portable-powerhouse/"><u>Lenovo ThinkPad X1 Nano Assessment: The Ultimate Guide to a Portable Powerhouse</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-performance-with-garmin-in-depth-insight-into-the-forerunner-945-gps-smartwatch-review/"><u>Mastering Performance with Garmin: In-Depth Insight Into the Forerunner 945 GPS Smartwatch Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-verdict-on-samsungs-newest-addition-the-ru7300-55-inch-smart-tv-worth-the-investment/"><u>The Verdict on Samsung's Newest Addition: The Ru7300 55-Inch Smart TV - Worth the Investment?</u></a></li>
 </ul></div>
 

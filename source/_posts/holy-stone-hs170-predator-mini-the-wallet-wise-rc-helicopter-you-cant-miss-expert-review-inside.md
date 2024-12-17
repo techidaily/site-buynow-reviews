@@ -1,7 +1,7 @@
 ---
 title: "Holy Stone HS170 Predator Mini: The Wallet-Wise RC Helicopter You Can't Miss - Expert Review Inside"
-date: 2024-11-28T06:23:06.380Z
-updated: 2024-12-04T04:18:46.320Z
+date: 2024-12-10T17:50:23.326Z
+updated: 2024-12-16T21:41:01.467Z
 categories:
   - BestProducts
 description: "This Article Describes Holy Stone HS170 Predator Mini: The Wallet-Wise RC Helicopter You Can't Miss - Expert Review Inside"
@@ -18,17 +18,9 @@ thumbnail: https://thmb.techidaily.com/e31e2df1b932fa534e864f0527ff09c3f70b9b1af
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/5SQBxSHXey906sYtaz8fIiCXm7k=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -53,13 +45,13 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/o0LkMzwRLq9UDT8tBDJerDIsp8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -80,6 +72,10 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer C80 is an affordable[long range router](https://www.lifewire.com/best-long-range-routers-4122554) that should be ideal for medium-sized homes. With 3x3[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , parental controls, and remote control using TP-Link’s Tether app, the Archer C80 has a few admirable features for a router under $100, but it also lacks some of the things we’ve come to expect in a router in this price range (like smart assistant compatibility and no USB port). I tested the TP-Link Archer C80 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment when compared to other budget routers on the market.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Basic, but effective**
 
  The Archer C80 is an exceptionally small router, with a body that measures only 4.6 inches tall, 8.5 inches wide, and 1.26 inches in depth. Since its body is smaller than a paperback book, the router can sit inconspicuously on a table or desk. It also has two keyhole mounts on the back for mounting on a wall.
@@ -87,10 +83,6 @@ Lifewire / Erika Rawes
  The matte black color scheme allows it to blend in with other devices, so you’ll barely notice it on a desk or workstation. The surface is textured, with recesses to hide the venting. The texturing is both a blessing and a curse because it causes the C80 to collect a little extra dust, but it also hides fingerprints and smudges.
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/Ep4Dk2l5q44AgM0S3cs9My3AE3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_03-a367c45b39474785856cb986e82c88dc.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -108,6 +100,10 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Network Performance: Fast speeds, No USB port**
 
  Although this is a low to mid-tier level device, I was quite impressed with its speed and performance. I live in a suburb about 20 minutes away from Raleigh, NC, and I have Spectrum as my internet service provider. The Wi-Fi speeds in my home max out at 400 Mbps. I have a smart box that sits in a utility closet where the router connects. I mounted the router on the wall in that closet, which has a solid door that acts as an immediate signal obstruction. In spite of the presence of this solid door, I was still able to get between 340 and 350 Mbps all throughout the entire downstairs (on the 5GHz band). On the 2.4GHz band, I could get up to 90Mbps all throughout the first floor and in my garage.
@@ -117,6 +113,10 @@ Lifewire / Erika Rawes
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Range: Even better than advertised**
 
@@ -134,15 +134,15 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Price: Around 100 bucks**
 
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **TP-Link Archer C80 vs. TP-Link Archer A9**
 
@@ -189,22 +189,16 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-creating-cash-flow-on-youtube-an-ad-free-blueprint-for-income/"><u>[New] In 2024, Creating Cash Flow on YouTube An Ad-Free Blueprint for Income</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-navigating-the-world-of-instagram-filters-a-comprehensive-guide-to-2023/"><u>[New] In 2024, Navigating the World of Instagram Filters A Comprehensive Guide to 2023</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-quick-guide-shrinking-and-changing-iphone-video-dimensions/"><u>[Updated] Quick Guide Shrinking & Changing iPhone Video Dimensions</u></a></li>
-<li><a href="https://win-blog.techidaily.com/enhance-your-steam-stream-tips-to-overcome-lag-issues/"><u>Enhance Your Steam Stream: Tips to Overcome Lag Issues</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 6 | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-daily-diary-downloader/"><u>In 2024, Daily Diary Downloader</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Realme 11X 5G? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-magic-5-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Honor Magic 5 Phone Without Password?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/inside-look-the-six-main-benefits-of-youtube-premium/"><u>Inside Look: The Six Main Benefits of YouTube Premium</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/iseebell-video-doorbells-on-a-budget-top-reviews-for-models-costing-less-than-50/"><u>ISeeBell Video Doorbells on a Budget – Top Reviews for Models Costing Less than $50</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210340366-9781914264207-mann-of-two-worlds/"><u>Mann of Two Worlds | Free Book</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/netgear-pl1200-reviewed-is-the-hefty-design-a-trade-off-for-blazing-speeds/"><u>Netgear PL1200 Reviewed – Is the Hefty Design a Trade-Off for Blazing Speeds?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/next-gen-clash-exploring-the-advantages-of-iphone-15-plus-and-pro-max-models/"><u>Next-Gen Clash: Exploring the Advantages of iPhone 15 Plus and Pro Max Models</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/philips-hf3505-wake-up-light-review/"><u>Philips HF3505 Wake-Up Light Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/samsung-ru7300-4k-ultra-hd-smart-tv-55-in-depth-review-and-features/"><u>Samsung RU7300 4K Ultra HD Smart TV 55 - In-Depth Review & Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/serious-bookworms-rejoice-kobo-formas-in-depth-review/"><u>Serious Bookworms Rejoice: Kobo Forma's In-Depth Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/simplified-guide-to-tp-link-deco-p9-mastering-mesh-wifi-technology/"><u>Simplified Guide to TP-Link Deco P9: Mastering Mesh WiFi Technology</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-flash-vids-unpacked-whats-inside-for-2024/"><u>[Updated] Flash Vids Unpacked What's Inside for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-transforming-outdoor-vision-into-online-presence-gopro-to-periscopefacebook/"><u>[Updated] In 2024, Transforming Outdoor Vision Into Online Presence GoPro to Periscope/Facebook</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-ios-leading-edge-psp-emulators-top-5-lists/"><u>2024 Approved IOS Leading Edge PSP Emulators, Top 5 Lists</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/audition-the-benefits-of-spotifys-high-end-membership/"><u>Audition the Benefits of Spotify's High-End Membership</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/google-assistant-vs-alexa-deciding-on-your-perfect-digital-companer/"><u>Google Assistant Vs. Alexa – Deciding on Your Perfect Digital Companer</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-lava-blaze-curve-5g-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Lava Blaze Curve 5G Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/premier-sound-outstanding-list-of-wired-earbuds/"><u>Premier Sound: Outstanding List of Wired Earbuds</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-rotibox-beanie-hat-review-a-synergy-of-snugness-and-superior-auditory-quality/"><u>The Rotibox Beanie Hat Review: A Synergy of Snugness and Superior Auditory Quality</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-guide-to-viewing-star-trek-films-sequentially/"><u>The Ultimate Guide to Viewing Star Trek Films Sequentially</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-4k-with-sonys-latest-console-a-review-of-the-ps4-pro/"><u>Unveiling the Power of 4K with Sony's Latest Console - A Review of the PS4 Pro</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/youtubemp3-chrome/"><u>YouTube音楽動画MP3ダウンロード手順 - Chrome拡張機能</u></a></li>
 </ul></div>
 

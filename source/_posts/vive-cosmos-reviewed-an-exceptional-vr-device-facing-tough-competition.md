@@ -1,7 +1,7 @@
 ---
 title: "Vive Cosmos Reviewed: An Exceptional VR Device Facing Tough Competition"
-date: 2024-10-26T16:25:45.365Z
-updated: 2024-10-30T16:44:51.839Z
+date: 2024-12-11T16:35:39.716Z
+updated: 2024-12-16T20:07:34.782Z
 categories:
   - BestProducts
 description: "This Article Describes Vive Cosmos Reviewed: An Exceptional VR Device Facing Tough Competition"
@@ -44,6 +44,10 @@ Lifewire / Anduy Zahn
 
 4.7
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fitbit Charge 4 Fitness Tracker
 
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/3KZYnLSyn9OGGXZdp02JH2_4wB8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Fitbit-Charge-4-Fitness-Tracker-1-c163fbceed1748a6bd3de7883ab66a4d.jpg)
@@ -81,31 +85,11 @@ Lifewire / Anduy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup process: Streamlined and straightforward**
 
  My[Samsung Galaxy Note 9](https://www.lifewire.com/samsung-galaxy-note-9-review-4683995) immediately noticed that the Charge 4 was nearby when I powered the smartwatch up, and a tap of the screen of my phone took me to the download page for the app. Once installed, the app guided me through the setup process. You’ve got to enter a bunch of information about yourself, including name, birth date, weight, and gender. Next, the app shows a helpful animation of how to attach the charger. I like the smiley face the device gives you when it starts charging; it’s a small touch, but it gives the Charge 4 a little jolt of personality.
 
  After this, it was time to actually pair the Charge 4 to my phone, and after an annoying Squaretrade “Fitbit protection plan” ad, I needed to install an update. While that was downloading I was given a list of first-time user guides. This was useful, with plenty of information about how to use the device, though I would have preferred a printed manual. After the device is up to date, a further set of animated guides showed me the various controls and gestures used to navigate the Charge 4\. Finally, the app had a few product care tips and another annoying ad (this time for a Fitbit Premium account) and was ready to go.
-
-<!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Comfort: A good fit**
 
@@ -128,13 +112,14 @@ Lifewire / Anduy Zahn
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/UlCfm0YzhPSZMR3WWRs3oeCWPsA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-4-Fitness-Tracker-2-6afa07ba83e74effb1bd3521b2b43391-3287de2174dc42359f46f06e6576d80b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Intuitive but ad infested**
 
@@ -144,6 +129,10 @@ Lifewire / Andy Zahn
 
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/wFO4EEqsgPPy2Dq-eUgUTZ1q70A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-4-Fitness-Tracker-3-38e2a0e1ea5a46ee85939b8dec6d6a48.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
 ## **Battery Life: Awesome, but with caveats**
@@ -152,15 +141,16 @@ Lifewire / Andy Zahn
 
  However, I did run into a few issues worth mentioning. First of all, when the battery drops below 20% the Charge 4 seems to go into a power-saving mode that limits functionality. Secondly, using features like exercise tracking that use the GPS will drain the battery much more quickly. When I embarked with a full charge on a two-day backpacking trip and set the Charge 4 to record the hike as an exercise it only lasted me through roughly 75% of the two days of trekking.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Good value**
 
  With an MSRP of $150 the Fitbit Charge 4 is somewhat expensive but fairly priced for a basic smartwatch. However, extra accessories and subscription services can quickly add to the cost.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Fitbit Charge 4 vs. Fossil Sport**
@@ -172,13 +162,6 @@ Lifewire / Andy Zahn
  **Whether you’re looking for a minimalist smartwatch or an effective fitness tracker, the Fitbit Charge 4 is a generally excellent device.**
 
  I was frankly shocked by how much I have come to like the Fitbit Charge 4\. It’s as functional as it’s good looking, and provides both reasonably accurate fitness tracking and well integrated basic smartwatch functionality. Despite a few minor flaws such as a subscription paywall for some features and battery hogging GPS I can heartily recommend the Charge 4.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -207,24 +190,24 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-ultimate-guide-to-the-finest-travel-dvd-players/"><u>[New] 2024 Approved Ultimate Guide to the Finest Travel DVD Players</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/analyzing-whether-i-need-ios-17s-latest-features/"><u>Analyzing Whether I Need iOS 17'S Latest Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-the-charm-and-superiority-of-teac-pd-301s-sound/"><u>Discovering the Charm and Superiority of Teac PD-301's Sound</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-acer-wireless-network-drivers-for-free-fast-and-simple-installation-guide/"><u>Download Acer Wireless Network Drivers for Free - Fast & Simple Installation Guide</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/expert-recommendations-best-ipad-video-editors-for-2024/"><u>Expert Recommendations Best iPad Video Editors for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fintie-defensive-cover-evaluation-maximizing-durability-and-cost-effectiveness-for-your-13-macbook-pro/"><u>Fintie Defensive Cover Evaluation: Maximizing Durability and Cost-Effectiveness for Your 13 MacBook Pro</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-oppo-reno-8t-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Oppo Reno 8T 5G Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-lava-yuva-2-pro-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Lava Yuva 2 Pro Phone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-huawei-p60-easily-by-drfone-android/"><u>In 2024, How To Unlock a Huawei P60 Easily?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-lg-stylo-6-a-perfect-blend-of-style-and-functionality/"><u>In-Depth Analysis of LG Stylo 6 - A Perfect Blend of Style & Functionality</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/inside-out-the-nikon-d7500-experience/"><u>Inside Out The Nikon D7500 Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/motorola-one-5g-ace-review/"><u>Motorola One 5G Ace Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-why-the-samsung-galaxy-s10-stands-out-as-a-superior-smartphone/"><u>The Ultimate Guide to Why the Samsung Galaxy S10 Stands Out as a Superior Smartphone</u></a></li>
-<li><a href="https://common-error.techidaily.com/top-5-solutions-for-reducing-gpu-load-caused-by-the-desktop-window-manager-on-windows-11/"><u>Top 5 Solutions for Reducing GPU Load Caused by the Desktop Window Manager on Windows 11</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-ranking-exterior-disk-drives-in-2e24-a-comprehensive-guide/"><u>Top-Ranking Exterior Disk Drives in 2E24: A Comprehensive Guide</u></a></li>
-<li><a href="https://fox-search.techidaily.com/top-rated-mobile-apps-for-flawless-haircutting-on-android-and-iphone/"><u>Top-Rated Mobile Apps for Flawless Haircutting on Android and iPhone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-powerhouse-a-review-of-alienware-aurora-r7s-value-packed-features/"><u>Unboxing the Powerhouse: A Review of Alienware Aurora R7's Value-Packed Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-thrills-of-yokus-island-adventure-a-comprehensive-review/"><u>Unveiling the Thrills of Yoku’s Island Adventure – A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/vinyl-and-film-reels-assessing-the-investment-potential-of-laserdiscs-versus-vhs-tapes-for-collectors/"><u>Vinyl and Film Reels: Assessing the Investment Potential of LaserDiscs Versus VHS Tapes for Collectors</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-converse-with-computers-for-free-for-2024/"><u>[New] Converse with Computers for Free for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-establishing-group-communication-on-skype-windows-mac-for-2024/"><u>[New] Establishing Group Communication on Skype (Windows, Mac) for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-tech-bites-the-future-of-screen-capture-apps/"><u>[New] Tech Bites The Future of Screen Capture Apps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-fastest-rising-youtube-influencers-you-cant-miss/"><u>[New] The Fastest Rising YouTube Influencers You Can't Miss</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-comprehensive-examination-for-straightforward-hdr/"><u>2024 Approved Comprehensive Examination for Straightforward HDR</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/aeonis-portable-solar-generator-reviewed-excellent-pure-sine-wave-inverter-option-for-essential-medical-apparatuses/"><u>Aeonis Portable Solar Generator Reviewed: Excellent Pure Sine Wave Inverter Option for Essential Medical Apparatuses</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-garmin-forerunner-745-top-tier-tracking-device-for-multi-sport-athletes/"><u>Comprehensive Analysis of the Garmin Forerunner 745: Top-Tier Tracking Device for Multi-Sport Athletes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-imo-chat-app-evaluation-features-and-performance/"><u>Comprehensive Imo Chat App Evaluation: Features and Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-linksys-ea9500-the-smart-high-performance-wifi-solution/"><u>Expert Analysis: Linksys EA9500 - The Smart, High-Performance WiFi Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-elite-wireless-mouse-options-for-enhanced-productivity/"><u>Explore Elite Wireless Mouse Options for Enhanced Productivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-capabilities-a-thorough-analysis-of-the-docooler-usb-20-with-12-megapixels/"><u>Exploring the Capabilities: A Thorough Analysis of the Docooler USB 2.0 with 12 Megapixels</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/glion-dolly-e-scooter-reviewed-elite-features-for-those-willing-to-pay-extra-for-expediency-and-style/"><u>Glion Dolly E-Scooter Reviewed: Elite Features for Those Willing to Pay Extra for Expediency and Style</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-realme-narzo-n53-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from Realme Narzo N53</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-efficient-screen-capture-strategies-for-effective-facetime-recording/"><u>In 2024, Efficient Screen-Capture Strategies for Effective FaceTime Recording</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-virtual-retailers-a-list-of-top-6-sites-for-buying-televisions/"><u>Navigating Virtual Retailers: A List of Top 6 Sites for Buying Televisions</u></a></li>
+<li><a href="https://win11.techidaily.com/revamping-your-calendar-the-windows-outlook-way/"><u>Revamping Your Calendar - The Window's Outlook Way</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-apple-books-app-showdown-pros-cons-and-insights/"><u>The Apple Books App Showdown: Pros, Cons & Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-complete-breakdown-of-ankers-superspeed-usb-30-hub-a-user-must-have/"><u>The Complete Breakdown of Anker's SuperSpeed USB 3.0 Hub – A User Must-Have</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/ultimate-fix-for-windows-11-update-problem-overcoming-0xc1900208-expert-advice/"><u>Ultimate Fix for Windows 11 Update Problem: Overcoming 0XC1900208 [Expert Advice]</u></a></li>
 </ul></div>
 

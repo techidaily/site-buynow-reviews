@@ -1,7 +1,7 @@
 ---
 title: "Unboxing and Testing the Barnes & Noble Nook GlowLight Plus: A Massive E-Reader Review."
-date: 2024-10-24T16:12:42.303Z
-updated: 2024-10-30T16:24:10.817Z
+date: 2024-12-12T17:52:20.269Z
+updated: 2024-12-16T16:23:08.084Z
 categories:
   - BestProducts
 description: "This Article Describes Unboxing and Testing the Barnes & Noble Nook GlowLight Plus: A Massive E-Reader Review."
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/96d460ad778074a93b63a308714d13a6fb98bd643
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/87Y0vp91-Opdxctf3M6BGQ6r1d8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -45,10 +49,7 @@ Lifewire / Emily Ramirez
 2.8
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Creative Sound Blaster ZxR
@@ -79,13 +80,6 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
 
 ## **Design: Sleek and convenient**
@@ -100,13 +94,6 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process/Installation: Easy install, irritating setup**
 
  To install the hardware, we popped open our mid-size PC tower and inserted the sound card and daughter board into two available PCIe slots. Creative Labs had the foresight to build the main card with a PCIe 1x slots, giving the user flexibility in where they connect their cards to the motherboard. Once the cards were secured, we plugged the headphones and microphone into the corresponding jacks.
@@ -116,13 +103,6 @@ Lifewire / Emily Ramirez
  Unfortunately, configuring Creative Labs’ drivers and software suite was a much less intuitive process. The ZxR’s outputs are controlled via the Sound Blaster Z-series Software, where users can select whether they’re listening with their headphones or their speakers, apply EQ effects, and more. By default, the software is set to output to speakers with several different EQ effects turned on. We had to manually switch it to headphone output and turn off EQ; the software does not automatically detect which jacks are in use.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -134,7 +114,15 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Lots of options with mixed utility**
 
@@ -149,10 +137,7 @@ Lifewire / Emily Ramirez
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
@@ -179,6 +164,10 @@ Lifewire / Emily Ramirez
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -218,20 +207,15 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-initiate-an-impactful-live-stream-on-facebook-today/"><u>[New] 2024 Approved Initiate an Impactful Live Stream on Facebook Today</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-simplifying-video-cutting-in-windows-10-a-photoshop-free-guide/"><u>[New] 2024 Approved Simplifying Video Cutting in Windows 10 A Photoshop-Free Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-the-insiders-view-advanced-strategies-for-successful-storytelling-in-social-media-for-2024/"><u>[Updated] The Insider’s View Advanced Strategies for Successful Storytelling in Social Media for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/banish-the-buzz-effortless-remedies-for-sound-issues-in-earphones/"><u>Banish the Buzz: Effortless Remedies for Sound Issues in Earphones!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-bang-for-your-buck-tcl-50s425-50-smart-roku-led-tv-in-depth-2019-model-evaluation/"><u>Best Bang for Your Buck: TCL 50S425 50 Smart Roku LED TV - In-Depth 2019 Model Evaluation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/detailed-approach-for-a-hassle-free-macos-catalina-switch/"><u>Detailed Approach for a Hassle-Free macOS Catalina Switch</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fitbit-versa-3-review/"><u>Fitbit Versa 3 Review</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/fix-guide-for-windows-bluetooth-headphones-with-music-only-option/"><u>Fix Guide for Windows Bluetooth Headphones with Music Only Option</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-lava-yuva-3-pro-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Lava Yuva 3 Pro to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Xiaomi Redmi A2 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/increase-your-connectivity-the-most-effective-wi-fi-repeaters-on-the-market/"><u>Increase Your Connectivity: The Most Effective Wi-Fi Repeaters on the Market</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/laptop-graphics-enhancement-blueprint/"><u>Laptop Graphics Enhancement Blueprint</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/must-have-elements-in-wi-fi-setup-selection/"><u>Must-Have Elements in Wi-Fi Setup Selection</u></a></li>
-<li><a href="https://common-error.techidaily.com/overcoming-challenges-ensuring-full-functionality-of-usb-composite-devices-on-usb-30-systems/"><u>Overcoming Challenges: Ensuring Full Functionality of USB Composite Devices on USB 3.0 Systems</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-terminating-your-paramountplus-membership-seamlessly/"><u>Ultimate Guide: Terminating Your Paramount+ Membership Seamlessly</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-2023-how-to-share-twitter-videos-on-whatsapp/"><u>[New] 2024 Approved 2023 | How to Share Twitter Videos on WhatsApp?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-captivating-content-crafting-impactful-insta-videos-for-2024/"><u>[Updated] Captivating Content Crafting Impactful Insta-Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-facebooks-flash-video-frenzy/"><u>2024 Approved Facebook's Flash Video Frenzy</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-outlookcom-and-gmail-determining-the-superior-email-solution/"><u>Comparing Outlook.com and Gmail: Determining the Superior Email Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-enhanced-performance-and-design-upgrade-in-the-new-imac-m1-model/"><u>Exploring the Enhanced Performance & Design Upgrade in the New iMac M1 Model</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/leveraging-chatgpt-a-guide-to-enhancing-video-game-storytelling/"><u>Leveraging ChatGPT: A Guide to Enhancing Video Game Storytelling</u></a></li>
+<li><a href="https://app-tips.techidaily.com/solving-idevice-software-challenges-tips-for-successful-ios-upgrades/"><u>Solving iDevice Software Challenges: Tips for Successful iOS Upgrades</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/solving-the-missing-steamdll-file-a-comprehensive-guide/"><u>Solving the 'Missing' Steam.dll File: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-in-the-business-how-asus-vg245h-reinvents-console-gaming-displays/"><u>The Best in the Business - How Asus VG245H Reinvents Console Gaming Displays</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-motorola-one-hyper-analysis-elevating-mid-range-phones-with-a-blast-of-innovation-and-style/"><u>The Motorola One Hyper Analysis: Elevating Mid-Range Phones with a Blast of Innovation and Style</u></a></li>
 </ul></div>
 

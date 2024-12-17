@@ -1,7 +1,7 @@
 ---
 title: Budget Flyers Guide - Holy Stone's Predator HS170 Mini Drone Review
-date: 2024-08-22T16:18:21.474Z
-updated: 2024-08-23T16:18:21.474Z
+date: 2024-12-10T19:04:02.740Z
+updated: 2024-12-16T19:49:40.522Z
 categories:
   - BestProducts
 description: This Article Describes Budget Flyers Guide - Holy Stone's Predator HS170 Mini Drone Review
@@ -43,6 +43,10 @@ Lifewire / Erika Rawes
 
 ![Xiaomi Mi Smart Band 4](https://www.lifewire.com/thmb/UV3EHV0VwUI0F7jJZFlAMknHD2M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xiaomi-Mi-Band-4-Fitness-Tracker-1-0f0e3854f10a4a2595aacd594e37472b.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 [View On Amazon $24](https://www.amazon.com/Xiaomi-Bluetooth-Bracelet-Waterproof-Activity/dp/B07TFKHCMP?tag=lifewire-onsite-prod-20&ascsubtag=5072538%7Cn9a9fa546381a4a599bb0ce1e844da32715%7CB07TFKHCMP) [View On B&H Photo Video $40](https://www.bhphotovideo.com/c/product/1551714-REG/xiaomi%5Fmgw4052gl%5Fmi%5Fband%5F4%5Ffitness.html/)
@@ -76,8 +80,9 @@ Lifewire / Erika Rawes
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/oCYh365Kx4bFT1nCDvemWNcGEYI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-6-64089d35ecca457d9f49477537785d34.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Comfort: A water resistant removable band**
@@ -89,6 +94,10 @@ Lifewire / Erika Rawes
  The Mi Band 4 adjusts between 155 to 216 mm, so it fits most wrists snugly without leaving any marks. It doesn’t dig into the skin, so I could wear it while typing. It’s also surprisingly comfortable to wear while sleeping and during exercise. It allows for a full range of motion with my hand, and I can perform all exercises while wearing it, including pushups, which can sometimes be uncomfortable with other trackers that have a thicker band.
 
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/MsPw0300j9lhgQEmelHfapWXla4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-4-52ee61c2595e4aafb5c1ad04be13f12e.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -103,9 +112,6 @@ Lifewire / Erika Rawes
 
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/b-bHMwN4n7fkxgT3X0dueEvAuZ8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-2-4e096d92f3324689bed126949cdb0a14.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 ## **Software: Mi Fit App**
@@ -116,10 +122,11 @@ Lifewire / Erika Rawes
 
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/uyTDWcqaPVwpPOnZeijBG5Y2MYM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-5-040745fab732483a957277c9daaa82ca.jpg)
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Battery: Up to 20 days**
 
@@ -135,21 +142,16 @@ The 135 mAh battery lasts for up to 20 days.
 
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/kXajF8I7UCVG0wnufwSz3psTRmU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-3-8a9c12e307254854bcd99728db94330c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: An amazing value**
 
  The Xiaomi Mi Smart Band 4 is incredibly affordable, selling for $29 on Amazon. The next gen band, the Mi Band 5, is now hitting the market, which is lowering the price of the fourth generation model. The Mi Band 4 isn’t perfect by any means, and it won’t provide the same experience that you’d get with a tracker that costs hundreds of dollars, but it’s a steal at its price point.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Xiaomi Mi Smart Band 4 vs. Fitbit Charge 3**
 
  For a light user, the Xiaomi Mi Smart Band 4 will provide a similar experience to the[Fitbit Charge 3](https://www.lifewire.com/fitbit-charge-3-review-5072527) , and for much less cash. The Mi Band 4 sells for less than $30, while the Charge 3 (view on[Amazon](https://www.amazon.com/dp/B07FTN21JL/?tag=lifewire-onsite-prod-20&ascsubtag=5072538%7Cn9a9fa546381a4a599bb0ce1e844da32715%7C) ) sells for closer to $100\. The Mi Band 4 even has a color display, which the Fitbit Charge 3 lacks. If you want a budget tracker with better accuracy, the Charge 3 is probably the way to go. If you just want to try out a fitness tracker, the Mi Band 4 is a good choice.
@@ -159,6 +161,10 @@ The 135 mAh battery lasts for up to 20 days.
 **Impressive, especially for the price.**
 
  The Xiaomi Mi Smart Band 4 offers a lot of features for a little bit of cash.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -185,14 +191,11 @@ The 135 mAh battery lasts for up to 20 days.
 * App  Mi Fit
 * System requirements  Android 4.4, iOS 9.0 or above
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -201,4 +204,18 @@ The 135 mAh battery lasts for up to 20 days.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ed-from-script-to-screen-cutting-edge-video-editing-for-youtubers-for-2024/"><u>[Updated] From Script to Screen Cutting-Edge Video Editing for YouTubers for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-most-improved-10-elements-of-terraria/"><u>[Updated] Most Improved 10 Elements of Terraria</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-realme-v30-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-anker-powercoreplus-26800-charger-setup/"><u>Comprehensive Analysis of the Anker PowerCore+ 26800 Charger Setup</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/diving-deep-into-the-straightforward-operation-of-mods-revamped-e-bike-accessory/"><u>Diving Deep Into The Straightforward Operation Of Mod's Revamped E-Bike Accessory</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-infinix-hot-30-5g-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Infinix Hot 30 5G FRP Without Computer</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/proven-techniques-to-stand-out-in-podcast-imagery-for-2024/"><u>Proven Techniques to Stand Out in Podcast Imagery for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/snag-unbeatable-discounts-exclusive-oneplus-deals-for-prime-day-savvy-shoppers/"><u>Snag Unbeatable Discounts: Exclusive OnePlus Deals for Prime Day Savvy Shoppers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-complete-guide-to-the-acer-chromebook-r-11-elegant-style-meets-compact-form-factor/"><u>The Complete Guide to the Acer Chromebook R 11: Elegant Style Meets Compact Form Factor</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-guide-choosing-the-best-ipad-detailed-comparison-chart/"><u>The Definitive Guide: Choosing the Best iPad – Detailed Comparison Chart</u></a></li>
+<li><a href="https://some-skills.techidaily.com/uncovering-notable-versions-within-microsofts-movie-maker-for-2024/"><u>Uncovering Notable Versions Within Microsoft's Movie Maker for 2024</u></a></li>
+</ul></div>
 

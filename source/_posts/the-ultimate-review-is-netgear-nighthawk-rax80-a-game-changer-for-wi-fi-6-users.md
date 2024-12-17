@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Review: Is Netgear Nighthawk RAX80 a Game Changer for Wi-Fi 6 Users?"
-date: 2024-08-22T16:15:33.441Z
-updated: 2024-08-23T16:15:33.441Z
+date: 2024-12-12T22:10:00.355Z
+updated: 2024-12-16T17:11:46.546Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate Review: Is Netgear Nighthawk RAX80 a Game Changer for Wi-Fi 6 Users?"
@@ -39,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/46f8f3c70815f152419419ddd699d5297d1d12c7e
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Netgear Nighthawk X10 AD7200 Router
 
 ![Netgear Nighthawk X10 AD7200](https://www.lifewire.com/thmb/0rm8vUox5EoeaGCQJw0E5XQxwck=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_HeroSquare-885945bb208b49a583aca8da1aa09378.jpg)
@@ -67,9 +71,6 @@ thumbnail: https://thmb.techidaily.com/46f8f3c70815f152419419ddd699d5297d1d12c7e
 
  I recently unpacked a Netgear Nighthawk X10 and plugged it into my own wireless network to see how it performs in the real world. Over several hours of intense testing, and a couple of days of more casual use, I tested connection speeds at various distances, ease of setup and use, and more.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ## **Design: Netgear continues to impress with its off-beat designs**
 
  I’ve tested a lot of[Netgear routers](https://www.lifewire.com/best-netgear-routers-4159862) , and this falls somewhere between the stealth bomber angles of the Nighthawk AC series and the slick flying wing designs seen in the Nighthawk RAX routers.
@@ -85,8 +86,9 @@ thumbnail: https://thmb.techidaily.com/46f8f3c70815f152419419ddd699d5297d1d12c7e
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/I8vaunCMjxEzWH-oM1U7fsSYe9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_04-abc45a63844e4ebe8f43e4f6facbd601-d54874ec8e984393b51c0bea9803c849.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
 ## **Setup Process: Zero hassle from start to finish**
@@ -116,8 +118,9 @@ Lifewire / Jeremy Laukkonen
  For physical connectivity, the Nighthawk X10 features six Ethernet ports, two of which can be used together to create a single 2Gbps connection. You also get two USB 3.0 ports for connecting USB drives and a single 10Gbps SFP+ LAN port. This final port is potentially the most interesting, and also most niche since it allows you to connect a high-speed NAS server, a secondary switch for more Ethernet ports, or other devices that require a bunch of high-speed bandwidth.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Network Performance: Fantastic 5GHz performance, WiGig leaves a bit to be desired**
 
  Since this is an 802.11ad router, and the 60GHz WiGig network is the key feature here, that’s where I’m going to start. All of my tests are performed using a 1Gbps Mediacom cable internet connection, so any testing done on an 802.11ad router like this involves data transfer speeds within my network, not the internet connection. For testing purposes, I have a[laptop](https://www.lifewire.com/best-laptops-to-buy-4043650) that I retrofitted with a network interface card featuring the QCA9005 chipset.
@@ -131,8 +134,9 @@ Lifewire / Jeremy Laukkonen
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/Jwl6BD38cWznmN0op6bpzAmBs_U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_03-4cfe683a7cf94e94b14c0ec2be12da50.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
  To the Nighthawk X10’s credit, the 5GHz network performance exceeded my wildest expectations. Using my 1Gbps Mediacom cable internet connection, I measured a relatively mediocre 373Mbps down and 73.6Mbps up. At the same time, using a wired connection to the same router, I measured 536.8Mbps down.
@@ -159,9 +163,6 @@ Lifewire / Jeremy Laukkonen
 
  I plugged in one of my media-filled SSD USB drives and had no trouble streaming to any of the Plex clients I have on my network.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ## **Price: Not bad if you really need 802.11ad**
 
  With an MSRP of $500, and a street price closer to $250, the Nighthawk X10 AD7200 is a tough sell to most consumers. It features a wireless technology that hasn’t really caught on, and which most consumers just won’t be able to take advantage of. For the money you’d spend on this router, you could get a high-end 802.11ax router.
@@ -170,9 +171,6 @@ Lifewire / Jeremy Laukkonen
 
  By way of comparison, the Nighthawk Pro Gaming XR700 has similar specifications, swaps out Plex Media Server for some gaming-centric quality of life (QoL) features, and has a street price that’s close to $400.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Netgear Nighthawk X10 AD7200 vs. Netgear Nighthawk RAX80**
 
  With an MSRP of $400, and a street price closer to $350, the Nighthawk RAX80 (see on[Amazon](https://www.amazon.com/dp/B01MQDZXA4?linkCode=ogi&th=1&psc=1&tag=lifewire-onsite-prod-20&ascsubtag=4846418%7Cnd55a891e250641509ef77229001ead8021%7C) ) is in the same general territory as the Nighthawk X10\. The big difference between these competing Nighthawk devices is that one is an 802.11ad router, and the other is an 802.11ax router.
@@ -186,6 +184,10 @@ Lifewire / Jeremy Laukkonen
  **Strong 5GHz performance and Plex Media Center make this a good option if you need an 802.11ad router.**
 
  The Netgear Nighthawk X10 AD7200 is a bit of a mixed bag since its key feature is so niche. If you really need an 802.11ad router, you may want to look for one with a stronger range. However, this router has fantastic performance on the 5GHz band, and the Plex Media Server implementation is also a very strong plus. If short-range 802.11ad support with excellent fallback 5GHz performance sounds good to you, then this is the router you’re looking for.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -214,8 +216,6 @@ Lifewire / Jeremy Laukkonen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -223,4 +223,24 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-from-passive-page-peeps-to-paying-patrons-facebook-monetization-magic-for-2024/"><u>[New] From Passive Page Peeps to Paying Patrons Facebook Monetization Magic for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-learn-how-to-craft-engaging-tiktok-captions-quickly/"><u>[New] Learn How to Craft Engaging TikTok Captions Quickly</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-how-long-does-a-20mb-video-last-in-2024/"><u>[Updated] How Long Does a 20MB Video Last, In 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-best-ranked-4k-uhd-media-viewers-available-at-no-cost/"><u>2024 Approved Best-Ranked 4K UHD Media Viewers Available at No Cost</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-poco-f5-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-garmin-forerunner-745-the-definitive-multisport-activity-watch/"><u>Comprehensive Review of the Garmin Forerunner ^745 - The Definitive Multisport Activity Watch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-lg-49-inch-um7300-a-budget-friendly-entry-to-4k-viewing/"><u>Comprehensive Review of the LG 49-Inch UM7300 - A Budget Friendly Entry to 4K Viewing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dji-mavic-3-review-elevating-aerial-imaging/"><u>DJI Mavic 3 Review: Elevating Aerial Imaging</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exclusive-offers-unmissable-samsung-products-at-steep-discount-rates-this-prime-day/"><u>Exclusive Offers: Unmissable Samsung Products at Steep Discount Rates This Prime Day!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-choices-best-handheld-video-game-systems-2024-edition/"><u>Leading Choices: Best Handheld Video Game Systems, 2024 Edition</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/silence-is-golden-advanced-fixes-for-popping-sounds-on-your-pcs-logitech-g-pro-x-microphone-top-tips/"><u>Silence Is Golden: Advanced Fixes for Popping Sounds on Your PC's Logitech G Pro X Microphone - Top Tips</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solving-robloxs-memory-alert-issues-on-an-iphone/"><u>Solving Roblox's Memory Alert Issues on an iPhone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/syma-x5c-rc-helicopter-evaluation-a-budget-friendly-starter-choice/"><u>SYMA X5C R/C Helicopter Evaluation: A Budget-Friendly Starter Choice</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-owning-a-beautiful-adaptable-dell-xps-13-7390-2-in-1-laptop/"><u>The Ultimate Guide to Owning a Beautiful, Adaptable Dell XPS 13 (7390) 2-in-1 Laptop</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-data-from-honor-x50iplus-by-fonelab-android-recover-data/"><u>The way to get back lost data from Honor X50i+</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-uninterruptible-power-supply-ups-systems/"><u>Top-Rated Uninterruptible Power Supply (UPS) Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-your-facebook-account-without-access-codes/"><u>Unlocking Your Facebook Account without Access Codes</u></a></li>
+</ul></div>
 

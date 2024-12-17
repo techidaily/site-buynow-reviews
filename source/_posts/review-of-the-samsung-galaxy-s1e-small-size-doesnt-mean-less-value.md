@@ -1,7 +1,7 @@
 ---
 title: Review of the Samsung Galaxy S1e - Small Size Doesn't Mean Less Value
-date: 2024-08-22T16:18:28.301Z
-updated: 2024-08-23T16:18:28.301Z
+date: 2024-12-15T00:00:13.424Z
+updated: 2024-12-16T20:40:57.631Z
 categories:
   - BestProducts
 description: This Article Describes Review of the Samsung Galaxy S1e - Small Size Doesn't Mean Less Value
@@ -43,6 +43,10 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/mKaiRcg5xaWaOPRj0Ph1dRjUbSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4164252-1-e8b8c3eb31dd46e8a63e8e40a5a9d04b.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
 
 [View On Amazon](https://www.amazon.com/7-Days-Die-PlayStation-4/dp/B01DPUVMNU/?tag=lifewire-onsite-prod-20&ascsubtag=4771121%7Cn6d0ad33beb4d40d5925c2a807d89db2412%7CB01DPUVMNU) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/7-days-to-die/10129841.html)
@@ -69,6 +73,10 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Easy thanks to Steam**
 
  7 Days to Die for PC can be located on Steam, making it easy to set up. It takes a little while to download, but once it boots up, you’re in. You’ll press the “New Game” button and you’ll need to create a new character, which is easy if you choose one of the preset characters from the list. If you’d like to make a unique character, it’s easy with a creation system similar to Skyrim. Everything, down to the very arch on the eyebrows, is customizable.
@@ -78,13 +86,11 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/Eq0YCIdbj82yj3lOCWEdZS7jX6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-4-341174c3997543728bd2b024c6e2a309.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Plot: Open world horror sandbox**
 
  When you first begin gameplay, it takes about 20 seconds for it to boot up, and then you’re gasping, holding your bare hands out before you, drinking in the landscape of one of five biomes: snow, forest, desert, wasteland, and burnt.
@@ -98,6 +104,10 @@ Lifewire / Rebecca Isaacs
  The other, titular part of the plot: every seven days, a zombie horde descends upon you. They know your location. They will find you and claw their way to you, and you have to fend yourself and your base from them. As the 7 days pass, they get harder to defeat. Our understanding is that the end goal of 7 Days is to add a story, but right now they’re focused on honing in general gameplay. We hope that the story will be optional since as a survival horror sandbox, it works very well.
 
 ![7 Days to Die](https://www.lifewire.com/thmb/U2XChOqkiQvFhP69V0cQ5mYcYME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-3-d19d9b4d19734cffb022d6e0db90382e.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -123,9 +133,6 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Graphics: Outdated, but detailed on optimal**
 
  For a game that was released in 2013 originally, the graphics could be a little better, even if you play on optimal settings. Back in the day, we played on lower settings rather than splurge on a fancy graphics card. If you play on the lower settings, it’s cringeworthy, though not as cringeworthy as the Witcher 3’s lowest settings.
@@ -134,21 +141,19 @@ Lifewire / Rebecca Isaacs
 
  Because the graphics are a rather mixed bag, the frames per second (fps) can vary dramatically. We experienced drops as low as 18 fps when playing. When surrounded by a horde, that can cost you your life.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## **Platform: It’s complicated**
 
  7 Days to Die runs on many platforms:[PC](https://www.lifewire.com/what-is-a-mac-4155662) ,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and[Xbox 360](https://www.lifewire.com/xbox-360-buyers-guide-3562451) . We played 7 Days on PC, and at the time of writing, they released a teaser for the Alpha 18 update which would roll out to the PC version of the game.
 
  Last time we checked, the company that owned all console rights, Telltale, went bust, and The Fun Pimps (the developer) were in legal limbo trying to reacquire their own rights. There’s a good chance that there will not be an update in the console versions of the game anytime soon as this issue makes its way through the courts. Therefore, we strongly recommend that you purchase the PC version if you decide this is a game you might like to try.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: Average for an alpha game**
 
  At around $25, 7 Days isn’t the most expensive zombie game on the market. However, it is the most expensive alpha zombie game out there. Because you can purchase it on[Steam](https://www.lifewire.com/what-is-steam-4177380) or Humble Bumble, we recommend waiting for a Steam sale and getting it for a discount, especially since it’s still in progress. This way, if you decide you don’t like it in the future, you aren’t out the full price.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Other sandbox shooters**
 
@@ -163,8 +168,9 @@ Lifewire / Rebecca Isaacs
  Despite flaws in graphics, there’s a lot to love about 7 Days to Die. The challenging skill tree system and dangerous intelligent zombies add an element that’s not typically found in zombie shooters. If you want a game to commit to for hours on end, building bases and exploring dungeon-like homes while slaying zombie cheerleaders, then 7 Days to Die could be a fun way to ease some stress after a long day of work.
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * The Last of Us Remastered
@@ -183,14 +189,11 @@ Lifewire / Rebecca Isaacs
 * Graphics  1 GB Dedicated Memory
 * Game Updates  Alpha 17.4 out; Alpha 18 Announced
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -199,4 +202,24 @@ Lifewire / Rebecca Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-fuel-fascination-with-imagery-the-most-motivating-ig-shots-for-2024/"><u>[New] Fuel Fascination with Imagery The Most Motivating IG Shots for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-easy-steps-for-ipad-video-capture/"><u>[New] In 2024, Easy Steps for iPad Video Capture</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-expert-free-fb-image-creator-no-fee/"><u>[New] In 2024, Expert Free FB Image Creator (No Fee)</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-art-of-adding-soundtracks-to-instagram-visuals/"><u>[New] The Art of Adding Soundtracks to Instagram Visuals</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-flawless-playlist-integration-techniques-in-web-development-for-2024/"><u>[Updated] Flawless Playlist Integration Techniques in Web Development for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-edit-masters-seamless-text-insertion-for-photos/"><u>[Updated] In 2024, Edit Masters Seamless Text Insertion for Photos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-essential-methodologies-in-capturing-web-radio-audio/"><u>[Updated] In 2024, Essential Methodologies in Capturing Web Radio Audio</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-netgear-nighthawk-x6-ac3200-top-speed-and-ultimate-home-connectivity/"><u>Comprehensive Guide: Netgear Nighthawk X6 AC3200 - Top Speed & Ultimate Home Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/insider-look-at-googles-advanced-voice-communication-offerings/"><u>Insider Look at Google's Advanced Voice Communication Offerings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/point-and-shoot-budget-the-case-for-kodak-fz53/"><u>Point & Shoot Budget: The Case for Kodak FZ53</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-best-kids-tablet-a-deep-dive-into-amazon-fire-hd-10s-protective-measures/"><u>Reviewing The Best Kids Tablet: A Deep Dive Into Amazon Fire HD 10'S Protective Measures</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-traveling-with-these-tech-pickles/"><u>Revolutionize Traveling with These Tech Pickles</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/scopri-i-tre-metodi-per-ripristinare-file-cancellati-in-windows-server-2008-r2-guida-completa/"><u>Scopri I Tre Metodi per Ripristinare File Cancellati in Windows Server 2008 R2: Guida Completa</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-budget-friendly-choice-for-streamers-dissecting-the-features-and-reliability-of-logitech-c61er/"><u>The Budget Friendly Choice for Streamers: Dissecting the Features and Reliability of Logitech C61er.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-anker-powercore-26800-your-new-mobile-charger-essential/"><u>The Ultimate Guide to Anker PowerCore 26800 – Your New Mobile Charger Essential</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-evaluating-the-pricey-microsoft-surface-studio-2/"><u>The Ultimate Guide to Evaluating the Pricey Microsoft Surface Studio 2</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-to-locating-and-using-car-radio-passwords-for-enhanced-security/"><u>The Ultimate Guide to Locating and Using Car Radio Passwords for Enhanced Security</u></a></li>
+</ul></div>
 

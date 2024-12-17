@@ -1,7 +1,7 @@
 ---
 title: "Innovative Escort iX Examined: A Driver's Guide to an Intelligent Speed Monitoring Device"
-date: 2024-08-22T16:15:55.669Z
-updated: 2024-08-23T16:15:55.669Z
+date: 2024-12-12T00:45:25.375Z
+updated: 2024-12-16T19:33:10.777Z
 categories:
   - BestProducts
 description: "This Article Describes Innovative Escort iX Examined: A Driver's Guide to an Intelligent Speed Monitoring Device"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/d072f3ff8286e2183bcf11f3041ab0808200f5d6d
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/HYgHMUDMFh7JI98Hj0JMbI2wcpw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -64,9 +68,6 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
  This whole introduction is slow moving and boring, and getting through it is rough. But even past this, things don’t necessarily pick up and get more interesting. The game has such a heavy hand with its narration, telling you the game’s visuals even though you can see them right there on your screen. The whole game reads like someone wrote a novel, couldn’t publish it, and then decided making a[video game](https://www.lifewire.com/best-gaming-consoles-4154610) was a better idea, and instead of trimming the fat, they left every unnecessary description and detail in the game’s prompt.
@@ -82,8 +83,9 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
  Beyond this, the other major gameplay mechanic is a system of effort and inspiration. Every action you take will prompt you to use effort. This effort allows for your character to work harder at the chosen action, and thus gives your character a better chance of accomplishing their goal.
@@ -98,9 +100,6 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -110,13 +109,11 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Only worth it if you’re keen on the story**
 
  Torment: Tides of Numenera is still an expensive game, costing $50 on[Steam](https://www.lifewire.com/best-free-steam-games-4176308) when it’s not on sale. It’s a game created with a very specific type of player in mind―and I suspect most people are not going to like it.
@@ -124,6 +121,10 @@ Lifewire / Kelsey Simon
  That said, if role-playing games with a text-heavy focus are of interest to you, then the game does have a lot to offer for the cost. The world of Numenera is vast, and considering all the prompts that alter the story, the game also has a lot of replayability. While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else, and for those players, the $50 cost will be worth it.
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Other story focused RPGs**
 
@@ -138,9 +139,9 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Torment: Tides of Numenera
@@ -149,14 +150,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * ESRB Rating  M for Mature
 * Available Platforms  PC, MaxOS,Xbox One, PlayStation 4
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -165,4 +163,26 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-youtubes-essential-learning-resources-for-upcoming-directors/"><u>[New] 2024 Approved YouTube's Essential Learning Resources for Upcoming Directors</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-tactics-for-elevating-your-videos-popularity-at-vimeo-for-2024/"><u>[New] Tactics for Elevating Your Video's Popularity at Vimeo for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-snap-to-it-ios-and-android-writers-choice/"><u>[Updated] 2024 Approved Snap to It – iOS & Android' Writers’ Choice</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-the-best-video-editing-software-for-windows-enthusiasts-revealed-for-2024/"><u>[Updated] The Best Video Editing Software For Windows Enthusiasts Revealed for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/battle-of-the-beams-google-nest-audio-versus-apple-homepod-reviewed/"><u>Battle of the Beams: Google Nest Audio Versus Apple HomePod Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-superiority-without-compromises-why-the-ipad-air-4-and-galaxy-tab-s7plus-lead-the-pack/"><u>Choosing Superiority Without Compromises – Why the iPad Air 4 and Galaxy Tab S7+ Lead the Pack</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-assessment-of-the-google-pixel-4a-the-ideal-compact-device-for-everyday-use/"><u>Comprehensive Assessment of the Google Pixel 4A: The Ideal Compact Device for Everyday Use</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-oneplus-9-when-calculations-dont-add-up/"><u>Evaluating OnePlus 9: When Calculations Don't Add Up</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-acer-chromebook-15-impressive-features-for-a-spacious-screen/"><u>Evaluating the Acer Chromebook 15: Impressive Features for a Spacious Screen</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-track-apple-iphone-13-by-phone-number-drfone-by-drfone-virtual-ios/"><u>How to Track Apple iPhone 13 by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/igfx-stopped-successfully-rebooted/"><u>IGFX Stopped, Successfully Rebooted</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-meizu-21-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Meizu 21 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-vivo-y27s-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Vivo Y27s ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://win-blog.techidaily.com/rediscover-the-past-a-trip-down-memory-lane-with-obscure-classics-like-msn-gamespy-and-more/"><u>Rediscover the Past: A Trip Down Memory Lane with Obscure Classics Like MSN, GameSpy & More</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-apc-back-ups-be6-00m1-high-performance-power-continuity-and-usb-charging-capabilities-included/"><u>Review of APC Back-UPS BE6 00M1: High-Performance Power Continuity and USB Charging Capabilities Included</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/showdown-which-is-better-apple-watch-s9-or-fitbits-charge-nventure/"><u>Showdown: Which Is Better? Apple Watch S9 or Fitbit's Charge nVenture</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-breakdown-of-apples-latest-innovation-series-9-smartwatch-review/"><u>The Ultimate Breakdown of Apple's Latest Innovation: Series 9 Smartwatch Review</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-and-repairing-pc-instances-of-robocop-my-last-stand/"><u>Troubleshooting and Repairing PC Instances of RoboCop: My Last Stand</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-linkedin-pro-might-be-your-most-valuable-career-tool/"><u>Why LinkedIn Pro Might Be Your Most Valuable Career Tool</u></a></li>
+</ul></div>
 

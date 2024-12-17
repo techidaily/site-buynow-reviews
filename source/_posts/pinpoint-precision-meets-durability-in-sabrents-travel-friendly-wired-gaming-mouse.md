@@ -1,7 +1,7 @@
 ---
 title: Pinpoint Precision Meets Durability in Sabrent's Travel-Friendly Wired Gaming Mouse
-date: 2024-12-05T17:41:28.020Z
-updated: 2024-12-10T16:42:34.175Z
+date: 2024-12-13T20:52:51.215Z
+updated: 2024-12-16T21:52:45.525Z
 categories:
   - BestProducts
 description: This Article Describes Pinpoint Precision Meets Durability in Sabrent's Travel-Friendly Wired Gaming Mouse
@@ -17,10 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/-_iV1Mooi46f-WT6ARwL2rf_pgY=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Sabrent Mini Travel USB Optical Mouse
 
@@ -72,10 +68,6 @@ Lifewire / Rebecca Isaacs
 
  Working on the go can prove difficult on a laptop, especially when you need to work on heavy-hitting projects requiring precision. Travel mice, or portable computer mice that can be packed and unpacked on the go, can alleviate much of the proverbial headache of working on PC-heavy tasks. For those who prefer their mouse have a cable, the Sabrent fits the bill. Using high definition precision technology, the tiny, three-year-old mouse is designed for those who want convenience and extreme precision in their work.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Basic**
 
  The Sabrent was not designed for heavy gaming in mind; its design is so tiny at 3.2 x 1.5 inches (LW) that it fits into the cup of your palm with some room to spare. Unlike gaming mice, which can be complex, with a plethora of buttons/features, the all-black, 1.5-ounce mouse only has three buttons: the left (main) button, the wheel, and the right button. While this might turn off many users, in reality, it turns out to be of huge benefit. Thanks to its simplicity, ambidextrous users will appreciate its ability to swap between dominant hands.
@@ -85,10 +77,6 @@ Lifewire / Rebecca Isaacs
  It’s important to keep in mind that this is a wired, ergonomic mouse that relies on a USB port connection. So while it doesn’t require any batteries, it can be problematic if you need more than 25 inches the cable provides. The cable itself expands with a gentle pull of the cable from its own mini-port, and is easily retractable with a tug on each side of the cable. Just be careful when retracting it, as it is similar to a window shade in that it retracts with near-violent gusto.
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/E-UHv94vEiLyLkgwTG1qIFE6uvQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_04-76e4b475ca3f4449a746c22f3713f784.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -100,10 +88,14 @@ Lifewire / Rebecca Isaacs
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/mM3uSf3Y2pyayDyWJzP8_5uUya4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_05-04e025144b514674b109e77f79129d74.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Precise, but mildly problematic**
@@ -113,6 +105,10 @@ Lifewire / Rebecca Isaacs
  After using it for over 25 hours, the precision blew us away; even the smallest twitch of the mouse registered movement on the PC and[laptop](https://www.lifewire.com/computer-and-laptop-reviews-4102643) we tested it across. Not once did we have to reclick on an item because the Sabrent failed to register the movement, proving that the cable was of speedy and accurate benefit to the mouse. The speed of the mouse highlighted its precision, darting across the monitor screens as we shifted the mouse instantaneously.
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/ZAK9csfHFEKVkNFSzE-Knbqabgs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_03-c6a7b875505642c69218c2c6c3449e50.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -128,15 +124,19 @@ Lifewire / Rebecca Isaacs
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/h8ibsbPtDqgJOD0XgpZSD6FOXUU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_02-1331828bbc3f460baebd85cbd24d61e2.jpg)
 
- Lifewire / Rebecca Isaacs
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Rebecca Isaacs
 
 ## **Price: Reasonable**
 
  At around $7, this is a great budget mouse. Essentially, the cost is for basic mouse features, and not for anything heavier or more taxing on a PC. If you’re looking for a travel mouse with more features, then expect to spend more. However, if accomplishing work tasks is solely your task then this is the perfect price point.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Sabrent Mini Travel Mouse vs. VicTsing Wireless Mouse**
 
@@ -179,16 +179,20 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-assessing-your-needs-selecting-the-optimal-4k-camera-lens-for-2024/"><u>[New] Assessing Your Needs Selecting the Optimal 4K Camera Lens for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-balancing-frequency-and-quality-in-youtube-video-uploads/"><u>[New] In 2024, Balancing Frequency & Quality in YouTube Video Uploads</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-top-picks-exploring-the-best-screen-recorder-apps/"><u>[Updated] 2024 Approved Top Picks Exploring the Best Screen Recorder Apps</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-hitman-e-3-analysis-an-impeccable-closure/"><u>Comprehensive Hitman E 3 Analysis: An Impeccable Closure</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Vivo Y100i Power 5G? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-to-establish-an-online-identity-with-your-nintendo-cufflinks-on-your-3ds-device/"><u>How to Establish an Online Identity with Your Nintendo Cufflinks on Your 3DS Device</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-oneplus-nord-ce-3-lite-5g-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from OnePlus Nord CE 3 Lite 5G</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-metaverse-frontier-gear-guide-select-8-headsets/"><u>In 2024, Metaverse Frontier Gear Guide Select 8 Headsets</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-superior-microsoft-surface-laptop-4-experience/"><u>In-Depth Look at the Superior Microsoft Surface Laptop 4 Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/macbook-pro-13-defense-without-extravagance-a-review-on-the-practicality-and-value-of-a-simple-case-design/"><u>MacBook Pro 13 Defense Without Extravagance: A Review on the Practicality and Value of a Simple Case Design</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-byb-e430-led-desk-light-with-articulated-arm/"><u>Ultimate Guide to the BYB E430 LED Desk Light with Articulated Arm</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-savings-straightforward-and-diversified-methods-unveiled/"><u>[Updated] Instagram Savings Straightforward & Diversified Methods Unveiled</u></a></li>
+<li><a href="https://techtrends.techidaily.com/complete-guide-creating-your-new-x-platform-profile-step-by-step/"><u>Complete Guide: Creating Your New X Platform Profile Step-by-Step</u></a></li>
+<li><a href="https://win-forum.techidaily.com/comprehensive-how-to-swiftly-shut-down-hanging-apps-for-seamless-windows-11-performance/"><u>Comprehensive How-To: Swiftly Shut Down Hanging Apps for Seamless Windows 11 Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/d-link-pplk-a600-review-a-look-at-its-user-friendly-setup-and-rapid-networking-capabilities/"><u>D-Link PPLK-A600 Review: A Look at Its User-Friendly Setup & Rapid Networking Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-digital-experience-with-acer-aspire-c27-the-low-profile-high-performance-desktop/"><u>Elevate Your Digital Experience with Acer Aspire C27: The Low Profile, High Performance Desktop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevating-your-gameplay-experience-a-critical-analysis-of-fifa-esports-champion-fifa-19/"><u>Elevating Your Gameplay Experience: A Critical Analysis of FIFA eSports Champion, FIFA 19</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fixing-kodi-network-problems-how-to-overcome-directory-retrieval-errors/"><u>Fixing Kodi Network Problems: How to Overcome 'Directory Retrieval Errors'</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-windows-11-file-explorer-scroll-bar-skipping-top-when-navigating/"><u>How to Fix Windows 11 File Explorer Scroll Bar Skipping Top When Navigating</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-apple-iphone-12-mini-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>How To Leave a Life360 Group On Apple iPhone 12 mini Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-13-pro-max-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-by-drfone-ios/"><u>How to Unlock Apple iPhone 13 Pro Max With an Apple Watch & What to Do if It Doesnt Work</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-the-ultimate-guide-to-the-fitbit-inspire-hr-247-health-and-activity-monitor/"><u>In-Depth Analysis: The Ultimate Guide to the Fitbit Inspire HR 24/7 Health & Activity Monitor</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/motorola-one-review/"><u>Motorola One Review</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/perfect-pairing-transferring-camera-roll-content-effortlessly-to-snapchat/"><u>Perfect Pairing Transferring Camera Roll Content Effortlessly to Snapchat</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-cartoon-video-creation-made-easy-top-10-online-and-pc-tools/"><u>Updated In 2024, Cartoon Video Creation Made Easy Top 10 Online and PC Tools</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/workout-synchronized-with-melodies-discover-the-power-of-garmin-vivoactive-3/"><u>Workout Synchronized with Melodies: Discover the Power of Garmin Vivoactive 3</u></a></li>
 </ul></div>
 

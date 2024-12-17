@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Garmin Forerunner E945 Assessment: Top Performance in a GPS Multi-Sport Watch"
-date: 2024-08-22T16:15:12.978Z
-updated: 2024-08-23T16:15:12.978Z
+date: 2024-12-15T22:50:00.111Z
+updated: 2024-12-16T16:01:04.706Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Garmin Forerunner E945 Assessment: Top Performance in a GPS Multi-Sport Watch"
@@ -13,9 +13,17 @@ thumbnail: https://thmb.techidaily.com/3c1c5ccae26de82b5c27b74337e4224665d5a7b90
 
 3.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -41,6 +49,10 @@ Lifewire / Todd Braylor
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Todd Braylor
 
 [View On Amazon $280](https://www.amazon.com/dp/B019HF60EI/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7CB019HF60EI) [View On Walmart $140](https://www.walmart.com/ip/Escort-Passport-S55-High-Performance-Pro-Radar-and-Laser-Detector-w-DSP/49140972)
@@ -62,9 +74,6 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -75,9 +84,6 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process: Easy installation**
 
  The S55 is straightforward and easy to install. Simply stick the windshield mount in place and plug the SmartCord lighter adapter into your car's DC cigarette lighter input. Plugging the modular jack into the S55 will automatically power on the radar detector and you can quickly customize settings for display brightness, detector sensitivity levels, and volume. Then you're ready to hit the road.
@@ -85,17 +91,15 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Range: Impressive detection**
 
  The Passport S55 features Enhanced Radar Protection that delivers long-distance range for laser and radar bands, including K and Ka bands, widely used microwave frequencies for police radar guns. It reliably delivers on its promise of long-distance sensitivity. While testing the S55 in Highway mode I received Ka-band alerts over a mile and a half out from where I approached a highway patrol parked on the median of the interstate. This range was on par with much more expensive models.
 
  It reliably delivers on its promise of long-distance sensitivity.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ## **Performance: Not exactly enhanced**
 
  The S55 has different modes designed to adjust to specific frequency bands and sensitivity levels for city or highway driving. You can quickly customize the settings by using the included quick reference guide. You can also turn off specific frequency bands if they tend to give a lot of false alerts.
@@ -110,9 +114,6 @@ Lifewire / Todd Braylor
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
  A popular competitor brand to Escort that makes a wide selection of radar detectors is Uniden. The Uniden DFR9 (view on[Amazon](https://www.amazon.com/Uniden-DFR9-Detection-Cameras-Display/dp/B07F6PZXHM/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7C) ) is a model that can be considered the next price tier above the S55\. The DFR9's MSRP is $300 but it can often be found on sale for about $270.
@@ -126,8 +127,9 @@ Lifewire / Todd Braylor
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Passport S55
@@ -148,8 +150,6 @@ Lifewire / Todd Braylor
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -157,4 +157,26 @@ Lifewire / Todd Braylor
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-perfect-pick-the-best-microphones-for-all-yt-content-types/"><u>[New] In 2024, Perfect Pick The Best Microphones For All YT Content Types</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-unlock-new-dimensions-in-tiktok-videos-through-exquisite-bg-selection/"><u>[New] In 2024, Unlock New Dimensions in TikTok Videos Through Exquisite BG Selection</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-tips-for-smooth-and-efficient-photo-background-blurring/"><u>[New] Tips for Smooth and Efficient Photo Background Blurring</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-whether-an-update-to-sonoma-is-right-for-my-mac/"><u>Assessing Whether an Update to Sonoma Is Right for My Mac</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-linksys-ac1900-max-stream-wifi-router-the-perfect-choice-for-all-users/"><u>Comprehensive Analysis of Linksys AC1900 Max-Stream WiFi Router: The Perfect Choice for All Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/get-up-close-with-the-revolutionary-new-cycwagen-cargo-e-bike-features/"><u>Get Up Close with the Revolutionary New CycWagen Cargo E-Bike Features</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-apple-iphone-xs-fix-now-drfone-by-drfone-virtual-ios/"><u>In 2024, 3uTools Virtual Location Not Working On Apple iPhone XS? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-show-wi-fi-password-on-vivo-s17-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Vivo S17</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-art-of-humor-in-minutes-kinemaster-techniques/"><u>In 2024, The Art of Humor in Minutes KineMaster Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-the-roadmap-to-crafting-a-dynamic-youtube-presence-for-enterprise-and-individuals/"><u>In 2024, The Roadmap to Crafting a Dynamic YouTube Presence for Enterprise & Individuals</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/in-2024-top-free-dual-screen-video-editing-software-web-and-desktop/"><u>In 2024, Top Free Dual-Screen Video Editing Software Web & Desktop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/long-range-and-safe-internet-for-your-home-with-the-synology-rt2600ac-router-a-detailed-review/"><u>Long Range and Safe Internet for Your Home with the Synology RT2600ac Router - A Detailed Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/master-your-internet-experience-in-depth-review-of-the-universal-google-wifi-solution/"><u>Master Your Internet Experience: In-Depth Review of the Universal Google Wifi Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/read-by-the-moon-barnes-and-noble-nook-glowlight-3-a-comprehensive-evaluation-for-late-night-bookworms/"><u>Read by the Moon: Barnes & Noble Nook GlowLight 3 - A Comprehensive Evaluation for Late-Night Bookworms</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-shadows-behind-tropico-n-gameplay-ruling-over-a-utopias-undoing/"><u>Reviewing the Shadows Behind Tropico N Gameplay: Ruling Over a Utopia's Undoing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smooth-transition-to-a-cloud-ready-photography-experience/"><u>Smooth Transition to a Cloud-Ready Photography Experience</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/tips-for-capturing-high-quality-gaming-sessions/"><u>Tips for Capturing High-Quality Gaming Sessions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-led-softboxes-2024-edition/"><u>Top-Rated LED Softboxes: 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-most-effective-location-keys-of-2eplust-year/"><u>Unveiling the Most Effective Location Keys of 2E+t Year</u></a></li>
+</ul></div>
 

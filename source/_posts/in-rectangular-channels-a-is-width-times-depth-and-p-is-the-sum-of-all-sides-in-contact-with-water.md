@@ -1,7 +1,7 @@
 ---
 title: In Rectangular Channels, A Is Width Times Depth and P Is the Sum of All Sides in Contact with Water.
-date: 2024-12-02T20:04:34.364Z
-updated: 2024-12-04T02:13:35.905Z
+date: 2024-12-15T17:12:16.767Z
+updated: 2024-12-16T19:34:03.171Z
 categories:
   - BestProducts
 description: This Article Describes In Rectangular Channels, A Is Width Times Depth and P Is the Sum of All Sides in Contact with Water.
@@ -47,13 +47,13 @@ Erika Rawes / Lifewire
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Raspberry Pi 400
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/Lx1zPft9GUcm5A0WBJsxvP8fCUM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Raspberry-Pi-400-Mini-PC-1-2e3e0817c1ad4570a7c3a8d70b7e991b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Erika Rawes / Lifewire
 
@@ -85,11 +85,19 @@ Erika Rawes / Lifewire
 
  The most recent iteration of the Raspberry Pi, the Raspberry Pi 400, has better processing and the Pi computer built right into a keyboard. This allows for an even more compact personal computer, and the Pi 400 kit even includes a microSD card with the OS preloaded. To see how this new Pi compares to previous generation models and other mini PCs, I tested it for a week. Here’s my full review of the Raspberry Pi 400.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Design: A PC inside of a keyboard
 
  Previous versions of the Raspberry Pi didn’t exactly come across as accessible to the typical PC user who spends most of their time surfing the web. The older Raspberry Pi models look like a mini motherboard with ports and other components attached. The Raspberry Pi 400 is completely different, as the board is housed inside a keyboard for easier setup and use. It’s reminiscent of those all-in-one PC keyboards from the 80s.
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/7BA0HRUVuCSmbiMi4uyFWkXVuKg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-3-58854ebe9d964ccc984e44f77619fa1a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Erika Rawes / Lifewire
 
@@ -98,10 +106,6 @@ Erika Rawes / Lifewire
  The Pi keyboard is small, but it’s still usable. It’s about the size of a typical Bluetooth keyboard that you’d buy for a tablet, as it measures about 11 inches wide and just under 5 inches in depth. The red and white design doesn’t really match most monitors, but it still looks sleek. And, the included mouse goes well with the keyboard, with the same color scheme.
 
  On the back of the Pi 400, you’ll find a slot for the microSD card, as well as all of the ports. It has two micro HDMI slots, three USB slots (two 3.0 and one 2.0), a horizontal 40-pin GPIO header, and the port for the power supply. The power button is on the keyboard itself—press F10 to power on the Pi, and press Fn + F10 to power it off.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Setup Process: Easier than previous Pi models
 
@@ -122,7 +126,7 @@ Erika Rawes / Lifewire
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/oideXrFtpj_WzRtq1qacMhsc7Dg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-2-6fbd163b7ed849f684963b93ae8b8735.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Erika Rawes / Lifewire
@@ -141,19 +145,11 @@ Erika Rawes / Lifewire
 
  The PC-in-a-keyboard design makes the Pi 400 Kit less like a computer you have to build, and more like a PC you can start using right out of the box.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Gaming: Minecraft Pi, RetroPie, and more
 
  The Raspberry Pi 400 Kit with the included Raspberry Pi OS card has a few games preloaded, like Soccer, Boing, Bunner, and Minecraft Pi. Minecraft Pi lets you build Minecraft style, while also learning about programming languages.
 
  You can turn your Raspberry Pi 400 into a RetroPie gaming system, where you can play classic games from Nintendo, Nintendo 64, Sega, Atari, and more. I created a RetroPie using a Raspberry Pi 3 a few years back, and I’d have to connect a keyboard for any updates or changes. The new keyboard form factor makes things a bit easier with the Pi 400\.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Productivity: LibreOffice and helpful accessories
 
@@ -166,10 +162,6 @@ Erika Rawes / Lifewire
  You won’t find built-in speakers, but the Pi 400 will play audio on your monitor’s speakers when you use the HDMI to mini HDMI cable included in the kit. It also has Bluetooth for connecting a pair of wireless headphones. I had no problem connecting a few different types of Bluetooth headphones to the Pi. There’s no audio output jack, but you can connect compatible USB speakers if you launch the appropriate USB commands in the terminal.
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/vAb_0QFg4Uze6uuiSMlTPtkw_CA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-5-b326f92abc1a4349910f0b7b5d0e2d53.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Erika Rawes / Lifewire
 
@@ -193,16 +185,24 @@ Erika Rawes / Lifewire
 
  Although the Raspberry Pi OS is basic, the included applications make this an ideal computer for a beginner who wants to learn basic computer programming skills. The interface includes a direct connection to the Pi site, where you can find numerous project ideas from 3D print templates to robotics projects.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Price: An amazing value
 
  Unless you’re well-versed in using a Pi, I would not suggest going with the Pi 400 alone. It’s best to go with the kit. The Pi 400 kit costs around $100, and that’s a great price considering everything you get. It makes an excellent gift for a young techie or anyone who wants to learn more about computers or automation.
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/sgM6gDaZx8bgvwHPPRkrZjgH9oA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-4-c9378702644a4e77b8a5e58985d72993.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Erika Rawes / Lifewire
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Raspberry Pi 400 Kit vs. Arduino Student Kit
@@ -220,7 +220,7 @@ Erika Rawes / Lifewire
  Unlike previous Raspberry Pis that are for more advanced users, the Pi 400 kit is designed for everyone. Whether you want to learn programming, create a gaming system, create a streaming system, or get into 3D modeling, the Pi 400 is a good starting point.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -253,18 +253,18 @@ Erika Rawes / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ack-your-way-to-speedy-youtube-video-processing-for-2024/"><u>[New] Hack Your Way to Speedy YouTube Video Processing for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-experts-top-picks-for-creating-art-on-windows/"><u>[Updated] Expert's Top Picks for Creating Art on Windows</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-review-of-gaomon-pd1560-digital-sketching-device-is-it-a-top-tier-art-pad/"><u>A Comprehensive Review of Gaomon PD1560 Digital Sketching Device: Is It a Top-Tier Art Pad?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ace-your-digital-storage-needs-unveiling-2024s-top-usb-flash-drives/"><u>Ace Your Digital Storage Needs: Unveiling 2024'S Top USB Flash Drives</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/advanced-befree-manfrotto-tripod-superior-performance/"><u>Advanced BeFree Manfrotto Tripod: Superior Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/advanced-internet-safety-the-2024-rankings-for-parental-control-router-solutions/"><u>Advanced Internet Safety: The 2024 Rankings for Parental Control Router Solutions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazons-alexa-and-alphabets-google-assistant-face-off-determining-the-ultimate-ai-companer/"><u>Amazon's Alexa and Alphabet’s Google Assistant Face-Off: Determining the Ultimate AI Companer</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/1722864248777-easy-ways-to-navigate-zoom-features-for-ios-devices/"><u>Easy Ways to Navigate Zoom Features for iOS Devices</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721468907828-expert-tips-on-solving-iphone-computer-connection-problems-in-a-jiffy/"><u>Expert Tips on Solving iPhone-Computer Connection Problems in a Jiffy</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/exploring-the-speed-differences-chatgpt-4-vs-chatgpt-35/"><u>Exploring the Speed Differences: ChatGPT-4 Vs. ChatGPT-3.5</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Oppo A59 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/screenplay-basics-penning-dynamic-characters-speeches/"><u>Screenplay Basics Penning Dynamic Characters' Speeches</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/top-strategies-for-effortless-text-extraction-from-images-across-various-software/"><u>Top Strategies for Effortless Text Extraction From Images Across Various Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-best-ios-filmmaking-software/"><u>[Updated] Best iOS Filmmaking Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-depth-look-is-inshot-the-premier-editing-tool/"><u>[Updated] In-Depth Look Is InShot the Premier Editing Tool?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dont-miss-the-ultimate-discounts-top-notch-prices-on-select-samsung-electronics-await-you-on-prime-day/"><u>Don't Miss the Ultimate Discounts: Top-Notch Prices on Select Samsung Electronics Await You on Prime Day</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-ipad-users-create-professional-time-lapse-videos/"><u>In 2024, IPad Users Create Professional Time-Lapse Videos</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-tomorrows-evaluation-creative-pathways/"><u>In 2024, Tomorrow’s Evaluation Creative Pathways</u></a></li>
+<li><a href="https://blog-min.techidaily.com/modifier-simplement-le-ratio-des-proportions-dune-videogramme/"><u>Modifier Simplement Le Ratio Des Proportions D’une Videogramme</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-playtime-the-all-in-one-4k-gaming-experience-of-xbox-series-x/"><u>Revolutionizing Playtime: The All-in-One 4K Gaming Experience of Xbox Series X</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sonys-next-gen-console-unveiled-a-comprehensive-ps5-performance-analysis/"><u>Sony's Next-Gen Console Unveiled: A Comprehensive PS5 Performance Analysis</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/superior-audio-options-for-video-makers/"><u>Superior Audio Options for Video Makers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-lg-stylo-n-review-a-perfect-blend-of-style-and-functionality-with-an-ergonomic-stylus/"><u>The LG Stylo N Review: A Perfect Blend of Style and Functionality with an Ergonomic Stylus</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-testing-the-fitbit-versa-2-an-in-depth-review-for-health-enthusiasts-with-smartwatch-capabilities/"><u>Unboxing and Testing the Fitbit Versa 2: An In-Depth Review for Health Enthusiasts with Smartwatch Capabilities</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlock-windows-11-fixes-keyboard-shortcuts-for-rapid-problem-solving/"><u>Unlock Windows 11 Fixes: Keyboard Shortcuts for Rapid Problem Solving</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/walmarts-hottest-offers-for-july-24-unveiled-by-zdnet-shop-smart/"><u>Walmart's Hottest Offers for July '24 Unveiled by ZDNet - Shop Smart!</u></a></li>
 </ul></div>
 

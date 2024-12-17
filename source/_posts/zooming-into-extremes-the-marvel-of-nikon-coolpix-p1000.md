@@ -1,7 +1,7 @@
 ---
 title: "Zooming Into Extremes: The Marvel of Nikon COOLPIX P1000"
-date: 2024-12-01T19:08:01.378Z
-updated: 2024-12-03T16:06:33.117Z
+date: 2024-12-12T19:33:27.488Z
+updated: 2024-12-16T16:36:50.870Z
 categories:
   - BestProducts
 description: "This Article Describes Zooming Into Extremes: The Marvel of Nikon COOLPIX P1000"
@@ -18,13 +18,13 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/NltNTWtb6Y6gHFCHDQXlLsrWKTI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -47,10 +47,6 @@ Lifewire / Andy Zahn
 [View On Walmart $562](https://www.walmart.com/ip/Canon-PowerShot-SX70-HS-20-3MP-65x-Optical-Zoom-Digital-Point-Shoot-Camera/773178799?slfpid=3) [View On Adorama.com $699](https://www.adorama.com/icasx70.html) [View On B&H Photo Video $599](https://www.bhphotovideo.com/c/product/1435399-REG/canon%5F3071c001%5Fpowershot%5Fsx70%5Fhs%5Fdigital.html)
 
 4.3
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
@@ -88,6 +84,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -100,6 +100,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
@@ -110,6 +114,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Display and Viewfinder: Saturated and clear**
 
  The three-inch, 920,000-dot screen on the SX70 HS looks amazing—perhaps_too_ amazing, as your photos will look better on it than on your phone or computer. The screen is fully articulating and solidly built. Our one complaint would be how easily it picks up smudges, and how difficult those smudges are to remove. An advantage of the articulating screen is that it can be turned face-in to avoid dirt and damage and to save on battery life.
@@ -117,6 +125,10 @@ Lifewire / Andy Zahn
  The electronic viewfinder (EVF) is bright and clear with 2,360,000 dots. It’s not the best EVF we’ve ever used as it seems slightly small and cramped, but it gets the job done. A sensor automatically detects when you put your eye up to it (a function that can be adjusted in the settings), which means you don’t have to hunt for a button to switch the EVF on.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Autofocus: Blazing fast**
 
@@ -143,7 +155,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Modes: Plenty to choose from (and only some are useful)**
@@ -159,10 +171,6 @@ Lifewire / Andy Zahn
  A problem with all these automated modes and scene settings is that the images they produce are exclusively JPEG, with RAW being unavailable. Fortunately, Program mode is essentially the same as Auto, and you can enable RAW image recording there.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
 
@@ -188,10 +196,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
@@ -213,10 +217,6 @@ Lifewire / Andy Zahn
  **A tremendously fun camera that is exceedingly well-rounded if a bit pricey.**
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -258,17 +258,24 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-unlocking-the-power-of-fb-giveaways-in-your-business-plan/"><u>[New] 2024 Approved Unlocking the Power of FB Giveaways in Your Business Plan</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-sleep-specialist-endorses-aspers-guide/"><u>[Updated] Sleep Specialist Endorses Asper's Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2024s-elite-selection-leading-asus-networking-devices/"><u>2024'S Elite Selection: Leading ASUS Networking Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722705990081-delving-into-the-world-of-the-acer-chromebook-prise-and-it-can-be-reused-for-other-projects-that-require-similar-functionality/"><u>Delving Into the World of the Acer Chromebook Prise, and It Can Be Reused for Other Projects that Require Similar Functionality.</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/effective-fixes-for-the-conexant-smartaudio-hd-non-functioning-speakers-in-windows-11/"><u>Effective Fixes for the Conexant SmartAudio HD Non-Functioning Speakers in Windows 11</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/full-tutorial-to-bypass-your-vivo-v29-pro-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Vivo V29 Pro Face Lock?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-strategies-for-developing-captivating-audio-visual-teasers/"><u>In 2024, Expert Strategies for Developing Captivating Audio-Visual Teasers</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-oppo-k11-5g-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Oppo K11 5G Phone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722649409956-macbook-pro-with-retina-display-m1-intel-and-amd-the-definitive-guide-and-reviews-for-tech-enthusiasts/"><u>MacBook Pro with Retina Display (M1, Intel & AMD) - The Definitive Guide and Reviews for Tech Enthusiasts</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/secure-your-shots-in-the-cloud-unlimited-free-space-plus-charged-premium-solutions/"><u>Secure Your Shots in the Cloud Unlimited Free Space + Charged Premium Solutions</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1723006649024-smooth-gaming-awaits-discover-the-ultimate-fix-for-diablo-iv-crashing-across-all-platforms/"><u>Smooth Gaming Awaits! Discover the Ultimate Fix for Diablo IV Crashing Across All Platforms</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722785342779-the-ultimate-guide-to-the-beantech-bitwatch-s1-plus-smartwatch-budget-friendly-and-innovative-features/"><u>The Ultimate Guide to the Beantech Bitwatch S1 Plus Smartwatch – Budget Friendly & Innovative Features</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-leading-edge-quick-frame-gatherer-5/"><u>[New] 2024 Approved Leading Edge Quick Frame Gatherer #5</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-sonic-social-media-merging-melodies-and-memes-on-instagram/"><u>[New] Sonic Social Media Merging Melodies and Memes on Instagram</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-10-trending-tiktok-treats-to-try/"><u>2024 Approved 10 Trending TikTok Treats to Try</u></a></li>
+<li><a href="https://os-tips.techidaily.com/a-look-back-the-evolution-of-apple-watch-ultra-after-its-first-year-in-the-market/"><u>A Look Back: The Evolution of Apple Watch Ultra After Its First Year in the Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-nokia-31-smartphone-analysis-ideal-choice-for-first-time-users/"><u>Comprehensive Nokia 3.1 Smartphone Analysis - Ideal Choice for First-Time Users</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/crafted-canvas-in-windows-desk-decor-tutorials/"><u>Crafted Canvas in Windows: Desk Decor Tutorials</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-the-performance-of-tp-links-re505x-wi-fi-booster-a-detailed-assessment/"><u>Expert Insights on the Performance of TP-Link's RE505X Wi-Fi Booster: A Detailed Assessment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-cost-effectiveness-of-the-topmate-c302-chilling-station-for-pcs/"><u>Exploring the Cost-Effectiveness of the TopMate C302 Chilling Station for PCs</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-5-solutions-for-honor-90-gt-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Honor 90 GT Unlock Without Password</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-podcast-writing-tips-and-free-template-samples/"><u>In 2024, Mastering Podcast Writing Tips & Free Template Samples</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/next-level-streaming-unveiling-the-features-of-chromecasts-new-ally-google-tv/"><u>Next-Level Streaming: Unveiling the Features of Chromecast's New Ally, Google TV</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/quick-tips-for-a-standout-instagram-groups-project/"><u>Quick Tips for a Standout Instagram Groups Project</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ready-to-explore-with-bouncie-your-guide-to-an-accessible-and-economical-tracking-device-review/"><u>Ready to Explore with Bouncie? Your Guide to an Accessible & Economical Tracking Device Review</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/reimagining-streaming-experience-beyond-manycam/"><u>Reimagining Streaming Experience Beyond ManyCam</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-sony-xperia-5-overview-a-miniature-marvel-with-a-premium-tag/"><u>The Sony Xperia 5 Overview: A Miniature Marvel with a Premium Tag</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-seamless-communication-with-tango-experience-free-text-voice-and-video-chat/"><u>Unlock Seamless Communication with Tango: Experience FREE Text, Voice & Video Chat!</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unmatched-adaptability-and-robust-features-a-closer-look-at-the-best-in-class-dell-inspiron-laptop-evaluation/"><u>Unmatched Adaptability and Robust Features: A Closer Look at the Best-in-Class Dell Inspiron Laptop Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-features-a-detailed-review-of-the-tp-link-wifi-range-extender-model-re305/"><u>Unveiling the Features: A Detailed Review of the TP-Link WiFi Range Extender, Model RE305</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/what-to-expect-from-the-ultimate-mirror-site-elgoog-a-complete-review/"><u>What to Expect From the Ultimate Mirror Site, elgooG – A Complete Review</u></a></li>
 </ul></div>
 

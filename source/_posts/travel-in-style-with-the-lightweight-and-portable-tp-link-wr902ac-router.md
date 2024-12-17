@@ -1,7 +1,7 @@
 ---
 title: Travel in Style with the Lightweight and Portable TP-Link WR902AC Router
-date: 2024-11-27T22:55:30.703Z
-updated: 2024-12-04T03:34:58.428Z
+date: 2024-12-10T16:45:00.769Z
+updated: 2024-12-16T23:11:11.877Z
 categories:
   - BestProducts
 description: This Article Describes Travel in Style with the Lightweight and Portable TP-Link WR902AC Router
@@ -18,13 +18,13 @@ thumbnail: https://www.lifewire.com/thmb/22WjFUPJyfDyoiQncgDsnN0FJoQ=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## DBPOWER 600A Peak 18000mAh Portable Car Jump Starter
 
 ![600A Peak 18000mAh Portable Car Jump Starter](https://www.lifewire.com/thmb/zoSakt2DeEHvZbIU0RNWljw5x0A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DBPower_JumpStarter_5LW4140286_HeroSquare-4defda07335a4d7bafb41bb20cacee2f.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -48,17 +48,9 @@ thumbnail: https://www.lifewire.com/thmb/22WjFUPJyfDyoiQncgDsnN0FJoQ=/400x300/fi
 
 4.1
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## DBPOWER 600A Peak 18000mAh Portable Car Jump Starter
 
 ![600A Peak 18000mAh Portable Car Jump Starter](https://www.lifewire.com/thmb/lCHc739SU7lyQkMIbG0aNWYsqy8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DBPower_JumpStarter_5LW4140286_HeroSquare-4defda07335a4d7bafb41bb20cacee2f.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -93,6 +85,10 @@ thumbnail: https://www.lifewire.com/thmb/22WjFUPJyfDyoiQncgDsnN0FJoQ=/400x300/fi
 
  The accessory kit contains a wall charger and a 12V port charger for the unit, a DC cable, and a variety of ends to allow for charging a laptop. The jumper cables sprout from a module that plugs into a specific port on the unit and terminate in your standard clamps. The module itself has a status light that illuminates to indicate the unit’s readiness to jump start the car.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: The cables are short but easy to use**
 
  It's a breeze using the 600A to jump start a car. You plug the jumper cable module into the unit, which will cause its module light to flash green, then connect the red clamp to the positive terminal on your car’s battery and the black clamp to the negative terminal which will cause the module light to illuminate solid green. With our test vehicle it was a little difficult to get the clamps on the negative terminal as they are a little large, and the cables themselves are on the short side. With the clamps in position all that is left is to start the car and remove the clamps in reverse order.
@@ -102,7 +98,7 @@ It's a breeze using the 600A to jump start a car.
  If it’s other devices that need power, you simply need to turn the unit on and then plug them into the appropriate port. For a laptop, that means you must pick the correct adapter, use the power button to switch the unit to the right power mode for your laptop, and plug it into the DC power port. For a phone or other USB device you pretty much just need to pick one of the two ports and plug in, though the smart port provides better amperage and faster charging.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Immediate power to get you back on the road**
@@ -112,10 +108,6 @@ It's a breeze using the 600A to jump start a car.
  Lifewire / Tony Mitera
 
  Charging USB devices is not only simple but fast as well, with a sustained 1,200 mAh current. This level of charging will top off your devices in a hurry, and with 18,000 mAh capacity the unit should be able to charge a phone like the Samsung Galaxy S10 five times over. Be aware that if your phone uses a USB-C or Thunderbolt connection you’ll need to provide your own cable.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Key Features: A decent flashlight and, oddly, a compass**
 
@@ -128,6 +120,10 @@ It packs a ton of value into its diminutive size.
  Speaking of which, one method of charging the device is through[your car’s 12V power port](https://www.lifewire.com/car-cigarette-lighter-12v-socket-534754) . This means that you can pop the hood on a car with a dead battery, get it jump started, and then use the running car to charge the jump starter as you drive to your next destination.
 
  Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: A low cost for such a feature-packed jump starter**
 
@@ -146,6 +142,10 @@ It packs a ton of value into its diminutive size.
 **A lot of features in a dependable package.**
 
  It’s worth looking at other jump starters to see what they offer, but the DBPOWER 600A Peak 18000mAh Portable Car Jump Starter does everything that it's designed for quite well, is reliable and durable, and comes in a semi-hard case that you can easily stash in just about any vehicle.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -178,17 +178,19 @@ It packs a ton of value into its diminutive size.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-blog.techidaily.com/the-ascent-optimize-your-experience-by-enhancing-frame-rate-and-reducing-freezes/"><u>'The Ascent': Optimize Your Experience by Enhancing Frame Rate and Reducing Freezes</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-giggle-gazette-twitters-top-threads/"><u>[New] Giggle Gazette Twitter’s Top Threads</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-youtube-shorts-success-top-10-steps-to-stand-out/"><u>[Updated] 2024 Approved Youtube Shorts Success - Top 10 Steps to Stand Out</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-top-platforms-enhance-your-youtube-presence/"><u>2024 Approved Top Platforms Enhance Your YouTube Presence</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazon-fire-tv-cube-review-2nd-generation/"><u>Amazon Fire TV Cube Review (2Nd Generation)</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/apple-iphone-12-pro-max-screen-mirroring-you-must-know-drfone-by-drfone-ios/"><u>Apple iPhone 12 Pro Max Screen Mirroring You Must Know | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/538222-9781439164037-awakening-kindness/"><u>Awakening Kindness | Free Book</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-masterclass-unpacking-the-capabilities-of-the-zte-blade-a3y/"><u>Budget Masterclass: Unpacking the Capabilities of the ZTE Blade A3Y</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-the-thermaltake-massive-tm-laptop-chiller-high-quality-tech-with-a-steep-price-tag/"><u>Comprehensive Evaluation of the Thermaltake Massive TM Laptop Chiller: High-Quality Tech with a Steep Price Tag</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722798831610-discover-the-best-long-range-traffic-monitors-for-under-100-examined-in-detail-by-our-escort-passport-team/"><u>Discover the Best Long Range Traffic Monitors for Under $100 - Examined in Detail by Our Escort Passport Team.</u></a></li>
-<li><a href="https://win-dash.techidaily.com/effortless-update-guide-ensuring-your-scansnap-ix500-is-fully-functional-on-windows-machines/"><u>Effortless Update Guide: Ensuring Your ScanSnap iX500 Is Fully Functional on Windows Machines</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potential-of-a-modestly-priced-fitness-companion-the-fitbit-versa/"><u>Unveiling the Potential of a Modestly Priced Fitness Companion - The Fitbit Versa</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-the-7-best-total-war-games/"><u>[New] 2024 Approved The 7 Best Total War Games</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-direct-pathway-transferring-youtube-content-to-dailymotion-for-2024/"><u>[Updated] Direct Pathway Transferring YouTube Content to Dailymotion for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-luminous-filmmaking-transform-your-videos-with-pro-tips/"><u>[Updated] Luminous Filmmaking Transform Your Videos with Pro Tips</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/136-discount-how-the-hp-chromebook-simplifies-life-without-windows-insights-from-a-tech-guru/"><u>$136 Discount: How the HP Chromebook Simplifies Life Without Windows - Insights From a Tech Guru</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/examining-the-sony-xperia-5-miniaturized-design-with-a-premium-cost/"><u>Examining the Sony Xperia 5: Miniaturized Design with a Premium Cost</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-phone-spec-enhancements-and-their-relevance-for-you/"><u>Exploring Phone Spec Enhancements and Their Relevance for You</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/express-yourself-accessibility-available-for-free/"><u>Express Yourself, Accessibility Available for Free</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-pictures-to-prose-photo-text-alteration-techniques-for-2024/"><u>From Pictures to Prose Photo Text Alteration Techniques for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-the-xbox-one-x-dominates-todays-console-market-a-comprehensive-review/"><u>How the Xbox One X Dominates Today's Console Market - A Comprehensive Review</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-decision-critical-points-to-ponder-when-selecting-an-off-contract-phone/"><u>Navigating the Decision: Critical Points to Ponder When Selecting an Off-Contract Phone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ize-your-vlogs-with-smart-youtube-editing-tips/"><u>Optimize Your Vlogs with Smart YouTube Editing Tips</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/say-hello-to-animal-charm-from-every-corner-of-the-globe/"><u>Say Hello to Animal Charm From Every Corner of the Globe</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-unleash-your-creativity-a-step-by-step-sony-camcorder-video-editing-guide-for-2024/"><u>Updated Unleash Your Creativity A Step-by-Step Sony Camcorder Video Editing Guide for 2024</u></a></li>
 </ul></div>
 

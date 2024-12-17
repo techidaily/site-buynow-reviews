@@ -1,7 +1,7 @@
 ---
 title: "The Motorola Edge+ Unveiled: Striving for Flagship Status but Missing the Mark"
-date: 2024-08-22T16:16:01.498Z
-updated: 2024-08-23T16:16:01.498Z
+date: 2024-12-09T19:25:37.420Z
+updated: 2024-12-16T23:13:12.883Z
 categories:
   - BestProducts
 description: "This Article Describes The Motorola Edge+ Unveiled: Striving for Flagship Status but Missing the Mark"
@@ -37,6 +37,10 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
@@ -63,9 +67,9 @@ Lifewire / Erika Rawes
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -74,9 +78,6 @@ Lifewire / Erika Rawes
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup: Relatively easy**
 
  Setting up the antenna is pretty straightforward. You start by plugging one end of the coaxial cable into the antenna, and then the other end to the coaxial/antenna-in connector to your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) .
@@ -87,6 +88,10 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Performance: Almost two dozen channels (in a rural area)**
@@ -96,9 +101,14 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Range: 35 miles**
 
@@ -108,9 +118,6 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
@@ -119,9 +126,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
  The Antop AT-127 (see[online](https://www.lowes.com/pd/ANTOP-Omni-Directional-Indoor-HD-UHF-VHF-TV-Antenna/1000503257?) ) is a 40-mile range antenna that sells for around $35\. It’s one of the better-looking antennas I’ve seen, as it’s reversible with faux light wood and dark wood sides. Unlike the AmazonBasics antenna, the Antop comes with a stand, and it has an easy-push connector for faster setup. These features go some ways towards justifying the Antop's higher price tag.
@@ -132,9 +136,6 @@ Lifewire / Erika Rawes
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Ultra-Thin Antenna
@@ -151,14 +152,11 @@ Lifewire / Erika Rawes
 * Ports  Coax
 * Cable length  10-foot Coax Cable
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -167,4 +165,24 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-address-tweets-stuck-while-watching-online-for-2024/"><u>[New] Address Tweets Stuck While Watching Online for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-exceptional-value-premium-asmr-microphones-at-low-costs/"><u>[Updated] In 2024, Exceptional Value Premium ASMR Microphones at Low Costs</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-perfecting-zoom-on-snapchat-for-better-snaps/"><u>[Updated] Perfecting Zoom on Snapchat for Better Snaps</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/comprehensive-evaluation-of-the-linksys-wrt1900acs-a-budget-friendly-openness-in-mind/"><u>Comprehensive Evaluation of the Linksys WRT1900ACS: A Budget-Friendly, Openness in Mind</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-googles-latest-innovation-the-gen-2-nest-hub-and-the-case-for-integrated-cameras/"><u>Comprehensive Review of Google's Latest Innovation, The Gen 2 Nest Hub – And the Case for Integrated Cameras</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/discovering-the-hottest-templates-for-social-media-vfx/"><u>Discovering the Hottest Templates for Social Media VFX</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-the-acer-chromebook-15-stellar-features-for-a-large-screen-laptop-experience/"><u>Expert Insights on the Acer Chromebook 15: Stellar Features for a Large-Screen Laptop Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-picks-the-most-effective-key-finders-on-the-market-2024/"><u>Expert Picks: The Most Effective Key Finders on the Market - 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expo-polyglot-power-the-linguistic-evolution-awaits/"><u>Expo Polyglot Power: The Linguistic Evolution Awaits</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Sony Xperia 5 V | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ipad-faceoff-the-essential-side-by-side-analysis/"><u>IPad Faceoff: The Essential Side-by-Side Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/j5-tactical-v1-pro-flashlight-evaluation-the-perfect-blend-of-portability-strength-and-exceptional-illumination-capabilities/"><u>J5 Tactical V1-Pro Flashlight Evaluation: The Perfect Blend of Portability, Strength, and Exceptional Illumination Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/selecting-your-ideal-tablet-in-depth-analysis-of-amazon-fire-vs-samsung-models/"><u>Selecting Your Ideal Tablet: In-Depth Analysis of Amazon Fire Vs. Samsung Models</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/simplify-pet-meal-times-a-comprehensive-review-of-petsafes-automatic-feeder-for-healthy-eating-habits/"><u>Simplify Pet Meal Times: A Comprehensive Review of PetSafe's Automatic Feeder for Healthy Eating Habits</u></a></li>
+<li><a href="https://win11.techidaily.com/title-customize-icon-spacing-on-modern-and-classic-windows-oses/"><u>Title: Customize Icon Spacing on Modern & Classic Windows OSes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-exercise-monitors-the-ultimate-selection/"><u>Top Rated Exercise Monitors: The Ultimate Selection</u></a></li>
+</ul></div>
 

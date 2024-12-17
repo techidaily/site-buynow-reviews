@@ -1,7 +1,7 @@
 ---
 title: "The Lenovo ThinkPad X1 Fold Reviewed: Pioneering Portability Meets Room for Improvement"
-date: 2024-08-15T09:40:02.077Z
-updated: 2024-08-16T09:40:02.077Z
+date: 2024-12-09T21:12:09.795Z
+updated: 2024-12-17T00:34:09.084Z
 categories:
   - BestProducts
 description: "This Article Describes The Lenovo ThinkPad X1 Fold Reviewed: Pioneering Portability Meets Room for Improvement"
@@ -13,9 +13,17 @@ thumbnail: https://thmb.techidaily.com/a6f140ff4ddda64bd14cec3cab639274aa642e4bb
 
 4.4
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner
 
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/1WEpNEg3uu2Ow7DpqhXyGzVO8Pw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_HeroSquare-191df3b949f947dc9398373d6f610c19.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Scott Gercken
 
@@ -37,15 +45,9 @@ Lifewire / Scott Gercken
 
 4.4
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner
 
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/0KtwvTBY-2P8KkZ_aO3Di4x-41c=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_HeroSquare-191df3b949f947dc9398373d6f610c19.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Lifewire / Scott Gercken
 
@@ -84,8 +86,9 @@ Lifewire / Scott Gercken
  It’s a slot loading drive, which works exactly the way you’d expect. It may be personal preference, but slot loading systems seem cleaner and less fussy than clamshell or tray systems. The back side has two ports, a[USB 3.0](https://www.lifewire.com/what-is-usb-3-0-2626038) micro-B and a port for a DC power input (not included with the drive). The drive also comes with a micro-B to USB-A cord, making it easy to connect the Pioneer BDR-XS06 to your computer.
 
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/LB5BA5cM1cVQB_sK6BgcOEl3l9k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_02-60d78cf22bf04b52979d5f65437a35e8.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Scott Gercken
@@ -110,11 +113,12 @@ It’s one of the most plug-and-play burners we’ve tested.
 
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/hYWwVcK8E-FSog7TpOTOgE-hYnY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_03-df0bfb492ead4e86a35df19618bcd5d4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Scott Gercken
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Image Quality: Decent quality for an optical drive**
 
  While Blu-ray burners and[optical drives](https://www.lifewire.com/what-is-an-optical-disc-drive-2618157) aren’t exactly designed to play movies, we tried it anyway. We used a free Blu-ray player for Mac, and the picture was pretty good. On the Mac, it was sharp, almost as good as a[Blu-ray player](https://www.lifewire.com/best-blu-ray-players-1846400) designed for the TV. Next, we connected an HDMI cable to the Mac to see what it would look like on an[HDTV](https://www.lifewire.com/best-tvs-to-buy-4061107) . It wasn’t as good as on the computer, but it wasn’t bad either. The TV reported that the resolution was 768p at 60hz, not as good as a Blu-ray player built for that purpose, but better than SD.
@@ -124,8 +128,9 @@ It’s one of the most plug-and-play burners we’ve tested.
  While many people rave about[HD](https://www.lifewire.com/what-you-need-to-see-hd-1847338) image quality, we think that the depth of sound is the most exciting feature of the Blu-ray format. When you get all the high-end and low-end sound, it feels more immersive, and the Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner delivered the audio quality you’d expect from a Blu-ray. If you don’t mind the reduction in image quality vs. a dedicated player, the BDR-XS06 could double as a Blu-ray player for your PC or TV.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Software: Quirky but useful**
 
  The drive comes with Roxio Toast Lite v11 for creating or copying data discs. You need to upgrade to the full version to create an audio disc, video disc, or to convert files to another format.
@@ -141,8 +146,9 @@ It’s one of the most plug-and-play burners we’ve tested.
  For the price, it delivers strong performance and portability. At an MSRP of $120, the BDR-XS06 is a little more expensive than some of its competition, but it feels more solid than even Pioneer’s own models in this price range. That extra durability is worth the slightly higher cost than this drive’s competitors.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Competition: A step ahead**
 
 **_Pioneer BDR-XD05B 6x Slim Portable USB 3.0 Blu-ray Burner_ :** The Pioneer BDR-XD05B is Pioneer’s new model of external Blu-ray burners. It has a clamshell case, which means the top pops open so you can place the Blu-ray into the drive. The drive is black and a smudge magnet, and it also doesn’t feel as sturdy as the Pioneer BDR-XS06\. In general, we prefer the BDR-XS06 for its sturdy, smudge-free design, but the BDR-XD05B is a fine choice if your main concern is price.
@@ -161,9 +167,6 @@ It’s one of the most plug-and-play burners we’ve tested.
 
  The Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner is a solid, portable Blu-ray burner. It’s small enough to pack up to take on a trip, and it’s solid enough to give us confidence that it can endure some jostling on the way. It costs a little more than its competitors, but we think the solid construction is worth it.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [OWC Mercury Pro External USB 3.1 Gen 1 Optical Drive](https://www.lifewire.com/owc-mercury-pro-review-4774690)
@@ -187,14 +190,11 @@ It’s one of the most plug-and-play burners we’ve tested.
 * Warranty  1 year
 * Color options  Silver
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -203,4 +203,22 @@ It’s one of the most plug-and-play burners we’ve tested.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-youtubes-premier-gatherings-top-events-beyond-vidcon/"><u>[New] 2024 Approved Youtube's Premier Gatherings Top Events Beyond VidCon</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-sculpted-sentences-turning-text-into-3d-art/"><u>[New] Sculpted Sentences Turning Text Into 3D Art</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-swift-windows-insight-sharing-methods/"><u>2024 Approved Swift Windows Insight Sharing Methods</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-canon-pixma-mx925-printer-software-for-pc/"><u>Download Canon PIXMA MX925 Printer Software for PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-unveiling-the-timeless-appeal-of-the-lg-watch-style-with-wear-os-20/"><u>Expert Review: Unveiling the Timeless Appeal of the LG Watch Style with Wear OS 2.0</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-oppo-reno-10-pro-5g-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Oppo Reno 10 Pro 5G?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-on-the-go-charging-with-the-mighty-chargetech-27000mah-battery-pack-a-thorough-evaluation/"><u>Revolutionize Your On-the-Go Charging with the Mighty ChargeTech 27000mAh Battery Pack: A Thorough Evaluation</u></a></li>
+<li><a href="https://win11.techidaily.com/steps-to-overcome-windows-code-0x80780119/"><u>Steps to Overcome Windows' Code 0X80780119</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-guide-to-choosing-a-smartphone-spotlight-on-samsung-galaxy-note20-ultra-5g/"><u>The Definitive Guide to Choosing a Smartphone: Spotlight on Samsung Galaxy Note20 Ultra 5G</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-fundamentals-of-captivating-video-scripts-for-2024/"><u>The Fundamentals of Captivating Video Scripts for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-verdict-on-hps-budget-notebook-can-its-cost-effective-amd-engine-handle-your-tasks-smoothly/"><u>The Verdict on HP's Budget Notebook: Can Its Cost-Effective AMD Engine Handle Your Tasks Smoothly?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/trouble-with-nintendo-switch-online-determining-if-the-problem-is-widespread/"><u>Trouble with Nintendo Switch Online? Determining if the Problem Is Widespread.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleash-your-gameplay-potential-on-a-philips-49-inch-oled-curved-screen/"><u>Unleash Your Gameplay Potential on a Philips 49-Inch OLED Curved Screen</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-capabilities-of-the-heavy-duty-stanley-j5c09-circular-saw-model/"><u>Unveiling the Capabilities of the Heavy-Duty Stanley J5C09 Circular Saw Model</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-performance-in-depth-analysis-of-the-netgear-ex3700-wifi-range-expander-ac750/"><u>Unveiling the Performance: In-Depth Analysis of the Netgear EX3700 WiFi Range Expander (AC750)</u></a></li>
+</ul></div>
 

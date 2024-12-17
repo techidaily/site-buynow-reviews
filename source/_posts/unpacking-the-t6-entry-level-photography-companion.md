@@ -1,7 +1,7 @@
 ---
 title: "Unpacking the T6: Entry Level Photography Companion"
-date: 2024-08-15T09:39:49.273Z
-updated: 2024-08-16T09:39:49.273Z
+date: 2024-12-10T20:15:24.196Z
+updated: 2024-12-16T20:21:22.281Z
 categories:
   - BestProducts
 description: "This Article Describes Unpacking the T6: Entry Level Photography Companion"
@@ -38,14 +38,12 @@ Lifewire / Scott Gercken
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## Pioneer BDR-XD05B Blu-ray Burner
 
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/nC_G9Nr8iQMb-lVdoUhQTXWP5lo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_HeroSquare-7488fe2dd07248ca99020859f82cefaf.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Scott Gercken
@@ -73,9 +71,6 @@ Lifewire / Scott Gercken
 
  Check out our buyers guide for more information on what you should look for in an optical drive.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Feels a little flimsy**
 
  The Pioneer BDR-XD05B[Blu-ray Burner](https://www.lifewire.com/best-desktop-blu-ray-drives-832423) is a sleek, small black drive. It’s a tiny 5.12” square by .5” tall with a black cover and a metal bottom. The clamshell case opens to 65 degrees, so it’s easy to slide a disc onto the spindle. The button to open the clamshell is on the front left of the drive, and there’s a blue LED indicator that lights up when the drive is plugged into a power source. The drive comes with an unusually shaped USB cord, with a male micro-B USB 3.0 on one side and two USB A male ends on the other. One is designed to power the drive and one is for data transfer. The back of the drive has both a micro-B USB 3.0 port and a DC power port as a second option for powering it. The Pioneer BDR-XD05B Blu-ray Burner’s look is minimalist, black with just a small gray Blu-ray logo on the top.
@@ -87,15 +82,13 @@ Lifewire / Scott Gercken
  One of the benefits of a typical clamshell, top-loading drive is that there’s a physical button to press that opens the drive, a simple mechanism that will pop the top even when it’s unplugged. That feature alone might make the wobbly top worth it, but it doesn’t work that way on this drive—the top won’t open unless you plug the drive into a computer.
 
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/fUaHdcy3m2p6xK0x76rqvkRIi1s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_03-c61c4933818c4874b8edcadfca341ca9.jpg)
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 
  Lifewire / Scott Gercken
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup Process: Some baffling software issues**
 
  The setup process for the Pioneer BDR-XD05B is both really easy and frustrating. The easy part is that we only needed to plug the USB cord into the right slots to get it running on the Macbook we used to test it. The frustrating part is that the included software only works on Windows computers. A major producer like Pioneer only including PC software is very frustrating.
@@ -105,6 +98,10 @@ Lifewire / Scott Gercken
  After 25 minutes of installation, there was a dialog indicating installation was complete. Yet, there were still two instances of the installer program running, and each showed an alert that said it was installing one program or another without any indication of progress.
 
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/xaXRYsi71hFhblhSiQT18pmQ2Mw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_02-5138fb74431a40c1b0cbb76c30bc6350.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Scott Gercken
 
@@ -122,6 +119,10 @@ Lifewire / Scott Gercken
 
  We also connected the computer to an HD TV through the HDMI drive and didn’t get the 1080p we expected. Instead, the resolution was stuck at 726p and the image quality was terrible, worse than a DVD. The Blu-ray image was extremely noisy and filled with huge pixels. If you want to watch movies, don’t use this drive, except maybe to make yourself more appreciative of your Blu-ray player.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Sound Quality: Seriously, don’t watch Blu-rays on this drive**
 
  We think that the best reason to watch a Blu-ray isn’t the sharp[HD image](https://www.lifewire.com/what-you-need-to-see-hd-1847338) but the depth of sound this format can produce. But you don’t get any of that when you watch a Blu-ray using the Pioneer BDR-XD05B, because you have to watch it on a computer with computer speakers. It didn’t get any better when we connected the computer to the TV via HDMI—the sound remained flat and muddy.
@@ -137,8 +138,9 @@ Lifewire / Scott Gercken
  With an MSRP of $100, The Pioneer BDR-XD05B is one of the least expensive Blu-ray burners on the market.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Competition: Performs well in this price range**
 
 **_MthsTec Slim External Blu-ray Drive_ :** Looks great at about the same price as the Pioneer BDR-XD05B, $119 MSRP, but there’s no website and no good information from the brand. It makes us wonder about customer service and quality. Try as we might, we couldn’t find any documentation about Blu-ray burning capabilities.
@@ -173,14 +175,11 @@ Lifewire / Scott Gercken
 * Warranty  1 year
 * Boxed dimensions  8.75 x 6.6 x 3.5 in.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -189,4 +188,24 @@ Lifewire / Scott Gercken
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/xploring-best-applications-tiktok-vs-youtubes-micro-video-realm-for-2024/"><u>[New] Exploring Best Applications TikTok vs YouTube's Micro-Video Realm for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-auto-enhancing-shots-with-innovative-exposure-algorithms/"><u>[New] In 2024, Auto-Enhancing Shots with Innovative Exposure Algorithms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-excellent-screen-grabber-aid-for-youtube-content-creators-for-2024/"><u>[Updated] Excellent Screen Grabber Aid for YouTube Content Creators for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-staying-relevant-essential-instagram-hashtags-for-success/"><u>[Updated] Staying Relevant Essential Instagram Hashtags for Success</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-understanding-ars-capabilities-and-limits/"><u>[Updated] Understanding AR's Capabilities and Limits</u></a></li>
+<li><a href="https://fox-search.techidaily.com/5lplusu5b6p5asx5pwi55qe6zqo6lqr56kf6loh5paz77ya5a6m5pw05oyh5y2x5lplusd5a2y5oma5pyj6yen6kab5lplush5ogv/"><u>修復失效的隨身碟資料：完整指南保存所有重要信息</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/benefits-and-limitations-of-using-webex-for-virtual-meetings/"><u>Benefits and Limitations of Using WebEx for Virtual Meetings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/emperors-destiny-in-improved-rome-strategy-game-empire-creation-and-survival-tactics-reviewed/"><u>Emperor's Destiny in Improved Rome Strategy Game - Empire Creation And Survival Tactics Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/head-to-head-comparison-the-difference-between-nintendo-switch-lite-and-switch-oled/"><u>Head-to-Head Comparison: The Difference Between Nintendo Switch Lite and Switch OLED</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-on-the-go-gyroscopic-footage-smoother/"><u>In 2024, On-the-Go Gyroscopic Footage Smoother</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-quick-fix-tweeter-conversion-for-social-sharing/"><u>In 2024, Quick-Fix Tweeter Conversion for Social Sharing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/journey-into-excellence-evaluating-gopro-hero7-blacks-impact-on-filmmaking/"><u>Journey Into Excellence: Evaluating GoPro HERO7 Black's Impact on Filmmaking!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-best-car-battery-jumpstarters-why-m-mock-10000a-peak-series-leads-in-reviews/"><u>Navigating the Best Car Battery Jumpstarters - Why M Mock 10,000A Peak Series Leads in Reviews</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/simplified-guide-for-iphones-voice-capture-feature/"><u>Simplified Guide for iPhone's Voice Capture Feature</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-m-mock-1000a-car-battery-lifeline-reviewed-the-definitive-pick-for-18k-mah-power/"><u>Top M MOCK 1000A Car Battery Lifeline Reviewed: The Definitive Pick for 18K mAh Power</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-surprising-potential-of-xbox-series-s-tiny-package-impressive-hardware-inside/"><u>Unpacking the Surprising Potential of Xbox Series S – Tiny Package, Impressive Hardware Inside!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/wireless-aural-bliss-through-sony-earbuds/"><u>Wireless Aural Bliss Through Sony Earbuds</u></a></li>
+</ul></div>
 

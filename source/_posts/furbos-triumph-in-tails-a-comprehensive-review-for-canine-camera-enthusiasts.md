@@ -1,7 +1,7 @@
 ---
 title: "Furbo’s Triumph in Tails: A Comprehensive Review for Canine Camera Enthusiasts"
-date: 2024-11-28T00:02:39.801Z
-updated: 2024-12-03T16:23:53.805Z
+date: 2024-12-12T21:37:08.917Z
+updated: 2024-12-16T21:06:30.952Z
 categories:
   - BestProducts
 description: "This Article Describes Furbo’s Triumph in Tails: A Comprehensive Review for Canine Camera Enthusiasts"
@@ -19,16 +19,12 @@ thumbnail: https://thmb.techidaily.com/6ae77072947e6de85d2a8d631e24f7937491d0d11
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/HYgHMUDMFh7JI98Hj0JMbI2wcpw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -71,6 +67,10 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
@@ -78,7 +78,7 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -95,10 +95,6 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
  Beyond this, the other major gameplay mechanic is a system of effort and inspiration. Every action you take will prompt you to use effort. This effort allows for your character to work harder at the chosen action, and thus gives your character a better chance of accomplishing their goal.
@@ -113,6 +109,10 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -120,6 +120,10 @@ Lifewire / Kelsey Simon
  The one positive is the originality in the world the developers have created. The setting feels unique―a mix of strange alien tech within a fantasy city. A wide range of characters will fill the game, and they respond and react in creative ways. It’s also a fun experience to run around and talk to these various characters and explore the game’s world and the lore of Numenera.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -130,10 +134,6 @@ Lifewire / Kelsey Simon
  That said, if role-playing games with a text-heavy focus are of interest to you, then the game does have a lot to offer for the cost. The world of Numenera is vast, and considering all the prompts that alter the story, the game also has a lot of replayability. While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else, and for those players, the $50 cost will be worth it.
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Other story focused RPGs**
 
@@ -170,24 +170,17 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/updated-best-windows-sketchpad-selections-cost-free-and-premium-plans/"><u>[Updated] Best Windows Sketchpad Selections Cost-Free & Premium Plans</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-navigating-facebooks-automatic-video-features/"><u>2024 Approved Navigating Facebook's Automatic Video Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/7-cost-effective-cellular-plans-to-save-money/"><u>7 Cost-Effective Cellular Plans to Save Money</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-comparison-of-ipad-and-ipad-air-what-sets-them-apart/"><u>A Comparison of iPad and iPad Air: What Sets Them Apart?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-alarm-clocks-totobays-second-generation-sunrise-simulator-revealed/"><u>Affordable Alarm Clocks - Totobay's Second Generation Sunrise Simulator Revealed!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-elegance-in-your-hand-comprehensive-review-of-samsungs-galaxy-s10e/"><u>Affordable Elegance in Your Hand - Comprehensive Review of Samsung's Galaxy S10e</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-mobvoi-ticwatch-e2-a-bargain-or-a-disappointment/"><u>Affordable Mobvoi TicWatch E2 - A Bargain or a Disappointment?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-propella-7s-40-inflatable-boards-top-review-for-budget-friendly-fun-on-water/"><u>Affordable Propella 7S 4.0 Inflatable Boards - Top Review for Budget-Friendly Fun on Water</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/all-you-need-to-know-about-the-jackery-powerbar-hub-the-added-benefits-of-a-built-in-outlet/"><u>All You Need to Know About the Jackery PowerBar Hub – The Added Benefits of a Built-In Outlet</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amaze-with-amazon-fire-tv-cube-the-pinnacle-of-rapid-streaming-devices/"><u>Amaze with Amazon Fire TV Cube: The Pinnacle of Rapid Streaming Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722623955693-ankerner-2-in-1-unbeatable-price-point-for-high-speed-in-car-charging-solutions-read-on-to-find-out-more/"><u>Anker'ner 2-in-1: Unbeatable Price Point for High Speed In-Car Charging Solutions - Read on to Find Out More!</u></a></li>
-<li><a href="https://fox-http.techidaily.com/decreasing-volume-gradually-in-garageband/"><u>Decreasing Volume Gradually in Garageband</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/expand-your-horizons-with-these-9-top-rated-costless-language-websites/"><u>Expand Your Horizons with These 9 Top-Rated, Costless Language Websites</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-samsung-galaxy-m34-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on Samsung Galaxy M34</u></a></li>
-<li><a href="https://techidaily.com/how-to-repair-system-of-apple-iphone-6s-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair System of Apple iPhone 6s Plus? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Realme GT 3 | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/no-more-lagging-at-launch-overcome-hogwarts-legacy-crashing-with-these-8-tricks/"><u>No More Lagging at Launch? Overcome Hogwarts Legacy Crashing with These 8 Tricks</u></a></li>
-<li><a href="https://win-blog.techidaily.com/sea-of-thieves-troubleshooting-why-cant-i-get-the-game-started/"><u>Sea of Thieves Troubleshooting: Why Can't I Get the Game Started?</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/top-5-exciting-features-of-the-new-iphone-16-pro-techies-dream-come-true-zdnet/"><u>Top 5 Exciting Features of the New iPhone 16 Pro: Techies' Dream Come True! | ZDNet</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-elite-5-cameras-for-slow-motion-magic/"><u>[New] Elite 5 Cameras for Slow Motion Magic</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-enhancing-viewer-engagement-with-smart-end-screen-techniques/"><u>[New] In 2024, Enhancing Viewer Engagement with Smart End Screen Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-quick-guide-sharing-videos-on-instagram/"><u>2024 Approved Quick Guide Sharing Videos on Instagram</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/lay-youtube-on-mobile-no-distractions-for-2024/"><u>AutoPlay YouTube on Mobile, No Distractions for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-dark-fantasy-in-our-in-depth-look-at-bloodborne-gameplay/"><u>Discover Dark Fantasy in Our In-Depth Look at Bloodborne Gameplay</u></a></li>
+<li><a href="https://driver-install.techidaily.com/enhance-your-pc-display-updating-hdmi-drivers-in-w10w11/"><u>Enhance Your PC Display: Updating HDMI Drivers in W10/W11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-connectivity-for-gamers-a-critical-look-at-the-razer-portal-review/"><u>Mastering Connectivity for Gamers: A Critical Look at the Razer Portal Review</u></a></li>
+<li><a href="https://fox-access.techidaily.com/salty-sessions-captured-best-cams-for-surfers-for-2024/"><u>Salty Sessions Captured - Best Cams for Surfers for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/securing-online-access-a-comprehensive-tutorial-for-setting-up-a-nintendo-network-id-on-your-3ds-device/"><u>Securing Online Access: A Comprehensive Tutorial for Setting Up a Nintendo Network ID on Your 3DS Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-buying-the-google-pixelbook-go-high-performance-meets-costly-investment/"><u>The Ultimate Guide to Buying The Google Pixelbook Go: High Performance Meets Costly Investment</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/understanding-the-dependency-settings-pane-a-comprehensive-guide/"><u>Understanding the Dependency Settings Pane: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-music-and-voice-control-in-the-latest-apple-homepod-mini-review/"><u>Unveiling the Power of Music and Voice Control in the Latest Apple HomePod Mini Review</u></a></li>
 </ul></div>
 

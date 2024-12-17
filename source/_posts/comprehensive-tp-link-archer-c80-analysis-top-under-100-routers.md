@@ -1,7 +1,7 @@
 ---
 title: Comprehensive TP-Link Archer C80 Analysis - Top Under $100 Routers
-date: 2024-12-04T18:23:11.675Z
-updated: 2024-12-10T16:49:03.409Z
+date: 2024-12-11T17:36:43.903Z
+updated: 2024-12-16T21:39:03.800Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive TP-Link Archer C80 Analysis - Top Under $100 Routers
@@ -17,6 +17,10 @@ thumbnail: https://www.lifewire.com/thmb/hnfn1HKm08TJxpBixlaHeqOfiug=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Antop AT-127
 
@@ -47,7 +51,7 @@ Lifewire / Erika Rawes
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -71,10 +75,6 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -85,11 +85,11 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup: Easier than most**
 
@@ -107,10 +107,14 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Range: Could be better**
@@ -128,10 +132,6 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -174,24 +174,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-speaking-through-screens-effective-communication-on-youtube/"><u>[New] 2024 Approved Speaking Through Screens Effective Communication on YouTube</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-screenflow-mastery-on-macos-uncovered/"><u>[New] ScreenFlow Mastery on macOS Uncovered</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-saving-smiles-the-ultimate-list-of-twitvid-tools/"><u>[Updated] 2024 Approved Saving Smiles The Ultimate List of TwitVid Tools</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/1722881003369-ace-those-classes-with-youtube-premiums-exclusive-student-deals/"><u>Ace Those Classes with YouTube Premium's Exclusive Student Deals!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/culinary-carnage-uncovered-a-riveting-overview-of-overcooked-2/"><u>Culinary Carnage Uncovered: A Riveting Overview of Overcooked! 지 2</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-enjoyable-gaming-experiences-with-pokemon-shining-pearl/"><u>Discover Enjoyable Gaming Experiences with Pokemon Shining Pearl</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-unexpected-wonders-of-yokus-island-express-adventure-game/"><u>Exploring the Unexpected Wonders of Yoku's Island Express Adventure Game</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-investing-in-quality-the-path-to-top-tier-fb-video-ads/"><u>In 2024, Investing in Quality The Path to Top-Tier FB Video Ads</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lenovos-revolutionary-foldable-laptop-the-x1-fold-exploring-its-exceptional-features-and-limitations/"><u>Lenovo's Revolutionary Foldable Laptop - The X1 Fold: Exploring Its Exceptional Features and Limitations</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/marvels-avengers-movie-critique-surpassingly-ordinary-or-just-fine/"><u>Marvel's Avengers Movie Critique: Surpassingly Ordinary or Just Fine?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-elegance-and-intelligence-an-essential-review-of-the-samsung-galaxy-watch/"><u>Mastering Elegance and Intelligence - An Essential Review of the Samsung Galaxy Watch</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211375438-9780061748950-papal-magic/"><u>Papal Magic | Free Book</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/snickerscribble-program-for-2024/"><u>SnickerScribble Program for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/systems-daylight-savings-failure-wont-rise/"><u>System's Daylight Savings Failure: Won't Rise</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tablet-vs-e-reader-comparison-ipad-against-kindle-and-nook-devices/"><u>Tablet Vs. E-Reader Comparison: IPad Against Kindle and Nook Devices</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/top-20-open-access-free-pubg-montages-for-2024/"><u>Top 20 Open Access, Free PUBG Montages for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/understanding-superior-performance-of-evs-over-traditional-gas-powered-cars/"><u>Understanding Superior Performance of EVs Over Traditional Gas-Powered Cars</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-performance-of-new-imacs-m1-chip-a-comprehensive-review-and-visual-exploration/"><u>Unveiling the Performance of New iMac's M1 Chip - A Comprehensive Review and Visual Exploration</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/what-to-consider-with-googles-password-protection/"><u>What to Consider with Google's Password Protection</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-game-capture-software-rivalry-obs-vs-shadowplay-for-2024/"><u>[New] Game Capture Software Rivalry OBS Vs. ShadowPlay for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-your-guide-to-retracing-fbs-most-watched-videos-now/"><u>[New] In 2024, Your Guide to Retracing FB’s Most-Watched Videos, Now</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-next-gen-screen-capture-unleashed-apeaksofts-2023-review/"><u>[New] Next-Gen Screen Capture Unleashed Apeaksoft’s 2023 Review</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-edge-and-elegance-in-figure-skating/"><u>[Updated] Edge and Elegance in Figure Skating</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-selection-high-quality-zero-price-free-luts/"><u>2024 Approved The Ultimate Selection High Quality, Zero Price Free LUTs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assessing-applecare-plus-5-compelling-justifications-for-add-on-coverage/"><u>Assessing AppleCare Plus: 5 Compelling Justifications for Add-On Coverage</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-latest-lg-stylo-style-stylus-and-performance-reviewed/"><u>Evaluating the Latest LG Stylo - Style, Stylus & Performance Reviewed</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/eyechrome-studio-direct-os-screencap/"><u>EyeChrome Studio Direct OS Screencap</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/find-your-perfect-pc-part-with-toms-hardware-advice/"><u>Find Your Perfect PC Part with Tom's Hardware Advice</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hidden-gems-in-sound-tech-avantree-aria-headphones/"><u>Hidden Gems in Sound Tech: Avantree Aria Headphones</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-vivo-x100-pro-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Vivo X100 Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-voice-assistant-gadgets-the-2024-market-roundup/"><u>Leading Voice Assistant Gadgets: The 2024 Market Roundup</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/masterclass-the-different-faces-of-hand-tracker-for-2024/"><u>Masterclass The Different Faces of Hand Tracker for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nord-n100-assessment-by-oneplus-top-picks-for-the-thrifty-techie/"><u>Nord N100 Assessment by OnePlus - Top Picks for the Thrifty Techie!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-perfect-blend-of-style-and-mobility-in-the-acer-chromebook-r-11-review/"><u>The Perfect Blend of Style and Mobility in the Acer Chromebook R 11 Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-cutting-edge-aerial-camera-tech-of-dji-mavic-3/"><u>The Ultimate Guide to the Cutting Edge Aerial Camera Tech of DJI Mavic 3</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-resolving-wwe-2k-battlegrounds-level-100-directx-11-glitches/"><u>Troubleshooting Guide: Resolving WWE 2K Battlegrounds' Level 10.0 DirectX 11 Glitches</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-latest-apple-tv-4k-a-comprehensive-review-of-the-new-genesis/"><u>Unboxing the Latest Apple TV 4K: A Comprehensive Review of the New Genesis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/urban-armor-gear-macbook-pro-protector-assessment-durable-and-functional/"><u>Urban Armor Gear MacBook Pro Protector Assessment: Durable and Functional</u></a></li>
 </ul></div>
 

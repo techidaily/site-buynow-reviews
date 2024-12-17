@@ -1,7 +1,7 @@
 ---
 title: "Taking on Luxury with Savings: Comparing Features of Apple's Latest iPad Air 4 and iPad Pro"
-date: 2024-08-22T16:13:45.040Z
-updated: 2024-08-23T16:13:45.040Z
+date: 2024-12-10T19:59:16.073Z
+updated: 2024-12-16T20:21:30.473Z
 categories:
   - BestProducts
 description: "This Article Describes Taking on Luxury with Savings: Comparing Features of Apple's Latest iPad Air 4 and iPad Pro"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/877cc6ce606cb4f4b4e6d66d093a7f03e00e14887
 ## Fun in the Cosmos: Constructing Cities on Mars with a Side of Interplanetary Gusts
 
 3
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Paradox Interactive Surviving Mars
 
@@ -38,6 +42,10 @@ thumbnail: https://thmb.techidaily.com/877cc6ce606cb4f4b4e6d66d093a7f03e00e14887
 
 3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
@@ -61,9 +69,6 @@ thumbnail: https://thmb.techidaily.com/877cc6ce606cb4f4b4e6d66d093a7f03e00e14887
 
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -75,8 +80,9 @@ thumbnail: https://thmb.techidaily.com/877cc6ce606cb4f4b4e6d66d093a7f03e00e14887
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Humans have never been so annoying**
 
  The game begins with a multi-hour long tutorial program, which I highly recommend you undertake before playing the game. There are so many various aspects to the game—basic needs, threats to your colony, resources to import and export—that it would be disastrous not to get caught up to speed. It took me a total of five hours to complete these tutorials, but I had to restart a couple after a couple operator error moments when I accidentally destroyed my only water vaporizer and had no idea how to rebuild it. So, it will probably take you less.
@@ -91,9 +97,6 @@ thumbnail: https://thmb.techidaily.com/877cc6ce606cb4f4b4e6d66d093a7f03e00e14887
 
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
  The colonists also come with their own unique personality traits, from veganism to survivalist to alcoholic, so they all have their own service needs. You’ll have to factor this into your game as you build up your population. If someone doesn’t get their needs met, it can land them in the hospital, or worse, on a rocket back home. And don’t get me started on the chaos that erupts when humans start freezing during a cold spell or complain when they don’t have enough oxygen. The nerve of some colonists!
@@ -112,21 +115,18 @@ thumbnail: https://thmb.techidaily.com/877cc6ce606cb4f4b4e6d66d093a7f03e00e14887
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Competition: Other city-building games**
 
  What makes Surviving Mars unique is that technically it is a city-[building game](https://www.lifewire.com/best-offline-building-games-4580415) , but instead of building bus lines, you have to build oxygen and water lines to ensure colony survival. However, just like city-building games, you are building infrastructure. If you’re solely focused on building up a city, Surviving Mars would be a great addition to your library, but so would[Cities: Skylines](https://store.steampowered.com/app/255710/Cities%5FSkylines/) (view on Steam). Both focus on creating a habitat from scratch—one just happens to be hundreds of thousands of miles away while the other could be in a tropical or a Midwestern climate.
@@ -140,8 +140,9 @@ DbSchema database designer for all databases, schema design in the team, schema 
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Surviving Mars
@@ -154,14 +155,11 @@ DbSchema database designer for all databases, schema design in the team, schema 
 * Graphics  HD 4600/Geforce 620/Radeon 6450 or equivalent GPUs with 1 GB of video RAM
 * Game Updates  Green Planet, Project Laika, Space Race, Colony Design Set, Marsvision Song Contest
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -170,4 +168,26 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-audio-outliers-best-sound-distortion-apps-for-your-device/"><u>[New] Audio Outliers Best Sound Distortion Apps for Your Device</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-finding-value-in-cheap-gopro-sales-online/"><u>[New] In 2024, Finding Value in Cheap GoPro Sales Online</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-ultimate-2024-guide-to-enable-monetization-on-youtube-videos/"><u>[New] The Ultimate 2024 Guide to Enable Monetization on YouTube Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-a-full-analysis-of-the-lightroom-application-for-android/"><u>[Updated] 2024 Approved A Full Analysis of the Lightroom Application for Android</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/blueear-bluetooth-beanie-unveiled-stylish-headgear-with-high-sound-performance-reviewed/"><u>Blueear Bluetooth Beanie Unveiled: Stylish Headgear with High Sound Performance Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-nhl-19-appraisal-the-allure-of-virtual-hockey-action/"><u>Comprehensive NHL 19 Appraisal: The Allure of Virtual Hockey Action</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/counterfeit-ai-tool-in-browser-endangers-instagram-and-whatsapp-passwords/"><u>Counterfeit AI Tool in Browser Endangers Instagram and WhatsApp Passwords</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/does-tp-links-av1300-fail-to-deliver-on-promised-wifi-range-enhancement-expert-analysis-inside/"><u>Does TP-Link's AV1300 Fail to Deliver on Promised WiFi Range Enhancement? Expert Analysis Inside</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-excellent-connectivity-with-the-simplistic-design-of-clearstreams-eclipse-antenna-a-comprehensive-review/"><u>Experience Excellent Connectivity with the Simplistic Design of ClearStream's Eclipse Antenna - A Comprehensive Review!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-high-value-low-cost-fossil-athletic-shoes/"><u>Expert Analysis of High-Value, Low-Cost Fossil Athletic Shoes</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/expert-tips-for-zoom-clarity-in-teams/"><u>Expert Tips for Zoom Clarity in Teams</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/future-ready-an-in-depth-review-of-the-netgear-nighthawk-ax8-wireless-extender/"><u>Future-Ready: An In-Depth Review of the Netgear Nighthawk AX8 Wireless Extender</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-100-bootloader-easily-by-drfone-android/"><u>How to Unlock Honor 100 Bootloader Easily</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-stepwise-mastery-of-green-screen-techniques-in-kinemaster/"><u>In 2024, Stepwise Mastery of Green Screen Techniques in Kinemaster</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719172049939-secure-your-ultimate-marvel-gaming-experience-now/"><u>Secure Your Ultimate Marvel Gaming Experience Now</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/taste-of-tomorrow-top-2024-audio-innovations-reviewed/"><u>Taste of Tomorrow: Top 2024 Audio Innovations Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tested-and-reviewed-the-urban-armor-resilient-laptop-bag-perfect-for-macbook-professionals/"><u>Tested & Reviewed: The Urban Armor Resilient Laptop Bag Perfect for MacBook Professionals</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/comprehensible-guide-to-economical-webinars-on-youtube/"><u>Your Comprehensible Guide to Economical Webinars on YouTube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/zte-blade-a3y-review-delivering-quality-in-a-budget-handset-range/"><u>ZTE Blade A3Y Review – Delivering Quality in a Budget Handset Range</u></a></li>
+</ul></div>
 

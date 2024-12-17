@@ -1,7 +1,7 @@
 ---
 title: "TP-Link's Lightweight and Easy-to-Carry Travel Router (WR902AC): Uninterrupted Internet Anywhere, Anytime"
-date: 2024-08-22T16:18:45.256Z
-updated: 2024-08-23T16:18:45.256Z
+date: 2024-12-11T21:38:12.287Z
+updated: 2024-12-16T21:19:07.990Z
 categories:
   - BestProducts
 description: "This Article Describes TP-Link's Lightweight and Easy-to-Carry Travel Router (WR902AC): Uninterrupted Internet Anywhere, Anytime"
@@ -61,6 +61,10 @@ thumbnail: https://thmb.techidaily.com/f0a710f8b121815cf9221ed63e6d5399bb71fd342
 
 [Jump to Review](https://www.lifewire.com/#toc-basic-option-netgear-cm500-docsis-30-16x4-cable-modem)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Best Overall
 
 [Arris Surfboard SB6190](https://www.amazon.com/dp/B016PE1X5K/?tag=lifewire-onsite-prod-20&ascsubtag=4082523%7Cnf5214e1caebb46e4825c05bae32bf72217%7CB016PE1X5K)
@@ -114,6 +118,10 @@ PHOTO: Amazon
 **DOCSIS Standard:** 3.1 |**Channels:** 2x2 / 32x8 |**Speed:** 2.5Gbps / 800Mbps |**Voice Support:** No |**MOCA:** No |**Wired Ports:** 1 (2.5Gbps Ethernet)
 
 [5 Things to Consider Before Buying a Wireless Router](https://www.lifewire.com/best-wi-fi-6-routers-5181486)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Best for Multi-Gigabit Internet
 
@@ -172,9 +180,6 @@ PHOTO: Amazon
 
 [The Best Long-Range Routers of 2024](https://www.lifewire.com/best-wireless-routers-4038590)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Best Value
 
 [Arris Surfboard SB8200](https://www.amazon.com/dp/B07DY16W2Z/?tag=lifewire-onsite-prod-20&ascsubtag=4082523%7Cnf5214e1caebb46e4825c05bae32bf72217%7CB07DY16W2Z)
@@ -202,9 +207,6 @@ PHOTO: Amazon
 
 **DOCSIS Standard:** 3.1 |**Channels:** 2x2 / 32x8 |**Speed:** 2Gbps / 800Mbps |**Voice Support:** No |**MOCA:** No |**Wired Ports:** 2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## Basic Option
 
 [Netgear CM500](https://www.amazon.com/dp/B06XH46MWW?tag=lifewire-onsite-prod-20&ascsubtag=4082523%7Cnf5214e1caebb46e4825c05bae32bf72217%7CB06XH46MWW)
@@ -229,6 +231,10 @@ PHOTO: Amazon
 
  It does not, however, work with bundled voice services that some people still use with cable bundles. When it comes to raw functionality, the CM500 can support 16 downloads and four uploads simultaneously. It can support HD and 4K video streaming, too. And all of this comes in at an affordable price that will save you money on a monthly rental.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What to Look For in a Cable Modem
 
  The world is becoming increasingly connected, and ensuring you have a decent connection in your home is more important than ever. Not only does that mean ensuring you’re subscribed to a fast internet service, but you also have the proper hardware to provide a fast and stable connection whenever needed.
@@ -242,26 +248,25 @@ PHOTO: Amazon
 ![Motorola MG7700](https://www.lifewire.com/thmb/1SZf8UwoZuAHJOglWXBzaJfrml8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-2-5bacf868c9e77c002c9555f3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### When Should You Rent Your Cable Modem?
 
  Before diving into the features to consider when buying a modem, it’s worth considering the possibility of renting one from your ISP. The modems on offer by ISPs are generally decent in quality (though not as good as the modems you can buy), plus going with a rental saves you from doing the legwork of finding one on your own. Further, if anything goes wrong with your cable modem, your ISP will take responsibility for fixing or replacing it, often even sending a technician to your home to take care of everything for you.
 
 ![Netgear-Nighthawk C7000](https://www.lifewire.com/thmb/9DXQaEhGunRAssafYX-TGybEsSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear-Nighthawk-C7000-5x4-465340ea47c74a319d9e8ae148401aeb.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Generally, though, we recommend against renting a modem from your ISP. Since the rental often comes out to between $10 and $15 per month, you can save a lot of money by purchasing your own. For example, buying a modem/router combo for just $75 can quickly recoup your costs in less than a year.
 
  That doesn’t mean that there aren’t situations in which you should rent a modem. For starters, if you’re not very tech-savvy or don’t like troubleshooting problems, renting a modem may be the way to go, as you’ll often get complete repair services from your ISP.
 
  For most, we recommend buying your modem. You’ll get much more control over your home network, and after a few years, you’ll have recouped the cost of the devices you would have otherwise had to rent. There's no need to worry about hardware problems either since they are rare among the more well-known brands, and all come with a standard warranty.  
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ### Compatibility with Your ISP
 
  There are other advantages to buying your modem. For starters, the modems you can rent from your ISP are usually on the older side and may not offer as fast or stable of a connection as you could get with something more modern. Most of the time, ISP modems lack features, preventing you from getting much control over your home network, which might be vital if you want to tweak your network’s settings.
@@ -272,9 +277,6 @@ PHOTO: Amazon
 
 ![Motorola MG7700 combo](https://www.lifewire.com/thmb/mczhPmklHisJ3nV93MiYFCIrGPA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-4-5bacf875c9e77c0025819a90.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  FAQ
 
 * What’s the difference between DOCSIS 3.0 and DOCSIS 3.1?  
@@ -304,8 +306,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -313,4 +313,17 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/updated-vrecorder-ez-instal-your-step-by-step-for-2024/"><u>[Updated] VRecorder EZ-Instal Your Step-by-Step for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-oppo-a38-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Oppo A38 Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-watch-series-6-a-refined-version-maintains-market-leadership/"><u>Apple Watch Series 6: A Refined Version Maintains Market Leadership</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/best-free-apple-iphone-15-imei-checker-by-drfone-ios/"><u>Best Free Apple iPhone 15 IMEI Checker</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-find-my-iphone-without-apple-id-on-your-apple-iphone-15-plus-by-drfone-ios/"><u>How to Remove Find My iPhone without Apple ID On your Apple iPhone 15 Plus?</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-restore-audio-output-on-your-realtek-device-after-a-malfunction/"><u>How to Restore Audio Output on Your Realtek Device After a Malfunction</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ion-tailgater-plus-assessed-uninterrupted-sound-and-powerful-bass-at-a-touch-for-outdoor-entertainment/"><u>ION Tailgater Plus Assessed: Uninterrupted Sound & Powerful Bass at a Touch for Outdoor Entertainment.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/premium-subscription-essentials-6-key-points-to-consider/"><u>Premium Subscription Essentials: 6 Key Points to Consider</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/step-by-step-guide-to-adding-a-new-folder-via-windows-control-panel-expert-tips-from-yl-computing/"><u>Step-by-Step Guide to Adding a New Folder via Windows Control Panel - Expert Tips From YL Computing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-mlb-the-show-2019-when-sporting-graphics-meet-role-playing-surprises-revealed/"><u>Unveiling MLB The Show 2019: When Sporting Graphics Meet Role-Playing Surprises Revealed</u></a></li>
+</ul></div>
 

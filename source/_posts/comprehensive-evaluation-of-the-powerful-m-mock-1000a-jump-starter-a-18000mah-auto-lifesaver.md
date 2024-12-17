@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Evaluation of the Powerful M Mock 1000A Jump Starter - A 18000mAh Auto Lifesaver
-date: 2024-11-27T22:48:49.037Z
-updated: 2024-12-03T20:26:33.684Z
+date: 2024-12-14T00:18:37.821Z
+updated: 2024-12-16T22:17:57.692Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Evaluation of the Powerful M Mock 1000A Jump Starter - A 18000mAh Auto Lifesaver
@@ -19,7 +19,7 @@ thumbnail: https://www.lifewire.com/thmb/RyrDQ4UMABRCrisk0CfrIlK8j8g=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
@@ -51,7 +51,7 @@ Lifewire / Gannon Burgett
 ![Max Oak](https://www.lifewire.com/thmb/0sYGw-7sF6j5aqPA13sWjU-Y2b4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
@@ -82,10 +82,6 @@ Lifewire / Gannon Burgett
 
 ![Max Oak](https://www.lifewire.com/thmb/SHsB9QkFaBbOrU6sw55TzNOqC7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_4Web-5c8ff4adc9e77c0001ff0b36.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Gannon Burgett
 
  As for the materials, the metal enclosure and place ends give it a fairly solid feel, but the metal doesn't sit perfectly flush with the plastic ends, at least not in our model. It could be a one-off quality control issue or it might simply be the way in which the charger is constructed, but it's definitely noticeable.
@@ -95,6 +91,10 @@ Lifewire / Gannon Burgett
  At 2.77 pounds, it weighs many times more than most smartphones and nearly as much as most compact laptops.
 
  Charging the device is done via a small 16.8-volt 2.5A plug-in style port on the opposite side of the power button. Overall, the design is roughly what you'd expect from a 50000mAh laptop battery charger. Yes, it's heavy, yes it's quite beefy in size, but it comes with the territory.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Simple to start, but yet another adapter to carry around**
 
@@ -107,10 +107,6 @@ Lifewire / Gannon Burgett
  The MaxOak 50000mAh manages to charge at a decent rate considering its capacity, but we would’ve liked to see more high-powered ports for speedier charging. We charged and fully drained the MaxOak power bank five times and charging took roughly six to eight hours per recharge with an average of seven hours and fifteen minutes.
 
 ![Max Oak](https://www.lifewire.com/thmb/FlP4JZUVLoJ3DjKoSRUIFuf1peY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_6Web-5c8ff3e6c9e77c0001a926ff.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -128,10 +124,6 @@ Lifewire / Gannon Burgett
 
  The MaxOak 50000mAh power bank comes in at $135.99 at the time of this review. This is a reasonable price when taking into consideration how much battery capacity you're getting with it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Competition: One in the same**
 
  In terms of pure capacity, the MaxOak doesn't have much competition. There are only two other 50000mAh power banks on Amazon: the Crave PowerPack and the[Renogy power bank](https://www.amazon.com/Renogy-50000mAh-Portable-Generator-External/dp/B07CQCMZ4Q/?tag=lifewire-onsite-prod-20&ascsubtag=4589398%7Cn970af9c77c9d48e5afeadf350862a65723%7C) and all of them use the_exact_ same design, just with different branding.
@@ -148,11 +140,19 @@ Lifewire / Gannon Burgett
 
  Overall, the MaxOak 50000mAh is a decent power bank with massive capacity. However, it isn't designed with newer computers and devices in mind. If you have an older laptop on hand that isn't a MacBook (the MaxOak doesn't support any MagSafe connectors) or doesn't use USB Type-C for charging, it'll get the job done. But if your smartphone or laptop is newer and relies on more recent and powerful connections, you're going to want to look elsewhere.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Jackery PowerBar Battery Pack](https://www.lifewire.com/jackery-powerbar-battery-pack-review-4589480)
 * [ChargeTech 27000mAh Battery Pack](https://www.lifewire.com/chargetech-27000mah-battery-pack-review-4589409)
 * [Anker PowerCore+ 26800 Battery Pack Bundle](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -184,20 +184,18 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-break-free-from-youtube-top-5-innovative-video-editing-tools/"><u>[New] In 2024, Break Free From Youtube Top 5 Innovative Video Editing Tools</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-chasing-victories-olympics-year-2022/"><u>[Updated] Chasing Victories Olympics, Year 2022</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-iphone-photography-using-hdr/"><u>2024 Approved Expert iPhone Photography Using HDR</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-grandiose-know-it-all-challenges-online/"><u>2024 Approved Grandiose KNOW-It All Challenges Online</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2024s-top-rated-wi-fi-signal-amplifiers-for-flawless-connectivity/"><u>2024'S Top Rated Wi-Fi Signal Amplifiers for Flawless Connectivity</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-detailed-look-into-garmin-gpsmap-64st-your-ultimate-handheld-navigation-companion/"><u>A Detailed Look Into Garmin GPSMAP 64St - Your Ultimate Handheld Navigation Companion</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722592353010-abrasion-resistance-ensures-the-longevity-of-dental-materials-against-wear-and-tear/"><u>Abrasion Resistance Ensures the Longevity of Dental Materials Against Wear and Tear.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/advanced-techniques-for-upgrading-intel-based-imacs/"><u>Advanced Techniques for Upgrading Intel-Based iMacs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-tech-marvel-a-detailed-look-at-the-lenovo-tab-m10s-hd-display-for-under-200-202cu/"><u>Affordable Tech Marvel - A Detailed Look at the Lenovo Tab M10's HD Display for Under $200 (202Cu)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazfit-bip-reviewed-outstanding-performance-at-an-affordable-entry-level-price-point/"><u>Amazfit Bip Reviewed: Outstanding Performance at an Affordable Entry-Level Price Point</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/analyzing-the-factors-behind-wii-us-popularity-surge/"><u>Analyzing the Factors Behind Wii U's Popularity Surge</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ning-the-video-odyssey-how-to-create-an-engaging-youtube-channel-for-2024/"><u>Beginning the Video Odyssey How to Create an Engaging YouTube Channel for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On OnePlus Nord CE 3 Lite 5G? | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/1723808246011-spotting-overheating-signs-in-your-pcs-central-unit-fixes-inside/"><u>Spotting Overheating Signs in Your PC's Central Unit – Fixes Inside</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/understanding-and-controlling-macbook-core-i7-temperature/"><u>Understanding and Controlling MacBook Core I7 Temperature</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-splitting-screen-techniques-for-engaging-youtube-content/"><u>[New] Splitting Screen Techniques for Engaging YouTube Content</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-navigating-kinemasters-zoom-features-for-professional-results/"><u>[Updated] 2024 Approved Navigating Kinemaster's Zoom Features for Professional Results</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-optimizing-your-project-b-roll-utilization-tips/"><u>[Updated] In 2024, Optimizing Your Project B-Roll Utilization Tips</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-which-ios-app-crushes-in-video-editing-cameo-or-filmorago/"><u>[Updated] Which iOS App Crushes in Video Editing? Cameo or FilmoraGo?</u></a></li>
+<li><a href="https://win-able.techidaily.com/battle-ready-fix-your-titanfall-2-crashing-problems-in-minutes/"><u>Battle Ready: Fix Your Titanfall 2 Crashing Problems in Minutes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exclusive-prime-day-bargains-snag-a-quality-roku-at-unmatched-prices/"><u>Exclusive Prime Day Bargains: Snag a Quality Roku at Unmatched Prices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-d-link-powerline-av-2am-wireless-extender-kit-effortless-installation-speedy-data-transfer-rates/"><u>In Depth Look at D-Link Powerline AV 2Am Wireless Extender Kit: Effortless Installation, Speedy Data Transfer Rates</u></a></li>
+<li><a href="https://win-tips.techidaily.com/simple-tricks-how-to-change-your-youtube-videos-into-3gp-format-with-ease/"><u>Simple Tricks: How to Change Your YouTube Videos Into 3GP Format with Ease</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-definitive-troubleshooting-guide-for-mending-nspr4dll-absence/"><u>The Definitive Troubleshooting Guide for Mending Nspr4.dll Absence</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-review-the-moto-g-powers-impressive-energy-longevity-meets-stunning-design-quality/"><u>Ultimate Review: The Moto G Power's Impressive Energy Longevity Meets Stunning Design Quality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unearthing-assassins-creed-valhalla-an-epic-tale-of-norse-warriors-set-in-medieval-europe/"><u>Unearthing Assassin’s Creed: Valhalla - An Epic Tale of Norse Warriors Set in Medieval Europe</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-efficiency-of-rexing-v1-dash-cam-an-in-depth-look-at-its-cost-effectiveness/"><u>Unveiling the Efficiency of Rexing V1 Dash Cam: An In-Depth Look at Its Cost-Effectiveness</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-optimize-your-editing-process-leveraging-the-automatic-ducking-functionality-of-final-cut-pro-x-to-manage-sound-levels-efficiently/"><u>Updated 2024 Approved Optimize Your Editing Process Leveraging the Automatic Ducking Functionality of Final Cut Pro X to Manage Sound Levels Efficiently</u></a></li>
 </ul></div>
 

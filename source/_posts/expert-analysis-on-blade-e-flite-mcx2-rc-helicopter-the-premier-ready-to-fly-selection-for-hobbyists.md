@@ -1,7 +1,7 @@
 ---
 title: "Expert Analysis on Blade E-Flite mCX2 RC Helicopter: The Premier Ready-To-Fly Selection for Hobbyists"
-date: 2024-08-15T09:40:08.358Z
-updated: 2024-08-16T09:40:08.358Z
+date: 2024-12-10T17:51:45.679Z
+updated: 2024-12-16T22:25:02.825Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Analysis on Blade E-Flite mCX2 RC Helicopter: The Premier Ready-To-Fly Selection for Hobbyists"
@@ -39,13 +39,15 @@ Lifewire / Nick Jaynes
 4.5
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/kUpys0K04ePH0SuEfAENz--MXSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
@@ -70,8 +72,9 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: All-plastic, but sturdy and subtle**
 
  The Anker PowerDrive 2 might not be the sharpest or most cutting-edge looking in-car USB charger, but what it lacks in visual pizazz, it more than makes up for in sturdiness.
@@ -85,8 +88,9 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Fast charging for demanding devices**
 
  The best part of the Anker PowerDrive 2 is its charging. It has the ability to charge iPads simultaneously without getting overheated thanks to its PowerIQ and VoltageBoost technology. Each USB port can output a maximum 5V/2.4A, for a total of 24W. That’s in line with other car[chargers](https://www.lifewire.com/best-wireless-phone-chargers-4138571) we tested, but the PowerIQ technology can help identify device and deliver the fastest possible charge. This also gives you some overvoltage protection to make sure something like a smartwatch doesn’t fry when you plug it in.
@@ -103,9 +107,6 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Competition: A handful of rivals**
 
  The RAVPower 24W charger is one of Anker’s main rivals. It has a metal exterior, a lower price tag, and theoretically identical power output. However, its construction is far less robust. In fact, its metal outside easily separates from the internal components easily making Anker a better pick for longevity.
@@ -121,8 +122,9 @@ Lifewire / Nick Jaynes
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  PowerDrive 2 24W Dual USB Car Charger
@@ -140,8 +142,6 @@ Lifewire / Nick Jaynes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -149,4 +149,24 @@ Lifewire / Nick Jaynes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-exploring-leading-3d-modeling-platforms-for-animation-artists/"><u>[Updated] 2024 Approved Exploring Leading 3D Modeling Platforms for Animation Artists</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-five-easy-steps-to-enhance-photo-hues/"><u>2024 Approved Five Easy Steps to Enhance Photo Hues</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/erate-keyword-acquisition-the-finest-7-free-taggification-apps-for-youtube-videos/"><u>Accelerate Keyword Acquisition The Finest 7 Free Taggification Apps for YouTube Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/complete-guide-to-the-fitbit-inspire-hr-smartwatch-your-ultimate-247-health-companion/"><u>Complete Guide to the Fitbit Inspire HR Smartwatch - Your Ultimate 24/7 Health Companion</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-e-reader-guide-amazon-kindle-paperwhite-8th-generation-the-ultimate-bookworm-companion/"><u>Comprehensive E-Reader Guide: Amazon Kindle Paperwhite (8Th Generation) - The Ultimate Bookworm Companion</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-gimp-evaluation-the-ultimate-no-cost-cross-device-image-editing-software/"><u>Comprehensive GIMP Evaluation: The Ultimate No-Cost, Cross-Device Image Editing Software</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-performance-and-heft-in-depth-look-at-the-radpower-radcity-5-plus/"><u>Evaluating Performance & Heft: In-Depth Look at the RadPower RadCity 5 Plus</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/extend-your-wifi-reach-the-definitive-list-of-superior-range-routers-for-2n-24/"><u>Extend Your WiFi Reach: The Definitive List of Superior Range Routers for 2N 24</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-obscure-to-noteworthy-your-path-to-a-better-fb-image/"><u>From Obscure to Noteworthy: Your Path to a Better FB Image</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Tecno Spark 20C | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-understanding-the-underrated-downsides-of-vr/"><u>In 2024, Understanding the Underrated Downsides of VR</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/reset-itunes-backup-password-of-apple-iphone-12-mini-prevention-and-solution-by-drfone-ios/"><u>Reset iTunes Backup Password Of Apple iPhone 12 mini Prevention & Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-tab-a-2020-review/"><u>Samsung Galaxy Tab A (2020) Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-dji-phantom-4-pro-v20-nearly-perfect-aerial-photography-review/"><u>Unboxing the DJI Phantom 4 Pro v2.0 - Nearly Perfect Aerial Photography Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-features-in-depth-analysis-of-the-powerful-space-saving-jaco-smartpro-portable-tire-filler/"><u>Unpacking the Features: In-Depth Analysis of the Powerful, Space-Saving Jaco SmartPro Portable Tire Filler</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-wonders-of-the-amazon-kindle-paperwhite-the-7th-generation-review/"><u>Unveiling the Wonders of the Amazon Kindle Paperwhite - The 7Th Generation Review</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of Rayman Legends: An Expert's Take on the Masterfully Crafted 2D Adventure"
-date: 2024-11-13T17:02:13.695Z
-updated: 2024-11-15T16:57:07.070Z
+date: 2024-12-10T19:57:22.839Z
+updated: 2024-12-16T19:42:40.415Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis of Rayman Legends: An Expert's Take on the Masterfully Crafted 2D Adventure"
@@ -46,13 +46,6 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/JA4MI_SE7Alxl0MLR7rMoIVzKgI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Zach Sweat
 
 [View On Amazon $150](https://www.amazon.com/Elite-2-Controller-Black-Xbox-One/dp/B07SFKTLZM/?tag=lifewire-onsite-prod-20&ascsubtag=4796457%7Cnbd5105eb0dc54e3e804df51703e5036902%7CB07SFKTLZM) [View On Walmart $150](https://www.walmart.com/ip/Microsoft-Xbox-Elite-Wireless-Controller-Series-2-Black-FST-00001/784834522) [View On Adorama.com $180](https://www.adorama.com/xbfst00001.html)
@@ -79,16 +72,7 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/t8wI_yN2s_uIQ1leo87MmOnXxb4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-5-0c39ec4e89eb45b094471681efec0e7d.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -118,13 +102,6 @@ Lifewire / Zach Sweat
  Inside the case, the material has also been swapped from grey to black to continue the darker theme of the Series 2\. You’ll also notice the foam pad is no longer here, as that’s where the dock sits. This dock can be removed or used inside the case and attaches with a strong magnet. The last two parts of the case are unchanged from Series 1, with a mesh cradle for accessories on the top and a foam organizer to hold all the swappable thumbsticks and paddles when not in use.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/TRrezKVbAUPs2Rud3g4_iOHyxB8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-2-4b3f9d8acd1440089989378253d902f4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -164,7 +141,15 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance/Durability: Enhanced performance and durability**
 
@@ -189,16 +174,7 @@ Lifewire / Zach Sweat
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Like buying a brand new console**
@@ -211,14 +187,11 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/6VfCJGOyjLkAkE_mjiHr7rz8Gyw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-6-0c1d7a2ae4e8443ea5b69f559e52bd12.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
 
@@ -233,6 +206,10 @@ Lifewire / Zach Sweat
  **A truly awesome controller with a steep price point.**
 
  Everything we disliked about the original Elite controller has been improved with the second iteration, making it the best first-party controller you can get for XB1 or PC. However, the steep price point might be a hard pill to swallow for users who don’t like to splurge.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -266,21 +243,20 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-enhancing-youtube-presence-with-strategic-banners/"><u>[New] In 2024, Enhancing YouTube Presence with Strategic Banners</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-tech-titans-sharexs-challengers-exposed-for-2024/"><u>[New] Tech Titans ShareX's Challengers Exposed for 2024</u></a></li>
-<li><a href="https://win-ratings.techidaily.com/6-tecnicas-de-rescate-para-reintentos-fracasados-en-windows-10/"><u>6 Técnicas De Rescate Para Reintentos Fracasados en Windows 10</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/bike-and-bullets-an-in-depth-review-of-days-gone-in-a-post-apocalyptic-world/"><u>Bike and Bullets: An In-Depth Review of Days Gone in a Post-Apocalyptic World</u></a></li>
-<li><a href="https://program-issues.techidaily.com/comprehensive-solution-fixing-red-dead-online-pc-crashing-problems-easily/"><u>Comprehensive Solution: Fixing Red Dead Online PC Crashing Problems Easily</u></a></li>
-<li><a href="https://fox-that.techidaily.com/expert-advice-on-resolving-iphone-pc-connection-problems-quickly-and-easily/"><u>Expert Advice on Resolving iPhone PC Connection Problems Quickly and Easily</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-map-my-ride-an-ultimate-review-for-fitness-enthusiasts/"><u>Exploring Map My Ride - An Ultimate Review for Fitness Enthusiasts</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/free-film-feast-must-watch-movies-on-youtube-in-july-2024-our-recommendations/"><u>Free Film Feast: Must-Watch Movies on YouTube in July 2024 - Our Recommendations</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-oneplus-open-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from OnePlus Open to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-it-worth-it-thorough-review-of-the-high-end-alienware-aurora-r7-gaming-tower/"><u>Is It Worth It? Thorough Review of the High-End Alienware Aurora R7 Gaming Tower</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/making-an-informed-decision-to-upgrade-to-windows-11-or-not/"><u>Making an Informed Decision: To Upgrade to Windows 11 or Not?</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/mastering-data-storage-top-external-hard-drive-picks-for-seagate-backup-plus-users-updated-tips/"><u>Mastering Data Storage: Top External Hard Drive Picks for Seagate Backup Plus Users [Updated Tips]</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-the-airwaves-a-comprehensive-look-at-the-dji-mavic-3s-cutting-edge-aerial-imaging/"><u>Mastering the Airwaves: A Comprehensive Look at the DJI Mavic 3'S Cutting-Edge Aerial Imaging</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/stellar-secrets-expert-data-purging-strategies-and-insights/"><u>Stellar Secrets: Expert Data Purging Strategies and Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-iphone-models-for-gamers-the-ultimate-guide/"><u>Top iPhone Models for Gamers: The Ultimate Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-the-finest-mac-trackball-and-optical-mice-of-2024/"><u>Ultimate Selection: The Finest Mac Trackball & Optical Mice of 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-figures-unveiled-exploring-youtubes-curious-numbers-2017-for-2024/"><u>[Updated] Figures Unveiled! Exploring YouTube's Curious Numbers (2017) for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-flashlog-screen-grab-review-and-substitutes/"><u>[Updated] FlashLog Screen Grab Review and Substitutes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-behind-closed-doors-of-youtube-a-discovery-manual/"><u>[Updated] In 2024, Behind Closed Doors of YouTube A Discovery Manual</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-game-on-mobile-funimate-apk-setup-simplified/"><u>2024 Approved Game On Mobile Funimate APK Setup Simplified</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-compact-zoom-greatness-in-the-sx420-powershot/"><u>Discovering Compact Zoom Greatness in the SX420 PowerShot</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/essential-differences-macbook-air-against-macbook-pro-explored/"><u>Essential Differences: MacBook Air Against MacBook Pro Explored</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-erase-an-iphone-xs-max-without-apple-id-password-by-drfone-ios/"><u>In 2024, How To Erase an iPhone XS Max Without Apple ID Password?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-oppo-k11-5g-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Oppo K11 5G Phone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/intelligent-escort-ix-radar-detector-assessment-a-smart-device-adapting-with-your-driving-habits/"><u>Intelligent Escort iX Radar Detector Assessment: A Smart Device Adapting With Your Driving Habits</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-wi-fi-connectivity-a-thorough-examination-of-the-linksys-ac1900s-capabilities/"><u>Mastering Wi-Fi Connectivity: A Thorough Examination of the Linksys AC1900's Capabilities</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/streamlining-your-smart-household-introducing-matter-13-solutions/"><u>Streamlining Your Smart Household: Introducing Matter 1.3 Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-review-of-the-amazon-basics-hdtv-antenna-for-cost-effective-television-viewing/"><u>Top Review of the Amazon Basics HDTV Antenna for Cost-Effective Television Viewing</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-rated-4k-projection-displays-ultimate-guide-2024-edition/"><u>Top-Rated 4K Projection Displays: Ultimate Guide - 2024 Edition</u></a></li>
+<li><a href="https://some-tips.techidaily.com/uncovering-other-powerful-video-players-beyond-vlc-for-2024/"><u>Uncovering Other Powerful Video Players Beyond VLC for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/your-journeys-sidekicks-choosing-wisely/"><u>Your Journey's Sidekicks: Choosing Wisely</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unparalleled Quality, Top Performance in 430EX III-RT
-date: 2024-12-09T17:29:33.071Z
-updated: 2024-12-10T18:42:48.952Z
+date: 2024-12-10T23:23:52.155Z
+updated: 2024-12-16T23:42:15.859Z
 categories:
   - BestProducts
 description: This Article Describes Unparalleled Quality, Top Performance in 430EX III-RT
@@ -17,10 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/5taQkbn_ks7zo2LZcB9Gq8aAQmw=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## LG Gram 17
 
@@ -47,10 +43,6 @@ Lifewire / Jonno Hill
 [View On Amazon $999](https://www.amazon.com/dp/B082XQR86P?tag=lifewire-onsite-prod-20&ascsubtag=4775917%7Cna52a9cc7636d4bf692d62cac4423477a00%7CB082XQR86P)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## LG Gram 17
 
@@ -90,7 +82,7 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design** :**A thoughtful approach to larger laptops**
@@ -109,10 +101,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup** **Process** :**No help needed**
 
  The LG Gram 17 arrives in a minimally packaged box containing only the essentials: The laptop itself, the charger, a manual, and an adapter for the USB-C port. LG definitely gets high marks on setup, requiring minimal steps to get set up and begin using your device right away. You will be prompted to enter the standard information any Windows laptop will ask—like your Wi-Fi credentials, a username and password, your timezone, and if you’d like, a fingerprint impression.
@@ -122,10 +110,6 @@ Lifewire / Jonno Hill
 ![LG Gram 17](https://www.lifewire.com/thmb/mt69Vhar3JM30uFdBWA58_wPdYg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-17-Inch-Thin-Laptop-5-f2352e95cadc4e2b99d738b0238fb7bf.jpg)
 
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Display** :**A joy to use**
 
@@ -147,14 +131,22 @@ Lifewire / Jonno Hill
 
 ![LG Gram 17](https://www.lifewire.com/thmb/4DSmBdI2ZVvCXO9PXT1iEnSCRxM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-17-Inch-Thin-Laptop-6-5381cd4656aa4307ba017acf8ce77c4b.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Productivity** :**The Gram’s sweet spot**
 
  Having 16GB of Memory and a 512GB SSD makes the Gram a great choice for productivity purposes. We had no problem working with many browser windows open at the same time and switching back and forth between different applications. Shoppers looking to find a laptop with ample screen real estate and the specs necessary to deliver good performance now and into the future will be pleased with what the LG Gram 17 offers.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Audio** :**Sorry, what was that?**
@@ -175,10 +167,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Battery** :**Beyond plentiful**
 
  The LG Gram 17 is equipped with a more than capable battery that offers up to 19.5 hrs of battery life, according to LG. In our tests, the laptop averaged around 14 hours during mixed daily use—still quite a great deal. This is likely due to a mixture of the larger than average battery, lack of a discrete graphics card, and an energy-efficient display. This is about as good as you can hope for in a laptop, to be honest, and a surprising achievement for such a light and thin one. If time between charges is a concern for you, take note.
@@ -186,7 +174,7 @@ Lifewire / Jonno Hill
  When running Battery Eater Pro to push the laptop to its limits, it kicked the bucket in just over 2 hours and 30 minutes. This may seem like a very short time, but it’s still considerably better than any of the[other 17-inch laptops](https://www.lifewire.com/best-17-inch-laptops-832683) we tested using this brutal benchmark.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: Standard Windows with some unique features**
@@ -201,9 +189,17 @@ Lifewire / Jonno Hill
 
  Finally, the LG Gram 17 comes with Reader Mode as a pre-installed app that runs in the background on startup and is accessible from the taskbar. Switching it on changes the color temperature of the display to filter out blue light (by default) and make night-time and low-light usage more pleasant. You can also take control of the adjustments that Reader Mode makes, controlling the brightness, contrast, and gamma adjustments for red, green, and blue independently. This seems excessive, but we can’t fault LG too much for giving users more control.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Lighter laptop, bigger price tag**
 
  At an MSRP of $1,700, the LG Gram 17 is not particularly affordable, and even less so when compared to similar options in the market. For this price, we would normally expect to get a discrete graphics card and the expanded possibilities that come with it. The premium you are paying for in this case isn’t sheer price-to-performance but portability and form factor. On these fronts, the LG Gram 17 definitely shines.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **LG Gram 17 vs. ASUS VivoBook Pro 17**
 
@@ -218,6 +214,10 @@ Lifewire / Jonno Hill
 **A featherweight champion for productivity.**
 
  As it stands, you won’t find a lighter, smaller 17-inch laptop than the LG Gram 17\. LG is aware of how valuable this is to buyers that care about these metrics, and has priced their laptop accordingly. If you are shopping for what the Gram has on offer, we can’t imagine you’ll be too disappointed. This is a smart, capable laptop that delights in daily use.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -253,20 +253,21 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-dive-into-the-pool-of-perfect-photos-on-pexels/"><u>[New] In 2024, Dive Into the Pool of Perfect Photos on Pexels</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-top-9-free-android-mp3-extractors/"><u>[Updated] Top 9 FREE Android MP3 Extractors</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-ultimate-uniting-upskill-utopia/"><u>2024 Approved Ultimate Uniting Upskill Utopia</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/conquer-the-stars-in-depth-analysis-of-stellaris-galactic-adventures/"><u>Conquer the Stars: In-Depth Analysis of Stellaris' Galactic Adventures</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/engage-with-advanced-acoustic-performance-meet-klipschs-flexus-200-soundbar/"><u>Engage with Advanced Acoustic Performance - Meet Klipsch’s Flexus 200 Soundbar</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/financial-tech-experts-call-for-creative-intellects-to-revolutionize-ai-rejecting-dependence-on-simplistic-prompts-zdnet/"><u>Financial Tech Experts Call for Creative Intellects to Revolutionize AI, Rejecting Dependence on Simplistic Prompts | ZDNet</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Honor X9b | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/gimp-free-open-source-multi-platform-image-editor-review/"><u>GIMP Free, Open-Source, Multi-Platform Image Editor Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-to-pick-the-right-tablet-a-focus-on-portability-and-lightness/"><u>How to Pick the Right Tablet: A Focus on Portability and Lightness</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-effortless-ways-to-transfer-data-from-your-apple-iphone-13-pro-max-to-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Effortless Ways to Transfer Data from Your Apple iPhone 13 Pro Max to iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-the-art-of-nighttime-nirvana-with-advanced-sleep-innovations/"><u>Mastering the Art of Nighttime Nirvana with Advanced Sleep Innovations</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1721819742401-microsofts-revolutionary-image-creator-tool-generate-one-of-a-kind-ai-images-today/"><u>Microsoft's Revolutionary Image Creator Tool – Generate One-of-a-Kind AI Images Today</u></a></li>
-<li><a href="https://techtrends.techidaily.com/optimize-site-analytics-with-cookiebot-power-solutions/"><u>Optimize Site Analytics with Cookiebot Power Solutions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-mobile-signal-enhancers-the-ultimate-list-for-2e-24/"><u>Top Rated Mobile Signal Enhancers: The Ultimate List for 2E-24</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/user-experience-report-the-impact-of-phillipss-hf3505-sunrise-simulator-on-your-daily-routine/"><u>User Experience Report: The Impact of Phillips's HF3505 Sunrise Simulator on Your Daily Routine</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-avoid-washout-3-essential-tips-for-iphone-hd-video-enhancement-in-premiere-pro/"><u>[New] Avoid Washout 3 Essential Tips for iPhone HD Video Enhancement in Premiere Pro</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-best-tools-for-crafting-memorable-instagram-reels-top-6/"><u>[New] In 2024, Best Tools for Crafting Memorable Instagram Reels (Top 6)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-who-are-you-unraveling-youtuber-personalities-in-6-quizzes/"><u>[Updated] 2024 Approved Who Are You? Unraveling YouTuber Personalities in 6 Quizzes</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-essential-steps-to-achieve-flawless-nocturnal-photography/"><u>[Updated] Essential Steps to Achieve Flawless Nocturnal Photography</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-flawless-transcription-mastery-with-googles-ai/"><u>[Updated] Flawless Transcription Mastery with Google's AI</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-leading-edge-16-youtube-intros-that-skyrocket-views/"><u>[Updated] Leading Edge 16 YouTube Intros That Skyrocket Views</u></a></li>
+<li><a href="https://driver-error.techidaily.com/audio-bus-error-on-hd-device-overcome/"><u>Audio Bus Error on HD Device Overcome</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-android-tv-caixun-75/"><u>Budget Android TV Caixun 75</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-fujitsus-powerful-ix1600-scanner-perfect-for-high-demand-office-environments/"><u>Comprehensive Review of Fujitsu's Powerful iX1600 Scanner - Perfect for High-Demand Office Environments</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-excellence-of-the-new-samsung-galaxy-watch-designed-with-precision-and-style/"><u>Discover the Excellence of the New Samsung Galaxy Watch: Designed with Precision and Style</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-hp-elitebook-8460p-drivers-on-windows-complete-guide-and-solutions/"><u>Download & Install HP EliteBook 8460P Drivers on Windows: Complete Guide and Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/taking-flight-higher-in-depth-insights-into-the-new-dji-mavic-3-drone-camera-system/"><u>Taking Flight Higher: In-Depth Insights Into the New DJI Mavic 3 Drone Camera System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-evolution-of-smartwatches-a-samsung-galaxy-watch-active-2-review-with-improved-functionality-and-intelligence/"><u>The Evolution of Smartwatches: A Samsung Galaxy Watch Active 2 Review with Improved Functionality and Intelligence</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211253779-9782384552344-the-magic-of-the-middle-ages/"><u>The Magic of the Middle Ages | Free Book</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/thrifty-tailscam-video-guidebook/"><u>Thrifty Tailscam Video Guidebook</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/urban-mobility-redefined-a-thorough-examination-of-swagtrons-swagger-electric-scooter/"><u>Urban Mobility Redefined: A Thorough Examination of Swagtron's Swagger Electric Scooter</u></a></li>
 </ul></div>
 

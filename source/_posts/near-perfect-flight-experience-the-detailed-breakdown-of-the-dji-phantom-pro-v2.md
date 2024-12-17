@@ -1,7 +1,7 @@
 ---
 title: "Near-Perfect Flight Experience: The Detailed Breakdown of the DJI Phantom Pro V2"
-date: 2024-12-03T01:10:15.344Z
-updated: 2024-12-03T22:56:47.521Z
+date: 2024-12-09T22:53:13.175Z
+updated: 2024-12-16T20:08:11.264Z
 categories:
   - BestProducts
 description: "This Article Describes Near-Perfect Flight Experience: The Detailed Breakdown of the DJI Phantom Pro V2"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/8ab6ea565c08148258cccefd3c4e69bde02c4b3db
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Netgear C3700 Cable Modem Router
 
@@ -43,16 +47,12 @@ Lifewire / Bill Thomas
 3.4
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Netgear C3700 Cable Modem Router
 
 ![Netgear C3700](https://www.lifewire.com/thmb/CWSAqFXf9klr-Fs5mU-YkCpwF9Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-5-1-668cca140a8e4c1ba59c13f4f2a8d8ec.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Bill Thomas
 
@@ -78,10 +78,6 @@ Lifewire / Bill Thomas
 
  We got our hands on the Netgear C3700 for testing and put it through the wringer to see whether or not it’s worth your cash, and what kind of performance you can expect.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Design: Small and inconspicuous
 
  With a device that packs[both a cable modem and a wireless router](https://www.lifewire.com/best-cable-modem-router-combos-to-buy-4082541) , you might expect the Netgear C3700 to be a bulky device, but that’s not the case. It’s actually quite small, measuring just 7.6 inches high and weighing a scant 0.77 pounds. This, combined with the low-key black finish and lack of external antennas means that it won’t stick out, no matter where you put it.
@@ -95,7 +91,7 @@ Lifewire / Bill Thomas
 ![Netgear C3700](https://www.lifewire.com/thmb/sNdotwRQaaANrcOOFjoNRrlmeak=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-3-24f328c303ef44929cc9f49334ac5fb8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
@@ -103,6 +99,10 @@ Lifewire / Bill Thomas
 ![Netgear C3700](https://www.lifewire.com/thmb/zfaMhW3pqkYXVuVTQM9Swnx9cQk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-5-a204a239cbd549c9b5949b2536b49ff8.jpg)
 
  Lifewire / Bill Thomas
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Setup: Nice and simple
 
@@ -114,10 +114,6 @@ Lifewire / Bill Thomas
 
  We weren’t impressed with the wireless performance, but the wired performance surprised us.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Connectivity: Everything a small home needs
 
  The Netgear C3700 is a modem-router combo, which means, hypothetically, it’s the only networking device many people will need. On top of the two Gigabit[Ethernet](https://www.lifewire.com/what-is-an-ethernet-cable-817548) ports, you’re also getting dual antennas, which makes this a dual-band device (2.4GHz and 5.0GHz). It’s not the fastest wireless connection in the world, though—the Netgear C3700 is rated for N600 speeds, something we haven’t seen in a few years.
@@ -125,6 +121,10 @@ Lifewire / Bill Thomas
  It is an 8x4 DOCSIS 3.0 modem, meaning it’s capable of handling internet speeds up to 340 Mbps. But that N600 wireless speed means that devices on Wi-Fi won’t be that fast. If you have a really fast internet connection like we do, it might be best to use an external wireless router.
 
  There is also a USB 2.0 port around the back where you can plug in a hard drive or a printer for network access.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Network Performance: Great when wired, but wireless speeds lag
 
@@ -135,6 +135,10 @@ Lifewire / Bill Thomas
  Thankfully, this means that an attached router would be able to keep up, which is what we’d recommend. The wireless performance isn’t great and you’re going to have a much better experience with a separate router.
 
 ![Netgear C3700](https://www.lifewire.com/thmb/lPF7EXzNUljkXFySwthTmhwRbiY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-6-1c4a748dd9b644c39d8bd8c47180c74f.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
@@ -147,10 +151,6 @@ Lifewire / Bill Thomas
  We were able to click over into the “advanced” tab to gain access to more robust controls, but this shouldn’t be necessary for most users. Power users will probably appreciate the fine controls.
 
  You can also download the Netgear Genie app on your phone, which allows you to manage your network from a more attractive interface. Much of the same functionality is here, but it might be a more approachable interface for those who don’t really know where to start with their router settings.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Price: It pays for itself
 
@@ -207,22 +207,24 @@ Lifewire / Bill Thomas
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-leading-apps-top-10-choices-for-seamless-vimeo-file-extraction/"><u>[New] 2024 Approved Leading Apps Top 10 Choices for Seamless Vimeo File Extraction</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-facebook-video-downloader-round-up-1-5-edition/"><u>[New] Facebook Video Downloader Round-Up #1-5 Edition</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-premier-applications-for-video-conferencing/"><u>[Updated] 2024 Approved Premier Applications for Video Conferencing</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-boosting-your-brand-on-instagram-proven-5-techniques-and-success-stories/"><u>[Updated] Boosting Your Brand on Instagram Proven 5 Techniques & Success Stories</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-unlock-social-potential-xbox-games-via-facebook-livestream/"><u>[Updated] In 2024, Unlock Social Potential Xbox Games via Facebook Livestream</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-closer-examination-of-the-upgraded-third-generation-apple-tv-4k-device/"><u>A Closer Examination of the Upgraded Third-Generation Apple TV 4K Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-excellence-in-typing-in-depth-analysis-of-the-fellowes-microban-wired-keyboard/"><u>Affordable Excellence in Typing: In-Depth Analysis of the Fellowes Microban Wired Keyboard</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/assessing-hero9-black-the-gopros-top-tier-device/"><u>Assessing HERO9 Black - The GoPro's Top-Tier Device</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Sony Xperia 10 V | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/neutralize-the-noise-tackling-pink-purple-windows-displays/"><u>Neutralize the Noise: Tackling Pink, Purple Windows Displays</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/solution-steps-for-a-non-working-igfxem-module-problem/"><u>Solution Steps for a Non-Working Igfxem Module Problem</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-right-choice-essential-tips-before-you-purchase-an-unlocked-handset/"><u>Unlocking the Right Choice: Essential Tips Before You Purchase an Unlocked Handset</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-googles-latest-creation-the-pixel-6-smartphone-exposed/"><u>Unveiling the Power of Google's Latest Creation - The Pixel 6 Smartphone Exposed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-strengths-of-oneplus-9-pro-immaculate-aesthetics-rapid-response-and-top-tier-camera-technology/"><u>Unveiling the Strengths of OnePlus 9 Pro: Immaculate Aesthetics, Rapid Response and Top-Tier Camera Technology</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-kindle-unlimited-membership-is-your-gateway-to-infinite-reading/"><u>Why Kindle Unlimited Membership Is Your Gateway to Infinite Reading?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/x-plane-cuatrocientos-once-reviewed-stunning-visuals-meet-cutting-edge-simulation-tech/"><u>X-Plane Cuatrocientos Once Reviewed: Stunning Visuals Meet Cutting-Edge Simulation Tech</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1726029628764-xmedia-recode/"><u>XMedia Recode: 効果的なビデオの解像度とアスペクト比調整ガイド</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-step-by-step-guide-turn-off-spotifys-recommended-listings/"><u>[New] Step-by-Step Guide Turn Off Spotify's Recommended Listings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-beginners-guide-to-seo-skyrocket-your-view-count/"><u>[Updated] In 2024, A Beginner’s Guide to SEO Skyrocket Your View Count</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-exploring-the-reasons-behind-blue-icons-in-facebooks-chat-communication/"><u>2024 Approved Exploring the Reasons Behind Blue Icons in Facebook’s Chat Communication</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bose-soundsport-wireless-headphones-review-solid/"><u>Bose SoundSport Wireless Headphones Review: Solid</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-the-latest-speculations-on-oneplus-10s-launch-price-release-timeline-and-expected-features/"><u>Discover the Latest Speculations on OnePlus 10'S Launch - Price, Release Timeline & Expected Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/diving-into-apple-homepod-mini-a-guide-to-its-sound-performance-smart-features-and-additional-capabilities/"><u>Diving Into Apple HomePod Mini: A Guide to Its Sound Performance, Smart Features, and Additional Capabilities</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/how-to-fix-a-broken-computer-power-supply-expert-tips-from-yl-computing/"><u>How to Fix a Broken Computer Power Supply: Expert Tips From YL Computing</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-unveiling-the-best-video-player-apps-for-idevices-top-10/"><u>In 2024, Unveiling the Best Video Player Apps for iDevices (Top 10)</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016027727-insiders-trick-for-fixing-nonfunctional-speakers-in-the-latest-windows-os/"><u>Insider's Trick for Fixing Nonfunctional Speakers in the Latest Windows OS!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovo-tab-p11-pro-assessment-exceptional-performance-with-minor-flaws/"><u>Lenovo Tab P11 Pro Assessment: Exceptional Performance with Minor Flaws</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/restoring-pixel-perfect-quality-to-youtube-videos/"><u>Restoring Pixel-Perfect Quality to YouTube Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sizzling-success-or-burnt-disaster-dive-into-our-comprehensive-review-of-overcooked-2/"><u>Sizzling Success or Burnt Disaster? Dive Into Our Comprehensive Review of Overcooked! 2</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-deciding-elements-in-choosing-your-next-virtual-reality-headset/"><u>The Deciding Elements in Choosing Your Next Virtual Reality Headset</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-good-bad-and-ugly-of-the-hp-stream-14-an-honest-windows-laptop-review-for-savvy-shoppers/"><u>The Good, Bad, and Ugly of the HP Stream 14: An Honest Windows Laptop Review for Savvy Shoppers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-ranking-of-2024s-best-ergonomic-keyboards-improve-your-typing-experience-today/"><u>The Ultimate Ranking of 2024'S Best Ergonomic Keyboards: Improve Your Typing Experience Today!</u></a></li>
+<li><a href="https://win-superb.techidaily.com/ubersetzen-von-sms-uber-iphones-mit-der-icloud-eine-einfache-anleitung/"><u>Übersetzen Von SMS Über iPhones Mit Der iCloud - Eine Einfache Anleitung</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-google-stadias-full-potential-identifying-and-addressing-shortcomings/"><u>Unlocking Google Stadia's Full Potential: Identifying and Addressing Shortcomings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/visionary-vehicles-5-headlamp-upgrades-to-consider/"><u>Visionary Vehicles: 5 Headlamp Upgrades to Consider</u></a></li>
 </ul></div>
 

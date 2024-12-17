@@ -1,7 +1,7 @@
 ---
 title: "Unleash Creativity: An In-Depth Look at the Makeblock mBot Engineering Toy for Kids"
-date: 2024-11-30T05:30:20.491Z
-updated: 2024-12-03T20:19:21.352Z
+date: 2024-12-13T17:53:19.977Z
+updated: 2024-12-16T22:26:23.972Z
 categories:
   - BestProducts
 description: "This Article Describes Unleash Creativity: An In-Depth Look at the Makeblock mBot Engineering Toy for Kids"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/2077f1c448ea137a042adda99cddc314210e83104
 ## Amazfit GTS Smartwatch
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/BMrWIhRHdBvfqR68yWXTZcyH-28=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_HeroSquare-067af9089d9c4269979450e8963726c9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -47,7 +51,7 @@ Lifewire / Yoona Wagener
 ![Amazfit GTS](https://www.lifewire.com/thmb/A_Lpmewuqg5_v_xhsfuydQ5zl6E=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_HeroSquare-067af9089d9c4269979450e8963726c9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
@@ -90,10 +94,6 @@ Lifewire / Yoona Wagener
 
  I was unable to test this device’s 50-meter water resistance for swimming or other aquatic workouts, but I did wear it in the shower without experiencing any issue. The manufacturer does note, however, that this wearable isn’t safe for hot showers or other water sports such as scuba diving, diving, and high-speed water sports, generally.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Comfort: Easy to wear but not as user-friendly
 
  While the Amazfit GTS is stylish enough to wear all day and easily coordinate with your wardrobe and comfortable to sleep with, confusing interface issues impaired overall ease of use. Along with the modular watch faces, there are screens for nearly every data point measured, accessible by swiping up from the bottom of the device.
@@ -107,6 +107,10 @@ Lifewire / Yoona Wagener
  One standout example is putting this device in sleep mode. Unlike most wearables that deactivate the display with a tap of a sleep icon, the Amazfit GTS presents several do-not-disturb options that aren’t clearly explained by the onboard descriptions. This felt like a severe limitation to the out-of-the-box comfort of this device, which extends to other areas such as viewing sleep and fitness data.
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/BCJ0gqS-gzR_dq3WSGazLqPMNCk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_05-9f844a14ab734d9291e338b6fa2519da.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -123,10 +127,6 @@ Lifewire / Yoona Wagener
  This device is also capable of tracking sleep data in a relatively extensive way, complete with sleep phases, times awake when you fell asleep and woke up. The watch never failed to track data and as far as I could tell, sleep and wake times were accurate, but reading the data was a little less straightforward.
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/lrymbZEsmkXZy1YnjpGE5QutCbA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_04-109baf1e43444eff9789d9c02e2b2e77.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -149,7 +149,7 @@ Lifewire / Yoona Wagener
 ![Amazfit GTS](https://www.lifewire.com/thmb/hqD81eq-Q8n6BPE_n48M4SpkIRA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_03-97749edaabac498bb95b0f8a9f569f0a.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
@@ -158,21 +158,25 @@ Lifewire / Yoona Wagener
 
  While I gathered that a PAI of 100 seemed to be ideal for cardiovascular health, the app further complicated things by suggesting, for example, a 120-minute indoor workout to gain 15 PAI. It was difficult to grasp why that would be worth it or realistic, and like many areas of the software, it felt more flashy and underdeveloped than insightful.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Battery: Solid but considerably shy of the 14-day claim
 
  The manufacturer bills the battery longevity at an impressive 14 days with typical usage in smartwatch mode, which includes continuous heart rate and sleep monitoring and logging workouts three times a week.
 
  That’s pretty much the way I used this device, though with maybe an extra workout or two and with the display in always-on mode, and the battery drained by day seven. On the bright side, it recharged quickly in less than the manufacturer’s 2-hour estimate. Amazfit also claims that the battery can last up to 46 days in basic mode without Bluetooth or heart-rate monitoring turned on.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Price: Slightly pricey for what it is
 
  The Amazfit GTS retails for about $120, though it’s possible to purchase it closer to $100\. While it’s more on the budget-friendly end of the spectrum, its Apple Watch-adjacent design doesn’t extend to the benefit of the first-rate fitness technology you’ll find in its alter ego.
 
  Spending between $100 to $130 for a style-conscious, band-style fitness tracker from heavy hitters such as[Fitbit](https://www.lifewire.com/what-is-fitbit-4176010) and Garmin could increase the tracking benefits considerably with extras like VO2 Max and SPO2 monitoring. For a little more (or less), gaining a user-friendly layout and companion app could be worth losing the Apple Watch aesthetic this device works hard to mirror.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Amazfit GTS vs. Garmin vivosmart 4
 
@@ -191,10 +195,6 @@ Lifewire / Yoona Wagener
 * [Apple Watch SE](https://www.lifewire.com/apple-watch-se-review-5088223)
 * [Fitbit Sense](https://www.lifewire.com/fitbit-sense-review-5085832)
 * [Garmin Vivomove HR](https://www.lifewire.com/garmin-vivomove-hr-review-4843913)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -227,18 +227,19 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-video-ranking-rise-must-have-youtube-seo-aids/"><u>[New] In 2024, Video Ranking Rise – Must-Have YouTube SEO Aids</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-the-ultimate-viewing-experience-insights-on-eizos-4kcg318/"><u>[Updated] The Ultimate Viewing Experience – Insights on EIZO’s 4KCG318</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/4g-lte-connectivity-on-mobvoi-ticwatch-pro-a-comprehensive-review/"><u>4G LTE Connectivity on Mobvoi Ticwatch Pro - A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-competitive-edge-and-engaging-content-in-nhl-19s-online-game-mode/"><u>A Closer Look at Competitive Edge and Engaging Content in NHL '19'S Online Game Mode</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/advanced-manfrotto-befree-aluminum-photography-essential/"><u>Advanced Manfrotto Befree Aluminum: Photography Essential</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-nokia-71-impressive-display-and-camera-performance/"><u>Affordable Nokia 7.1 - Impressive Display & Camera Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-portable-gaming-with-the-nintendo-switch-lite-an-in-depth-console-analysis/"><u>Affordable Portable Gaming with the Nintendo Switch Lite: An In-Depth Console Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-predatory-fun-holy-stone-hs170-reconnaissance-mini-rc-helicopter-in-depth-analysis/"><u>Affordable Predatory Fun: Holy Stone HS170 Reconnaissance Mini RC Helicopter - In-Depth Analysis</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/converti-file-flac-in-mpg-veloce-e-facile-con-il-converter-on-line-di-movavi/"><u>Converti File Flac in Mpg Veloce E Facile Con Il Converter On-Line Di Movavi</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/exploring-how-natural-language-processing-differs-from-machine-learning/"><u>Exploring How Natural Language Processing Differs From Machine Learning</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-can-i-amplify-my-notebooks-functionality-with-new-ram/"><u>How Can I Amplify My Notebook’s Functionality with New RAM?</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/social-media-strategy-broadcasting-twitch-to-facebook/"><u>Social Media Strategy Broadcasting Twitch to Facebook</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-the-ultimate-guide-to-creating-viral-reaction-videos-with-filmora-for-2024/"><u>Updated The Ultimate Guide to Creating Viral Reaction Videos with Filmora for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-digital-audio-capturing-made-simple-online-radio-collection/"><u>[Updated] 2024 Approved Digital Audio Capturing Made Simple Online Radio Collection</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-optimal-gpus-for-high-res-media-production/"><u>[Updated] 2024 Approved Optimal GPUs for High Res Media Production</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-efficient-techniques-for-clearing-figma-backdrops/"><u>[Updated] Efficient Techniques for Clearing Figma Backdrops</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-picks-for-ultimate-asus-routers-year-2024-edition/"><u>Expert Picks for Ultimate Asus Routers - Year 2024 Edition</u></a></li>
+<li><a href="https://win-studio.techidaily.com/how-can-you-benchmark-your-pcs-hardware-for-optimal-results-insights-from-yl-software/"><u>How Can You Benchmark Your PC's Hardware for Optimal Results? Insights From YL Software</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-ranking-the-ultimate-10-free-online-subtitle-makers-srt/"><u>In 2024, Ranking the Ultimate 10 Free Online Subtitle Makers (Srt)</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-step-by-step-pathway-to-youtube-mastery/"><u>In 2024, The Step-by-Step Pathway to YouTube Mastery</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-gotrax-gxl-v2-the-ideal-urban-commuter-e-scooter/"><u>In-Depth Analysis of the Gotrax GXL V2 - The Ideal Urban Commuter E-Scooter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/innovative-illumination-comprehensive-guide-on-the-taotronics-tt-dl16-led-lighting-solution/"><u>Innovative Illumination: Comprehensive Guide on the TaoTronics TT-DL16 LED Lighting Solution</u></a></li>
+<li><a href="https://win11.techidaily.com/steps-to-alleviate-wlanextexes-power-drain/"><u>Steps to Alleviate WLANEXT.EXE's Power Drain</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-new-austrian-tunneling-method-natm/"><u>The New Austrian Tunneling Method (NATM)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-superzoom-power-in-the-portable-canon-sx720hs/"><u>Unleashing Superzoom Power in the Portable Canon SX720HS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-cyberpower-cp65-avrg-a-solid-basic-ups-unit-overview/"><u>Unveiling the CyberPower CP6#5 AVRG - A Solid Basic UPS Unit Overview</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935380-9781844092529-write-your-memoir/"><u>Write Your Memoir | Free Book</u></a></li>
 </ul></div>
 

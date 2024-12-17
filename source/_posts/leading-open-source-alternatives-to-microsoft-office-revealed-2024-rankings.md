@@ -1,7 +1,7 @@
 ---
 title: "Leading Open Source Alternatives to Microsoft Office Revealed: 2024 Rankings"
-date: 2024-12-09T18:01:01.116Z
-updated: 2024-12-10T20:03:53.066Z
+date: 2024-12-13T16:06:51.569Z
+updated: 2024-12-17T00:07:01.272Z
 categories:
   - BestProducts
 description: "This Article Describes Leading Open Source Alternatives to Microsoft Office Revealed: 2024 Rankings"
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/96b0dc304ed2f0b22e595834a3c54ad2566287334
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Overall
@@ -79,6 +79,10 @@ PHOTO: Amazon
 
 **Type:** Membrane | **Connectivity:** Wireless receiver, Bluetooth | **RGB:** None | **Tenkeys:** Yes | **Palm Rest:** Yes | **Dedicated Media Controls:** No
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Best Bluetooth
 
 [Logitech K350](https://www.walmart.com/ip/13215113)
@@ -106,6 +110,10 @@ PHOTO: Amazon
  The Logitech K350 uses two AAA batteries for power and can reportedly run for up to three years before swapping them out. The keyboard features dedicated media keys for streaming music and movies and fully customizable F keys to help streamline your workflow.
 
 **Type:** Membrane | **Connectivity:** Wireless receiver | **RGB:** None | **Tenkeys:** Yes | **Palm Rest:** Yes | **Dedicated Media Controls:** Yes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Best for Macs
 
@@ -136,10 +144,6 @@ PHOTO: Amazon
 
 [Kinesis Freestyle2 Blue (Mac) Review](https://www.lifewire.com/freestyle2-blue-review-4780187)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Best for Gaming
 
 [KINESIS Gaming Freestyle Edge RGB](https://www.amazon.com/KINESIS-Gaming-Freestyle-Mechanical-Keyboard/dp/B07SXX7P6D/?tag=lifewire-onsite-prod-20&ascsubtag=4147386%7Cn326e10e09a2e4a42be05879465b0c31513%7CB07SXX7P6D)
@@ -169,14 +173,10 @@ PHOTO: Amazon
 
 [The Best Mice for Macs of 2024](https://www.lifewire.com/best-mice-for-macs-6753004)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What to Look For in an Ergonomic Keyboard
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Usage**
@@ -188,7 +188,7 @@ PHOTO: Amazon
  Do you have a Mac or a PC? While it seems like keyboards should be usable with both, that’s not always the case. You need to make sure whatever keyboard you buy is compatible with your system (this is usually a bigger problem for Macs rather than PCs). Additionally, the two operating systems have slightly different keys. While you can often use mapping software to alleviate these issues, you may want to purchase a keyboard specifically designed for your type of machine.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Keyboard size**
@@ -235,24 +235,21 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-the-ultimate-list-of-8-youtube-mistakes-to-evade/"><u>[New] The Ultimate List of 8 Youtube Mistakes to Evade</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-advanced-mac-image-compiler-for-2024/"><u>[Updated] Advanced Mac Image Compiler for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-high-speed-film-gatherer-for-timelapse-top5-for-2024/"><u>[Updated] High-Speed Film Gatherer for Timelapse #Top5 for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-craft-clearer-crisper-youtube-videos-with-quality-tools/"><u>[Updated] In 2024, Craft Clearer, Crisper YouTube Videos with Quality Tools</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-rapid-rhythmic-revision-software-roundup-mobiledesktop/"><u>[Updated] Rapid Rhythmic Revision Software Roundup (Mobile/Desktop)</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-premier-list-visionary-audiovideo-makers-web/"><u>2024 Approved The Premier List Visionary Audio/Video Makers Web</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comparing-performance-top-tablet-computers-ranked-by-cpu-power/"><u>Comparing Performance: Top Tablet Computers Ranked by CPU Power</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/deconstructing-the-value-an-in-depth-look-at-microsofte-expensive-surface-studio-2-desktop/"><u>Deconstructing the Value: An In-Depth Look at Microsoft'e Expensive Surface Studio 2 Desktop</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/engaging-review-mastering-your-new-arlo-security-device/"><u>Engaging Review: Mastering Your New Arlo Security Device</u></a></li>
-<li><a href="https://win-lab.techidaily.com/enhance-your-writing-with-emeditor-a-comprehensive-multi-language-text-editor-solution/"><u>Enhance Your Writing with EmEditor - A Comprehensive Multi-Language Text Editor Solution</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experiencing-literature-like-never-before-with-the-kindle-oasis-2019-a-comprehensive-review/"><u>Experiencing Literature Like Never Before with the Kindle Oasis (2019): A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-to-pick-the-perfect-gamers-phone-among-iphones-top-picks-revealed/"><u>How to Pick the Perfect Gamer's Phone Among iPhones – Top Picks Revealed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-iphone-15-pro-max-and-samsung-galaxy-s24-ultra-head-to-head-comparison/"><u>In-Depth Analysis: IPhone 15 Pro Max and Samsung Galaxy S24 Ultra Head to Head Comparison</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-madden-19-exceptional-gameplay-diminished-by-repeated-themes/"><u>In-Depth Look at Madden 19: Exceptional Gameplay Diminished by Repeated Themes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/kooteks-cutting-edge-device-for-heat-management-a-must-have-accessory/"><u>Kootek's Cutting-Edge Device for Heat Management - A Must-Have Accessory!</u></a></li>
-<li><a href="https://driver-download.techidaily.com/offline-procedure-how-to-update-and-install-windows-device-drivers-without-internet-access/"><u>Offline Procedure: How to Update and Install Windows Device Drivers Without Internet Access</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/size-matters-analyzing-differences-between-iphone-15-pro-and-pro-max/"><u>Size Matters? Analyzing Differences Between iPhone 15 Pro & Pro Max</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/the-comprehensible-guide-to-skypes-mp3-recorder-for-2024/"><u>The Comprehensible Guide to Skype's MP3 Recorder for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-top-race-rc-rock-crawlers-mastering-all-terrain-adventures/"><u>Ultimate Guide to Top Race RC Rock Crawlers: Mastering All-Terrain Adventures</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-iphones-visual-upgrades-in-ios-11-explored/"><u>[New] IPhone's Visual Upgrades in iOS 11 Explored</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-innovative-approaches-to-capturing-moments-with-zooms-snaps/"><u>2024 Approved Innovative Approaches to Capturing Moments with Zoom's Snaps</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-melding-images-and-songs-into-screens/"><u>2024 Approved Melding Images and Songs Into Screens</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-must-know-facts-for-asmr-content-lovers/"><u>2024 Approved Must-Know Facts for ASMR Content Lovers</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-vivo-v27e-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Vivo V27e | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/beantechs-bitwatch-s1-plus-reviewed-a-compelling-choice-for-cost-conscious-tech-enthusiasts/"><u>Beantech's Bitwatch S1 Plus Reviewed: A Compelling Choice for Cost-Conscious Tech Enthusiasts</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-vivo-y56-5g-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Vivo Y56 5G via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/canoscan-lide-120-scanner-drivers-latest-downloads-and-updates-guide/"><u>CanoScan LiDE 120 Scanner Drivers – Latest Downloads and Updates Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-features-of-beantech-bitwatch-s1-plus-your-go-to-economical-smart-wearable-reviewed/"><u>Exploring the Features of Beantech Bitwatch S1 Plus - Your Go-To Economical Smart Wearable Reviewed</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-install-your-new-logitech-wireless-mouse-with-easy-driver-download/"><u>How to Install Your New Logitech Wireless Mouse with Easy Driver Download</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-latest-trends-in-mobile-viewing-android-edition-vr360/"><u>In 2024, Latest Trends in Mobile Viewing - Android Edition (VR/360)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pets-in-focus-the-rise-of-cost-effective-pet-cameras/"><u>Pets in Focus: The Rise of Cost-Effective Pet Cameras</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-radpower-radcity-5-plus-a-strong-and-reliable-electric-bike-with-a-weighty-build/"><u>Review of the RadPower RadCity 5 Plus: A Strong and Reliable Electric Bike with a Weighty Build</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/syma-x5c-rc-drone-evaluation-a-budget-friendly-starter-choice/"><u>SYMA X5C RC Drone Evaluation: A Budget-Friendly Starter Choice</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-evaluation-of-the-microsoft-surface-keyboards-comfort-and-quality/"><u>Top Evaluation of the Microsoft Surface Keyboard's Comfort & Quality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-testing-the-ring-battery-doorbell-plus-experience/"><u>Unboxing and Testing: The Ring Battery Doorbell Plus Experience</u></a></li>
 </ul></div>
 

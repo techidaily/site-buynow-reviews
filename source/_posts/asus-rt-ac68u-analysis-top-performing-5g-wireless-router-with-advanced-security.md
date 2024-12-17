@@ -1,7 +1,7 @@
 ---
 title: Asus RT-AC68U Analysis - Top-Performing 5G Wireless Router with Advanced Security
-date: 2024-10-23T16:31:25.567Z
-updated: 2024-10-30T16:07:12.303Z
+date: 2024-12-14T00:01:48.666Z
+updated: 2024-12-16T19:04:36.957Z
 categories:
   - BestProducts
 description: This Article Describes Asus RT-AC68U Analysis - Top-Performing 5G Wireless Router with Advanced Security
@@ -17,6 +17,10 @@ thumbnail: https://www.lifewire.com/thmb/jp9yidAiRVouajjO3JCj--i_Wpk=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## HAVIT 5 Fan Laptop Cooler
 
@@ -48,19 +52,6 @@ Lifewire / Rebecca Isaacs
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/Oc__n9cXABeKwLweBvavtYWeE9M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_HeroSquare-e793f085fe42447396899e6edb8c57b0.jpg)
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
 
 [View On Amazon $30](https://www.amazon.com/dp/B0713PHFRW/?tag=lifewire-onsite-prod-20&ascsubtag=5193438%7Cnd13615e1c9e546a090a2f2a2949c313a15%7CB0713PHFRW)
@@ -83,13 +74,6 @@ _Our reviewer already owned this product._
 
  A couple gaming sessions later, and I realized I needed a[laptop cooling pad](https://www.lifewire.com/best-laptop-cooling-pads-4149823) . After taking a look at various models, I decided to try out the HAVIT 5 Gaming Laptop Cooling Pad. It boasts five fans and an adjustable rollout switch to customize my cooling experience. And it offers anti-slip baffles so my curious cat can't knock it off my laptop. After over a year of use, I still use this almost every day for my gaming needs. Read on for our final verdict, as well as thoughts on its specs.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design: Looks like a gamer’s cooling pad
 
  HAVIT offers this laptop cooling pad in two different colors: red and blue. I personally felt that the red would be too bright and opted for the blue; when I pulled it out of the box, I was surprised at how heavy its 1.8 pounds felt in my hand.
@@ -97,6 +81,10 @@ _Our reviewer already owned this product._
  On top of the pad itself, it comes with a braided USB cord for protection. It could plug into one of two ports, of which I used the spare to add USB charging for USB compatible items like my[Amazon Kindle](https://www.lifewire.com/amazon-kindle-2019-review-4688850) and[Java Bluetooth headset](https://www.lifewire.com/jabra-talk-45-review-5070286) .
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/J6RTKS-ZdzNqPyF_Tm9lloOF1iM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_04-5a7071fefb884ba19eb68638fdbf1b2b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -114,16 +102,13 @@ Lifewire / Rebecca Isaacs
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/l2nDOOm1dGSmniJBqJPn708DnK8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_03-71babed64c14425184604e4825680aac.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
 
  That’s not to say that this laptop cooling pad doesn’t help cool it down. Since my Eluktronics is getting some much-needed TLC in the shop, I tested the MSI’s internal temps while running[Tropico Six](https://www.lifewire.com/tropico-6-review-5077604) on my laptop. Without the laptop cooling pad, I was running around 187 degrees Fahrenheit. With the cooling pad, it adjusted to around 169 degrees. It’s not much, but it’s enough to make a difference.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Baffles: Adjustable for gaming and typing
 
@@ -140,10 +125,7 @@ Lifewire / Rebecca Isaacs
  And, if you’re on-the-go and travelling, the HAVIT 5 also packs quite nicely into a suitcase. Be sure to play it safe like I did and pack it around clothes. But if you need to go across country and want to take your gaming laptop with you, this is a good one that will hold up well in luggage.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Price: Ouch
@@ -166,18 +148,15 @@ Lifewire / Rebecca Isaacs
 
  It’s not the best out there, but so long as it cools the internal laptop core temperatures by about 20 degrees, it’s a worthy investment. Props go to HAVIT for giving it a roller switch for ultimate adjustability and an LED light that will show how high the fans are blowing. The fans could be stronger, but quieter fans over more power is preferable.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/urban-armor-gear-macbook-pro-case-review-4689954)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -208,17 +187,24 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/approved-dynamic-subscriber-buttons-for-video-creators-filmora-edition/"><u>2024 Approved Dynamic Subscriber Buttons for Video Creators - Filmora Edition</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-unleash-creative-power-instagrams-top-10-grid-makers/"><u>2024 Approved Unleash Creative Power Instagram's Top 10 Grid Makers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/delving-into-elgoog-a-playful-twist-on-conventional-web-browsing/"><u>Delving Into elgooG: A Playful Twist on Conventional Web Browsing</u></a></li>
-<li><a href="https://techtrends.techidaily.com/discover-the-most-competitive-apple-watch-prices-of-the-season-today/"><u>Discover the Most Competitive Apple Watch Prices of the Season Today</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-vivo-y27-4g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Vivo Y27 4G Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Meizu 21 Pro? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-examination-of-the-newly-released-fitbit-charge-6-band/"><u>In-Depth Examination of the Newly Released Fitbit Charge 6 Band</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-protection-unit-an-insightful-review-on-apcs-be600m1-with-battery-backup-and-built-in-usb-charger-functionality/"><u>The Ultimate Protection Unit: An Insightful Review on APC's BE600M1 with Battery Backup and Built-In USB Charger Functionality</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/troubleshoot-and-defeat-bcm2045a0-driver-issues-swiftly-top-techniques-revealed/"><u>Troubleshoot and Defeat BCM2045A0 Driver Issues Swiftly - Top Techniques Revealed!</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ultimate-list-of-no-cost-hdd-diagnostic-software-for-july-2024/"><u>Ultimate List of No-Cost HDD Diagnostic Software for July 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlocking-e-readers-the-4-significant-selling-points-of-kindle-unlimited/"><u>Unlocking E-Readers: The 4 Significant Selling Points of Kindle Unlimited</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/your-pathway-to-personalized-youtube-music-selections-for-2024/"><u>Your Pathway to Personalized YouTube Music Selections for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-eye-opening-experience-selecting-best-for-vr-gaming/"><u>[New] Eye-Opening Experience Selecting Best for VR Gaming</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unique-images-unique-voice-podcast-graphic-principles/"><u>[Updated] Unique Images, Unique Voice Podcast Graphic Principles</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-mastering-the-art-of-sounding-different-in-pubg/"><u>2024 Approved Mastering the Art of Sounding Different in PUBG</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-proven-strategies-for-picking-the-most-accurate-free-srt-tools/"><u>2024 Approved Proven Strategies for Picking the Most Accurate Free SRT Tools</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-performing-17-inch-laptops-of-2024-reviewed/"><u>Best Performing 17-Inch Laptops of 2024 Reviewed</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/diagnosing-and-repairing-windows-10-bad-pool-headers-that-trigger-blue-screen-of-death-errors-expert-tips/"><u>Diagnosing & Repairing Windows 10 'Bad Pool Headers' That Trigger Blue Screen of Death Errors: Expert Tips</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-savings-and-speed-the-comprehensive-tp-link-archer-c50-router-test/"><u>Evaluating Savings and Speed: The Comprehensive TP-Link Archer C50 Router Test</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/from-zoning-to-skyline-a-comprehensive-review-of-urban-builder-sensation/"><u>From Zoning to Skyline: A Comprehensive Review of Urban Builder Sensation</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Honor 100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-code-synthesis-a-tutorial-on-deploying-codegpt-in-vs-code/"><u>Mastering Code Synthesis: A Tutorial on Deploying CodeGPT in VS Code</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-your-workout-5-tips-to-help-you-pick-the-best-fitness-tracker-on-the-market/"><u>Maximize Your Workout: 5 Tips to Help You Pick the Best Fitness Tracker on the Market</u></a></li>
+<li><a href="https://win-able.techidaily.com/maximizing-ark-scorched-earth-gameplay-tips-for-increasing-pc-frame-rates/"><u>Maximizing ARK: Scorched Earth Gameplay: Tips for Increasing PC Frame Rates</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/must-have-apple-bargains-prime-day-exclusive-deals/"><u>Must-Have Apple Bargains: Prime Day Exclusive Deals</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tactile-discovery-maximize-performance-of-dell-display-unit-premier-noise-canceling-audio-gear-and-high-resolution-webcam-setup/"><u>Tactile Discovery: Maximize Performance of Dell Display Unit, Premier Noise-Canceling Audio Gear & High-Resolution Webcam Setup</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-mighty-compact-gaming-machine-a-detailed-look-at-xbox-series-s-specs-and-packaging/"><u>The Mighty Compact Gaming Machine - A Detailed Look at Xbox Series S Specs and Packaging</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-real-face-of-the-nikon-coolpix-l340/"><u>The Real Face of the Nikon Coolpix L340</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-success-story-behind-wii-u-why-it-captivated-gamers-worldwide/"><u>The Success Story Behind Wii U: Why It Captivated Gamers Worldwide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-features-iphone-15-pro-max-against-samsung-s2eus-24-ultra-showdown/"><u>Unpacking the Features: IPhone 15 Pro Max Against Samsung S2eus 24 Ultra Showdown</u></a></li>
+<li><a href="https://common-error.techidaily.com/windows-11-audio-problems-solved-mastering-system-volume-controls/"><u>Windows 11 Audio Problems Solved: Mastering System Volume Controls</u></a></li>
 </ul></div>
 

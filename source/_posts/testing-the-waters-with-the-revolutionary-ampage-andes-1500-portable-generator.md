@@ -1,7 +1,7 @@
 ---
 title: Testing the Waters with the Revolutionary Ampage Andes 1500 Portable Generator
-date: 2024-12-05T17:50:06.110Z
-updated: 2024-12-10T16:40:19.603Z
+date: 2024-12-12T18:33:14.621Z
+updated: 2024-12-16T19:58:02.492Z
 categories:
   - BestProducts
 description: This Article Describes Testing the Waters with the Revolutionary Ampage Andes 1500 Portable Generator
@@ -46,10 +46,6 @@ Lifewire / Jonno Hill
 
 ![ClearStream 2V HDTV Antenna](https://www.lifewire.com/thmb/q2B57F3c717qLOPlnokMF7al1pA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_HeroSquare-b07d5067648049ecb987e39b62796406.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Jonno Hill
 
 [View On Amazon $88](https://www.amazon.com/dp/B007RH5GZI/?tag=lifewire-onsite-prod-20&ascsubtag=4843109%7Cn245c3b842cae4efcb285c88c84d3394016%7CB007RH5GZI) [View On Walmart $88](https://www.walmart.com/ip/30312147) [View On Tractor Supply Co. $108](https://www.tractorsupply.com/tsc/product/antennas-direct-clearstream-2v-uhf-vhf-indoor-outdoor-dtv-antenna-with-mount-adic2vcjm?slfpid=3)
@@ -75,6 +71,10 @@ Lifewire / Jonno Hill
 
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/vY1j7QoS0FLwOKNhPlSfR3XMlmo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_02-e97897fe03b74f5faa2eefad3b3b7208.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 ## **Design: Glimpsing an ugly future**
@@ -84,10 +84,6 @@ Lifewire / Jonno Hill
  Setup of the ClearStream 2V Indoor/Outdoor HDTV Antenna has by far the most complicated setup of the antennas that I tested in our roundup.
 
  As you’ll see later though, this is because the ClearStream 2V Indoor/Outdoor HDTV Antenna doesn’t really care about looks. Everything is 100% about function. There are, however, a few little elements from a design perspective that help make the ClearStream a somewhat thoughtful device nonetheless. Once assembled, all the parts fit together nicely like a lego set.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup: Buckle up**
 
@@ -105,24 +101,28 @@ Lifewire / Jonno Hill
 
  In my channel acquisition test, the ClearStream managed 76 channels consistently, far and away the best result from any of the devices I tested. The worst antenna I tested picked up just 47 channels, and the second best, 69\. Needless to say, all the wires, cages, and bulbous plastic spheres are clearly doing something here, because this was the best result I saw.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Range: Extensive**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna is rated for up to 60 miles. These ratings are generally based on relatively unobstructed paths between the signal and your device. There is a lot less than 60 miles between me and my local TV broadcast source, but if the other results are any indication, the ClearStream has a fighting chance at living up to these claims.
 
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/NoQoQy3-EFUpi1z9oMTpD2JGWHQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_04-70f5a48ac9a347d286c71240b85cbc1c.jpg)
 
- Lifewire / Jonno Hill
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Jonno Hill
 
 ## **Price: Performance doesn’t come cheap**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna has a list price of $120 and a 90-day rolling average price on Amazon of $83\. This is significantly more than any of the other antennas I tested, some of which could be had for around $25\. If you live far enough that you need a better performing antenna, however, it could easily be worth every penny. I would only caution buyers to make sure they really do need this performance before pulling the trigger on this very large antenna.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **ClearStream 2V Indoor/Outdoor HDTV Antenna vs 1byone Digital Amplified Indoor HD TV Antenna**
@@ -137,7 +137,7 @@ Lifewire / Jonno Hill
  The ClearStream 2V Indoor/Outdoor HDTV Antenna isn’t the cheapest or best-looking antenna on the market, but it gets the job done better than any of the other antennas we tested. Buyers who know they need an antenna with better range and performance will find this to be a noticeable bump from cheaper indoor antennas.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -166,24 +166,18 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-iphone-picture-perfection-mastering-resolution-shifts/"><u>[New] 2024 Approved IPhone Picture Perfection Mastering Resolution Shifts</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-compose-your-cinematic-storytelling-add-melodies-to-iphone-videos-without-cost/"><u>[Updated] Compose Your Cinematic Storytelling – Add Melodies to iPhone Videos Without Cost</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-comprehensive-acid-pro-evaluation-and-alternative-software/"><u>[Updated] Comprehensive ACID Pro Evaluation & Alternative Software</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-improving-visual-storytelling-with-secondary-shoots/"><u>[Updated] Improving Visual Storytelling with Secondary Shoots</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-instagram-stories-your-complete-tune-up-guide-for-2024/"><u>[Updated] Mastering Instagram Stories Your Complete Tune-Up Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/a-compreayers-manual-turning-pre-recorded-footage-online-live/"><u>A Compreayer's Manual Turning Pre-Recorded Footage Online Live</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-boost-your-websites-performance-with-cutting-edge-analytics/"><u>Cookiebot-Enabled: Boost Your Website's Performance with Cutting-Edge Analytics</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-reviews-the-combination-of-style-and-technology-in-samsungs-un65ru80tuxa-television-set/"><u>Expert Reviews: The Combination of Style and Technology in Samsung's UN65RU80TUXA Television Set</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-madden-1n-9-edition-superb-gameplay-but-showing-age/"><u>Exploring Madden 1N 9 Edition: Superb Gameplay but Showing Age</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-iphone-11-when-phone-is-broken-drfone-by-drfone-ios/"><u>In 2024, How to Turn Off Find My iPhone 11 when Phone is Broken? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-13-pro-max-passcode-screen-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 13 Pro Max Passcode Screen?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-the-art-of-large-displays-why-the-samsung-galaxy-note-9-leads-the-pack/"><u>Mastering the Art of Large Displays - Why the Samsung Galaxy Note 9 Leads the Pack</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/motorola-one-5g-ace-in-focus-exceptional-network-velocity-and-superior-battery-capacity-a-comprehensive-analysis/"><u>Motorola One 5G Ace in Focus: Exceptional Network Velocity and Superior Battery Capacity - A Comprehensive Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-wear-os-history-with-the-lg-watch-style-a-retrospective-review/"><u>Navigating Wear OS History with the LG Watch Style: A Retrospective Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stellaris-unveiled-mastering-space-exploration-and-empirical-conquest-in-this-phenomenal-game/"><u>Stellaris Unveiled: Mastering Space Exploration and Empirical Conquest in This Phenomenal Game</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-inside-scoop-on-photoscape-an-in-depth-appraisal-of-a-no-cost-picture-editing-solution/"><u>The Inside Scoop on PhotoScape: An In-Depth Appraisal of a No-Cost Picture Editing Solution</u></a></li>
-<li><a href="https://techtrends.techidaily.com/turbocharge-playstation-5-storage-capacity-by-installing-an-nvme-m2-ssd/"><u>Turbocharge PlayStation 5 Storage Capacity by Installing an NVMe M.2 SSD</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/urban-armors-sturdy-protective-case-for-macbook-pro-is-it-really-that-tough/"><u>Urban Armor's Sturdy Protective Case for MacBook Pro: Is It Really That Tough?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-is-the-apple-ipad-pro-2018-11-inch-a-must-have-tablet-expert-analysis-and-reviews/"><u>Why Is the Apple iPad Pro (2018, 11-Inch) a Must-Have Tablet: Expert Analysis & Reviews</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-outer-worlds-an-immersive-sci-fi-experience-where-engaging-storytelling-meets-action-packed-gameplay/"><u>'The Outer Worlds': An Immersive Sci-Fi Experience, Where Engaging Storytelling Meets Action-Packed Gameplay</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-deciphering-highlighted-discussion-threads/"><u>[New] In 2024, Deciphering Highlighted Discussion Threads</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-prime-8-android-apps-for-multi-person-video-conferencing/"><u>[Updated] In 2024, Prime 8 Android Apps for Multi-Person Video Conferencing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-explore-more-with-these-videography-aids/"><u>2024 Approved Explore More with These Videography Aids</u></a></li>
+<li><a href="https://program-issues.techidaily.com/ace-your-match-in-rainbow-six-siege-by-fixing-the-server-connectivity-glitch/"><u>Ace Your Match in Rainbow Six Siege by Fixing the Server Connectivity Glitch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-most-innovative-mac-mice-of-2024-on-the-market/"><u>Discover the Most Innovative Mac Mice of 2024 on The Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-fitbit-charge-3-does-this-model-still-compete-with-current-wearables/"><u>Evaluating the Fitbit Charge 3 – Does This Model Still Compete with Current Wearables?</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-troubleshoot-and-correct-audio-renderer-problems-on-youtube-with-windows-11/"><u>How to Troubleshoot and Correct Audio Renderer Problems on YouTube with Windows 11</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Nokia 150 (2023) | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-depth-review-complete-camstudio-screencap-suite-for-2024/"><u>In-Depth Review Complete CamStudio Screencap Suite for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-nokia-72-unveiling-a-standout-performing-mid-tier-smartphone/"><u>Inside Nokia 7.2: Unveiling a Standout Performing Mid-Tier Smartphone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-choices-5-tips-for-buying-the-perfect-fitness-band-or-watch/"><u>Navigating the Choices: 5 Tips for Buying the Perfect Fitness Band or Watch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-through-tech-choices-is-an-amazon-fire-tablet-or-an-ipad-best-for-your-needs/"><u>Navigating Through Tech Choices: Is an Amazon Fire Tablet or an iPad Best for Your Needs?</u></a></li>
 </ul></div>
 
