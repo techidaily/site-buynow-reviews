@@ -1,7 +1,7 @@
 ---
 title: "Exploring elgooG: Inside The World's Funniest Search Engine"
-date: 2024-12-14T21:34:05.802Z
-updated: 2024-12-16T18:11:41.015Z
+date: 2024-12-22T16:03:56.509Z
+updated: 2024-12-25T16:17:22.579Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring elgooG: Inside The World's Funniest Search Engine"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/9d7c9f6d98f25a60252afdb702bb0a4fb1162bcb6
 ## Amazon Halo
 
 ![Amazon Halo](https://www.lifewire.com/thmb/KDrlBicwDSsm8oahXwLC9cx5FSs=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_HeroSquare-2e5c3941b8fe49afbd7464f382164976.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -76,10 +80,6 @@ Lifewire / Yoona Wagener
 
 Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Design: An accessory that blends in
 
  The Halo band doesn’t overwhelm the senses. I tested a small-sized band in silver and appreciated the streamlined bracelet style form factor. The fabric strap, which is a mix of sweat-wicking synthetics, has an athleisure look and feel: sporty but not to the degree that it screams sport watch. Rounding out the minimalist look is one sole button on the side of the sensor unit, which is flanked by an[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) indicator and one of two internal microphones. The other mic is located on the back, along with the optical sensor; it's largely undetectable if you manage a close fit.
@@ -91,7 +91,7 @@ Lifewire / Yoona Wagener
 Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Comfort: Streamlined but not immune to typical fit issues
@@ -105,7 +105,7 @@ Lifewire / Yoona Wagener
  As for water resistance, I didn’t test the 50-meter swimproof rating of the Halo in a pool, but I did shower with the device for three days. Despite the band’s moisture-wicking band material, it remained damp far longer than was comfortable and compared to a fast-drying silicone band. If you’re an avid swimmer or prefer not to remove your wearable while showering, the sport band option will most likely be the more desirable option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Performance: Constantly monitoring movement, not performance
@@ -136,10 +136,6 @@ Lifewire / Yoona Wagener
 
  The app makes everything from the initial setup to body scanning and voice tracking straightforward.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Battery: Enough juice to last nearly a week
 
  Amazon says that with tone tracking enabled, the band should last up to seven days on a single charge. There are two options for tracking tone: one for more accuracy and one to optimize battery life. I chose the latter and found that the band lasted for six days, which comes close to the manufacturer’s claims. I also noticed that by manually muting the mic, the battery drained far less quickly than when I left it on to listen at all times.
@@ -154,6 +150,10 @@ Lifewire / Yoona Wagener
 
  Retailing for just about $100, the Amazon Halo band certainly won’t break the bank for budget-minded shoppers. While the lack of display could be a deterrent, the solid mobile app provides convenient access to the detailed sleep, automatic activity tracking, and specialized tone of voice and body fat analysis the Halo provides.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Amazon Halo vs. WHOOP Strap 3
 
  The WHOOP Strap 3 is another screen-less fitness tracker with a minimalist bent but a bigger buy-in and emphasis on performance. Unlike the Halo, the WHOOP Strap requires a WHOOP membership, which, at the lowest end, costs $30 monthly for a 6-month membership or $180 total (band included). The Halo band comes with a free six-month subscription to Halo app services, then a $3.99 monthly charge, so it’s considerably cheaper—especially since WHOOP recommends replacing their fabric strap every six months as well.
@@ -167,7 +167,7 @@ Lifewire / Yoona Wagener
  The Amazon Halo isn’t for everyone with its lack of display and additional layers of data tracking to capture tone of voice and body fat percentage. But for the user that wants a little less hardware but more forward-thinking fitness/health tracking, this unique wearable offers a different approach to increasing activity and wellness awareness on a daily basis.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -177,7 +177,7 @@ Lifewire / Yoona Wagener
 * [Ticwatch Pro](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -211,22 +211,22 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-what-you-missed-a-closer-look-at-facebooks-2023-upgrades/"><u>[Updated] 2024 Approved What You Missed A Closer Look at Facebook's 2023 Upgrades</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/44cm44k344k544og44og5b6p5ywd44go44ov44kh44kk44or5ymk6zmkic0g44gd44km44kj44gv5zcm44gy44gn44gz44gl77yf44cn/"><u>「システム復元とファイル削除 - それらは同じですか？」</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/apple-iphone-se-2020-evaluation-practical-choice-in-the-iphone-lineup/"><u>Apple iPhone SE (2020) Evaluation: Practical Choice in the iPhone Lineup</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/game-based-youtube-earning-guide-for-2024/"><u>Game-Based YouTube Earning Guide for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-nokia-xr21-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Nokia XR21 Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-kooteks-reliable-and-all-encompassing-laptop-chiller-mat/"><u>In-Depth Analysis: Kootek's Reliable and All-Encompassing Laptop Chiller Mat</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-netgears-bulky-but-fast-1200-mbps-powerline-extension-unit-a-tradeoff-analysis/"><u>In-Depth Look at Netgear's Bulky but Fast 1200 Mbps Powerline Extension Unit: A Tradeoff Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/insights-into-the-reliable-performance-of-garmins-gpsmap-64st/"><u>Insights Into the Reliable Performance of Garmin's GPSMAP 64St</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/introducing-asus-revolutionary-nuc-tiny-pc-lineup-featuring-advanced-rtx-4000-gpu-technology/"><u>Introducing ASUS' Revolutionary NUC Tiny PC Lineup Featuring Advanced RTX 4000 GPU Technology</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lg-k92-smartphone-analysis-is-the-upgrade-to-5g-necessary/"><u>LG K92 Smartphone Analysis: Is The Upgrade To 5G Necessary?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/phone-number-555-123-4567/"><u>Phone Number: (555) 123-4567</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionize-home-entry-with-arlos-all-in-one-video-doorbell-alarm-system/"><u>Revolutionize Home Entry with Arlo's All-in-One Video Doorbell Alarm System</u></a></li>
-<li><a href="https://win-docs.techidaily.com/say-goodbye-to-pesky-pop-ups-four-ultimate-methods-to-remove-them-from-your-chrome-experience/"><u>Say Goodbye to Pesky Pop-Ups: Four Ultimate Methods to Remove Them From Your Chrome Experience</u></a></li>
-<li><a href="https://fox-pages.techidaily.com/speeding-up-your-computer-essential-tips-for-effective-registry-cleanup-and-maintenance/"><u>Speeding Up Your Computer: Essential Tips for Effective Registry Cleanup & Maintenance</u></a></li>
-<li><a href="https://fox-that.techidaily.com/struggling-with-your-iphoneipad-and-wi-fi-discover-these-8-effective-fixes/"><u>Struggling with Your iPhone/iPad and Wi-Fi? Discover These 8 Effective Fixes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-smart-routers-can-tp-links-archer-ax6000-outshine-the-mqknighthawk-ax12/"><u>The Ultimate Guide to Smart Routers: Can TP-Link's Archer AX6000 Outshine the MQKNightHawk AX12</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-and-solving-hyperx-cloud-alphas-non-functional-mic-problem/"><u>Troubleshooting and Solving HyperX Cloud Alpha's Non-Functional Mic Problem</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/yakuza-like-a-dragon-game-review-a-non-negotiable-rpg-adventure/"><u>'Yakuza: Like a Dragon' Game Review: A Non-Negotiable RPG Adventure</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-what-does-the-signature-blue-glyph-on-messenger-stand-for/"><u>[New] What Does the Signature Blue Glyph on Messenger Stand For?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-unleash-creativity-a-deep-dive-into-metaverse-meme-culture-for-2024/"><u>[Updated] Unleash Creativity A Deep Dive Into Metaverse Meme Culture for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-cinematographers-secret-top-7-go-to-sites-for-first-look-at-new-films/"><u>A Cinematographer's Secret: Top 7 Go-To Sites for First Look at New Films</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-credit-card-from-your-iphone-11-apple-id-and-apple-pay-by-drfone-ios/"><u>In 2024, How to Change Credit Card from Your iPhone 11 Apple ID and Apple Pay</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-top-8-digital-audio-workstations-daws-on-pc-compatible-with-windows-10-and-7-free-and-paid-options/"><u>In 2024, Top 8 Digital Audio Workstations (DAWs) on PC Compatible with Windows 10 & 7, Free and Paid Options</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-xiaomi-redmi-k70-pro-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Xiaomi Redmi K70 Pro Phone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/navigating-google-meet-discussions-tips-and-tricks-for-2024/"><u>Navigating Google Meet Discussions Tips & Tricks for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/simple-strategies-for-transferring-motorola-information-pc-cloud-and-device-options/"><u>Simple Strategies for Transferring Motorola Information: PC, Cloud & Device Options</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unleashing-productivity-in-onlyoffice-with-chatgpt-integration/"><u>Unleashing Productivity in ONLYOFFICE with ChatGPT Integration</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-the-secrets-to-building-utopian-metropolises-with-cities-skylines-reviewed/"><u>Unlock the Secrets to Building Utopian Metropolises with Cities: Skylines Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/upgrade-or-stick-with-current-comparing-the-newest-flagships-galaxy-s24-and-s23/"><u>Upgrade or Stick with Current? Comparing the Newest Flagships - Galaxy S24 and S23</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/urban-armor-gear-protective-sleeve-for-macbook-pro-is-it-tough-enough/"><u>Urban Armor Gear Protective Sleeve for MacBook Pro - Is It Tough Enough?</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/versatile-tools-flawless-repair-across-systems/"><u>Versatile Tools: Flawless Repair Across Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/whisker-wonders-games-galore/"><u>Whisker Wonders: Games Galore!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-the-latest-apple-ipad-102-is-outshining-its-predecessors-for-value-seekers/"><u>Why the Latest Apple iPad 10.2 Is Outshining Its Predecessors for Value Seekers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/z7-photo-masterclass-how-nikon-conquers-mirrorless-challenges/"><u>Z7 Photo Masterclass: How Nikon Conquers Mirrorless Challenges</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Evaluation of the Powerful M Mock 1000A Jump Starter - A 18000mAh Auto Lifesaver
-date: 2024-12-14T00:18:37.821Z
-updated: 2024-12-16T22:17:57.692Z
+date: 2024-12-20T17:04:00.435Z
+updated: 2024-12-25T18:53:58.877Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Evaluation of the Powerful M Mock 1000A Jump Starter - A 18000mAh Auto Lifesaver
@@ -17,10 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/RyrDQ4UMABRCrisk0CfrIlK8j8g=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
@@ -50,10 +46,6 @@ Lifewire / Gannon Burgett
 
 ![Max Oak](https://www.lifewire.com/thmb/0sYGw-7sF6j5aqPA13sWjU-Y2b4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Gannon Burgett
 
 [View On Amazon $91](https://www.amazon.com/dp/B00YP823NA?tag=lifewire-onsite-prod-20&ascsubtag=4589398%7Cn970af9c77c9d48e5afeadf350862a65723%7CB00YP823NA)
@@ -76,6 +68,10 @@ Lifewire / Gannon Burgett
 
  While there's no shortage of options on the market, there aren’t many that can keep you going for days. That’s not the case with the MaxOak 50000mAh, an absolutely massive and robust charger that attempts to be the jack of all when it comes to charging gadgets on the go. It’s power comes at the cost of massive size and the charging ports aren’t too fast, but if you need tons of power, this is the battery pack to get.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Bulky for travelers**
 
  First and foremost, this thing is a tank. At 2.77 pounds, it weighs many times more than most smartphones and nearly as much as most compact laptops. It also measures in at 8.1 x 5.3 x 1.3 inches (HWD), making it quite the behemoth to lug around. A small detail regarding the weight of the MaxOak is that it isn't balanced. The side without the ports holds a fair bit more weight than the side with the various ports. It's not a significant detail, but one you might notice with time.
@@ -92,15 +88,15 @@ Lifewire / Gannon Burgett
 
  Charging the device is done via a small 16.8-volt 2.5A plug-in style port on the opposite side of the power button. Overall, the design is roughly what you'd expect from a 50000mAh laptop battery charger. Yes, it's heavy, yes it's quite beefy in size, but it comes with the territory.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Simple to start, but yet another adapter to carry around**
 
  Setting up the MaxOak laptop battery charger is as simple as it gets. After removing it from its unbranded cardboard box, it's simply a matter of plugging it in and getting it charged up completely. Our device came charged at roughly 50% based on the onboard[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) battery indicator, but to complete our tests we wanted it charged entirely, which leads us to our biggest complaint about this charger.
 
  The point of a charger is to have extra battery power on hand when needed so you don't have to carry around unnecessary cables when traveling. Unfortunately, the MaxOak battery pack doesn't use any kind of USB or standardized port. Rather than charging it with a[USB Type-C](https://www.lifewire.com/usb-c-4149490) or even a micro-USB port, the MaxOak battery pack relies on its own proprietary power supply that's nearly as large as most laptop chargers. Sure, the 50000mAh onboard is likely enough that you could leave both the battery pack charger and your laptop charger behind for most events, but eventually you'll run out of juice and rather than reaching for a cable you would probably already have in your bag, you're stuck bringing along a proprietary charger.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Charging Speed and Battery: Slow and steady wins this race**
 
@@ -120,9 +116,17 @@ Lifewire / Gannon Burgett
 
  Moving onto laptops, our ASUS X555LA was able to be charged four and a half times from 0% with the MaxOak power bank, with an average charge time of three hours or so. The ASUS X555LA has a relatively small battery compared to most laptops, which means it falls in line with MaxOak’s claims that its power bank can charge a laptop two times over give or take a little.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Right down the middle**
 
  The MaxOak 50000mAh power bank comes in at $135.99 at the time of this review. This is a reasonable price when taking into consideration how much battery capacity you're getting with it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: One in the same**
 
@@ -140,10 +144,6 @@ Lifewire / Gannon Burgett
 
  Overall, the MaxOak 50000mAh is a decent power bank with massive capacity. However, it isn't designed with newer computers and devices in mind. If you have an older laptop on hand that isn't a MacBook (the MaxOak doesn't support any MagSafe connectors) or doesn't use USB Type-C for charging, it'll get the job done. But if your smartphone or laptop is newer and relies on more recent and powerful connections, you're going to want to look elsewhere.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Jackery PowerBar Battery Pack](https://www.lifewire.com/jackery-powerbar-battery-pack-review-4589480)
@@ -151,7 +151,7 @@ Lifewire / Gannon Burgett
 * [Anker PowerCore+ 26800 Battery Pack Bundle](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -184,18 +184,19 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/new-splitting-screen-techniques-for-engaging-youtube-content/"><u>[New] Splitting Screen Techniques for Engaging YouTube Content</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-navigating-kinemasters-zoom-features-for-professional-results/"><u>[Updated] 2024 Approved Navigating Kinemaster's Zoom Features for Professional Results</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-optimizing-your-project-b-roll-utilization-tips/"><u>[Updated] In 2024, Optimizing Your Project B-Roll Utilization Tips</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-which-ios-app-crushes-in-video-editing-cameo-or-filmorago/"><u>[Updated] Which iOS App Crushes in Video Editing? Cameo or FilmoraGo?</u></a></li>
-<li><a href="https://win-able.techidaily.com/battle-ready-fix-your-titanfall-2-crashing-problems-in-minutes/"><u>Battle Ready: Fix Your Titanfall 2 Crashing Problems in Minutes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exclusive-prime-day-bargains-snag-a-quality-roku-at-unmatched-prices/"><u>Exclusive Prime Day Bargains: Snag a Quality Roku at Unmatched Prices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-d-link-powerline-av-2am-wireless-extender-kit-effortless-installation-speedy-data-transfer-rates/"><u>In Depth Look at D-Link Powerline AV 2Am Wireless Extender Kit: Effortless Installation, Speedy Data Transfer Rates</u></a></li>
-<li><a href="https://win-tips.techidaily.com/simple-tricks-how-to-change-your-youtube-videos-into-3gp-format-with-ease/"><u>Simple Tricks: How to Change Your YouTube Videos Into 3GP Format with Ease</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-definitive-troubleshooting-guide-for-mending-nspr4dll-absence/"><u>The Definitive Troubleshooting Guide for Mending Nspr4.dll Absence</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-review-the-moto-g-powers-impressive-energy-longevity-meets-stunning-design-quality/"><u>Ultimate Review: The Moto G Power's Impressive Energy Longevity Meets Stunning Design Quality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unearthing-assassins-creed-valhalla-an-epic-tale-of-norse-warriors-set-in-medieval-europe/"><u>Unearthing Assassin’s Creed: Valhalla - An Epic Tale of Norse Warriors Set in Medieval Europe</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-efficiency-of-rexing-v1-dash-cam-an-in-depth-look-at-its-cost-effectiveness/"><u>Unveiling the Efficiency of Rexing V1 Dash Cam: An In-Depth Look at Its Cost-Effectiveness</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-optimize-your-editing-process-leveraging-the-automatic-ducking-functionality-of-final-cut-pro-x-to-manage-sound-levels-efficiently/"><u>Updated 2024 Approved Optimize Your Editing Process Leveraging the Automatic Ducking Functionality of Final Cut Pro X to Manage Sound Levels Efficiently</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-direct-route-watching-popular-reactions-in-a-flash-on-youtube/"><u>[New] 2024 Approved Direct Route Watching Popular Reactions in a Flash on YouTube</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-elevate-your-fb-video-game-11-winning-strategies/"><u>[Updated] In 2024, Elevate Your FB Video Game 11 Winning Strategies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-and-functional-moto-g-with-stylus-a-comprehensive-review/"><u>Affordable & Functional: Moto G with Stylus - A Comprehensive Review</u></a></li>
+<li><a href="https://extra-information.techidaily.com/blend-photos-effortlessly-in-real-time/"><u>Blend Photos Effortlessly in Real-Time</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-oppo-a1-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Oppo A1 5G | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>Fixing Foneazy MockGo Not Working On Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/prime-6-web-spaces-for-corporate-social-connections-for-2024/"><u>Prime 6 Web Spaces for Corporate Social Connections for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/step-by-step-guide-setting-up-the-foxy-streams-plugin-in-your-kodi-interface/"><u>Step-by-Step Guide: Setting Up the Foxy Streams Plugin in Your Kodi Interface</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722782187304-top-picks-for-affordable-excellence-in-fossil-sport-timepieces-reviews-inside/"><u>Top Picks for Affordable Excellence in Fossil Sport Timepieces – Reviews Inside!</u></a></li>
+<li><a href="https://some-skills.techidaily.com/ultimate-no-cost-countdown-trackers-for-2024/"><u>Ultimate No-Cost Countdown Trackers for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-strategies-for-increasing-nes-classics-gaming-selection/"><u>Ultimate Strategies for Increasing NES Classic's Gaming Selection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-soundcores-affordable-life-q30-anc-performance/"><u>Unveiling Soundcore's Affordable Life Q30 ANC Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-ultimate-ergonomic-experience-with-the-microsoft-surface-keyboard-review/"><u>Unveiling the Ultimate Ergonomic Experience with the Microsoft Surface Keyboard Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/wonder-workshops-dash-toy-an-exciting-rolling-robot-adventure-for-kids-in-depth-review/"><u>Wonder Workshop’s Dash Toy: An Exciting Rolling Robot Adventure for Kids – In-Depth Review</u></a></li>
 </ul></div>
 

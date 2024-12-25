@@ -1,7 +1,7 @@
 ---
 title: Comprehensive TP-Link Archer C80 Analysis - Top Under $100 Routers
-date: 2024-12-11T17:36:43.903Z
-updated: 2024-12-16T21:39:03.800Z
+date: 2024-12-20T17:59:52.538Z
+updated: 2024-12-25T18:18:04.223Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive TP-Link Archer C80 Analysis - Top Under $100 Routers
@@ -19,12 +19,16 @@ thumbnail: https://www.lifewire.com/thmb/hnfn1HKm08TJxpBixlaHeqOfiug=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/6eJwPC0xPwMxCh4aQhG73X9dkzU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -46,13 +50,13 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -75,6 +79,10 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -88,7 +96,7 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup: Easier than most**
@@ -107,15 +115,7 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Range: Could be better**
 
@@ -174,24 +174,21 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-game-capture-software-rivalry-obs-vs-shadowplay-for-2024/"><u>[New] Game Capture Software Rivalry OBS Vs. ShadowPlay for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-your-guide-to-retracing-fbs-most-watched-videos-now/"><u>[New] In 2024, Your Guide to Retracing FB’s Most-Watched Videos, Now</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-next-gen-screen-capture-unleashed-apeaksofts-2023-review/"><u>[New] Next-Gen Screen Capture Unleashed Apeaksoft’s 2023 Review</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-edge-and-elegance-in-figure-skating/"><u>[Updated] Edge and Elegance in Figure Skating</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-selection-high-quality-zero-price-free-luts/"><u>2024 Approved The Ultimate Selection High Quality, Zero Price Free LUTs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/assessing-applecare-plus-5-compelling-justifications-for-add-on-coverage/"><u>Assessing AppleCare Plus: 5 Compelling Justifications for Add-On Coverage</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-latest-lg-stylo-style-stylus-and-performance-reviewed/"><u>Evaluating the Latest LG Stylo - Style, Stylus & Performance Reviewed</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/eyechrome-studio-direct-os-screencap/"><u>EyeChrome Studio Direct OS Screencap</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/find-your-perfect-pc-part-with-toms-hardware-advice/"><u>Find Your Perfect PC Part with Tom's Hardware Advice</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/hidden-gems-in-sound-tech-avantree-aria-headphones/"><u>Hidden Gems in Sound Tech: Avantree Aria Headphones</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-vivo-x100-pro-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Vivo X100 Pro</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-voice-assistant-gadgets-the-2024-market-roundup/"><u>Leading Voice Assistant Gadgets: The 2024 Market Roundup</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/masterclass-the-different-faces-of-hand-tracker-for-2024/"><u>Masterclass The Different Faces of Hand Tracker for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/nord-n100-assessment-by-oneplus-top-picks-for-the-thrifty-techie/"><u>Nord N100 Assessment by OnePlus - Top Picks for the Thrifty Techie!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-perfect-blend-of-style-and-mobility-in-the-acer-chromebook-r-11-review/"><u>The Perfect Blend of Style and Mobility in the Acer Chromebook R 11 Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-cutting-edge-aerial-camera-tech-of-dji-mavic-3/"><u>The Ultimate Guide to the Cutting Edge Aerial Camera Tech of DJI Mavic 3</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-resolving-wwe-2k-battlegrounds-level-100-directx-11-glitches/"><u>Troubleshooting Guide: Resolving WWE 2K Battlegrounds' Level 10.0 DirectX 11 Glitches</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-latest-apple-tv-4k-a-comprehensive-review-of-the-new-genesis/"><u>Unboxing the Latest Apple TV 4K: A Comprehensive Review of the New Genesis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/urban-armor-gear-macbook-pro-protector-assessment-durable-and-functional/"><u>Urban Armor Gear MacBook Pro Protector Assessment: Durable and Functional</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixed-no-sound-on-windows-11-quickly-and-easily/"><u>[Fixed] No Sound on Windows 11 - Quickly & Easily</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-discover-9-free-whole-film-festive-movie-gems-on-youtube/"><u>[New] 2024 Approved Discover 9 Free, Whole-Film Festive Movie Gems on Youtube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-download-your-favorite-shows-anytime-everywhere-with-these-apps-for-2024/"><u>[Updated] Download Your Favorite Shows Anytime, Everywhere with These Apps for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-pro-video-editing-tools-on-your-phone/"><u>[Updated] Pro Video Editing Tools on Your Phone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unlock-instagrams-hidden-features-voice-modification/"><u>[Updated] Unlock Instagram's Hidden Features Voice Modification</u></a></li>
+<li><a href="https://fox-where.techidaily.com/comprehensive-package-specification-template-collection/"><u>Comprehensive Package Specification Template Collection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insight-on-dells-inspiron-3671-deskstation-an-honest-look-at-a-middle-of-the-road-pc-experience/"><u>Expert Insight on Dell's Inspiron 3671 DeskStation: An Honest Look at a Middle-of-the-Road PC Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-the-convenience-and-performance-of-a-google-wireless-nest-doorbell-on-batteries/"><u>Expert Review: The Convenience and Performance of a Google Wireless Nest Doorbell on Batteries</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-the-mini-powerhouse-in-depth-review-of-the-acer-predator-triton-300-se/"><u>Explore the Mini Powerhouse: In-Depth Review of the Acer Predator Triton 300 SE!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/head-to-head-showdown-samsung-s23-ultra-against-the-s21-ultra/"><u>Head-to-Head Showdown: Samsung S23 Ultra Against the S21 Ultra</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-does-the-samsung-q60r-series-stack-up-an-in-depth-review-of-a-4k-smart-gaming-tv/"><u>How Does the Samsung Q60R Series Stack Up? An In-Depth Review of a 4K Smart Gaming TV</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-the-new-m1-processor-redefines-performance-in-the-latest-macbook-pro-13-2e03/"><u>How the New M1 Processor Redefines Performance in the Latest MacBook Pro 13 (2E03)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/important-aspects-to-ponder-on-when-buying-an-independent-smartphone/"><u>Important Aspects To Ponder On When Buying An Independent Smartphone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-samsung-galaxy-a05s-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Samsung Galaxy A05s Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Infinix GT 10 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/visual-perfection-discover-the-best-of-9-live-stream-filters/"><u>Visual Perfection Discover the Best of 9 Live-Stream Filters</u></a></li>
 </ul></div>
 

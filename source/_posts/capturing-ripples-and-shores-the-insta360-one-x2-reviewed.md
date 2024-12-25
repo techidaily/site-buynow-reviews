@@ -1,7 +1,7 @@
 ---
 title: "Capturing Ripples & Shores: The Insta360 One X2 Reviewed"
-date: 2024-12-15T17:53:34.173Z
-updated: 2024-12-16T17:19:38.826Z
+date: 2024-12-21T18:07:42.779Z
+updated: 2024-12-25T19:31:50.019Z
 categories:
   - BestProducts
 description: "This Article Describes Capturing Ripples & Shores: The Insta360 One X2 Reviewed"
@@ -18,13 +18,13 @@ thumbnail: https://thmb.techidaily.com/a50a3cec0521fa6fb800284717c9122c07291a027
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Apple iMac 21.5-inch 4K
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/dIY3bLJSRioBJmHFFCGQjcgcxbU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4045927-1-625cb1ba7a894cc38db8565dd81072b3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -45,13 +45,13 @@ Lifewire / Gannon Burgett
 
 4
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Apple iMac 21.5-inch 4K
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/hOzU-Ut_6g-s5JwzT08s3wa0tSo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4045927-1-625cb1ba7a894cc38db8565dd81072b3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -80,6 +80,10 @@ Lifewire / Gannon Burgett
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/TCcSm-nkER9HhHM8YIPMWbaezRA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-4-fa6cf253bfd44ab991c366691b68bdf5.jpg)
 
  Lifewire / Gannon Burgett
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Beautiful, with room for improvements**
 
@@ -117,11 +121,11 @@ Lifewire / Gannon Burgett
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/IKZ75jBAosAG3M1Py_-E0ElYAfM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-5-a705ea67b88b4cf694c53e4715a9aceb-f57b3be92a934d8ab579d90728e23fe8.jpg)
 
-Lifewire / Gannon Burgett
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Lifewire / Gannon Burgett
 
 ## **Performance: Impressive performance from an all-in-one**
 
@@ -138,10 +142,6 @@ Lifewire / Gannon Burgett
  In the Geekbench tests, the iMac scored 4,866 on the single core test, 14,151 on the multi-core test, and 56,974 on the OpenCL score. This falls in line with other iMacs of the same specifications and hovers around other computers with similar specifications. In Cinebench, the iMac achieved 93.86 frames per second in the OpenGL test and a score of 584 cb in the CPU test.
 
  All-in-all, the iMac seems to punch right at or above its specifications when compared to similar hardware. It’s not going to be pumping out 8K footage, but for basic 4K video editing and image post-processing, the graphics card is more than enough. As for productivity, there’s not much you can throw at the iMac that it can’t handle. The only thing we noticed slowing down the computer was the 8GB of RAM when we had over a dozen applications open, but that can be fixed by upgrading to the 16GB or 32GB model (although it’s not a cheap upgrade).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Network: Fast and reliable**
 
@@ -166,7 +166,7 @@ Lifewire / Gannon Burgett
  Unlike Windows, macOS doesn’t come with any bloatware either. There’s a number of pre-installed apps developed by Apple, including four new ones borrowed from Apple’s mobile operating system, iOS, but most of the pre-installed apps are the standard array of programs you’d expect to see on any modern computer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: The Apple tax is real**
@@ -174,6 +174,10 @@ Lifewire / Gannon Burgett
  The 21.5-inch 4K iMac we tested with the aforementioned specifications retails for $1,499\. Compared to other Windows PCs with similar specifications, the iMac is without pricey for the specs it offers. However, this is par for the course with Apple, so much so that the term “Apple tax” has become a commonly-used phrase. What you’re paying for is the entire package, wrapped up in one of the best-looking frames out there.
 
  Could you build a PC with better specs for far less money? Absolutely. But it won’t be running macOS and it certainly won’t be as slim and streamlined as the iMac. If you’re invested in the Apple ecosystem and don’t need to shell out for the more expensive 27-inch 5K iMac, the 21.5-inch 4K iMac is priced much more reasonably and still has plenty to offer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: A unique option in a small market**
 
@@ -194,7 +198,7 @@ Lifewire / Gannon Burgett
  The 21.5-inch 4K iMac is a solid all-in-one computer that packs a lot of power into a tiny, well-designed package. It’s not going to blow anyone away on benchmarks and it’s not cheap for the internal components you’re getting, but it has a lot to offer for multimedia and productivity. That’s not to mention the sheer convenience of having everything simply work out of the box.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -202,10 +206,6 @@ Lifewire / Gannon Burgett
 * [Microsoft Surface Studio 2](https://www.lifewire.com/microsoft-surface-studio-2-review-4689102)
 * [Alienware Aurora R7](https://www.lifewire.com/alienware-aurora-r7-review-4689097)
 * [Lenovo ThinkCentre M720 Tower](https://www.lifewire.com/lenovo-thinkcentre-m720-tower-review-4776238)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -238,16 +238,24 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-visual-voyage-amds-radeon-reborn/"><u>[New] 2024 Approved Visual Voyage AMD's Radeon Reborn</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-brand-engagement-through-opening-for-2024/"><u>[New] Brand Engagement Through Opening for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-optimal-video-player-for-avi-files-on-devices/"><u>[New] Optimal Video Player for Avi Files on Devices</u></a></li>
-<li><a href="https://win-studio.techidaily.com/beginners-guide-mastering-your-dj-controller-with-pcdj-essential-tips-and-tricks/"><u>Beginner's Guide: Mastering Your DJ Controller with PCDJ - Essential Tips & Tricks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ex6200-unit-analysis-comprehensive-review-of-the-netgear-ac1200-wi-fi-range-extender/"><u>EX6200 Unit Analysis: Comprehensive Review of the Netgear AC1200 Wi-Fi Range Extender</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-kobo-nia-ereader-a-formidable-challenger-for-kindle-devices/"><u>In-Depth Analysis of Kobo Nia eReader: A Formidable Challenger for Kindle Devices</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/masterful-makeovers-picarts-backdrop-banishment-guide-for-2024/"><u>Masterful Makeovers PicArt’s Backdrop Banishment Guide for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/top-11-optimal-mac-friendly-dvd-converters-free-and-premium-options-reviewed/"><u>Top 11 Optimal Mac-Friendly DVD Converters: Free and Premium Options Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tp-link-re505x-wi-fi-extender-review/"><u>TP-Link RE505X Wi-Fi Extender Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-anker-usb-30-portable-charger-a-revealing-review/"><u>Ultimate Guide to the Anker USB 3.0 Portable Charger: A Revealing Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-newly-released-samsung-galaxy-chromebook-2-a-perfect-blend-of-mobility-and-productivity/"><u>Ultimate Guide to the Newly Released Samsung Galaxy Chromebook 2: A Perfect Blend of Mobility & Productivity</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-strategic-electrical-power-choices-for-drones-success/"><u>[New] In 2024, Strategic Electrical Power Choices for Drones' Success</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-gradual-aesthetic-launch/"><u>[Updated] In 2024, Gradual Aesthetic Launch</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-masterclass-selecting-christian-streaming-platforms/"><u>[Updated] Masterclass Selecting Christian Streaming Platforms</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-xiaomi-redmi-note-12t-pro-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Xiaomi Redmi Note 12T Pro FRP</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-mobvoi-ticwatch-e2-is-it-worth-the-price/"><u>Affordable Mobvoi TicWatch E2 - Is It Worth the Price?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/analyzing-the-pros-and-cons-of-the-thermaltake-massive-tm-laptop-chiller-value-for-money-insights/"><u>Analyzing the Pros & Cons of the Thermaltake Massive TM Laptop Chiller: Value for Money Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-x441ba-review/"><u>Asus X441BA Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-the-chargetech-27000mah-battery-ultimate-energy-storage-solution/"><u>Comprehensive Evaluation: The ChargeTech 27000mAh Battery - Ultimate Energy Storage Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-samsung-galaxy-note20-ultra-with-5g-connectivity-features/"><u>Comprehensive Review of the Samsung Galaxy Note20 Ultra with 5G Connectivity Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-anthropics-smart-photo-editor-features-and-user-experience/"><u>Comprehensive Review: Anthropics Smart Photo Editor – Features & User Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/deep-dive-into-jabra-talk-45s-crystal-clear-audio-and-durability/"><u>Deep Dive Into Jabra Talk 45'S Crystal Clear Audio & Durability</u></a></li>
+<li><a href="https://win-able.techidaily.com/eliminate-lag-issues-in-rainbow-six-siege-expert-tips-and-solutions/"><u>Eliminate Lag Issues in Rainbow Six Siege - Expert Tips & Solutions</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-vivo-v27-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Vivo V27 If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-stop-fifa-22-from-crashing-during-playtime-on-pcs/"><u>How to Stop FIFA 22 From Crashing During Playtime on PCs</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/reimagining-received-gifts-the-joy-of-openness/"><u>Reimagining Received Gifts The Joy of Openness</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-ai-platforms-for-idea-evolution/"><u>Top AI Platforms for Idea Evolution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/understanding-the-contrast-macbook-air-vs-macbook-pro-differences-explored/"><u>Understanding the Contrast: MacBook Air Vs. MacBook Pro Differences Explored</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-advancements-in-apple-watch-series-4-greatness-redefined-and-refined/"><u>Unveiling the Advancements in Apple Watch Series 4: Greatness Redefined and Refined</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/yl-softwares-stylish-math-symbol-themes-for-desktops-background-images-and-inspirational-wallpapers-with-a-touch-of-aesthetics/"><u>YL Software's Stylish Math Symbol Themes for Desktops: Background Images and Inspirational Wallpapers with a Touch of Aesthetics</u></a></li>
 </ul></div>
 

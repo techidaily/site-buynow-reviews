@@ -1,7 +1,7 @@
 ---
 title: "Holy Stone HS170 Predator Mini: The Wallet-Wise RC Helicopter You Can't Miss - Expert Review Inside"
-date: 2024-12-10T17:50:23.326Z
-updated: 2024-12-16T21:41:01.467Z
+date: 2024-12-24T18:31:24.230Z
+updated: 2024-12-25T17:43:57.864Z
 categories:
   - BestProducts
 description: "This Article Describes Holy Stone HS170 Predator Mini: The Wallet-Wise RC Helicopter You Can't Miss - Expert Review Inside"
@@ -46,7 +46,7 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
@@ -72,10 +72,6 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer C80 is an affordable[long range router](https://www.lifewire.com/best-long-range-routers-4122554) that should be ideal for medium-sized homes. With 3x3[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , parental controls, and remote control using TP-Link’s Tether app, the Archer C80 has a few admirable features for a router under $100, but it also lacks some of the things we’ve come to expect in a router in this price range (like smart assistant compatibility and no USB port). I tested the TP-Link Archer C80 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment when compared to other budget routers on the market.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Basic, but effective**
 
  The Archer C80 is an exceptionally small router, with a body that measures only 4.6 inches tall, 8.5 inches wide, and 1.26 inches in depth. Since its body is smaller than a paperback book, the router can sit inconspicuously on a table or desk. It also has two keyhole mounts on the back for mounting on a wall.
@@ -83,6 +79,10 @@ Lifewire / Erika Rawes
  The matte black color scheme allows it to blend in with other devices, so you’ll barely notice it on a desk or workstation. The surface is textured, with recesses to hide the venting. The texturing is both a blessing and a curse because it causes the C80 to collect a little extra dust, but it also hides fingerprints and smudges.
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/Ep4Dk2l5q44AgM0S3cs9My3AE3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_03-a367c45b39474785856cb986e82c88dc.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -98,10 +98,14 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/tXeiVJNqjtwMg97as87xxtsMwhc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_04-375b5f92ce9d44f4af109c8f6bfada16.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Network Performance: Fast speeds, No USB port**
@@ -113,10 +117,6 @@ Lifewire / Erika Rawes
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Range: Even better than advertised**
 
@@ -134,15 +134,15 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **Price: Around 100 bucks**
 
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **TP-Link Archer C80 vs. TP-Link Archer A9**
 
@@ -189,16 +189,18 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/updated-flash-vids-unpacked-whats-inside-for-2024/"><u>[Updated] Flash Vids Unpacked What's Inside for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-transforming-outdoor-vision-into-online-presence-gopro-to-periscopefacebook/"><u>[Updated] In 2024, Transforming Outdoor Vision Into Online Presence GoPro to Periscope/Facebook</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-ios-leading-edge-psp-emulators-top-5-lists/"><u>2024 Approved IOS Leading Edge PSP Emulators, Top 5 Lists</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/audition-the-benefits-of-spotifys-high-end-membership/"><u>Audition the Benefits of Spotify's High-End Membership</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/google-assistant-vs-alexa-deciding-on-your-perfect-digital-companer/"><u>Google Assistant Vs. Alexa – Deciding on Your Perfect Digital Companer</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-lava-blaze-curve-5g-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Lava Blaze Curve 5G Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/premier-sound-outstanding-list-of-wired-earbuds/"><u>Premier Sound: Outstanding List of Wired Earbuds</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-rotibox-beanie-hat-review-a-synergy-of-snugness-and-superior-auditory-quality/"><u>The Rotibox Beanie Hat Review: A Synergy of Snugness and Superior Auditory Quality</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-guide-to-viewing-star-trek-films-sequentially/"><u>The Ultimate Guide to Viewing Star Trek Films Sequentially</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-4k-with-sonys-latest-console-a-review-of-the-ps4-pro/"><u>Unveiling the Power of 4K with Sony's Latest Console - A Review of the PS4 Pro</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/youtubemp3-chrome/"><u>YouTube音楽動画MP3ダウンロード手順 - Chrome拡張機能</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-exploring-instagrams-premier-after-effects-themes-for-2024/"><u>[New] Exploring Instagram's Premier After Effects Themes for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-streamlining-role-assignment-in-discord-channels/"><u>[Updated] 2024 Approved Streamlining Role Assignment in Discord Channels</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-comprehensive-guide-to-top-tier-skype-recorder-tech/"><u>2024 Approved Comprehensive Guide to Top-Tier Skype Recorder Tech</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-evaluating-active-8-does-it-match-best-recording-standards/"><u>2024 Approved Evaluating Active 8 - Does It Match Best Recording Standards?</u></a></li>
+<li><a href="https://win-forum.techidaily.com/controlling-startup-software-a-step-by-step-revo-uninstaller-tutorial/"><u>Controlling Startup Software: A Step-by-Step Revo Uninstaller Tutorial</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/optimize-training-sessions-leading-7-gpt-additions/"><u>Optimize Training Sessions: Leading 7 GPT Additions</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-ghost-touch-glitches-discover-10-strategies-to-restore-your-iphones-sensitivity/"><u>Overcoming Ghost Touch Glitches: Discover 10 Strategies to Restore Your iPhone's Sensitivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/status-bt-evaluation-economical-choice-yet-lacks-perfection/"><u>Status BT Evaluation: Economical Choice, Yet Lacks Perfection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/step-by-step-breakdown-of-using-the-advanced-technology-in-apples-latest-model-iphone-15-pro/"><u>Step-by-Step Breakdown of Using the Advanced Technology in Apple's Latest Model, iPhone 15 Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-comprehensive-review-of-poweradd-pilot-pro2-supercharging-your-gadgets-on-the-go/"><u>The Comprehensive Review of POWERADD Pilot Pro2: Supercharging Your Gadgets on the Go</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-evolution-in-microphone-tech-a-look-at-jabra-talk-25-model/"><u>The Evolution in Microphone Tech - A Look at Jabra Talk 25 Model</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-motorola-edgeplus-assessment-shortcomings-in-achieving-elite-status/"><u>The Motorola Edge+ Assessment: Shortcomings in Achieving Elite Status</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-tp-link-av2-powerline-adapter-a-comprehensive-review-of-superior-speed-and-substandard-style/"><u>The TP-Link AV2# Powerline Adapter - A Comprehensive Review of Superior Speed and Substandard Style</u></a></li>
 </ul></div>
 

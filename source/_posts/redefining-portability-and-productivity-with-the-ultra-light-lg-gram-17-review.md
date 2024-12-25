@@ -1,7 +1,7 @@
 ---
 title: Redefining Portability and Productivity with the Ultra-Light LG Gram 17 Review
-date: 2024-08-15T09:35:29.532Z
-updated: 2024-08-16T09:35:29.532Z
+date: 2024-12-18T16:45:00.526Z
+updated: 2024-12-25T18:23:07.901Z
 categories:
   - BestProducts
 description: This Article Describes Redefining Portability and Productivity with the Ultra-Light LG Gram 17 Review
@@ -34,15 +34,9 @@ Lifewire / Rebecca Isaacs
 
 3
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## Colossal Order Cities: Skylines
 
 ![Cities: Skylines](https://www.lifewire.com/thmb/deA72Y6zrzAaLylUgU38BHiLoT4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cities-Skylines_HeroSquare-99df9b5cb412430ea9648e87a9af3ab1.jpg)
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -63,9 +57,9 @@ Lifewire / Rebecca Isaacs
  When I was a kid, I tried my hand at SimCity 3000, and learned the hard way that I was not good at that kind of city-building game. So when I saw Cities: Skylines promise a more modern take on city-building, I picked it up. Years later, I can finally redeem myself and build a modern city from the ground up thanks to this sandbox city-builder game. At first, it was rough, but in my twenty hours of gameplay, I had a fun experience. Read on for the verdict to see how it stacked up with our list of the[best city-building games](https://www.lifewire.com/games-console-reviews-4102640) .
 
 ![Cities: Skylines](https://www.lifewire.com/thmb/WU7CbhbZ2iqnmzSxasaW_HLw7WQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cities-Skylines_05-6834bf27f720404a860b40ec9f311711.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -82,7 +76,15 @@ Lifewire / Rebecca Isaacs
 
 ![Cities: Skylines](https://www.lifewire.com/thmb/588X3UAailg5Hybxdvxqw8a_G-o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cities-Skylines_02-04c0ef53b3cf4183ae1388ed1216c2e6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Gameplay** :**Tough learning curve**
 
@@ -106,34 +108,20 @@ Lifewire / Rebecca Isaacs
 
 ![Cities: Skylines](https://www.lifewire.com/thmb/f8EjasEAuN7d0yNI_yXkZlPz8A4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cities-Skylines_03-4df9547f975749bbb7facb80717838b7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Graphics: Bright and colorful**
 
  I went into Cities:Skylines, fully expecting a similar experience to[SimCity 3000](https://www.gog.com/game/simcity%5F3000) (view on GOG). To my surprise, the graphics were fun and colorful. You can’t alter the buildings in any way, but Paradox and Colossal Order both made sure to have an array of color into the designs. In fact, to make the graphics any fancier I feel would have been a disservice to the game. It perfectly balances necessity and glamor.
 
 ![Cities: Skylines](https://www.lifewire.com/thmb/ScVT0Z65L44TgSD3IYaIaWCdXLA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cities-Skylines_04-83e9ebc98c9546dfa595e6baf45d23bf.jpg)
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ## **Price: Not bad**
 
  Cities: Skylines will put you back around $30, which isn’t too bad. However, the issue I take with it being $30 is that it’s only for the base game. You won’t get the extra features of the expansions or content packs unless you can land a Steam sale. For a base game that doesn’t come with any scenarios other than the basic sandbox with a handful of maps, it’s a little frustrating. However, if you’re like me and can spend hours in sandbox games, then the price shouldn’t worry you too much.
@@ -154,6 +142,10 @@ Lifewire / Rebecca Isaacs
 
  For the base game, Cities:Skylines offers hours of creative, fast gameplay. If you want to be challenged more, then be prepared to shell out some extra cash for its large number of expansions. For a game whose base is solely a sandbox city-builder, it’s a great way to let your creativity shine while enjoying the amenities of the modern world for your residents.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Cities: Skylines
@@ -167,14 +159,11 @@ Lifewire / Rebecca Isaacs
 * Game Expansions  Sunset Harbor, Campus, Industries, Parklife, Green Cities, Mass Transit, Natural Disasters, Snowfall, After Dark
 * Game Content Creator Packs  Modern Japan, Modern City Creator, University City, European Suburbia, High-Tech Buildings, Art Deco
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -183,4 +172,20 @@ Lifewire / Rebecca Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-visual-vanguard-revived-radeon/"><u>2024 Approved Visual Vanguard Revived Radeon</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/connect-seamlessly-integrating-your-wireless-printer-in-minutes-yls-how-to-series/"><u>Connect Seamlessly: Integrating Your Wireless Printer in Minutes – YL's How-To Series</u></a></li>
+<li><a href="https://win-answers.techidaily.com/expert-advice-to-preventsolve-jurassic-world-evolution-game-freezes/"><u>Expert Advice to Prevent/Solve Jurassic World Evolution Game Freezes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/from-idea-to-hit-solo-podcast-production-tactics-for-2024/"><u>From Idea to Hit Solo Podcast Production Tactics for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/gpt-4-the-future-of-personal-handiwork/"><u>GPT-4: The Future of Personal Handiwork</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-making-sense-of-mukbangs-crafting-foodie-streams/"><u>In 2024, Making Sense of Mukbangs Crafting Foodie Streams</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-assessment-of-onetastic-as-a-powerful-addition-to-onenote/"><u>In-Depth Assessment of Onetastic as a Powerful Addition to OneNote</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-assessment-third-generation-apple-tv-4k-edition/"><u>In-Depth Assessment: Third Generation Apple TV 4K Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-an-ipad-worth-it-5-reasons-why-you-should-buy-one/"><u>Is an iPad Worth It? 5 Reasons Why You Should Buy One</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-cutting-corners-with-cheap-ssl-risky/"><u>Is Cutting Corners with Cheap SSL Risky?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/master-your-mornings-with-philips-somneo-a-premier-alarm-clock-breakdown/"><u>Master Your Mornings with Philips Somneo - A Premier Alarm Clock Breakdown</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-best-hatsune-miku-ai-voice-generators-for-all-times-for-2024/"><u>New Best Hatsune Miku AI Voice Generators for All Times for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/transformar-archivos-qt-directamente-en-gifs-gratis-y-faciles-el-mejor-herramienta-online-de-movavi/"><u>Transformar Archivos QT Directamente en GIFs Gratis Y Fáciles: El Mejor Herramienta Online De Movavi</u></a></li>
+</ul></div>
 

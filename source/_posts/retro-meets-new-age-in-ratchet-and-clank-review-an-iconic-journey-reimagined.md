@@ -1,7 +1,7 @@
 ---
 title: "Retro Meets New Age in Ratchet & Clank Review: An Iconic Journey Reimagined"
-date: 2024-12-13T22:31:54.555Z
-updated: 2024-12-16T22:33:18.191Z
+date: 2024-12-23T16:31:41.552Z
+updated: 2024-12-25T16:41:20.324Z
 categories:
   - BestProducts
 description: "This Article Describes Retro Meets New Age in Ratchet & Clank Review: An Iconic Journey Reimagined"
@@ -18,12 +18,16 @@ thumbnail: https://thmb.techidaily.com/c0270bb78c702f180d69e641fb9f373f4cd07e8ef
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/JA3JlwOuidCKxo4M92FWCfYUoI4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
@@ -44,10 +48,6 @@ Lifewire / Kelsey Simon
 [View On Amazon](https://www.amazon.com/dp/B075NFTX36/?tag=lifewire-onsite-prod-20&ascsubtag=4685718%7Cn0dc423de187c40659bf9fd9ffcd5e7ec22%7CB075NFTX36) [View On Walmart](https://www.walmart.com/ip/829171723)
 
 3.8
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
@@ -80,10 +80,6 @@ Lifewire / Kelsey Simon
  As with other games on the Nintendo Switch, you’ll need to insert the cartridge into your device. Skyrim does take a while to launch, so be patient as it loads up. There shouldn’t be any special downloads required, like with other games, and as soon as things load you’ll be able to play.
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/uXDVHaBrdIlv5tI-qRgiPK0Iig4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460721-e6a53664e7eb4e65a75bf5cceb928e28.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -127,17 +123,9 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Graphics: A bit outdated**
 
  The graphics in Skyrim aren’t awful, but they haven't progressed much since 2011\. If you’ve played any other version of Skyrim, you can overlook it, simply because you know what you’re getting into. Bethesda attempted to make Skyrim look realistic, likely in their desire to give you a fully immersive experience. But these days, Skyrim’s graphics just aren’t as realistic as what other, more recent games have accomplished. In places, the mountains look blocky and the grass a little patchy. Character’s faces sometimes seem deeply sunken around the eyes, with the skin looking more like leather than flesh. It’s not that the graphics are overly bad, they’re just not as good as what you can get with better hardware on the PC.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Platform: Take Skyrim on the go**
 
@@ -151,11 +139,11 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/Iik6f_7RIRMWo5R6zGYxgGeL4n0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546076-8fb741faa7144fa6bafe386d2b7d8296.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Price: A tad expensive**
 
@@ -163,7 +151,15 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Other action RPGs**
 
@@ -180,6 +176,10 @@ Lifewire / Kelsey Simon
 * [The Legend of Zelda: Breath of the Wild](https://www.lifewire.com/the-legend-of-zelda-breath-of-the-wild-review-4685759)
 * [Mario Kart 8 Deluxe](https://www.lifewire.com/mario-kart-8-deluxe-review-4688951)
 * [Splatoon 2](https://www.lifewire.com/splatoon-2-review-4688940)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -203,21 +203,16 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-comprehensive-breakdown-vsco-photography-tools/"><u>[New] 2024 Approved Comprehensive Breakdown VSCO Photography Tools</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-ios-champions-best-ps2-emulation-programs-for-2024/"><u>[Updated] IOS Champions Best PS2 Emulation Programs for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-smart-shoppers-guide-to-inexpensive-recording-gear/"><u>[Updated] Smart Shopper's Guide to Inexpensive Recording Gear</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-capture-screenshots-of-a-full-page/"><u>2024 Approved Capture Screenshots of a Full Page</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/aac-webm-mp4/"><u>移動網隨時無限 AAC版本 - WEBM 到 MP4 自由搬家工具</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-kensun-tire-inflator-assessment-robust-dependable-and-easily-transportable/"><u>Comprehensive Kensun Tire Inflator Assessment: Robust, Dependable & Easily Transportable</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-music-from-vivo-y27s-by-fonelab-android-recover-music/"><u>Easy steps to recover deleted music from Vivo Y27s</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/explore-10-premier-websites-offering-quality-digital-learning-experiences/"><u>Explore 10 Premier Websites Offering Quality Digital Learning Experiences</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fundamental-tips-for-second-hand-computing-purchase/"><u>Fundamental Tips for Second-Hand Computing Purchase</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/immerse-in-advanced-gadgets-explore-the-features-of-a-dell-display-unit-superior-noise-cancelling-headset-and-high-definition-camera/"><u>Immerse in Advanced Gadgets: Explore the Features of a Dell Display Unit, Superior Noise Cancelling Headset, & High-Definition Camera</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-directsnap-recorder-for-modern-oses/"><u>In 2024, DirectSnap Recorder for Modern OSes</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Teleport Your GPS Location On Apple iPhone XS? | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-top-5-gif-making-software-with-the-highest-ratings/"><u>In 2024, Top 5 GIF Making Software with the Highest Ratings</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lenovo-thinkpad-x1-nano-assessment-the-ultimate-guide-to-a-portable-powerhouse/"><u>Lenovo ThinkPad X1 Nano Assessment: The Ultimate Guide to a Portable Powerhouse</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-performance-with-garmin-in-depth-insight-into-the-forerunner-945-gps-smartwatch-review/"><u>Mastering Performance with Garmin: In-Depth Insight Into the Forerunner 945 GPS Smartwatch Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-verdict-on-samsungs-newest-addition-the-ru7300-55-inch-smart-tv-worth-the-investment/"><u>The Verdict on Samsung's Newest Addition: The Ru7300 55-Inch Smart TV - Worth the Investment?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-replay-anywhere-instant-guide-to-youtube-video-loops/"><u>[New] In 2024, Replay Anywhere Instant Guide to YouTube Video Loops</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-webcam-tricks-for-smooth-video-on-hp-devices/"><u>[Updated] 2024 Approved Webcam Tricks for Smooth Video on HP Devices</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/2023-presidents-day-special-save-300-on-the-new-m2-macbook-air-shop-now-at-zdnet/"><u>2023 Presidents' Day Special: Save $300 on the New M2 MacBook Air - Shop Now at ZDNet!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-most-comfortable-and-advanced-vertical-mice-of-2024-on-the-market/"><u>Discover the Most Comfortable and Advanced Vertical Mice of 2024 on the Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dying-light-game-analysis-cooperative-parkour-adventure-in-a-post-apocalyptic-world/"><u>Dying Light Game Analysis - Cooperative Parkour Adventure in a Post-Apocalyptic World</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elite-oculus-quest-2-head-strap-with-integrated-power-pack-and-protective-case-comprehensive-review/"><u>Elite Oculus Quest 2 Head Strap with Integrated Power Pack & Protective Case - Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-dell-inspiron-3671-desktop-a-balanced-choice-in-budget-computing/"><u>Evaluating the Dell Inspiron 3671 Desktop: A Balanced Choice in Budget Computing</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-samsung-galaxy-a14-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Samsung Galaxy A14 5G without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-wave-of-bios-updates-from-amd-allies-tackles-the-persistent-logofailure-challenge-head-on/"><u>Latest Wave of BIOS Updates From AMD Allies Tackles the Persistent LogoFailure Challenge Head-On</u></a></li>
+<li><a href="https://win-forum.techidaily.com/resolving-full-disk-utilization-issues-on-windows-11-a-step-by-step-guide/"><u>Resolving Full Disk Utilization Issues on Windows 11 - A Step-by-Step Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Expert Review of the Huawei MediaPad M5 - Mastering Visuals & Acoustics
-date: 2024-08-15T09:35:44.897Z
-updated: 2024-08-16T09:35:44.897Z
+date: 2024-12-18T17:05:48.670Z
+updated: 2024-12-25T17:59:19.786Z
 categories:
   - BestProducts
 description: This Article Describes Expert Review of the Huawei MediaPad M5 - Mastering Visuals & Acoustics
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/CVT_-DqC-CCcWUC0wkIrzlX6Heo=/400x300/fi
 ## Samsung QN55Q60RAFXZA 55-Inch Smart 4K UHD TV
 
 ![Samsung QN55Q60RAFXZA Smart TV](https://www.lifewire.com/thmb/3wvRd5fdYGaWCbby7QCdqre1xeg=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_SmartTVs_QN55Q60RAFXZA_HeroSquare-b61680537acf4bb8b90cef3343e76e8d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Bill Loguidice
 
@@ -37,6 +41,10 @@ Lifewire / Bill Loguidice
 [View On Amazon](https://www.amazon.com/Samsung-QN43Q60RAFXZA-Flat-QLED-Q60/dp/B07N4M9TL9/?tag=lifewire-onsite-prod-20&ascsubtag=4842840%7Cn8d909df77fae4d2f895c77509019070222%7CB07N4M9TL9) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fsamsung-43-class-led-q60-series-2160p-smart-4k-uhd-tv-with-hdr%2F6331742.p%3FskuId%3D6331742%26irclickid%3DXK42UF0RdxyOTzI05-R4sULoUkixlWxO8Rs-w80%26irgwc%3D1%26ref%3D198%26loc%3DXK42UF0RdxyOTzI05-R4sULoUkixlWxO8Rs-w80%26acampID%3D614286%26mpid%3D78091)
 
 4.5
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Samsung QN55Q60RAFXZA 55-Inch Smart 4K UHD TV
 
@@ -67,15 +75,9 @@ Lifewire / Bill Loguidice
  We tested the 55-inch version of the Samsung QN55Q60RAFXZA, which is simply noted as Samsung QLED Q60R on the side of the box, to see if its Quantum Dot technology and all of its other features make for a TV you’ll want in your home.
 
 ![Samsung QN55Q60RAFXZA](https://www.lifewire.com/thmb/dOOASOgkfk99nlphGAu1V4JLAVs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_SmartTVs_QN55Q60RAFXZA_02-e0170e47a4924d90bccdc37108f64b75.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Bill Loguidice
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Sleek and modern**
 
  At 55-inches, the QN55Q60RAFXZA straddles the line between smaller, more compact TVs, and TVs that deliver more massive, cinema-like displays. This size TV is equally at home in a bedroom as it is a good-sized family or living room, with a comfortable viewing range between roughly 4 and 12 feet from your seating area.
@@ -90,9 +92,6 @@ Lifewire / Bill Loguidice
 
  All of the rest of the inputs and outputs are located in a recessed area on the far left rear of the unit. Starting from the bottom up, the ports are: ANT IN, EX-LINK, LAN, HDMI IN 1, HDMI IN 2, HDMI IN 3, HDMI IN 4 (ARC), DIGITAL AUTO OUT (OPTICAL), USB (HDD 5V 1A), and USB (5V 0.5A). While having all of those port options is great, arguably the most important are the four HDMI inputs, which go a long way towards accommodating the many set-top boxes, consoles, and other devices in the average home.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process: Well-packaged with step-by-step instructions**
 
  Our shipping box was damaged and the internal styrofoam busted up, but fortunately the TV inside was fine. This packaging damage did make the base unstable, however, so keep that in mind if the base styrofoam is not a solid piece anymore.
@@ -135,11 +134,12 @@ Lifewire / Bill Loguidice
 
 ![Samsung QN55Q60RAFXZA](https://www.lifewire.com/thmb/q0VqlVXOfdKmRXWu4crID1G-fE4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_SmartTVs_QN55Q60RAFXZA_03-a9de2a1191e2440eab74cf494d36721a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Bill Loguidice
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Image Quality: Spectacular color and resolution**
 
  Image quality is the one area that Samsung focuses on in their marketing of this TV, and with good reason. Even with not touching any of the default settings, the picture quality, and color, regardless of source or content, was uniformly excellent.
@@ -152,6 +152,10 @@ Lifewire / Bill Loguidice
 
  Even at extreme viewing angles, and certainly any practical angle, the picture remained clear, with little-to-no noticeable color or contrast washout. There are few practical scenarios that we can envision that this TV would not provide an excellent viewing experience, regardless of where you’re seated.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Audio Quality: Serviceable sound**
 
  As expected, even at its non-budget price point, sound quality is merely serviceable on the QN55Q60RAFXZA. If you want sound quality to match your picture quality, you’re going to have to invest in a similarly excellent surround sound system. With that said, even with its volume set to 100, the sound from the downfiring speakers on the QN55Q60RAFXZA is well-defined and clear with no noticeable hissing or popping.
@@ -162,11 +166,6 @@ Lifewire / Bill Loguidice
 
  Even at extreme viewing angles, and certainly any practical angle, the picture remained clear, with little-to-no noticeable color or contrast washout.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ## **Software: Lots of options built-in**
 
  Samsung’s Smart Hub, which is based on Tizen, is a surprisingly robust operating system for the QN55Q60RAFXZA. It features a wide range of apps, and even games, to the point where you may not even need any external media boxes like a[Roku](https://www.lifewire.com/what-is-a-roku-4142216) or[Apple TV](https://www.lifewire.com/what-is-apple-tv-1994193) . Of course, external media boxes like a Roku, and in particular an Apple TV, do offer more app and content options overall, but you’ll still find almost all of the top apps and then some on Smart Hub, including Netflix, Apple TV+, Google Play, Sling TV, Amazon Prime Video, Disney+, Spotify, and SiriusXM.
@@ -182,8 +181,9 @@ The powerful video editing program for your Windows PC</a>
  Finally, thanks to its Apple Airplay 2 support, the QN55Q60RAFXZA makes an excellent Screen Mirroring and audio target. Simply select Samsung Q60 Series on your recent Apple mobile device and your content plays on the QN55Q60RAFXZA. In our testing, the connection happened quickly and playback was smooth.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Worth the price if you value picture quality**
 
  At $999.99, the QN55Q60RAFXZA is not one of the cheaper 55 inch TV options. With that said, you also don’t have to worry about build or picture quality. With its HDR10 and HDR10+ support and ability to support billions of colors, you’ll get superior color reproduction when paired with the right content. The only negative is that the QN55Q60RAFXZA does not have Dolby Vision support, a color format that many other competitive sets do feature. For most people, however, HDR10 and HDR10+ support is all that really matters, so the lack of Dolby Vision is not as much of a deal-breaker as it could be. Nevertheless, it’s something to keep in mind when comparison shopping at this price point.
@@ -224,8 +224,6 @@ The powerful video editing program for your Windows PC</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -233,4 +231,22 @@ The powerful video editing program for your Windows PC</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-exploring-the-extents-of-vr-technology/"><u>[New] In 2024, Exploring the Extents of VR Technology</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-quick-insights-into-simplified-ipad-and-iphone-recording/"><u>[New] Quick Insights Into Simplified iPad & iPhone Recording</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-the-frontier-gpt-vs-bings-ai-communicators/"><u>Exploring the Frontier: GPT Vs. Bing's AI Communicators</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-performance-issues-in-resident-evil-village-on-your-windows-computer-guide/"><u>Fixing Performance Issues in Resident Evil Village on Your Windows Computer [GUIDE]</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Vivo V27 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-poco-x6-pro-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Poco X6 Pro to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-a-detailed-study-of-vsdcs-screen-capture-prowess-and-competing-products/"><u>In 2024, A Detailed Study of VSDC's Screen Capture Prowess & Competing Products</u></a></li>
+<li><a href="https://win-help.techidaily.com/instantly-solve-the-missing-camera-issue-effective-strategies-unveiled/"><u>Instantly Solve the Missing Camera Issue: Effective Strategies Unveiled!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-audio-uc-for-travel-and-professionals/"><u>The Best Audio-UC for Travel and Professionals</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-most-effective-online-tech-tutorials-of-2024/"><u>The Most Effective Online Tech Tutorials of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-next-gen-google-nest-hub-reviewed-a-miss-for-not-having-an-integrated-camera-feature/"><u>The Next-Gen Google Nest Hub Reviewed: A Miss for Not Having an Integrated Camera Feature</u></a></li>
+<li><a href="https://android-frp.techidaily.com/the-updated-method-to-bypass-realme-11-pro-frp-by-drfone-android/"><u>The Updated Method to Bypass Realme 11 Pro FRP</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-5-features-youll-love-about-the-huion-kamvas-gt-191-large-drawing-tablet-a-detailed-look/"><u>Top 5 Features You'll Love About the Huion Kamvas GT-191 Large Drawing Tablet - A Detailed Look</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-amazonbasics-tripod-for-starters/"><u>Top Rated AmazonBasics Tripod - For Starters</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-tablet-cpus-ranked-the-definitive-buyers-checklist/"><u>Top Tablet CPUs Ranked: The Definitive Buyer's Checklist</u></a></li>
+</ul></div>
 

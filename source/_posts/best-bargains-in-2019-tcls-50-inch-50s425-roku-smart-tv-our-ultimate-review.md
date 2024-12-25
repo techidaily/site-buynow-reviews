@@ -1,7 +1,7 @@
 ---
 title: "Best Bargains in 2019: TCL's 50-Inch 50S425 Roku Smart TV - Our Ultimate Review!"
-date: 2024-12-10T18:13:02.267Z
-updated: 2024-12-16T17:28:25.368Z
+date: 2024-12-20T17:08:37.961Z
+updated: 2024-12-25T16:45:12.343Z
 categories:
   - BestProducts
 description: "This Article Describes Best Bargains in 2019: TCL's 50-Inch 50S425 Roku Smart TV - Our Ultimate Review!"
@@ -19,16 +19,12 @@ thumbnail: https://thmb.techidaily.com/93cb6ac8ec609718de42842a42295e1ee84908cc0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## TCL 50S425 50-inch 4K Smart LED Roku TV
 
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/xdZO-ddLXgWQIKHYaUynllKab-w=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_HeroSquare-beccb9820dfd4a878196fac8bdf1d541.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -50,10 +46,6 @@ Lifewire / Yoona Wagener
 [View On Amazon $365](https://www.amazon.com/dp/B07JK98NNQ?tag=lifewire-onsite-prod-20&ascsubtag=4772224%7Cncb1b59c8053a4396b09c2b498e91e26317%7CB07JK98NNQ)
 
 4.5
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## TCL 50S425 50-inch 4K Smart LED Roku TV
 
@@ -85,10 +77,6 @@ Lifewire / Yoona Wagener
 
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/8IJD6mxL-mHDn0MMWWRd5yZERlc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_04-bbd6d026c9ec48df9f12c934b7def674.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Yoona Wagener
 
 ## **Design: Lightweight and straightforward**
@@ -105,7 +93,15 @@ Lifewire / Yoona Wagener
 
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/cT13RJhaMjC05v7eMym3vtM8M0s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_05-70fc23cf6c2b4a13ac9d46f9372010ef.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process** :**Up and running in minutes**
 
@@ -136,7 +132,7 @@ Lifewire / Yoona Wagener
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/Lv4B9e6LaJSHW7NSl-Braa2vnmc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_03-b8155781e440420aa0c6c2bf19f9fe6a.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
@@ -160,6 +156,10 @@ Lifewire / Yoona Wagener
  The Home screen features all of your apps, which you can arrange and delete with the click of the asterisk button. All the other menus are easy to identify as well. There’s a search page, a streaming channels section, and the settings menu. This clean and straightforward layout may not be the most sophisticated, but it’s easy to use and simplicity is the beauty of this system.
 
  While the remote doesn’t come with a built-in speaker, the free Roku app does offer a voice-assistant feature. It’s best when completing a general search for a show or actor or for launching a particular app. If you have a Google Assistant or Amazon Alexa enabled device, this Roku TV will support them, and they offer a generally better experience than using the Roku app voice remote function.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: A great bargain on a budget**
 
@@ -188,7 +188,7 @@ Lifewire / Yoona Wagener
 * [LG 27UD58-B 27-Inch 4K UHD IPS Monitor](https://www.lifewire.com/lg-27ud58-b27-inch-4k-uhd-ips-monitor-review-4778916)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -223,19 +223,21 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ed-universal-video-concepts-the-10-simplest-ideas-everyone-can-execute/"><u>[Updated] Universal Video Concepts The 10 Simplest Ideas Everyone Can Execute</u></a></li>
-<li><a href="https://extra-information.techidaily.com/10-best-free-passport-photo-maker-online-and-desktop/"><u>10 Best Free Passport Photo Maker Online and Desktop</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-networking-solutions-inside-the-tp-link-archer-c50-review/"><u>Budget-Friendly Networking Solutions: Inside the TP-Link Archer C50 Review</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/commercial-ventures-enhanced-by-virtual-engineering/"><u>Commercial Ventures Enhanced by Virtual Engineering</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-the-garmin-forerunner-a-runners-perspective/"><u>Comprehensive Evaluation of the Garmin Forerunner ² - A Runner's Perspective</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/explore-the-fun-of-flight-with-the-affordable-syma/"><u>Explore the Fun of Flight with the Affordable Syma</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/from-classic-to-contemporary-diving-into-the-reinvented-world-of-ratchet-and-clank/"><u>From Classic to Contemporary: Diving Into the Reinvented World of Ratchet & Clank</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-messages-on-vivo-y17s-by-fonelab-android-recover-messages/"><u>How to restore wiped messages on Vivo Y17s</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-the-ultimate-youtube-music-replay-tracks-2023/"><u>In 2024, The Ultimate YouTube Music Replay Tracks, 2023</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-long-range-wifi-routers-of-202e-expert-rankings-for-enhanced-connectivity/"><u>Leading Long-Range WiFi Routers of 202E: Expert Rankings for Enhanced Connectivity</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/step-by-step-guide-unlocking-dvd-content-on-windows-and-mac-computers/"><u>Step-by-Step Guide: Unlocking DVD Content on Windows and Mac Computers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-future-unveiled-experience-unmatched-audio-with-klipschs-flexus-200/"><u>The Future Unveiled: Experience Unmatched Audio with Klipsch's Flexus 200</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/video-integration-made-easy-building-dynamic-youtube-compilations/"><u>Video Integration Made Easy Building Dynamic YouTube Compilations</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/z3-plus-by-z-edge-an-incredible-cost-effective-dashcam-reviewed-here/"><u>Z3 Plus by Z-Edge: An Incredible, Cost-Effective Dashcam Reviewed Here</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-best-unmentioned-free-speech-to-text-tools-for-mac-users-for-2024/"><u>[New] Best Unmentioned Free Speech to Text Tools for Mac Users for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-strategies-to-skyrocket-your-popularity-on-tiktok/"><u>[New] In 2024, Strategies to Skyrocket Your Popularity on TikTok</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-wealthiest-web-workshops-hosts/"><u>[New] Wealthiest Web Workshops Hosts</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-digital-tapestry-crafting-visual-narratives/"><u>[Updated] Digital Tapestry Crafting Visual Narratives</u></a></li>
+<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-infinix-note-30-vip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/best-asus-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Asus Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-advice-restoring-speakers-to-working-order-on-your-hp-laptop-windows-10/"><u>Expert Advice: Restoring Speakers to Working Order on Your HP Laptop (Windows 10)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fitbit-charge-3-review-still-a-good-option/"><u>Fitbit Charge 3 Review: Still A Good Option?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/garmin-venu-sq-review-your-ultimate-all-in-one-activity-tracker/"><u>Garmin Venu Sq Review: Your Ultimate All-in-One Activity Tracker</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/google-stadia-reviewed-key-aspects-requiring-developmental-progress/"><u>Google Stadia Reviewed - Key Aspects Requiring Developmental Progress</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-15-color-grading-plugins-for-action-cam-video/"><u>In 2024, Ultimate 15 Color Grading Plugins for Action Cam Video</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-star-wars-squadrons-a-riveting-galactic-battle-experience/"><u>In-Depth Analysis of Star Wars: Squadrons - A Riveting Galactic Battle Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-samsung-galaxy-a71-5g-a-smart-pick-comparing-it-to-pricier-leading-phone-brands-in-our-in-depth-review/"><u>Is the Samsung Galaxy A71 5G a Smart Pick? Comparing It to Pricier Leading Phone Brands in Our In-Depth Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/limited-time-only-exceptional-prime-day-savings-on-new-and-refurbished-samsung-electronics/"><u>Limited Time Only: Exceptional Prime Day Savings on New & Refurbished Samsung Electronics</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/linkedin-enhanced-features-are-they-pricey-perks-explore/"><u>LinkedIn Enhanced Features - Are They Pricey Perks? Explore</u></a></li>
+<li><a href="https://fox-links.techidaily.com/revolutionize-sessions-with-pro-zoom-conversion-hacks/"><u>Revolutionize Sessions with Pro-Zoom Conversion Hacks</u></a></li>
 </ul></div>
 

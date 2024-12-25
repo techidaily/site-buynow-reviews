@@ -1,7 +1,7 @@
 ---
 title: "In-Depth iPhone 12 Assessment: A Revolutionary Leap Forward by Apple"
-date: 2024-12-09T21:39:55.497Z
-updated: 2024-12-16T23:20:30.974Z
+date: 2024-12-18T18:37:34.490Z
+updated: 2024-12-25T19:16:58.262Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth iPhone 12 Assessment: A Revolutionary Leap Forward by Apple"
@@ -44,16 +44,12 @@ Jeremy Laukkonen / Lifewire
 4.7
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Apple Mac Mini
 
 ![Mac mini](https://www.lifewire.com/thmb/cOYA5qGbCuLx8V2Gpf67_t0Wd4o=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_horiz_Mac-Mini-M1-2020-Computer-1-c63ec986a9944869ab0f9ff7b7a0b01d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Jeremy Laukkonen / Lifewire
 
@@ -88,6 +84,10 @@ Jeremy Laukkonen / Lifewire
 
  Jeremy Laukkonen / Lifewire
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Design: Same sleek aluminum chassis
 
  The big changes here are all under the hood, as Apple opted to leave the overall design of the Mac mini (M1, 2020) unchanged from the previous model. It’s still a block of milled aluminum with the same rounded corners, satin finish, and shiny Apple logo emblazoned on the top. The top is smooth and unmarked aside from the logo, and the front and sides of the case are completely featureless aside from a small LED on the front that lets you know when the system is powered on.
@@ -114,6 +114,10 @@ Jeremy Laukkonen / Lifewire
 
  For example, I was able to plug in the dongle from my Logitech K400+ Touch Keyboard, and the Mac mini recognized the peripheral immediately. That allowed me to complete the setup process without digging around for wired peripherals.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Performance: Unreal performance with some hiccups
 
  While the Mac mini (M1, 2020) remained mostly unchanged from a design perspective, the internals received a massive overhaul. This is Apple’s first desktop to receive its new M1 chip, and that’s a really big deal. Though one of the M1’s headline features, reduced power use, isn’t as big a deal here as it is in the MacBook Air, this chip is still massively more powerful than anything you’ve ever seen in a Mac before. In fact, the Mac mini has the exact same chip as the MacBook Pro, with one more GPU core than the MacBook Air.
@@ -132,14 +136,10 @@ Jeremy Laukkonen / Lifewire
 
 ![Mac mini](https://www.lifewire.com/thmb/H6vCqcN2s5HOQG5MJWawrPxairg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mac-Mini-M1-2020-Computer-6-cd1693bee2f4429fafd1a57ecffbce81.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Jeremy Laukkonen / Lifewire
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Gaming: Limited but promising
@@ -162,6 +162,10 @@ Jeremy Laukkonen / Lifewire
 
  Aside from lack of support from game developers, the only real drawback here in terms of gaming comes from the HDMI port itself. While the M1 Mac mini can pump out[4K graphics](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) , it’s limited to a 60Hz refresh rate. That’s fine for most casual gamers, but anyone who has fallen in love with their high refresh rate monitor will experience a bit of pain here.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Productivity: Ready for work
 
  The great thing about the Mac mini line is that it’s always been so flexible. You can use a Mac mini for work, but the size and relative affordability of the hardware means you aren’t locked into using it that way. If you do aim to use an M1 Mac mini for work though, it’s more than up to the task. Native apps and the operating system itself run fast and smooth as you could possibly hope, with none of the sitting around looking at spinning beach balls that you may have gotten used to with older hardware.
@@ -182,11 +186,11 @@ Jeremy Laukkonen / Lifewire
 
 ![Mac mini](https://www.lifewire.com/thmb/OZrKjTPGUmo00carhaedBa9WhTU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mac-Mini-M1-2020-Computer-5-bc84da59dfdf440c8d53a096509c232b.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Jeremy Laukkonen / Lifewire
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Network: Solid Ethernet and Wi-Fi 6 connectivity
 
@@ -195,10 +199,6 @@ Jeremy Laukkonen / Lifewire
  To test the M1 Mac mini’s network capabilities, I used a gigabit connection from Mediacom that measured just shy of 1Gbps at the modem at the time of testing. First I hooked up to the router via Ethernet and checked the speed using the Speedtest app from Ookla. With the wired connection, the M1 Mac mini turned in an impressive 937Mbps down, which is one of the fastest measurements I’ve seen on this connection. At the same time, it measured an upload speed of 63.7Mbps, which is close to the upper limit of this connection.
 
  I also tested the wireless connection, hooking the M1 Mac mini to my[Eero mesh network](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008) . When connected wirelessly, I measured a respectable 284 Mbps down and 54 Mbps up. At the same time, in the same location, my[HP Spectre x360](https://www.lifewire.com/hp-spectre-x360-15t-touch-laptop-review-4773540) measured 254Mbps down and 63Mbps up.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Software: So long, Windows compatibility
 
@@ -217,6 +217,10 @@ Jeremy Laukkonen / Lifewire
  The Mac mini saw a price increase alongside its last major retool, but Apple actually played against tradition and handed us a price reduction with the transition to M1 hardware. The baseline M1 Mac mini is actually hundreds of dollars cheaper than the previous iteration of the hardware, which is remarkable considering how much more powerful it is. The last Intel Mac mini was already a good deal, so the even cheaper M1 Mac mini looks even better in comparison. Considering its capabilities, it’s also a good deal when compared to non-Apple mini desktop hardware like the Intel NUC lineup.
 
 ![Mac mini](https://www.lifewire.com/thmb/G2V98ugnO-cdk-GaL11FUP0RWvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mac-Mini-M1-2020-Computer-7-c899b9f13f09448699fee766ab51a2bd.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Jeremy Laukkonen / Lifewire
 
@@ -243,10 +247,6 @@ Jeremy Laukkonen / Lifewire
 ### Similar Products We've Reviewed
 
 * [Apple iPad Air 4](https://www.lifewire.com/apple-ipad-air-4-review-5091874)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -281,20 +281,22 @@ Jeremy Laukkonen / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-slowing-down-action-iphone-filmmaking-tricks/"><u>[Updated] 2024 Approved Slowing Down Action IPhone Filmmaking Tricks</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-inside-asuss-proart-pa-329q-a-full-review-of-a-top-tier-workstation-monitor/"><u>2024 Approved Inside Asus’s ProArt PA 329Q A Full Review of a Top-Tier Workstation Monitor</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/apple-iphone-14-pro-screen-mirroring-you-must-know-drfone-by-drfone-ios/"><u>Apple iPhone 14 Pro Screen Mirroring You Must Know | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/avoiding-windows-11-crashes-interrupt-fixation/"><u>Avoiding Windows 11 Crashes: Interrupt Fixation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-meets-quality-in-our-macbook-pro-13-case-assessment-a-straightforward-approach/"><u>Budget Meets Quality in Our MacBook Pro 13 Case Assessment: A Straightforward Approach</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enlighten-your-mind-the-essential-case-for-subscribing-to-kindle-unlimited/"><u>Enlighten Your Mind: The Essential Case for Subscribing to Kindle Unlimited</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-best-free-iphone-14-pro-max-imei-checker-by-drfone-ios/"><u>In 2024, Best Free iPhone 14 Pro Max IMEI Checker</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-master-racing-must-try-bicycle-titles/"><u>In 2024, Master Racing Must-Try Bicycle Titles</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Poco X5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/introducing-the-robomaster-s1-by-dji-an-exhilarating-combination-of-aerial-drone-technology-coding-challenges-and-strategic-battles/"><u>Introducing the RoboMaster S1 by DJI: An Exhilarating Combination of Aerial Drone Technology, Coding Challenges, and Strategic Battles</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/mastering-instagram-fcpxs-guide-to-vertical-video-editing/"><u>Mastering Instagram FCPX's Guide to Vertical Video Editing</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-market-top-performing-external-read-write-devices-of-2024/"><u>Navigating the Market: Top Performing External Read-Write Devices of 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210693833-9780760377949-the-astrology-companion/"><u>The Astrology Companion | Free Book</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-best-features-of-amazons-latest-kindle-paperwhite-7gen-ebook-reader-reviewed/"><u>Unveiling the Best Features of Amazon's Latest Kindle Paperwhite (7Gen) Ebook Reader Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/xbox-one-multiplayer-setup-how-to-share-your-library-with-friends/"><u>Xbox One Multiplayer Setup - How to Share Your Library with Friends</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-navigating-tiktok-to-perfect-your-digital-twin/"><u>[New] 2024 Approved Navigating TikTok to Perfect Your Digital Twin</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-pioneering-innovative-webcam-functions/"><u>[New] Pioneering Innovative Webcam Functions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-ultimate-vr-buying-guide-mobile-liberty-or-tethered-unity-in-2024/"><u>[New] The Ultimate VR Buying Guide Mobile Liberty or Tethered Unity, In 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-how-to-securely-obtain-facebooks-elite-verified-status/"><u>[Updated] How to Securely Obtain Facebook’s Elite Verified Status</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/access-spider-man-no-way-home-on-demand-everything-you-need-to-know/"><u>Access Spider-Man: No Way Home On Demand - Everything You Need to Know</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/delete-gmail-account-withwithout-password-on-motorola-moto-e13-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Motorola Moto E13</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/dive-into-toms-computer-world-the-ultimate-guide-to-new-hardware-findings/"><u>Dive Into Tom's Computer World - The Ultimate Guide to New Hardware Findings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-the-advanced-4k-hdr10plus-capabilities-of-the-samsung-tv-qn55q60rafxza-smart-reviewed-here/"><u>Explore the Advanced 4K HDR10+ Capabilities of the Samsung TV - QN55Q60RAFXZA Smart Reviewed Here</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/gamers-meet-your-new-ally-in-depth-analysis-of-apgear-ups-models-compared/"><u>Gamers, Meet Your New Ally: In-Depth Analysis of Apgear UPS Models Compared</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hands-on-dell-display-premier-anc-headset-and-ultrasharp-webcam/"><u>Hands-On: Dell Display, Premier ANC Headset, and UltraSharp Webcam</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hero9-review-a-premium-gopro-but-at-what-cost/"><u>HERO9 Review: A Premium GoPro, But at What Cost?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-magic-5-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Magic 5?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-moto-g-play-exceptional-battery-life-with-competitive-performance/"><u>In-Depth Analysis of Moto G Play: Exceptional Battery Life with Competitive Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-oneplus-9-pros-stylish-build-fast-performance-and-advanced-camera-features/"><u>In-Depth Review of OnePlus 9 Pro's Stylish Build, Fast Performance, & Advanced Camera Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/innovative-dell-alienware-aurora-r9-unveiled-a-game-changer-in-futuristic-designs/"><u>Innovative Dell Alienware Aurora R9 Unveiled: A Game Changer in Futuristic Designs</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mastering-gpt-my-bot-a-guide-for-learning-games-and-art/"><u>Mastering GPT-My Bot: A Guide for Learning Games & Art</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-outdoor-wi-fi-with-netgears-orbi-rbz60y-series-review-and-performance-insights/"><u>Mastering Outdoor Wi-Fi with Netgear's Orbi RBZ60Y Series Review and Performance Insights</u></a></li>
 </ul></div>
 

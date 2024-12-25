@@ -1,7 +1,7 @@
 ---
 title: The Mighty Compact Gaming Machine - A Detailed Look at Xbox Series S Specs and Packaging
-date: 2024-12-10T20:49:50.668Z
-updated: 2024-12-16T17:24:03.374Z
+date: 2024-12-19T17:01:05.426Z
+updated: 2024-12-25T17:31:22.973Z
 categories:
   - BestProducts
 description: This Article Describes The Mighty Compact Gaming Machine - A Detailed Look at Xbox Series S Specs and Packaging
@@ -18,12 +18,16 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Beantech Bitwatch S1 Plus
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/JogmBSjTGQl_gqbjuX8prgeJJPA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -46,13 +50,13 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
 4
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Beantech Bitwatch S1 Plus
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/RIxQYWLMnyHkO9IcguCoRX11EbY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -77,6 +81,10 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/8rMhc1Lk5yFRFW4Zlt2K9cmPdFo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-4-01d7e5ff51aa47008d803513064f4a7a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
 ## **Design and Software: A surprising amount of features in this chunky watch**
@@ -96,7 +104,7 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/O7xHfA9sKsBdC0nmqNXbFky-Dm4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-2-3b838f1124184bbd9452b79bb8449c2b.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -115,10 +123,6 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Battery: It last longer than most flagship smartwatches**
 
  The battery life on the Bitwatch is excellent. With regular usage (GPS, heart rate, Bluetooth all on), we got between two and three days of use before we had to recharge. Charging is a little annoying, though, since it uses a snapping charger base that’s difficult to remove.
@@ -128,10 +132,6 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
  The Bitwatch costs about $50, which is reasonable for its features and performance. You get reliable notifications and a passable heart rate monitor, as well as some basic functions like alarms and a speaker. If you want a cheap smartwatch, then the Bitwatch isn’t a bad pick, but $30 more can get you GPS and smarter notifications. If you are after a solid fitness tracker, both Garmin and[Fitbit](https://www.lifewire.com/what-is-fitbit-4176010) have[fantastic wearables](https://www.lifewire.com/phone-accessory-reviews-4102587) for under $100.
 
  The Beantech Bitwatch is not a groundbreaking smartwatch, but it provides a lot of essential features for $50.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: If you want more, it will cost more**
 
@@ -174,17 +174,20 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-unleash-potential-with-instagram-vids-formulating-an-effective-marketing-plan/"><u>[New] In 2024, Unleash Potential with Instagram Vids Formulating an Effective Marketing Plan</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/aucous-reels-crafting-7-comedy-storylines-for-social-media-stars/"><u>[New] Raucous Reels Crafting 7 Comedy Storylines for Social Media Stars</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-eliminating-noise-in-photos-using-photopeas-tools/"><u>[Updated] 2024 Approved Eliminating Noise in Photos Using Photopea's Tools</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-screencast-essentials-from-basics-to-advanced-tactics-for-2024/"><u>[Updated] Screencast Essentials From Basics to Advanced Tactics for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-powerhouse-exploring-the-features-and-capabilities-of-the-tp-link-archer-a6-ac1200-router/"><u>Budget-Friendly Powerhouse: Exploring the Features and Capabilities of the TP-Link Archer A6 AC1200 Router</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-is-the-microsoft-surface-studio-2-worth-the-cost/"><u>Comprehensive Review: Is the Microsoft Surface Studio 2 Worth the Cost?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-the-blink-outdoor-4-pie-a-comprehensive-review-of-our-newest-wifi-floodlight-surveillance-device/"><u>Experience The Blink Outdoor 4 PIE: A Comprehensive Review of Our Newest WiFi Floodlight Surveillance Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-picks-top-transcription-software-innovations/"><u>Expert Picks: Top Transcription Software Innovations</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Samsung Galaxy A05s | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/netgear-nighthawk-x6s-tri-band-wi-fi-mesh-extender-review/"><u>Netgear Nighthawk X6S Tri-Band Wi-Fi Mesh Extender Review</u></a></li>
-<li><a href="https://win-answers.techidaily.com/step-by-step-solution-for-fixing-r6-black-screen-problems-on-your-computer/"><u>Step-by-Step Solution for Fixing R6 Black Screen Problems on Your Computer</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/top-picks-for-trusted-free-software-downloads-on-windows/"><u>Top Picks for Trusted, Free Software Downloads on Windows</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-starter-steps-to-wealthy-streaming-in-periscope/"><u>[New] Starter Steps to Wealthy Streaming in Periscope</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-unleash-creativity-gratuity-in-humor-tools/"><u>[Updated] 2024 Approved Unleash Creativity Gratuity in Humor Tools</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-software-to-fix-and-repair-corrupt-mp4-mov-avi-video-files-of-y200e-5g-by-stellar-video-repair-mobile-video-repair/"><u>Best software to Fix and Repair Corrupt MP4,MOV,AVI video files of Y200e 5G</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-oneplus-11r-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on OnePlus 11R?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/llamas-3-against-gpt-4-battle-analyzing-which-emerges-victorious-in-the-ai-arena/"><u>Llamas 3 Against GPT-4 Battle: Analyzing Which Emerges Victorious in the AI Arena</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/must-play-alert-unveiling-the-magic-of-yakuza-like-a-dragon-jrpg/"><u>Must Play Alert! Unveiling the Magic of Yakuza: Like a Dragon JRPG</u></a></li>
+<li><a href="https://extra-information.techidaily.com/quick-and-easy-the-top-ten-for-youtube-mpeg-transformation/"><u>Quick and Easy The Top Ten for YouTube MPEG Transformation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-qn55q6f-an-insightful-review-of-the-cutting-edge-4k-hdr-technology-in-smart-televisions/"><u>Samsung QN55Q6F: An Insightful Review of the Cutting-Edge 4K HDR Technology in Smart Televisions</u></a></li>
+<li><a href="https://discover-able.techidaily.com/strategies-de-sauvegarde-reussie-des-fichiers-dans-windows-7-8-10-et-11-un-guide-complet/"><u>Stratégies De Sauvegarde Réussie Des Fichiers Dans Windows 7, 8, 10 Et 11: Un Guide Complet</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/superior-selection-best-windows-videophone-apps-guide-for-2024/"><u>Superior Selection Best Windows Videophone Apps Guide for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/taking-tech-to-new-heights-in-depth-analysis-and-review-of-the-apple-macbook-air-13-inch-m1-2020-edition/"><u>Taking Tech to New Heights: In-Depth Analysis & Review of the Apple MacBook Air 13-Inch (M1, 2020 Edition)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-battle-of-portability-vs-power-ipad-pro-vs-macbook-pro-compared/"><u>The Battle of Portability vs Power: IPad Pro Vs. MacBook Pro Compared</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-guide-to-the-owc-mercury-pro-premium-quality-for-peak-performance/"><u>The Definitive Guide to the OWC Mercury Pro: Premium Quality for Peak Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-path-to-victory-understanding-the-wii-us-winning-formula/"><u>The Path to Victory: Understanding the Wii U's Winning Formula</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-for-mohu-blade-tv-antenna-outstanding-aesthetics-and-robust-indoor-coverage/"><u>The Ultimate Review for Mohu Blade TV Antenna: Outstanding Aesthetics and Robust Indoor Coverage</u></a></li>
 </ul></div>
 

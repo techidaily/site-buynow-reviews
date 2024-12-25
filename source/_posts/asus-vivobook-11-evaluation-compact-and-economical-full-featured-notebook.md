@@ -1,7 +1,7 @@
 ---
 title: "Asus VivoBook 11 Evaluation: Compact and Economical Full-Featured Notebook"
-date: 2024-08-15T09:37:34.195Z
-updated: 2024-08-16T09:37:34.195Z
+date: 2024-12-23T16:29:54.804Z
+updated: 2024-12-25T17:27:00.706Z
 categories:
   - BestProducts
 description: "This Article Describes Asus VivoBook 11 Evaluation: Compact and Economical Full-Featured Notebook"
@@ -38,12 +38,13 @@ Lifewire / Jeremy Laukkonen
 
 3.1
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ## HP Notebook 15
 
 ![HP Notebook 15](https://www.lifewire.com/thmb/uGjqdYURbA1RcFfxaRwesN5LDDg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_5LW4043278-HP-Notebook-15-4-867220d9429742748f0e51dab6ab0946.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -88,14 +89,15 @@ Lifewire / Jeremy Laukkonen
 
  The laptop is less than an inch thick at the rear, and it slopes down to an even thinner profile at the front. It does weigh in at over four and a half pounds, which cuts down on portability somewhat, but the short battery life means you won’t be carrying this one with you everywhere anyway.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Generally straightforward, but bloatware can extend the initial setup**
 
  The HP Notebook 15 is a[Windows 10](https://www.lifewire.com/windows-10-2626217) laptop, and the setup process isn’t anything out of the ordinary for a laptop like this. We timed the initial setup, and it took less than 15 minutes from plugging it in and turning it on to hitting the desktop for the first time. HP does ask for some information (including your email address) during the signup process, but most OEMs have a similar process for setting up support and warranty information.
 
  It does come with a[Microsoft 365](https://www.lifewire.com/how-to-install-office-365-4589808) trial and about ten utilities and apps from HP that most users won’t want or need. Removing all of the bloatware extends the initial setup time significantly, especially since this isn’t the fastest laptop to begin with, but uninstalling what you don’t need does free up some space and help the laptop run a little faster.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Display: Unremarkable, and not HD**
 
@@ -107,9 +109,6 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Performance: Outperformed by Intel HP Notebooks with similar specs**
 
  The HP Notebook 15 suffers in the performance department due to its AMD A6-9225 and 4GB of[RAM](https://www.lifewire.com/what-is-random-access-memory-ram-2618159) . It’s perfectly capable of performing basic productivity tasks like word processing, web browsing, email, and even spreadsheets, but comparable models with even slightly better processors and additional RAM beat it in every important benchmark.
@@ -126,9 +125,6 @@ Lifewire / Jeremy Laukkonen
 
  We also ran the Fire Strike benchmark, which is another gaming benchmark that’s designed for slightly more powerful machines. It only managed a score of 547 in that one, with a totally unplayable 3 FPS.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Productivity: Works fine for basic productivity tasks**
 
  In real-world use, we found that the HP Notebook 15 feels sluggish a lot of the time, especially when running multiple apps at once or juggling 10 or more web browser tabs. It’s especially bad at working with images and video, but it’s usable for basic tasks like word processing and email.
@@ -144,8 +140,9 @@ Lifewire / Jeremy Laukkonen
  The sound quality is great for a laptop in this category, and we didn’t notice any distortion when listening to music or watching movie trailers on YouTube. It’s also sufficiently loud, although the speakers lack the bass response necessary to really fill a room.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Network: Decent speeds, but no 802.11ac**
 
  The wireless card is another place where HP cut corners on the Notebook 15\. Speeds are decent enough when connected to a 2.4 GHz Wi-Fi network, but the lack of 802.11ac support means you don’t have the option to connect to a 5 GHz network.
@@ -155,22 +152,21 @@ Lifewire / Jeremy Laukkonen
  The lack of 802.11ac won’t be a concern if your wireless router doesn’t support 5 GHz, but it’s nice to have that option if you want to stream video or download large files.
 
 ![HP Notebook 15](https://www.lifewire.com/thmb/QJf5J5Be4RdHKzylG4pIFs6FBo4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW4043278-HP-Notebook-15-1-f27ddc931d944435bb93ac8febfa88a9.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Camera: Just an unimpressive 720p webcam**
 
  The HP Notebook 15 includes a 720p webcam that works well enough for video chat, but it’s a little blurry and washed out for use in professional teleconferencing. It’s there if you need it, but it isn’t anything special.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## **Battery: Mediocre battery life requires frequent charging**
 
  The HP Notebook 15 has a three-cell 41Wh battery according to its specific sheet, and that matches what we found in our testing. Our readings showed a 41,040 mWh design capacity and a 41,040 full charge capacity. Unfortunately, that just isn’t enough battery to support this laptop.
@@ -182,6 +178,10 @@ Lifewire / Jeremy Laukkonen
 ## **Software: Excessive bloatware clogs up the works**
 
  The HP Notebook 15 comes equipped with Windows 10 and free trials of McAfee antivirus and Microsoft 365\. It also has a handful of basic Windows apps installed by default, and a lot of bloatware from HP — there are about ten different apps, including HP JumpStart and HP Audio Switch, that we think most users will want to uninstall.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Attractive price for what you get**
 
@@ -203,15 +203,16 @@ Lifewire / Jeremy Laukkonen
 
  The lower-resolution display, unimpressive battery, and weak internals make anything beyond basic tasks a struggle for the HP Notebook 15\. But if you just need a laptop for web browsing, email, and word processing — and plan to keep it near an outlet — then the HP Notebook 15 fits the bill for an incredibly low price.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [HP Pavilion Laptop 15z Touch](https://www.lifewire.com/hp-pavilion-laptop-15z-touch-review-4686745)
 * [Lenovo Ideapad 320](https://www.lifewire.com/lenovo-ideapad-320-review-4686723)
 * [Asus Chromebook C202SA](https://www.lifewire.com/asus-chromebook-c202sa-review-4589359)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Notebook 15
@@ -227,14 +228,11 @@ Lifewire / Jeremy Laukkonen
 * Camera  720p webcam
 * Ports  2x USB 3.1, 1x USB 2.0, HDMI, Ethernet, headphone jack
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -243,4 +241,18 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/he-future-of-fresh-air-urban-planning-with-a-green-perspective-for-2024/"><u>[New] The Future of Fresh Air Urban Planning with a Green Perspective for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-ultimate-compilation-of-samsungs-picture-editing-capabilities/"><u>[Updated] In 2024, The Ultimate Compilation of Samsung's Picture Editing Capabilities</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/customize-your-social-media-screenscape/"><u>Customize Your Social Media Screenscape</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-amazon-halo-a-cutting-edge-fitness-monitor-with-a-daring-twist/"><u>Exploring the Amazon Halo: A Cutting-Edge Fitness Monitor with a Daring Twist</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-features-and-value-a-thorough-review-of-the-beantech-bitwatch-s1plus-wearable-tech/"><u>Exploring the Features & Value - A Thorough Review of the Beantech Bitwatch S1+ Wearable Tech</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/highly-recommended-touchpens-and-mice-for-the-ipad-experience/"><u>Highly Recommended Touchpens and Mice for the iPad Experience</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-behind-the-scenes-top-picks-of-monitors-and-tvs-for-xbox-series-x-gamers/"><u>In 2024, Behind-the-Scenes Top Picks of Monitors & TVs for Xbox Series X Gamers</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-elevate-your-game-saves-with-advanced-overwatch-recording/"><u>In 2024, Elevate Your Game Saves with Advanced Overwatch Recording</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-linksys-velop-tri-band-mesh-wifi-system/"><u>In-Depth Analysis of the Linksys Velop Tri-Band Mesh WiFi System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/interactive-guide-discover-the-ultimate-performance-with-philips-49-oled-curve-display-for-gamers/"><u>Interactive Guide: Discover the Ultimate Performance with Philips 49 OLED Curve Display for Gamers</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/lenovo-shakes-up-computing-industry-thinkpad-p1-gen-7-revolutionizes-portability-efficiency-and-power-with-groundbreaking-lpcamm2-memory/"><u>Lenovo Shakes Up Computing Industry: ThinkPad P1 Gen 7 Revolutionizes Portability, Efficiency & Power with Groundbreaking LPCAMM2 Memory</u></a></li>
+</ul></div>
 

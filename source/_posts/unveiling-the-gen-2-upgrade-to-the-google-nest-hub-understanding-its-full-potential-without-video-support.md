@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Gen 2 Upgrade to the Google Nest Hub - Understanding Its Full Potential Without Video Support
-date: 2024-12-12T22:46:11.047Z
-updated: 2024-12-16T16:39:05.274Z
+date: 2024-12-24T16:49:09.882Z
+updated: 2024-12-25T17:33:05.434Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Gen 2 Upgrade to the Google Nest Hub - Understanding Its Full Potential Without Video Support
@@ -47,9 +47,17 @@ Andy Zahn / Lifewire
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Cyberpunk 2077
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/sG6odS-sTBDQKNtpoev0kWtdSGg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cyberpunk-2077-1-d90f62b5a126437681da9916c0360527.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -80,15 +88,7 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/YQBwL9wFHphVzIqJYlYwd0J2OYU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-2-7e358ac09a2c48fbb0f6aaec1e9381e9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Andy Zahn / Lifewire
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Story: Engaging and well written
 
@@ -101,6 +101,10 @@ Andy Zahn / Lifewire
  There is clearly a lot more polish put on the main story missions than on some other parts of the game, and if you follow it closely, the flaws of Cyberpunk 2077 don’t show quite so much. You get to experience the massive open world of Night City in a way that makes narrative sense and see the most exciting set-piece sequences. With that said, there are some really entertaining side stories to be found if you venture off the straight and narrow path of the main campaign.
 
  Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Gameplay: Fun, but deeply flawed
 
@@ -124,10 +128,6 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/ByBdwophc_bSfdD-P0CfbqJgbwY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-7-e6be7e2c1ae24ac3a1c5dbfd4a5b595a.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Andy Zahn / Lifewire
 
  You can also use fast travel booths to get around instantly once you’ve unlocked them, though I found myself favoring the slow route, despite the issues inherent in that experience. Cruising through Night City is truly a jaw-dropping experience.
@@ -143,7 +143,7 @@ Andy Zahn / Lifewire
  Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Customization: Lots to tinker with
@@ -164,6 +164,10 @@ Andy Zahn / Lifewire
 
 At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bugs: Welcome to Glitch City
 
  At launch Cyberpunk 2077 is something of a bug-riddled mess. Even a few months and a few patches later it’s very noticeably in need of major fixes. Right out of the gate I found a collectible card that can only be picked up during the intro, but the game refused to allow me to pick it up, so I was forced to leave it sitting there forlornly, forever gnawing at the completionist streak in me.
@@ -176,10 +180,6 @@ At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/JM3cD1pX6maee1yiQYZnSgc-9pw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-4-624da4fa8225434eb59ba999a53dafd6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Andy Zahn / Lifewire
 
 ## Mature content: Pushing the boundaries
@@ -189,10 +189,6 @@ Andy Zahn / Lifewire
  The truth is that Cyberpunk is a role-playing game in the truest sense of the word. While you will never be able to completely dodge potentially offensive content, you can play the game in a way that reflects your own morality and ideals. A great example of this potential for choice is alcohol, which you will be proffered on numerous occasions throughout the game. Even though it is embedded into the story you almost always have the option to refuse, though as in real life the peer pressure is there and the choice may affect how people regard you.
 
  The high quality of storytelling is probably the main highlight of the game, next to the insane graphical fidelity.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Performance: Making strong GPUs cry
 
@@ -207,7 +203,7 @@ Andy Zahn / Lifewire
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/toUXDFSRFZjol-BOgnhnVEyJTYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-8-7b54b824c3bc4dcfb04234f69204d2f6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
@@ -238,6 +234,10 @@ Andy Zahn / Lifewire
 
 Andy Zahn / Lifewire
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Multiplayer: Absent for the moment
 
  At launch and for long after Cyberpunk 2077 will be a single-player game. However, CDPR has said that a few years down the road they will be launching a multiplayer mode, and a lot of people are looking forward to that. Of course, it is impossible to predict if this will be any good or if some circumstances might prevent its release, but there is a lot of potential for Cyberpunk to become a better experience when Night City goes online. With that said, CDPR really needs to fix the single-player game before they even think about launching multiplayer.
@@ -245,10 +245,6 @@ Andy Zahn / Lifewire
 ## Price: A refreshing lack of micro-transactions
 
  At $60 with no extra monetization at launch, Cyberpunk 2077 is something of a bargain. Take this with a grain of salt though, as this situation could change dramatically once the multiplayer mode is released.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Cyberpunk 2077 vs. Assassin’s Creed: Valhalla
 
@@ -263,6 +259,10 @@ Andy Zahn / Lifewire
  **An open-world RPG with enormous potential that’s sadly incomplete and unpolished.**
 
  Cyberpunk 2077 had enormous potential, but it launched long before it was complete and the result is a deeply conflicting experience. Game-breaking bugs, performance issues, missing features, and demanding hardware requirements make it difficult to recommend, but there is the core of something great lying within. There are hundreds of hours of content to enjoy if you can temper your expectations and employ a saintly degree of patience.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -288,17 +288,20 @@ Andy Zahn / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-morphvox-mastery-complete-technique-collection/"><u>[New] MorphVOX Mastery Complete Technique Collection</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-peak-choice-top-five-high-definition-cameras/"><u>[New] Peak Choice Top Five High Definition Cameras</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastering-the-art-of-youtube-channel-blocking-a-step-by-step-approach/"><u>[Updated] In 2024, Mastering the Art of Youtube Channel Blocking A Step-by-Step Approach</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-insta-story-hack-for-stealthy-tech-users/"><u>[Updated] Insta Story Hack for Stealthy Tech Users</u></a></li>
-<li><a href="https://techtrends.techidaily.com/adding-several-locations-simultaneously-in-google-maps-explained/"><u>Adding Several Locations Simultaneously in Google Maps Explained</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/disc-masters-of-2024-high-quality-cd-players-ranked/"><u>Disc Masters of 2024: High-Quality CD Players Ranked</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-motorola-edge-40-pro-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Motorola Edge 40 Pro Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/obtain-the-latest-safe-driver-downloads-for-your-corsair-keyboard-under-windows-no-fees-involved/"><u>Obtain the Latest, Safe Driver Downloads for Your Corsair Keyboard Under Windows - No Fees Involved</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/oneplus-8t-analysis-fast-performance-hindered-by-inconsistent-camera-quality/"><u>OnePlus 8T Analysis: Fast Performance Hindered by Inconsistent Camera Quality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/smart-shopping-key-points-to-think-about-before-you-print/"><u>Smart Shopping: Key Points to Think About Before You Print</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-iphones-for-gamers-picking-the-perfect-device/"><u>Top iPhones for Gamers: Picking the Perfect Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-truth-a-thorough-review-of-seatechs-external-usb-blu-ray-recorder-with-variable-output/"><u>Unveiling the Truth: A Thorough Review of SeaTech's External USB Blu-Ray Recorder with Variable Output</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-top-6-essential-lite-videos-downloader-apps-for-facebook/"><u>[Updated] In 2024, Top 6 Essential Lite Videos Downloader Apps for Facebook</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-premier-hash-trackers-fb-tweet-instagram-edition-for-2024/"><u>[Updated] Premier Hash Trackers FB, Tweet, Instagram Edition for 2024</u></a></li>
+<li><a href="https://win-webster.techidaily.com/windows7810backup4all/"><u>安心と利便性を融合: Windows7、8、10に適した無料強力バックアップツールでBackup4allを超える</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/audio-capture-access-and-assessment-for-2024/"><u>Audio Capture Access & Assessment for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-realme-gt-3-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Realme GT 3 Fingerprint Lock</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-smart-ring-video-doorbell-pro/"><u>Comprehensive Review of the Smart Ring Video Doorbell Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dell-inspiron-3671-desktop-review/"><u>Dell Inspiron 3671 Desktop Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhancing-laptop-speed-cpu-overhaul-possibilities/"><u>Enhancing Laptop Speed: CPU Overhaul Possibilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-next-level-gaming-with-the-alienware-aurora-r9-a-comprehvew-on-dells-futuristic-machine/"><u>Experience Next-Level Gaming with the Alienware Aurora R9: A Comprehvew on Dell’s Futuristic Machine</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-top-notch-internet-speed-and-value-with-the-tp-link-archer-a6-rigorous-review-of-an-ac12/"><u>Experience Top-Notch Internet Speed and Value with the TP-Link Archer A6 - Rigorous Review of an AC12지 루터</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-j5-tactical-v1-pro-flashlight-unmatched-sturdiness-meets-portability-in-nighttime-clarity/"><u>Expert Analysis of J5 Tactical V1-Pro Flashlight – Unmatched Sturdiness Meets Portability in Nighttime Clarity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expertly-selected-superior-rechargeable-battery-chargers/"><u>Expertly Selected Superior Rechargeable Battery Chargers</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/in-depth-evaluation-the-latest-updates-and-features-in-snappy-driver-installer-v113/"><u>In-Depth Evaluation: The Latest Updates and Features in Snappy Driver Installer V1.13</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-the-variants-differences-between-gpt-crafted-models-gpt-4-gpt-4-turbo-gpt-4o/"><u>Understanding the Variants: Differences Between GPT-Crafted Models (GPT-4, GPT-4 Turbo, GPT-4o)</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unleash-the-power-of-your-iphone-mastering-secret-voice-tricks-from-experts-discovered-by-zdnet/"><u>Unleash the Power of Your iPhone: Mastering Secret Voice Tricks From Experts - Discovered by ZDNet</u></a></li>
 </ul></div>
 

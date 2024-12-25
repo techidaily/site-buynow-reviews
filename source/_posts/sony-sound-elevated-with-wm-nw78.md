@@ -1,7 +1,7 @@
 ---
 title: Sony Sound Elevated with WM-NW78
-date: 2024-08-15T09:35:03.961Z
-updated: 2024-08-16T09:35:03.961Z
+date: 2024-12-23T16:39:03.145Z
+updated: 2024-12-25T17:29:52.192Z
 categories:
   - BestProducts
 description: This Article Describes Sony Sound Elevated with WM-NW78
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/8kWnNs4W1RhybBrHEQ514n-rx40=/400x300/fi
 ## Garmin Vivoactive 3 Music
 
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/mWu92SLDHKWD9Vy5KklQKBAJFPY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Garmin-Vivoactive-3-Music-Smart-Watch-1-a182a2ce6d214080bd38bdb1c85e49a1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -40,9 +44,9 @@ Lifewire / Andy Zahn
 3.9
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Garmin Vivoactive 3 Music
 
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/FeCJ-wziP0Qoo9-pmifuFx9oZ7E=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Garmin-Vivoactive-3-Music-Smart-Watch-1-a182a2ce6d214080bd38bdb1c85e49a1.jpg)
@@ -77,11 +81,16 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
  The Vivoactive 3 Music is operated using both the touch screen and a single button on the side. A short press of the button switches between the app currently in use and the watch face, while a long press brings up a circular menu with shortcuts to menus and apps. Most navigation is controlled via the touchscreen.
 
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/M4iaS5RgiaubncJH8F-ZLVQQ8Po=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivoactive-3-Music-Smart-Watch-2-a0cd2c48cc0d423d85a3dc1f7e677160.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Comfort: On the small side**
 
@@ -91,18 +100,10 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  The included band was a little small for my extra-large 9-inch wrists.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ## **Setup Process: Fairly straightforward**
 
  Getting started with the Vivoactive 3 Music is reasonably easy, though it did take me some time after connecting to my phone to get through all the necessary permissions and connections it requires. There were updates to install, and I needed to create an account with Garmin. I also downloaded Spotify and connected the Vivoactive 3 to my wireless earbuds. Note that you need to connect to Wi-Fi to download music via Spotify or another app.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Performance: Hit and miss**
 
  When I started using the Vivoactive 3 Music, I found the heart rate monitor to be less than reliable. Sometimes it reported over a hundred BPM while I was sitting on the couch. However, it appears my large wrists are the culprit here, as it reported heart rate more accurately when used by other people with smaller wrists.
@@ -118,11 +119,12 @@ The touchscreen interface is responsive, though a bit laggy.
  How long the battery in the Vivoactive 3 Music lasts depends entirely on how it’s used. If you only use its smartwatch capabilities occasionally then it’s good for a week at a time. However, when I made use of GPS, music, and other power-intensive features, it would run out in less than a full day of use.
 
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/NdBt6UHu7uQUfRZfJN5BzwIEad8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivoactive-3-Music-Smart-Watch-3-18b432ab56ac4ef284ba74ffd1ec7f82.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Proprietary ecosystem**
 
@@ -140,9 +142,6 @@ The touchscreen interface is responsive, though a bit laggy.
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Reasonable value**
 
  At its MSRP of $249 the Garmin Vivoactive 3 Music is acceptably priced for the features it packs in. However, as it can often be found for around fifty dollars less than this, it's a great value if you can snag it at that discount.
@@ -158,8 +157,9 @@ The touchscreen interface is responsive, though a bit laggy.
  There’s a lot to like about the Garmin Vivoactive 3 Music, It’s attractive, packed with features, and provides a deep level of fitness tracking. However, I could never fully enjoy using it due to its less than the optimal interface and laggy operation. This might be a good option if you are already invested in Garmin’s products, but for me it’s hard to ignore the flaws.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Garmin Vivoactive 3 Music
@@ -181,8 +181,6 @@ The touchscreen interface is responsive, though a bit laggy.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -190,4 +188,22 @@ The touchscreen interface is responsive, though a bit laggy.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/new-sunny-side-up-videography-for-android/"><u>[New] Sunny Side-Up Videography for Android</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-elite-upgrades-top-picks-of-vr-handwear-devices/"><u>[Updated] Elite Upgrades Top Picks of VR Handwear Devices</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-essential-mobile-media-creation-tools-iphone-vs-android-review/"><u>[Updated] Essential Mobile Media Creation Tools IPhone vs Android Review</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-bypassing-edge-academy-video-free-study-strategies/"><u>2024 Approved Bypassing EDGE Academy Video-Free Study Strategies</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/chromecast-integration-tips-for-optimizing-your-amazon-fire-tv-experience/"><u>Chromecast Integration Tips for Optimizing Your Amazon Fire TV Experience</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/dx-error-in-lol-resolved-mystery/"><u>DX Error in LoL - Resolved Mystery</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-without-backup-on-honor-100-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery without backup on Honor 100</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hp-stream-n14-2020-reviewed-balancing-cost-and-functionality-in-laptops/"><u>HP Stream N14 (2020) Reviewed: Balancing Cost and Functionality in Laptops</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-3-ways-to-track-apple-iphone-14-pro-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, 3 Ways to Track Apple iPhone 14 Pro without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-apple-iphone-xs-max-top-ranking-and-premium-cost/"><u>In-Depth Analysis of the Apple iPhone XS Max: Top Ranking & Premium Cost</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-viber-out-calling-app-feedback/"><u>In-Depth Analysis of Viber Out Calling App Feedback</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/insights-on-the-apeman-c450-camera-for-your-vehicle-economical-and-reliable-review/"><u>Insights on the Apeman C450 Camera for Your Vehicle: Economical and Reliable Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovo-tab-m10-hd-2020-review/"><u>Lenovo Tab M10 HD (2020) Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-home-safety-with-the-acclaimed-ring-doorbell-2-a-review/"><u>Mastering Home Safety with the Acclaimed Ring Doorbell 2 - A Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-your-workouts-in-depth-review-of-the-garmin-forerunner-745-for-multisport-training/"><u>Maximize Your Workouts: In-Depth Review of the Garmin Forerunner 745 for Multisport Training</u></a></li>
+</ul></div>
 

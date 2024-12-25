@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Dell G5 5090 Gaming Rig Assessment - Exceptional Value and Versatility
-date: 2024-12-11T19:32:59.014Z
-updated: 2024-12-16T18:49:57.329Z
+date: 2024-12-24T17:30:47.223Z
+updated: 2024-12-25T17:29:04.882Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Dell G5 5090 Gaming Rig Assessment - Exceptional Value and Versatility
@@ -19,12 +19,16 @@ thumbnail: https://www.lifewire.com/thmb/4i3fdmdcd1swkbkMP9bxOi3Nexc=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/6eJwPC0xPwMxCh4aQhG73X9dkzU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -46,13 +50,13 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -87,10 +91,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup: Easier than most**
 
  Setting up the antenna is relatively intuitive. You just connect the antenna to the coaxial/antenna-in connection on your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) . The antenna has an easy-push connector, instead of a connector you have to twist onto the threading. This makes for easier setup because you don’t have to struggle behind your TV with trying to screw on the[coaxial cable](https://www.lifewire.com/coaxial-vs-optical-digital-cable-3134605) .
@@ -98,6 +98,10 @@ Lifewire / Erika Rawes
  Once you connect the antenna’s cable to your TV, you’ll need to find the best placement. This is perhaps the most difficult part of the setup process. My test home is in a wooded area, and I found the best placement was near or directly on the window. However,[to improve your antenna’s reception](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) , it’s usually a good idea to place the antenna high up in a room close to the home’s exterior (and nearest to the transmitter towers) and to avoid obstacles like walls and tree cover.
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels**
 
@@ -117,6 +121,10 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
@@ -124,10 +132,6 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -138,10 +142,6 @@ Lifewire / Erika Rawes
 **Works great & looks even better.**
 
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -174,22 +174,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/outube-content-creators-optimal-stabilizer-companies-for-2024/"><u>[New] YouTube Content Creators Optimal Stabilizer Companies for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-optimizing-your-fb-video-upload-journey-from-pc-plus-android/"><u>[Updated] Optimizing Your FB Video Upload Journey From PC + Android</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-optimizing-color-palette-with-luts-a-guide-to-premiere/"><u>2024 Approved Optimizing Color Palette with LUTs A Guide to Premiere</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-studio-technique-breakdown-comprehensive-xvideooverview/"><u>2024 Approved Studio Technique Breakdown Comprehensive XVideoOverview</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/assessing-status-bt-cost-effective-yet-room-for-growth/"><u>Assessing Status BT: Cost-Effective, Yet Room for Growth</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/capture-todays-moments-affordable-cameras-of-2024/"><u>Capture Today's Moments: Affordable Cameras of 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-and-assessment-of-the-new-fitbit-charge/"><u>Comprehensive Guide & Assessment of the New Fitbit Charge</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-features-of-the-moto-g-stylus-robust-execution-and-reasonable-energy-life/"><u>Exploring the Features of the Moto G Stylus: Robust Execution and Reasonable Energy Life</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/frugal-fluffy-filming-devices-overview/"><u>Frugal Fluffy Filming Devices Overview</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-infinix-note-30-pro-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Infinix Note 30 Pro.</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-oppo-find-x6-by-drfone-android-unlock-android-unlock/"><u>How to unlock Oppo Find X6</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-itel-p55t-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Itel P55T Phone?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Tecno Camon 20 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/superior-sound-quality-with-a-better-audio-card/"><u>Superior Sound Quality with a Better Audio Card</u></a></li>
-<li><a href="https://fox-info.techidaily.com/the-ultimate-guide-to-android-photo-enhancement-5-top-apps/"><u>The Ultimate Guide to Android Photo Enhancement 5 Top Apps</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-power-solutions-unveiling-the-best-apc-gaming-ups/"><u>Ultimate Power Solutions: Unveiling the Best APC Gaming UPS</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-benefits-of-using-the-petsafe-healthy-pet-automatic-feeder-for-your-pets-weight-and-well-being/"><u>Unveiling the Benefits of Using the PetSafe Healthy Pet Automatic Feeder for Your Pet's Weight and Well-Being</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-best-action-screen-recorder-review-for-2024/"><u>[New] Best Action Screen Recorder Review for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-engage-in-windows-11s-dynamic-app-ecosystem-for-2024/"><u>[New] Engage in Windows 11'S Dynamic App Ecosystem for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-navigating-new-waters-personalbusiness-youtube-channels-made-mobile-ready/"><u>[Updated] Navigating New Waters Personal/Business YouTube Channels Made Mobile-Ready</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-streamline-online-interactions-the-simple-science-of-clear-backgrounds-in-google-meet/"><u>[Updated] Streamline Online Interactions The Simple Science of Clear Backgrounds in Google Meet</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/beautiful-keira-knightley-hd-wallpapers-and-photo-collections-top-quality-visuals-by-yl-computings-image-library/"><u>Beautiful Keira Knightley HD Wallpapers and Photo Collections - Top Quality Visuals by YL Computing's Image Library</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/cutting-edge-strategies-for-recording-slideshows/"><u>Cutting-Edge Strategies for Recording Slideshows</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Tecno Spark 10 4G? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-zoomjoint-reporting/"><u>In 2024, ZoomJoint Reporting</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/innovative-srt-conversion-tactics-for-pc-and-mac/"><u>Innovative SRT Conversion Tactics for PC and Mac</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/key-attributes-of-elite-gaming-computers/"><u>Key Attributes of Elite Gaming Computers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/kooteks-all-purpose-laptop-chiller-an-in-depth-product-evaluation-and-insightful-recommendation/"><u>Kootek's All-Purpose Laptop Chiller: An In-Depth Product Evaluation and Insightful Recommendation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-wearable-tech-5-important-points-to-consider-when-buying-a-fitness-tracker/"><u>Navigating Wearable Tech: 5 Important Points to Consider When Buying a Fitness Tracker</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/oneplus-nord-n10-5g-review-dont-ignore-this-nord/"><u>OnePlus Nord N10 5G Review: Don’t Ignore This Nord</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pocketlux-studiokit-lighting-on-a-dime/"><u>PocketLux StudioKit: Lighting on a Dime</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionary-gaming-on-amazon-luna-a-comprehensive-review-of-its-streamlined-interface-and-playability/"><u>Revolutionary Gaming on Amazon Luna? A Comprehensive Review of Its Streamlined Interface and Playability</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/roku-upgrades-perfect-synchronization-of-audio-and-video/"><u>Roku Upgrades: Perfect Synchronization of Audio & Video</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stay-ahead-with-these-top-microsoft-office-alternative-solutions/"><u>Stay Ahead with These Top Microsoft Office Alternative Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/superior-sound-quality-in-wm-a35/"><u>Superior Sound Quality in WM-A35</u></a></li>
+<li><a href="https://extra-information.techidaily.com/video-length-measurement-20-megabit-case/"><u>Video Length Measurement - 20 Megabit Case</u></a></li>
 </ul></div>
 

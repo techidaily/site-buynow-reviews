@@ -1,7 +1,7 @@
 ---
 title: Does the TP-Link Archer AX6000 Excel Past the NETGEAR Nighthawk AX12? In-Depth Review Analysis.
-date: 2024-12-10T18:17:05.508Z
-updated: 2024-12-16T18:39:52.742Z
+date: 2024-12-23T17:00:34.072Z
+updated: 2024-12-25T17:03:16.859Z
 categories:
   - BestProducts
 description: This Article Describes Does the TP-Link Archer AX6000 Excel Past the NETGEAR Nighthawk AX12? In-Depth Review Analysis.
@@ -18,17 +18,9 @@ thumbnail: https://www.lifewire.com/thmb/Yzw_uXr8uFtcaNxZEfDQMtjPysE=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/kFg5xi-56ujXYZRJ5JqhJueaSnw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_HeroSquare-61fda9713bb44c89bf3c2f1f74386bee.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -51,10 +43,6 @@ Lifewire / Erika Rawes
 [View On Amazon $199](https://www.amazon.com/dp/B07P3FGKYD?tag=lifewire-onsite-prod-20&ascsubtag=4942498%7Cn31dea18fa28a4d9a88e5e3a62470a49720%7CB07P3FGKYD) [View On Adorama.com $450](https://www.adorama.com/nerax120100n.html?utm%5Fsource=google&utm%5Fmedium=organic&utm%5Fcampaign=organicshopping&utm%5Fsource=adl-gbase-hometech) [View On B&H Photo Video $399](https://www.bhphotovideo.com/c/product/1469206-REG/netgear%5Frax120%5Fnighthawk%5Fax12%5F12%5Fstream%5Fwifi.html)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router
 
@@ -86,10 +74,6 @@ Lifewire / Erika Rawes
 
  The[Netgear](https://www.lifewire.com/best-netgear-routers-4159862) Nighthawk RAX120 is supposed to provide lightning-fast speeds while serving as one of the[best long-range wireless routers](https://www.lifewire.com/best-long-range-routers-4122554) currently on the market. Fully loaded with[Wi-Fi 6 technology](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , smart home connectivity, and a slew of other features, the AX12 should be an ideal router for small businesses, very large homes, or for homes with multiple devices. I tested the Netgear Nighthawk RAX120 to see how well it performs in the real world.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Batman’s router**
 
  The Netgear Nighthawk RAX120 has a futuristic design—angular, with clean lines. It looks like a cross between a spaceship and the Batmobile. It’s matte black and rectangular, but instead of the multiple antennas you’d typically see protruding from the top of a Nighthawk router, it has two wing-like extensions that come from each side.
@@ -98,7 +82,15 @@ Lifewire / Erika Rawes
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/fw0FJuD9bAOkQEHuAZ9OFq5toXk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_05-2a03227466354aad82fe55b884b76ac6-4d18f476974a44b081aafc943a8e56b1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup: Quick and easy**
 
@@ -118,6 +110,10 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Network performance: Stellar**
 
  The Nighthawk RAX120 indicates top speeds of 1,200 Mbps on the 2.4Ghz band and 4,800 Mbps on the 5Ghz band. My Internet speed maxes out at 500 Mbps. I have about 50 connected devices, more than half of which are smart home devices like smart light switches, smart appliances, security cameras, and smart speakers and displays. The RAX120 had no problem managing my numerous smart devices, nor did I experience any lag or connectivity issues on streaming and gaming devices. I simultaneously ran a gaming computer, two playstations, and two FireTVs without the connection missing a beat.
@@ -129,6 +125,10 @@ Lifewire / Erika Rawes
  Final Verdict
 
  The RAX120 is backward compatible with 802.11a/b/g/n/ac as well, so it’ll work with virtually all of your devices, Wi-Fi 6 or not.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Key Features: Quality hardware, lacks antivirus**
 
@@ -142,10 +142,6 @@ Lifewire / Erika Rawes
 
  The router has two USB 3.0 storage ports on the back for connecting an external hard drive.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Software: Nighthawk App**
 
  In the Nighthawk app, you can change your router’s settings, create a guest network, control your router remotely, manage your devices individually, and you can test your network speeds. However, when testing my network speeds, they consistently clock much faster on the Nighthawk app than on other platforms like Ookla and VeeApps.
@@ -154,12 +150,16 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Expensive**
 
  The Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router will cost you a pretty penny—it sells for $400, which is $100 lower than its original retail price of $500\. But it’s still on the higher end of the price spectrum, especially considering it doesn’t include any sort of mesh points, and you only get the router, power supply, and an Ethernet cable.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Netgear Nighthawk RAX120 vs. TP-Link Archer AX6000**
@@ -210,22 +210,17 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/the-goofy-adventure-a-critical-appraisal-videotape-edition/"><u>'The Goofy Adventure' - A Critical Appraisal Videotape Edition</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-snipperpro-suite-for-2024/"><u>[Updated] SnipperPro Suite for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-guide-to-fixing-rtmp-streams-in-premiere/"><u>[Updated] The Ultimate Guide to Fixing RTMP Streams in Premiere</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-essential-cloud-hookups-for-android/"><u>2024 Approved Essential Cloud Hookups for Android</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/beyond-the-hype-an-insightful-assessment-of-the-samsung-galaxy-note20-ultras-5g-experience/"><u>Beyond the Hype: An Insightful Assessment of the Samsung Galaxy Note20 Ultra's 5G Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/breakthrough-performance-showdown-the-2e-ipad-pro-review-m1-2021-vs-traditional-computers/"><u>Breakthrough Performance Showdown: The 2E Ipad Pro Review (M1, 2021) vs Traditional Computers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/critique-of-cyberpunk-2077-a-brilliant-concept-plagued-with-issues/"><u>Critique of Cyberpunk 2077: A Brilliant Concept Plagued with Issues</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dissecting-bose-wave-soundtouch-iv-outstanding-audio-clarity-design-flaws/"><u>Dissecting Bose Wave SoundTouch IV: Outstanding Audio Clarity, Design Flaws</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-did-the-wii-u-claim-victory-a-look-into-its-remarkable-success/"><u>How Did the Wii U Claim Victory? A Look Into Its Remarkable Success</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-honor-x8b-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Honor X8b Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/mastering-picture-in-picture-feature-in-chrome-anywhere/"><u>Mastering Picture In Picture Feature in Chrome, Anywhere</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/navigating-iphone-backup-flawless-integration-with-snapchat-photos-for-2024/"><u>Navigating iPhone Backup Flawless Integration with Snapchat Photos for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolving-no-compatible-hardware-error-in-rainbow-six-extraction/"><u>Resolving 'No Compatible Hardware' Error in Rainbow Six Extraction</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/saving-big-with-dream-mounting-md2380-tv-reviewed/"><u>Saving Big with Dream: Mounting MD2380 TV Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-apex-choices-elite-lineup-of-netgear-routers-for-the-modern-home-and-office/"><u>The Apex Choices: Elite Lineup of Netgear Routers for the Modern Home and Office</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-romer-solar-powered-rechargeable-flashlight-review-a-beacon-of-light-in-the-wilderness/"><u>Top Romer Solar-Powered Rechargeable Flashlight Review - A Beacon of Light in the Wilderness</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unleashing-performance-toms-detailed-hardware-analysis/"><u>Unleashing Performance: Tom's Detailed Hardware Analysis</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-step-by-step-audio-fading-in-lumafusion-software-for-2024/"><u>[New] Step-by-Step Audio Fading in Lumafusion Software for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevate-video-impact-proven-youtube-seo-methods/"><u>[Updated] Elevate Video Impact Proven YouTube SEO Methods</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-journey-through-the-metaverse-6-illustrative-examples/"><u>[Updated] Journey Through the Metaverse 6 Illustrative Examples</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/conquer-dead-cells-the-comprehensive-breakdown-of-the-sturdy-beatit-bt-d11-jumpstarter/"><u>Conquer Dead Cells: The Comprehensive Breakdown of the Sturdy Beatit BT-D11 Jumpstarter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/essential-buyers-guide-to-the-budget-friendly-amazon-kindle-of-2019/"><u>Essential Buyer's Guide to the Budget-Friendly Amazon Kindle of 2019</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-the-beast-detailed-examination-of-the-giant-amongst-galaxys-remote-control-trucks-the-ford-f-150-edition/"><u>Experience the Beast: Detailed Examination of the Giant Amongst Galaxy's Remote Control Trucks - The Ford F-150 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/highly-rated-philips-somneo-analysis-leading-alarm-clocks-unveiled/"><u>Highly Rated Philips Somneo Analysis: Leading Alarm Clocks Unveiled</u></a></li>
+<li><a href="https://review-topics.techidaily.com/identify-missing-your-drivers-with-windows-device-manager-on-windows-7-by-drivereasy-guide/"><u>Identify missing your drivers with Windows Device Manager on Windows 7</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-harnessing-the-lens-masterful-techniques-to-enhance-iphone-images/"><u>In 2024, Harnessing the Lens Masterful Techniques to Enhance iPhone Images</u></a></li>
+<li><a href="https://driver-install.techidaily.com/include-hp-envy-5530-software-in-windows-10-setup/"><u>Include HP Envy 5530 Software in Windows 10 Setup</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/turbo-charged-triumphs-short-track-22/"><u>Turbo-Charged Triumphs Short Track, '22</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-the-top-10-ai-avatar-generators/"><u>Updated In 2024, The Top 10 AI Avatar Generators</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Analysis of the Lenovo 130S: Balancing Minimal Battery Life with Pleasant Operational Fluidity"
-date: 2024-12-09T22:28:15.644Z
-updated: 2024-12-16T20:11:29.442Z
+date: 2024-12-21T19:34:46.833Z
+updated: 2024-12-25T17:24:27.754Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Analysis of the Lenovo 130S: Balancing Minimal Battery Life with Pleasant Operational Fluidity"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/acf475c1e6fd1567e7a4a77c00bb440d7e3dd85bc
 ## Sabrent Mini Travel USB Optical Mouse
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/NHk2GXtdpeJT9sEET7cl5b3Coq0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_HeroSquare-6ae9d6d299054d748f84492b5c31f033.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -48,16 +44,12 @@ Lifewire / Rebecca Isaacs
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Sabrent Mini Travel USB Optical Mouse
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/XBAevViAWBKn-uqOn_jnTLrfwTw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_HeroSquare-6ae9d6d299054d748f84492b5c31f033.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -80,6 +72,10 @@ Lifewire / Rebecca Isaacs
 
  Working on the go can prove difficult on a laptop, especially when you need to work on heavy-hitting projects requiring precision. Travel mice, or portable computer mice that can be packed and unpacked on the go, can alleviate much of the proverbial headache of working on PC-heavy tasks. For those who prefer their mouse have a cable, the Sabrent fits the bill. Using high definition precision technology, the tiny, three-year-old mouse is designed for those who want convenience and extreme precision in their work.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Basic**
 
  The Sabrent was not designed for heavy gaming in mind; its design is so tiny at 3.2 x 1.5 inches (LW) that it fits into the cup of your palm with some room to spare. Unlike gaming mice, which can be complex, with a plethora of buttons/features, the all-black, 1.5-ounce mouse only has three buttons: the left (main) button, the wheel, and the right button. While this might turn off many users, in reality, it turns out to be of huge benefit. Thanks to its simplicity, ambidextrous users will appreciate its ability to swap between dominant hands.
@@ -94,10 +90,6 @@ Lifewire / Rebecca Isaacs
 
  The cable’s addition increases the size of the mouse, bringing the total measurements to 6.44 x 1.5x 2.44 inches (LWH). The Sabrent also comes with a mesh carrying bag, making it easy to pack up and take on the go without scratching it. One more perk: this mouse is adaptable to most[Windows](https://www.lifewire.com/windows-4781566) ,[Mac](https://www.lifewire.com/mac-backup-software-hardware-and-guides-2260931) , and[Linux](https://www.lifewire.com/software-and-apps-4781541) systems, so you can insert it into USB ports across multiple machines for fast use.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Plug and play**
 
  Setting up the Sabrent proved simple and convenient. Expanding the cable and plugging it into the PC’s USB port allows the Sabrent to self-install. In under less than a minute, the plug and play features kick in. If you need to alter it to suit ambidextrous needs, you’ll need to head into the control panel of your PC to make the swap. Those requiring left-handed features will need to alter it. Once the software quickly installs, and you’re able to begin scrolling in no time.
@@ -106,6 +98,10 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Precise, but mildly problematic**
 
  The Sabrent boasts that it’s a high precision mini mouse, and in that regard, we have to agree. While 1200 dpi is minimal in comparison to some of the other heavy-hitting mice on the market, this mouse wasn’t designed to be used as a gaming mouse—it was designed in mind that you could take it and pack it on the go and get the job done.
@@ -113,10 +109,6 @@ Lifewire / Rebecca Isaacs
  After using it for over 25 hours, the precision blew us away; even the smallest twitch of the mouse registered movement on the PC and[laptop](https://www.lifewire.com/computer-and-laptop-reviews-4102643) we tested it across. Not once did we have to reclick on an item because the Sabrent failed to register the movement, proving that the cable was of speedy and accurate benefit to the mouse. The speed of the mouse highlighted its precision, darting across the monitor screens as we shifted the mouse instantaneously.
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/ZAK9csfHFEKVkNFSzE-Knbqabgs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_03-c6a7b875505642c69218c2c6c3449e50.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -138,6 +130,10 @@ Lifewire / Rebecca Isaacs
 
  At around $7, this is a great budget mouse. Essentially, the cost is for basic mouse features, and not for anything heavier or more taxing on a PC. If you’re looking for a travel mouse with more features, then expect to spend more. However, if accomplishing work tasks is solely your task then this is the perfect price point.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Sabrent Mini Travel Mouse vs. VicTsing Wireless Mouse**
 
  Because the mouse is so tiny, we also tested the[VicTsing Wireless Mouse](https://www.lifewire.com/victsing-wireless-mouse-review-4799129) (view on[Amazon](https://www.amazon.com/VicTsing-Wireless-Portable-Receiver-Adjustable/dp/B013WC0P2A/?tag=lifewire-onsite-prod-20&ascsubtag=4799034%7Cn6493c6f4bf4b471ba05fab7dd162554120%7C) ) to get a feel as to which mouse is the better option for a portable, travel mouse. The answer turned out to be more complicated: whereas the Sabrent was more ideal for ambidextrous travel, the VicTsing Wireless Mouse was geared more for right-handed users who prefer adjustable and wireless features.
@@ -151,6 +147,10 @@ Lifewire / Rebecca Isaacs
 **A solid, cost-conscious travel mouse.**
 
  While we constantly had to shift our grip on the tiny Sabrent mouse, we really liked its portability and fast, accurate movements. The cable proved to be difficult for desktop use, however, laptop users will enjoy the speeds that accompany the wired cable.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -179,18 +179,16 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-reviews.techidaily.com/days-gone-an-adventure-of-motorcycles-zombies-and-survival-game-reviewed/"><u>'Days Gone': An Adventure of Motorcycles, Zombies, and Survival – Game Reviewed</u></a></li>
-<li><a href="https://extra-information.techidaily.com/browse-these-top-10-online-markets-for-one-of-a-kind-gift-boxes/"><u>Browse These Top 10 Online Markets for One-of-a-Kind Gift Boxes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-linksys-velop-a-game-changing-approach-to-wireless-coverage/"><u>Expert Analysis of the Linksys Velop: A Game-Changing Approach to Wireless Coverage</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-lava-blaze-pro-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Lava Blaze Pro 5G Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-nhl-19s-engaging-digital-gaming-experience/"><u>In-Depth Analysis: NHL 19'S Engaging Digital Gaming Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-success-with-pearson-education/"><u>Multilingual Success with Pearson Education</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/seize-the-day-with-a-bug-discovery-passport-join-openais-rewarding-adventure/"><u>Seize the Day with a Bug Discovery Passport; Join OpenAI’s Rewarding Adventure!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/sound-evolution-unleashed-the-logitech-g533-review/"><u>Sound Evolution Unleashed: The Logitech G533 Review</u></a></li>
-<li><a href="https://techidaily.com/step-by-step-guide-creating-a-bootable-win-11-usb-drive-from-iso-file/"><u>Step-by-Step Guide: Creating a Bootable Win 11 USB Drive From ISO File</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-best-of-the-best-in-drone-technology-why-professionals-choose-dji-mavic-2-pro/"><u>The Best of the Best in Drone Technology: Why Professionals Choose DJI Mavic 2 Pro</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-orbi-mesh-router-analysis-ultimate-guide-to-the-finest-wireless-range-extender/"><u>Top Orbi Mesh Router Analysis: Ultimate Guide to the Finest Wireless Range Extender</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-verdict-on-the-elite-class-samsung-galaxy-s10-the-definitive-smartphone-assessment/"><u>Ultimate Verdict on the Elite-Class Samsung Galaxy S10 - The Definitive Smartphone Assessment</u></a></li>
-<li><a href="https://common-error.techidaily.com/windows-10-mouse-issue-how-to-restore-the-missing-cursor-effectively/"><u>Windows 10 Mouse Issue: How to Restore the Missing Cursor Effectively</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-adaptability-and-agility-key-attributes-for-thriving-in-a-changing-market-landscape/"><u>[Updated] Adaptability & Agility Key Attributes for Thriving in a Changing Market Landscape</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/1-serene-meditation-image-collection-professional-desktop-and-screen-saver-graphics-by-yl-software/"><u>1. Serene Meditation Image Collection - Professional Desktop & Screen Saver Graphics by YL Software</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehvew-of-the-newly-released-samsung-galaxy-s21-a-step-back-for-more-efficiency/"><u>A Comprehvew of the Newly Released Samsung Galaxy S21 - A Step Back for More Efficiency?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-detailed-look-at-godfall-for-playstation-5-when-a-promising-start-fails-to-deliver/"><u>A Detailed Look at Godfall for PlayStation 5: When a Promising Start Fails to Deliver</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/accurate-sensors-that-measure-temperature-humidity-rainfall-wind-speed-barometric-pressure-and-uv-index/"><u>Accurate Sensors that Measure Temperature, Humidity, Rainfall, Wind Speed, Barometric Pressure, and UV Index.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/alienware-aurora-r7-assessment-high-price-for-exceptional-power/"><u>Alienware Aurora R7 Assessment: High Price for Exceptional Power</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/an-expert-evaluation-of-cyberpunk-2077-imperfect-but-promisingly-ambitious/"><u>An Expert Evaluation of Cyberpunk 2077: Imperfect but Promisingly Ambitious</u></a></li>
+<li><a href="https://article-helps.techidaily.com/discovering-why-filmora-captivates-your-heart-for-2024/"><u>Discovering Why Filmora Captivates Your Heart for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-poco-x6-pro-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Poco X6 Pro FRP Bypass Instantly</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-flashlight-from-apple-iphone-12-pro-max-lock-screen-by-drfone-ios/"><u>In 2024, How To Remove Flashlight From Apple iPhone 12 Pro Max Lock Screen</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-honor-magic5-ultimate-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Honor Magic5 Ultimate FRP Without Computer</u></a></li>
 </ul></div>
 

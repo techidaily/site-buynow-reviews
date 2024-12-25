@@ -1,7 +1,7 @@
 ---
 title: "Zooming Into Extremes: The Marvel of Nikon COOLPIX P1000"
-date: 2024-12-12T19:33:27.488Z
-updated: 2024-12-16T16:36:50.870Z
+date: 2024-12-24T18:25:33.213Z
+updated: 2024-12-25T18:30:42.534Z
 categories:
   - BestProducts
 description: "This Article Describes Zooming Into Extremes: The Marvel of Nikon COOLPIX P1000"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
@@ -85,7 +81,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Built to last, great to use**
@@ -100,10 +96,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
@@ -114,10 +106,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Display and Viewfinder: Saturated and clear**
 
  The three-inch, 920,000-dot screen on the SX70 HS looks amazing—perhaps_too_ amazing, as your photos will look better on it than on your phone or computer. The screen is fully articulating and solidly built. Our one complaint would be how easily it picks up smudges, and how difficult those smudges are to remove. An advantage of the articulating screen is that it can be turned face-in to avoid dirt and damage and to save on battery life.
@@ -126,10 +114,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Autofocus: Blazing fast**
 
  We were shocked by how fast and consistent the autofocus is in the SX70 HS, even in low-light situations. It rarely fails to lock on to your intended subject, and focus tracking works flawlessly.
@@ -137,6 +121,10 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -154,10 +142,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -171,6 +155,10 @@ Lifewire / Andy Zahn
  A problem with all these automated modes and scene settings is that the images they produce are exclusively JPEG, with RAW being unavailable. Fortunately, Program mode is essentially the same as Auto, and you can enable RAW image recording there.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
 
@@ -186,6 +174,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -196,11 +188,19 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
 
@@ -258,24 +258,21 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-leading-edge-quick-frame-gatherer-5/"><u>[New] 2024 Approved Leading Edge Quick Frame Gatherer #5</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-sonic-social-media-merging-melodies-and-memes-on-instagram/"><u>[New] Sonic Social Media Merging Melodies and Memes on Instagram</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/2024-approved-10-trending-tiktok-treats-to-try/"><u>2024 Approved 10 Trending TikTok Treats to Try</u></a></li>
-<li><a href="https://os-tips.techidaily.com/a-look-back-the-evolution-of-apple-watch-ultra-after-its-first-year-in-the-market/"><u>A Look Back: The Evolution of Apple Watch Ultra After Its First Year in the Market</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-nokia-31-smartphone-analysis-ideal-choice-for-first-time-users/"><u>Comprehensive Nokia 3.1 Smartphone Analysis - Ideal Choice for First-Time Users</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/crafted-canvas-in-windows-desk-decor-tutorials/"><u>Crafted Canvas in Windows: Desk Decor Tutorials</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-the-performance-of-tp-links-re505x-wi-fi-booster-a-detailed-assessment/"><u>Expert Insights on the Performance of TP-Link's RE505X Wi-Fi Booster: A Detailed Assessment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-cost-effectiveness-of-the-topmate-c302-chilling-station-for-pcs/"><u>Exploring the Cost-Effectiveness of the TopMate C302 Chilling Station for PCs</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-5-solutions-for-honor-90-gt-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Honor 90 GT Unlock Without Password</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-podcast-writing-tips-and-free-template-samples/"><u>In 2024, Mastering Podcast Writing Tips & Free Template Samples</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/next-level-streaming-unveiling-the-features-of-chromecasts-new-ally-google-tv/"><u>Next-Level Streaming: Unveiling the Features of Chromecast's New Ally, Google TV</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/quick-tips-for-a-standout-instagram-groups-project/"><u>Quick Tips for a Standout Instagram Groups Project</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ready-to-explore-with-bouncie-your-guide-to-an-accessible-and-economical-tracking-device-review/"><u>Ready to Explore with Bouncie? Your Guide to an Accessible & Economical Tracking Device Review</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/reimagining-streaming-experience-beyond-manycam/"><u>Reimagining Streaming Experience Beyond ManyCam</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-sony-xperia-5-overview-a-miniature-marvel-with-a-premium-tag/"><u>The Sony Xperia 5 Overview: A Miniature Marvel with a Premium Tag</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlock-seamless-communication-with-tango-experience-free-text-voice-and-video-chat/"><u>Unlock Seamless Communication with Tango: Experience FREE Text, Voice & Video Chat!</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/unmatched-adaptability-and-robust-features-a-closer-look-at-the-best-in-class-dell-inspiron-laptop-evaluation/"><u>Unmatched Adaptability and Robust Features: A Closer Look at the Best-in-Class Dell Inspiron Laptop Evaluation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-features-a-detailed-review-of-the-tp-link-wifi-range-extender-model-re305/"><u>Unveiling the Features: A Detailed Review of the TP-Link WiFi Range Extender, Model RE305</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/what-to-expect-from-the-ultimate-mirror-site-elgoog-a-complete-review/"><u>What to Expect From the Ultimate Mirror Site, elgooG – A Complete Review</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-superior-choices-in-group-chat-software-for-2024/"><u>[Updated] Superior Choices in Group Chat Software for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-advanced-techniques-for-convincing-ppt-presentations-on-gmeet/"><u>2024 Approved Advanced Techniques for Convincing PPT Presentations on GMeet</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-and-the-path-to-improved-emotional-intelligence/"><u>ChatGPT and the Path to Improved Emotional Intelligence</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-cure-corrupted-files-issue-error-code-0x80070570-in-windows-11-os/"><u>How to Cure Corrupted Files Issue (Error Code 0X80070570) in Windows 11 OS</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-effortlessly-switch-nat-settings-in-windows-oses/"><u>How to Effortlessly Switch NAT Settings in Windows OSes</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/losungen-fur-das-problem-windows-update-wird-nicht-heruntergeladen-entdecken-sie-6-einfache-methoden/"><u>Lösungen Für Das Problem: Windows-Update Wird Nicht Heruntergeladen - Entdecken Sie 6 Einfache Methoden</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-us-launch-of-the-latest-nick-watch-announced-at-kids-choice-gala/"><u>The U.S Launch of the Latest Nick Watch: Announced at Kids' Choice Gala</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-choosing-a-twelve-south-bookbook-v2-protective-case-for-your-macbook/"><u>The Ultimate Guide to Choosing a Twelve South BookBook V2 Protective Case for Your MacBook</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-how-to-for-deleting-mac-programs/"><u>The Ultimate How-To for Deleting Mac Programs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-protector-for-your-macbook-a-comprehensive-review-of-the-innovative-bookbook-v2-by-twelve-south/"><u>The Ultimate Protector for Your MacBook? A Comprehensive Review of the Innovative BookBook V2 by Twelve South</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-5-features-explored-in-the-durable-fujitsu-scansnap-ix1600-desk-scanner/"><u>Top 5 Features Explored in The Durable Fujitsu ScanSnap iX1600 Desk Scanner</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transforming-living-spaces-the-ultimate-review-of-amazons-latest-echo-show-10-gen-3-with-motion-features/"><u>Transforming Living Spaces: The Ultimate Review of Amazon's Latest Echo Show 10 Gen 3 with Motion Features</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-non-responsive-steam-game-launches-in-windows-11/"><u>Troubleshooting Non-Responsive Steam Game Launches in Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-choosing-the-perfect-cable-modem-and-router-setup/"><u>Ultimate Guide to Choosing the Perfect Cable Modem & Router Setup</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-evaluating-the-apple-books-store-and-reading-app/"><u>Ultimate Guide: Evaluating the Apple Books Store and Reading App</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-top-rated-free-webm-video-editing-tools/"><u>Updated Top-Rated Free WebM Video Editing Tools</u></a></li>
 </ul></div>
 

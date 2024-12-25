@@ -1,7 +1,7 @@
 ---
 title: "Budget-Friendly Apeman C450 Dashcam Test: Adequate Performance at Low Cost"
-date: 2024-12-09T21:29:18.139Z
-updated: 2024-12-16T22:49:13.185Z
+date: 2024-12-21T18:46:00.027Z
+updated: 2024-12-25T18:12:20.158Z
 categories:
   - BestProducts
 description: "This Article Describes Budget-Friendly Apeman C450 Dashcam Test: Adequate Performance at Low Cost"
@@ -49,7 +49,7 @@ Lifewire / Andrew Hayward
 ![Halo Bolt Portable Charger/Jump Starter](https://www.lifewire.com/thmb/wNeN4Rq5GyM9MuDOzyg5QlRT-U4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-HeroSquare-889ebc2fc6b54573a26c09cabb34bd5c.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
@@ -71,7 +71,7 @@ Lifewire / Andrew Hayward
  Granted, it doesn’t pack as much power as some dedicated laptop chargers, which may be a better option for that need. Still, the added versatility gives the Halo Bolt a unique edge in the market. I tested the Halo Bolt for a week with multiple devices, including laptops and smartphones.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: The shiny brick**
@@ -89,7 +89,7 @@ Lifewire / Andrew Hayward
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/nYYltjJN71EGK1Dwv2_XABixuhs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-04-85b590a9939a4f44b0c7a510a456b80f.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -101,6 +101,10 @@ Lifewire / Andrew Hayward
  The whole process for jump-starting a car is detailed in the included instructions. The Halo Bolt has built-in safety features that ensure you have correctly aligned the jumper cables before starting the connected car, boat, lawnmower, or other vehicles.
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/mUdXUjWxeupVqNR_y43_eFTC0ic=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-02-69b93dc934684ef5b71a40215f6162f2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -119,10 +123,6 @@ Lifewire / Andrew Hayward
  For example, charging a[Samsung Galaxy S10](https://www.lifewire.com/samsung-galaxy-s10-review-4685690) smartphone using one of the Halo Bolt’s USB-A ports took 2 hours and 56 minutes to complete at a paltry 5.19W (4.76V x 1.09A), starting from 0 percent. However, when I repeated the test using Samsung’s charger via the AC port, it finished in 1 hour and 34 minutes thanks to fast charging—nearly half the total time.
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/MNFqifirQ0sn61GPO1e-bLQ1t8s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-06-8bc3449bd35243aaaf67272c1d3774a6-bc803e0a114b4116adf3078af6a2de00.jpeg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -143,7 +143,7 @@ Lifewire / Andrew Hayward
  The Halo Bolt isn’t the best option for charging laptops, but it is a solid all-around device for providing backup power to a broader array of gadgets, not to mention jump-starting a car. This versatile device is smart to have around if you drive a car and are frequently mobile with your portable gadgets. I wouldn’t bring it with me on vacation, but it could prove useful before long as a backup device to keep handy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -172,18 +172,14 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-easy-peel-mac-screenshots-for-no-cost-for-2024/"><u>[New] Easy-Peel Mac Screenshots for No Cost for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-shifting-screenshots-from-tif-to-common-formats-mac/"><u>[Updated] 2024 Approved Shifting Screenshots From .tif to Common Formats (Mac)</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/chatgpt-plus-is-it-valuable-unveiling-5-essential-perks-of-enrolling-today/"><u>ChatGPT Plus: Is It Valuable? Unveiling 5 Essential Perks of Enrolling Today!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-wasteland-2-directors-cut-an-engaging-tactical-role-playing-experience/"><u>Comprehensive Review of The Wasteland 2 Director's Cut: An Engaging Tactical Role-Playing Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-oneplus-9-pro-a-fusion-of-sleek-aesthetics-swift-functionality-and-advanced-photography/"><u>Evaluating the OnePlus 9 Pro: A Fusion of Sleek Aesthetics, Swift Functionality, and Advanced Photography</u></a></li>
-<li><a href="https://win-dash.techidaily.com/find-and-install-the-right-asus-trackpoint-or-clickpad-driver-on-windows-computers/"><u>Find and Install the Right ASUS TrackPoint or ClickPad Driver on Windows Computers</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/gpt-4-demystified-in-verified-social-circles-by-meta/"><u>GPT-4 Demystified in Verified Social Circles by Meta</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-create-with-colors-youtube-banner-creation-guide/"><u>In 2024, Create with Colors YouTube Banner Creation Guide</u></a></li>
-<li><a href="https://win11.techidaily.com/the-fusion-of-ages-seven-windows-characteristics-persisting-into-11/"><u>The Fusion of Ages: Seven Windows Characteristics Persisting Into 11</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/top-vlc-media-player-ultimate-guide-and-free-download-for-seamless-dvd-playback-on-pcs-and-macs/"><u>Top VLC Media Player: Ultimate Guide and Free Download for Seamless DVD Playback on PCs & Macs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-value-topmates-budget-friendly-c302-cooler-pad-an-in-depth-analysis/"><u>Unpacking the Value: TopMate's Budget-Friendly C302 Cooler Pad - An In-Depth Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-cat-s42-toughphone-a-balance-of-strong-security-and-moderate-velocity/"><u>Unveiling the Cat S42 Toughphone: A Balance of Strong Security and Moderate Velocity</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/unveiling-the-latest-in-pc-hardware-with-toms-gear-advice/"><u>Unveiling the Latest in PC Hardware with Tom's Gear Advice</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-excellence-with-oculus-quest-2-an-in-depth-look-at-an-unrivaled-virtual-reality-device/"><u>Affordable Excellence with Oculus Quest 2: An In-Depth Look at an Unrivaled Virtual Reality Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-routers-ranked-your-ultimate-guide-to-2024s-best-picks/"><u>ASUS Routers Ranked - Your Ultimate Guide to 2024'S Best Picks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-pick-for-on-the-go-gamers-top-portable-consoles-in-2n24/"><u>Best Pick for On-the-Go Gamers: Top Portable Consoles in 2N24</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/breaking-down-the-specs-and-quality-of-docoolers-12mp-usb-20-photographic-device-overhyped-or-underrated/"><u>Breaking Down the Specs and Quality of Docooler's 12Mp USB 2.0 Photographic Device: Overhyped or Underrated?</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-complete-tutorial-sending-photos-from-apple-iphone-se-2020-to-ipad-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Complete Tutorial Sending Photos From Apple iPhone SE (2020) to iPad | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On ZTE Axon 40 Lite | Dr.fone</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/resolving-net-framework-v35-error-0x800f0950-on-windows-10-step-by-step-troubleshooting-guide/"><u>Resolving .NET Framework v3.5 Error 0X800F0950 on Windows 10: Step-by-Step Troubleshooting Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/shadowplay-vs-obs-pick-your-preferred-gaming-recorder-for-2024/"><u>ShadowPlay Vs OBS - Pick Your Preferred Gaming Recorder for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-honor-x7b-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Honor X7b Phone Password Without Factory Reset Full Guide Here</u></a></li>
 </ul></div>
 

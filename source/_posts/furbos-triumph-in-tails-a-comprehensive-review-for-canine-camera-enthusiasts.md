@@ -1,7 +1,7 @@
 ---
 title: "Furbo’s Triumph in Tails: A Comprehensive Review for Canine Camera Enthusiasts"
-date: 2024-12-12T21:37:08.917Z
-updated: 2024-12-16T21:06:30.952Z
+date: 2024-12-24T17:17:07.360Z
+updated: 2024-12-25T19:32:58.113Z
 categories:
   - BestProducts
 description: "This Article Describes Furbo’s Triumph in Tails: A Comprehensive Review for Canine Camera Enthusiasts"
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/6ae77072947e6de85d2a8d631e24f7937491d0d11
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## inXile Entertainment Torment: Tides of Numenera
@@ -45,6 +45,10 @@ Lifewire / Kelsey Simon
 
 2.7
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
@@ -67,10 +71,6 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
@@ -78,7 +78,7 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -110,7 +110,7 @@ Lifewire / Kelsey Simon
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Graphics: Outdated and simplistic**
@@ -122,7 +122,7 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -170,17 +170,17 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-elite-5-cameras-for-slow-motion-magic/"><u>[New] Elite 5 Cameras for Slow Motion Magic</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-enhancing-viewer-engagement-with-smart-end-screen-techniques/"><u>[New] In 2024, Enhancing Viewer Engagement with Smart End Screen Techniques</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-quick-guide-sharing-videos-on-instagram/"><u>2024 Approved Quick Guide Sharing Videos on Instagram</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/lay-youtube-on-mobile-no-distractions-for-2024/"><u>AutoPlay YouTube on Mobile, No Distractions for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-dark-fantasy-in-our-in-depth-look-at-bloodborne-gameplay/"><u>Discover Dark Fantasy in Our In-Depth Look at Bloodborne Gameplay</u></a></li>
-<li><a href="https://driver-install.techidaily.com/enhance-your-pc-display-updating-hdmi-drivers-in-w10w11/"><u>Enhance Your PC Display: Updating HDMI Drivers in W10/W11</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-connectivity-for-gamers-a-critical-look-at-the-razer-portal-review/"><u>Mastering Connectivity for Gamers: A Critical Look at the Razer Portal Review</u></a></li>
-<li><a href="https://fox-access.techidaily.com/salty-sessions-captured-best-cams-for-surfers-for-2024/"><u>Salty Sessions Captured - Best Cams for Surfers for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/securing-online-access-a-comprehensive-tutorial-for-setting-up-a-nintendo-network-id-on-your-3ds-device/"><u>Securing Online Access: A Comprehensive Tutorial for Setting Up a Nintendo Network ID on Your 3DS Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-buying-the-google-pixelbook-go-high-performance-meets-costly-investment/"><u>The Ultimate Guide to Buying The Google Pixelbook Go: High Performance Meets Costly Investment</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/understanding-the-dependency-settings-pane-a-comprehensive-guide/"><u>Understanding the Dependency Settings Pane: A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-music-and-voice-control-in-the-latest-apple-homepod-mini-review/"><u>Unveiling the Power of Music and Voice Control in the Latest Apple HomePod Mini Review</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-guide-to-websites-specializing-in-customized-text-aesthetics/"><u>[Updated] Guide to Websites Specializing in Customized Text Aesthetics</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-universalaccess-tv-diverse-channels-with-a-local-twist/"><u>[Updated] UniversalAccess TV Diverse Channels with a Local Twist</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-leading-asus-wireless-network-devices-a-comprehensive-review/"><u>2024'S Leading Asus Wireless Network Devices: A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-caixun-75-inch-4k-smart-tv-evaluation-with-unmatched-value-for-money-features/"><u>Affordable Caixun 75 Inch 4K Smart TV Evaluation with Unmatched Value for Money Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-high-performance-a-comprehensive-review-of-the-onebyone-digital-hd-tv-indoor-antenna/"><u>Affordable High-Performance: A Comprehensive Review of the OnebyOne Digital HD TV Indoor Antenna</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-infinix-smart-8-plus-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Infinix Smart 8 Plus Phones with/without a PC</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-insta-tones-101-learn-to-design-and-download-on-your-own/"><u>In 2024, Insta Tones 101 Learn to Design and Download on Your Own</u></a></li>
+<li><a href="https://win-answers.techidaily.com/instant-fixes-to-jumpstart-your-palworld-game-if-its-not-opening-correctly/"><u>Instant Fixes to Jumpstart Your Palworld Game if It's Not Opening Correctly</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722593362331-intergalactic-construction-challenge-unleash-whirlwinds-of-amusement-with-a-martian-metropolis-builder-gone-awry/"><u>Intergalactic Construction Challenge: Unleash Whirlwinds of Amusement with a Martian Metropolis Builder Gone Awry!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722778096489-the-definitive-guide-to-the-new-m1-powered-macbook-pro-16-inch-apples-finest-in-2-cufflinks/"><u>The Definitive Guide to the New M1 Powered MacBook Pro 16 Inch - Apple's Finest in 2 Cufflinks.</u></a></li>
+<li><a href="https://driver-error.techidaily.com/understanding-intel-mlc-issues/"><u>Understanding Intel MLC Issues</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/watch-what-you-love-anywhere-downloading-and-using-the-fandango-app-on-a-fire-stick/"><u>Watch What You Love, Anywhere! Downloading and Using the Fandango App on a Fire Stick</u></a></li>
 </ul></div>
 

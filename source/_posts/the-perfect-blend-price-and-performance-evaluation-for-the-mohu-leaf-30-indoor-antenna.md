@@ -1,7 +1,7 @@
 ---
 title: "The Perfect Blend: Price & Performance Evaluation for the Mohu Leaf 30 Indoor Antenna"
-date: 2024-12-14T23:28:00.056Z
-updated: 2024-12-16T16:30:19.216Z
+date: 2024-12-23T19:31:47.157Z
+updated: 2024-12-25T18:00:42.301Z
 categories:
   - BestProducts
 description: "This Article Describes The Perfect Blend: Price & Performance Evaluation for the Mohu Leaf 30 Indoor Antenna"
@@ -44,10 +44,6 @@ Lifewire / Andy Zahn
 
 2.9
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Samsung UN65NU8000FXZA
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/J81HLCswW9vG3SGkOY0nkv2_soM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-1-97ff5fdad950453785f7a3f5491bf8fd.jpg)
@@ -77,7 +73,7 @@ Lifewire / Andy Zahn
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/_yzFIL-bClIpQ2-BreG8tli1L2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-4-a802a799a7c34067905c9ff965feea8e.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
@@ -107,10 +103,14 @@ Lifewire / Andy Zahn
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/bOGvBL3-atPnw9kBu9ugoXGE9ag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-3-44ef4614305946739623813ea1476c2b.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Image Quality: A real letdown**
 
@@ -130,15 +130,7 @@ Lifewire / Andy Zahn
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/0imcVI8dzYw11TAOKkt8EnXJE5k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-2-0c325c2d3f1e448d9d0b10f24152a097.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Audio Quality: Surprisingly good**
 
@@ -148,6 +140,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: A little slow**
 
  Samsung has built an excellent interface for its smart TVs, and the NU8000 is no exception. All your favorite apps are here, many of them pre-installed. Navigation is easy, and we had no trouble changing settings or finding our way around apps. Smart home, AI assistant, and voice integration capability allow you to configure it as a nerve center for your connected devices.
@@ -156,13 +152,13 @@ Lifewire / Andy Zahn
 
  The other software issue is that the NU8000 runs an older version of FreeSync, which means it doesn’t handle screen tearing as well as newer displays, especially when gaming on high-end hardware. However, during our testing, we didn’t notice an appreciable problem with this, though that may vary depending on your viewing and gaming habits.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Expensive at MSRP**
 
  With an MSRP of $999 the NU8000 is certainly no bargain, especially considering that superior displays are available for the same cost. However, as this is an older TV it may be possible to find steep discounts that make up for its deficiencies.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: NU8000 vs RU8000**
 
@@ -177,6 +173,10 @@ Lifewire / Andy Zahn
 **Hard to recommend.**
 
  The Samsung UN65NU8000FXZ is capable, provides high resolution, and has excellent, flexible software with a good selection of apps. It's also exceptionally thin with a screen that's almost bezel-less, but unless the extremely sturdy stand is the most important feature to you, then RU8000 is just a better display at the exact same MSRP.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -206,18 +206,22 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/resh-topics-to-cover-in-your-vlogs/"><u>[New] Fresh Topics to Cover in Your Vlogs</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-visual-flow-mastery-with-simple-transitions-for-2024/"><u>[New] Visual Flow Mastery with Simple Transitions for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/5-pro-audio-techniques-for-windows-10-users-for-2024/"><u>5 Pro Audio Techniques for Windows 10 Users for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/delving-into-computer-components-a-journey-with-toms-hardware-experts/"><u>Delving Into Computer Components: A Journey with Tom's Hardware Experts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-lenovo-p11-pro-impressive-performance-with-minor-setbacks/"><u>Evaluating the Lenovo P11 Pro: Impressive Performance with Minor Setbacks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experts-take-on-viber-out-is-it-your-ideal-overseas-call-solution/"><u>Experts' Take on Viber Out: Is It Your Ideal Overseas Call Solution?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-kobo-forma-the-ultimate-book-lovers-digital-device/"><u>In-Depth Analysis of Kobo Forma: The Ultimate Book Lover's Digital Device</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/latest-epson-printer-driver-update-process-for-windows-11-users/"><u>Latest Epson Printer Driver Update Process for Windows 11 Users</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/quick-and-simple-methods-for-assembling-your-own-system-recovery-usb/"><u>Quick & Simple Methods for Assembling Your Own System Recovery USB</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-of-the-ultimate-defender-urban-armor-gear-for-your-macbook-pro/"><u>Review of the Ultimate Defender: Urban Armor Gear for Your MacBook Pro</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/solve-your-pc-stuck-in-limbo-making-windows-11-shutdown-smoothly-again/"><u>Solve Your PC Stuck in Limbo: Making Windows 11 Shutdown Smoothly Again</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-strengths-and-weaknesses-of-pidgin-as-an-im-solution/"><u>Unveiling the Strengths and Weaknesses of Pidgin as an IM Solution</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/vintage-to-victory-at-lp120xusb-conversion-wins/"><u>Vintage to Victory - AT-LP120XUSB Conversion Wins</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-streamline-action-camera-upgrades-what-to-buy-for-2024/"><u>[New] Streamline Action Camera Upgrades What to Buy for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-unleash-potential-with-sj7s-superior-4k-action-camera-review-for-2024/"><u>[New] Unleash Potential with SJ7's Superior 4K Action Camera Review for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-the-ultimate-guide-for-crafting-engaging-shareable-youtube-shorts/"><u>2024 Approved The Ultimate Guide for Crafting Engaging, Shareable YouTube Shorts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/o-verify-your-youtube-account-a-simple-guide-for-2024/"><u>How to Verify Your YouTube Account - a Simple Guide for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-edit-drone-videos/"><u>In 2024, How to Edit Drone Videos</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-this-article-we-are-going-to-take-you-through-some-of-the-best-online-photo-and-video-collage-makers-you-can-find-on-the-internet-for-2024/"><u>In This Article We Are Going to Take You Through some of the Best Online Photo and Video Collage Makers You Can Find on the Internet for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/snap-instantly-with-iphone-time-lapse-tips/"><u>Snap Instantly with iPhone Time Lapse Tips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-sharing-your-game-library-with-friends-on-xbox-one/"><u>The Ultimate Guide: Sharing Your Game Library with Friends on Xbox One</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-5-high-speed-cable-modems-dominating-the-tech-scene/"><u>Top 5 High-Speed Cable Modems Dominating the Tech Scene</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-6-iphone-security-software-the-best-antivirus-applications/"><u>Top 6 iPhone Security Software: The Best Antivirus Applications</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-8-mobile-gaming-apps-you-cant-miss/"><u>Top 8 Mobile Gaming Apps You Can't Miss</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-feature-filled-smartwatch-unleashed-a-detailed-review-of-the-samsung-gear-s3-frontier/"><u>Top Feature-Filled Smartwatch Unleashed: A Detailed Review of the Samsung Gear S3 Frontier</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-features-and-specs-unveiled-in-our-comprehensive-tp-link-archer-a9-under-100-evaluation/"><u>Top Features and Specs Unveiled in Our Comprehensive TP-Link Archer A9 Under $100 Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-notch-first-step-into-smartwear-in-depth-analysis-of-the-amazfit-bip-model/"><u>Top-Notch First Step Into Smartwear: In-Depth Analysis of the Amazfit Bip Model</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-karaoke-systems-the-ultimate-picks/"><u>Top-Rated Karaoke Systems: The Ultimate Picks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-servers-and-cabinets-the-ultimate-guide-to-the-best-network-storage-solutions-in-2-grover/"><u>Top-Rated Servers & Cabinets: The Ultimate Guide to the Best Network Storage Solutions in 2 Grover</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-meizu-21-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Meizu 21 | Dr.fone</u></a></li>
 </ul></div>
 

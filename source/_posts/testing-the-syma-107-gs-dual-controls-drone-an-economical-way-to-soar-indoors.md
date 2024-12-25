@@ -1,7 +1,7 @@
 ---
 title: Testing the Syma 107 GS Dual Controls Drone - An Economical Way to Soar Indoors
-date: 2024-08-15T09:36:44.678Z
-updated: 2024-08-16T09:36:44.678Z
+date: 2024-12-24T19:08:17.434Z
+updated: 2024-12-25T16:13:42.018Z
 categories:
   - BestProducts
 description: This Article Describes Testing the Syma 107 GS Dual Controls Drone - An Economical Way to Soar Indoors
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/P-8UxsMZel3cjt1hVtk4iOKfgsw=/400x300/fi
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -40,9 +44,6 @@ Lifewire / Todd Braylor
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -65,6 +66,10 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -76,23 +81,24 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup Process: Easy installation**
 
  The S55 is straightforward and easy to install. Simply stick the windshield mount in place and plug the SmartCord lighter adapter into your car's DC cigarette lighter input. Plugging the modular jack into the S55 will automatically power on the radar detector and you can quickly customize settings for display brightness, detector sensitivity levels, and volume. Then you're ready to hit the road.
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## **Range: Impressive detection**
 
  The Passport S55 features Enhanced Radar Protection that delivers long-distance range for laser and radar bands, including K and Ka bands, widely used microwave frequencies for police radar guns. It reliably delivers on its promise of long-distance sensitivity. While testing the S55 in Highway mode I received Ka-band alerts over a mile and a half out from where I approached a highway patrol parked on the median of the interstate. This range was on par with much more expensive models.
 
  It reliably delivers on its promise of long-distance sensitivity.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
 
@@ -102,9 +108,6 @@ The ultimate burning program for all your needs!</a>
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
@@ -112,8 +115,9 @@ The ultimate burning program for all your needs!</a>
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
  A popular competitor brand to Escort that makes a wide selection of radar detectors is Uniden. The Uniden DFR9 (view on[Amazon](https://www.amazon.com/Uniden-DFR9-Detection-Cameras-Display/dp/B07F6PZXHM/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7C) ) is a model that can be considered the next price tier above the S55\. The DFR9's MSRP is $300 but it can often be found on sale for about $270.
@@ -126,18 +130,6 @@ The ultimate burning program for all your needs!</a>
 
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Passport S55
@@ -158,8 +150,6 @@ The ultimate burning program for all your needs!</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -167,4 +157,24 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-audiotrack-evaluation/"><u>[New] In 2024, AudioTrack Evaluation</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-expert-review-of-vivacuts-latest-edits-and-enhancements-for-2024/"><u>[Updated] Expert Review of VivaCut's Latest Edits and Enhancements for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-expressive-echoes-mastering-snapchats-cartoon-face-effects/"><u>[Updated] Expressive Echoes Mastering Snapchat's Cartoon Face Effects</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-slide-swivel-and-shift-a-comprehensive-guide-to-angled-photography-techniques-that-captivate-audiences-on-instagram-sites-for-2024/"><u>[Updated] Slide, Swivel and Shift A Comprehensive Guide to Angled Photography Techniques that Captivate Audiences on Instagram Sites for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assessment-the-second-generation-google-nest-hub-and-its-lack-of-a-camera-functionality/"><u>Assessment: The Second Generation Google Nest Hub and Its Lack of a Camera Functionality</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/beginners-tutorial-activating-echo-dot-setup-mode/"><u>Beginner's Tutorial: Activating Echo Dot Setup Mode</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/blade-blh4100-review-the-ultimate-pre-assembled-rc-helicopter-for-open-skies-exploration/"><u>Blade BLH4100 Review – The Ultimate Pre-Assembled RC Helicopter for Open Skies Exploration</u></a></li>
+<li><a href="https://media-tips.techidaily.com/enjoy-high-quality-video-streaming-with-the-complimentary-ogv-player-app-compatible-with-windows-11-and-macos-sierra/"><u>Enjoy High-Quality Video Streaming with the Complimentary OGV Player App, Compatible with Windows 11 and macOS Sierra!</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-gt-10-pro-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Infinix GT 10 Pro Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-right-buyers-guide-for-recording-units/"><u>The Right Buyer's Guide for Recording Units</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-tips-for-purchasing-a-new-tv/"><u>Top Tips for Purchasing a New TV</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/torment-the-art-of-worldbuilding-an-in-depth-review-of-the-sci-fi-role-playing-game-tides-of-numenera/"><u>Torment: The Art of Worldbuilding - An In-Depth Review of the Sci-Fi Role-Playing Game, Tides of Numenera</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-your-creative-potential-with-the-xp-pen-artist-16-pro-tablet/"><u>Unleashing Your Creative Potential with the XP-Pen Artist 16 Pro Tablet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-capabilities-of-the-fitbit-charge-6-detailed-assessment-and-insights/"><u>Unpacking the Capabilities of the Fitbit Charge 6: Detailed Assessment and Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-kooteks-portable-desktop-chiller-the-perfect-multi-functional-cooler/"><u>Unveiling the Power of Kootek's Portable Desktop Chiller - The Perfect Multi-Functional Cooler</u></a></li>
+<li><a href="https://win-blog.techidaily.com/winning-over-lag-issues-in-outriders-tips-and-tricks-for-smooth-gaming/"><u>Winning Over Lag Issues in Outriders - Tips and Tricks for Smooth Gaming</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/zdnet-explores-the-impact-of-a-single-ergonomic-upgrade-life-changing-after-using-a-split-keyboard-for-7-days/"><u>ZDNet Explores the Impact of a Single Ergonomic Upgrade: Life-Changing After Using a Split Keyboard for 7 Days</u></a></li>
+</ul></div>
 

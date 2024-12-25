@@ -1,7 +1,7 @@
 ---
 title: "Kobo Forma In Depth: A Detailed Look at a Revolutionary E-Reader Designed with Bookworms in Mind"
-date: 2024-12-12T22:13:13.480Z
-updated: 2024-12-16T23:27:50.789Z
+date: 2024-12-22T18:41:26.880Z
+updated: 2024-12-25T18:10:54.683Z
 categories:
   - BestProducts
 description: "This Article Describes Kobo Forma In Depth: A Detailed Look at a Revolutionary E-Reader Designed with Bookworms in Mind"
@@ -18,9 +18,17 @@ thumbnail: https://thmb.techidaily.com/d4011b13ce09e30b67e00ca49a12c263fc568d55d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Netgear Powerline PL1200
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LJwkWIKV_tIoZmxEqV9kr7ByA1Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_HeroSquare-d40232740fc34cdbb9b7197a7bda177d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jordan Oloman
 
@@ -44,10 +52,6 @@ Lifewire / Jordan Oloman
 ## Netgear Powerline PL1200
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/rYExgRawgStvNWLyEyCyiiEqyOI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_HeroSquare-d40232740fc34cdbb9b7197a7bda177d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jordan Oloman
 
@@ -75,10 +79,6 @@ Lifewire / Jordan Oloman
 
  Lifewire / Jordan Oloman
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Sharp edges and frustration**
 
  The Netgear Powerline 1200 kit doesn’t really care about your living room or bedroom aesthetic. It’s a monolithic, white glossy plastic box that juts out of the wall. If you’re looking for something inoffensive and reserved, the Netgear offering doesn’t deliver. The edges are sharp and the adapter is quite large in order to house all of the technology and the Ethernet sockets necessary to complete the network.
@@ -93,11 +93,11 @@ Lifewire / Jordan Oloman
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LMrQEcpONDZxLUfoMW6U8sX4dQw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_02-a8557f722ac84f29b6efb2a763d22a3c.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jordan Oloman
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Delightfully quick and efficient**
 
@@ -115,10 +115,6 @@ Lifewire / Jordan Oloman
 
  Lifewire / Jordan Oloman
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: A solid improvement**
 
  Using the device across our living room and bedroom, in two different setups across the course of a month, we found that the Netgear Powerline kit gave us a reliable upgrade to internet efficiency. Our initial connection speed (as per[Speedtest](https://www.speedtest.net/) ) offered a 68.4Mbps download speed, with 3.60Mbps upload speed, and sub-10-millisecond ping. The Netgear kit with an Ethernet cable attached to our laptop afforded us an 88Mbps download speeds and 6Mbps upload speeds.
@@ -131,13 +127,13 @@ Lifewire / Jordan Oloman
 
  You can create a secure and powerful network that boasts a dramatic upgrade in efficacy, all for a low price point, with a setup process that is actually plug and play.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Affordable for what you get**
 
  Out of the adapters we tested, the Netgear Powerline 1200 was one of the cheaper ones on Amazon, ranging between $70-$85\. You can see why when you study the design and the many aesthetic flaws that come with this product. Besides the fact it is bulky and doesn’t play nice with other plugs, it’s a reliable means to improve your home network through the wonders of Powerline. It’s still quite a hard sell at this price compared to other products that hover around the same and offer more ports and socket functionality, but it’s still a worthwhile purchase if you just want to plug and play.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Netgear Powerline 1200 vs. TP-Link AV2000 Powerline Adapter**
 
@@ -152,6 +148,10 @@ Lifewire / Jordan Oloman
  **A Powerline kit with solid speeds and an easy setup undermined by poor design.**
 
  The Netgear Powerline 1200 is incredibly reliable, albeit poorly designed. It is obstructive in the design department, fairly ugly to look at and comes with just one connection and awfully short Ethernet cables. Yet it has a true plug and play setup process with no compromises, and offers a reliable upgrade to your home network speeds. If you can look past the strange design choices this is the perfect introductory kit for Powerline beginners that does everything you need it to.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -177,19 +177,16 @@ Lifewire / Jordan Oloman
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-how-to-get-more-followers-on-igtv-5-ways/"><u>[New] In 2024, How to Get More Followers on IGTV [5 Ways]</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-essential-webcam-methods-for-powerpoint-recordings/"><u>2024 Approved Essential Webcam Methods for PowerPoint Recordings</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-top-wireless-range-enhancers-to-maximize-signal-strength/"><u>Comprehensive Review: Top Wireless Range Enhancers to Maximize Signal Strength</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/harness-extreme-connectivity-with-our-anker-usb-30-superspeed-hub-assessment/"><u>Harness Extreme Connectivity with Our Anker USB 3.0 SuperSpeed Hub Assessment.</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-3-easy-ways-to-factory-reset-a-locked-iphone-6-without-itunes-by-drfone-ios/"><u>In 2024, 3 Easy Ways to Factory Reset a Locked iPhone 6 Without iTunes</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-vivo-s18e-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Vivo S18e? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-4-ways-to-unlock-apple-iphone-8-to-use-usb-accessories-without-passcode-by-drfone-ios/"><u>In 2024, 4 Ways to Unlock Apple iPhone 8 to Use USB Accessories Without Passcode</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Samsung Galaxy M14 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sleek-small-stunning-an-in-depth-analysis-of-the-samsung-galaxy-s10es-capabilities-and-price-point/"><u>Sleek, Small, Stunning - An In-Depth Analysis of the Samsung Galaxy S10e's Capabilities and Price Point</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-carpal-tunnel-is-bounded-by-bones-on-three-sides-and-the-transverse-carpal-ligament-on-the-palmar-side/"><u>The Carpal Tunnel Is Bounded by Bones on Three Sides and the Transverse Carpal Ligament on the Palmar Side.</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/the-complete-guide-to-voiced-ppt-mastery/"><u>The Complete Guide to Voiced PPT Mastery</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-review-of-rings-enhanced-video-doorbell-pros-cons-and-price-analysis/"><u>Top Review of Ring's Enhanced Video Doorbell: Pros, Cons & Price Analysis</u></a></li>
-<li><a href="https://fox-tls.techidaily.com/understanding-and-solving-the-reason-behind-your-printers-failure-to-print-expert-advice-from-yl-software/"><u>Understanding and Solving the Reason Behind Your Printer's Failure to Print - Expert Advice From YL Software</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-apples-new-wireless-desktop-the-impressive-features-of-imac-m1-reviewed/"><u>Unveiling Apple's New Wireless Desktop: The Impressive Features of iMac M1 Reviewed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-giggle-in-the-virtual-realm-how-to-create-your-own-hilarious-memes/"><u>[New] 2024 Approved Giggle in the Virtual Realm How to Create Your Own Hilarious Memes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-elite-smartphones-reigning-in-ultra-clarity-video-recording/"><u>[New] In 2024, Elite Smartphones Reigning in Ultra-Clarity Video Recording</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-integrating-igtv-videos-with-your-facebook-network/"><u>[Updated] Integrating IGTV Videos with Your Facebook Network</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/flawless-photography-with-picarts-background-erasure-tricks-for-2024/"><u>Flawless Photography with PicArt’s Background Erasure Tricks for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-motorola-g24-power-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Motorola G24 Power to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/innovative-hiring-methods-discovering-6-chatgpt-approaches/"><u>Innovative Hiring Methods: Discovering 6 ChatGPT Approaches</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unraveling-the-secrets-of-garmin-vivosmart-4-precision-in-measuring-body-battery-and-managing-stress-levels/"><u>Unraveling the Secrets of Garmin Vivosmart 4 - Precision in Measuring Body Battery and Managing Stress Levels</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-benefits-an-exclusive-look-at-freestyle2s-blue-version-for-apple-product-users/"><u>Unveiling the Benefits: An Exclusive Look at Freestyle2's Blue Version for Apple Product Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-moto-g-powers-strengths-exceptional-durability-meets-remarkable-endurance/"><u>Unveiling the Moto G Power's Strengths: Exceptional Durability Meets Remarkable Endurance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-skagen-falster-3-timeless-design-amidst-cutting-edge-smartwatch-innovations/"><u>Unveiling the Skagen Falster 3: Timeless Design Amidst Cutting-Edge Smartwatch Innovations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/zombie-survival-in-days-gone-motorcycle-adventure-critique/"><u>Zombie Survival in Days Gone: Motorcycle Adventure Critique</u></a></li>
 </ul></div>
 

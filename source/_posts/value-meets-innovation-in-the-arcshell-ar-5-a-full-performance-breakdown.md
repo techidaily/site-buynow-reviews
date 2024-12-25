@@ -1,7 +1,7 @@
 ---
 title: "Value Meets Innovation in the ArcShell AR-5: A Full Performance Breakdown"
-date: 2024-12-13T19:37:57.646Z
-updated: 2024-12-16T20:36:35.478Z
+date: 2024-12-24T16:38:34.939Z
+updated: 2024-12-25T18:56:31.870Z
 categories:
   - BestProducts
 description: "This Article Describes Value Meets Innovation in the ArcShell AR-5: A Full Performance Breakdown"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/6d8730f2a77f7bacc79151a55ebc1a6b3c6364485
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Apple iPad Pro 11-Inch (2018)
 
@@ -47,7 +43,7 @@ Lifewire / Jordan Provost
 4.9
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Apple iPad Pro 11-Inch (2018)
@@ -119,14 +115,10 @@ Lifewire / Jordan Provost
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/GV44W9kKlQd3SXT_XaWI-tjo6Cw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_6-2bcb5b2009154c92931411045a9b6ddc.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Display: Rich colors and smooth motion**
 
@@ -150,6 +142,10 @@ Lifewire / Jordan Provost
 
  Lifewire / Jordan Provost
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Productivity: Not a laptop replacement just yet**
 
  The 2018 iPad Pro is an absolute force of nature as far as productivity is concerned. With the brilliant viewing angles, and options to attach both a nimble Apple Pencil and a Smart Keyboard to the device with relative ease, this tablet will suit the needs of many modern creatives and workers looking for an all-in-one device.
@@ -163,7 +159,7 @@ Lifewire / Jordan Provost
  Outside of that, you can’t connect some external drives, Thunderbolt devices or use a mouse. Split View is also certainly a compromise to professionals used to using more than three programs at once.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Audio: Thunderous sound**
@@ -171,7 +167,7 @@ Lifewire / Jordan Provost
  One of the major upgrades to the Pro is the stereo effect audio playback with four powerful speakers, two on either side of the device. The iPad Pro has truly stunning audio, and if you crank it up it could easily act as a party speaker. There is absolutely no need for anything external when watching video content. Amazingly, the fidelity of the audio never seems to suffer, even at full volume. Apple ditching the headphone jack poses an interesting problem in that you’re going to need a pair of Bluetooth headphones or buy an adapter to receive audio on the go.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Network: Reasonable connectivity**
@@ -183,10 +179,14 @@ Lifewire / Jordan Provost
 ![IPad- Pro 11 Inch](https://www.lifewire.com/thmb/D-1-WC_wIDqzRZLb8mDOgpjal6c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_3-e425a67865fc461fb805e648294dadf8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Camera: A decent backup**
 
@@ -197,6 +197,10 @@ Lifewire / Jordan Provost
  The Pro is great for demoing Augmented Reality (AR) content, but after a quick search of the App Store and some googling, you’ll soon realize there are very few compelling AR experiences on the market, so this is more of a work in progress.
 
  Take a peek at some of the[best camera apps](https://www.lifewire.com/best-iphone-camera-apps-4176231) you can download.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Battery: All-day usage**
 
@@ -213,10 +217,6 @@ Lifewire / Jordan Provost
  Due to the particular size of the screen, developers have to update all of their apps to fit properly on the iPad Pro, but even months after its release there are many apps that throw up horrible black bars between the software and the device bezel. Snapchat and Instagram are mostly unusable too, unless you’re willing to compromise with a downscaled, emulated version of the iPhone app.
 
  iOS 12 is by far and away the best version of the operating system yet, but there are still some blatant compromises that eat away at the possibility of the iPad Pro being a laptop replacement.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Well worth the money if you can justify it**
 
@@ -236,15 +236,15 @@ Lifewire / Jordan Provost
 
  With utterly seamless navigation and playback, fantastic speakers and world-class accessories and performance, this is a beautifully designed piece of hardware. Unfortunately, whilst the power is there, it is held back by its own operating system, forcing you into busywork or compromising missteps. It cannot replace your laptop just yet, but it may well make it redundant based on your use case.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Apple iPad 10.2-inch (7th Generation)](https://www.lifewire.com/apple-ipad-10-2-inch-7th-generation-review-4772313)
 * [Microsoft Surface Go](https://www.lifewire.com/microsoft-surface-go-review-4690827)
 * [Apple iPad Mini (2019)](https://www.lifewire.com/apple-ipad-mini-2019-review-4688991)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -274,22 +274,24 @@ Lifewire / Jordan Provost
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-roku-express-premium-content-for-budget-friendly-pricing/"><u>Comprehensive Review of Roku Express: Premium Content for Budget-Friendly Pricing</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-samsung-galaxy-note-9-analysis-leading-large-screen-smartphone-on-the-market/"><u>Comprehensive Samsung Galaxy Note #9 Analysis - Leading Large Screen Smartphone on the Market</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/deciding-between-an-ipad-and-a-fire-tablet-heres-how-you-choose/"><u>Deciding Between an iPad and a Fire Tablet? Here's How You Choose</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-the-amazon-basics-mobile-tablet-mount-a-hands-free-experience-for-travelers/"><u>Discovering the Amazon Basics Mobile Tablet Mount: A Hands-Free Experience for Travelers</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/effortless-conversion-of-dvd-video-ts-folders-to-avi-files-explained/"><u>Effortless Conversion of DVD Video TS Folders to AVI Files Explained</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-value-of-nikons-af-speedlight/"><u>Evaluating the Value of Nikon's AF Speedlight</u></a></li>
-<li><a href="https://network-issues.techidaily.com/fixed-windows-xp-plus-nvidia-geforce-98/"><u>Fixed Windows XP + Nvidia GeForce 98</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/framefixer-analysis-all-inclusive-report-for-2024/"><u>FrameFixer Analysis – All-Inclusive Report for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-conquering-remote-work-mastering-the-use-of-zoom-and-gmail/"><u>In 2024, Conquering Remote Work Mastering the Use of Zoom and Gmail</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-embrace-the-thrill-how-to-engage-in-tiktok-livestreams/"><u>In 2024, Embrace the Thrill How to Engage in TikTok Livestreams</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On ZTE Nubia Z60 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/progressive-visual-prelude/"><u>Progressive Visual Prelude</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/synology-rt2600ac-wi-fi-router-review-long-range-and-parental-controls-in-one-device/"><u>Synology RT2600ac Wi-Fi Router Review: Long Range and Parental Controls in One Device</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Lava Yuva 3 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-ranked-reviews-of-google-wifi-the-go-to-choice-for-seamless-wireless-mesh-router-systems/"><u>Top-Ranked Reviews of Google WiFi - The Go-To Choice for Seamless Wireless Mesh Router Systems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-arlo-video-doorbell-the-ultimate-all-in-one-surveillance-and-alert-system/"><u>Unveiling the Arlo Video Doorbell: The Ultimate All-in-One Surveillance and Alert System</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/visual-storytelling-made-easy-a-guide-to-blending-photo-and-video-in-pixiz/"><u>Visual Storytelling Made Easy A Guide to Blending Photo and Video in Pixiz</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-your-videos-first-moment-with-these-trendy-intros-for-2024/"><u>[Updated] Mastering Your Video's First Moment with These Trendy Intros for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1726028643516-mp4/"><u>完全データ損失なしに複数MP4ビデオファイルを効率よくマージするコツ</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-ambient-weather-station-ws-2902a-the-ultimate-osprey-model-with-extensive-functionality/"><u>Affordable Ambient Weather Station WS-2902A: The Ultimate Osprey Model with Extensive Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/arf-pets-automatic-pet-feeder-hassle-free-feeding/"><u>Arf Pets Automatic Pet Feeder: Hassle-Free Feeding</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/barnes-and-nobles-nightlight-marvel-the-ultimate-review-of-nook-glowlight-n3-for-dark-reading-sessions/"><u>Barnes & Noble's Nightlight Marvel: The Ultimate Review of Nook GlowLight N°3 for Dark Reading Sessions</u></a></li>
+<li><a href="https://program-issues.techidaily.com/boosted-f1-2021-gameplay-smoothness-fixing-the-frame-rate-drop-on-desktop-systems/"><u>Boosted F1 2021 Gameplay Smoothness: Fixing the Frame Rate Drop on Desktop Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-smartwatch-or-bad-bargain-unpacking-the-pros-and-cons-of-mobvoi-ticwatch-e2/"><u>Budget Friendly Smartwatch or Bad Bargain? Unpacking the Pros and Cons of Mobvoi TicWatch E2</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/capture-lifes-moments-with-nokia-71-outstanding-display-superior-camera-and-wallet-friendly-price/"><u>Capture Life's Moments with Nokia 7.1 – Outstanding Display, Superior Camera, and Wallet-Friendly Price</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-between-samsungs-latest-titans-s24-ultra-vs-s23-ultra-detailed-review/"><u>Choosing Between Samsung's Latest Titans: S24 Ultra Vs. S23 Ultra Detailed Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-imo-app-evaluation-pros-and-cons/"><u>Comprehensive Imo App Evaluation: Pros and Cons</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cutting-costs-without-cutting-corners-a-comprehensive-review-of-the-hp-stream-14/"><u>Cutting Costs without Cutting Corners? A Comprehensive Review of the HP Stream 14</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cutting-edge-audio-gear-for-your-digital-home-theater/"><u>Cutting-Edge Audio Gear for Your Digital Home Theater</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/deciphering-the-advantages-of-modern-multicam-technology/"><u>Deciphering the Advantages of Modern Multicam Technology</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/essential-online-spots-4-skype-ringtones/"><u>Essential Online Spots 4 Skype Ringtones</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-honor-magic-v2-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Honor Magic V2 Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-tecno-camon-20-premier-5g-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Tecno Camon 20 Premier 5G FRP</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/step-by-step-guide-transforming-mp3-files-into-high-quality-wav-format/"><u>Step-by-Step Guide: Transforming MP3 Files Into High-Quality WAV Format</u></a></li>
+<li><a href="https://program-issues.techidaily.com/update-problems-solved-revamping-the-minecraft-native-installer-on-any-pc/"><u>Update Problems Solved - Revamping the Minecraft Native Installer on Any PC</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/what-is-ai-influencer-in-2024/"><u>What Is AI Influencer, In 2024</u></a></li>
 </ul></div>
 
