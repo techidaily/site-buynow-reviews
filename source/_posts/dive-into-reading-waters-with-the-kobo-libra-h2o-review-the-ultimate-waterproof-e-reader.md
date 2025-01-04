@@ -1,7 +1,7 @@
 ---
 title: "Dive Into Reading Waters with the Kobo Libra H2O Review: The Ultimate Waterproof E-Reader"
-date: 2024-08-15T09:33:57.487Z
-updated: 2024-08-16T09:33:57.487Z
+date: 2024-12-30T22:27:31.272Z
+updated: 2025-01-03T21:45:25.403Z
 categories:
   - BestProducts
 description: "This Article Describes Dive Into Reading Waters with the Kobo Libra H2O Review: The Ultimate Waterproof E-Reader"
@@ -13,9 +13,17 @@ thumbnail: https://thmb.techidaily.com/f6b900a7e2a78e7ffb6b0f28d526eebcba1c857a7
 
 4.9
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## LG OLED C9 65" 4K Smart TV
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/Z82osxXGuhEbZyidLLG58VdbbJ0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_HeroSquare-b4b1522941d44a18b75a586155788477.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -43,9 +51,6 @@ Lifewire / Emily Isaacs
 ## LG OLED C9 65" 4K Smart TV
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/-RQ5Ui3BjE0KxHGHYE-UjNz7EY4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_HeroSquare-b4b1522941d44a18b75a586155788477.jpg)
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -70,9 +75,6 @@ Lifewire / Emily Isaacs
  The LG OLED C9 (OLED65C9PUA) may not be a significant improvement over its predecessor, but it’s still our pick for the best OLED TV of 2019, combining 65 inches of near-perfect color with an ease of use that will leave you loving[LG’s interface](https://www.lifewire.com/best-tvs-to-buy-4061107) . We tested this TV for a month and here’s what we had to say.
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/Ky7KFEDgeAy-u_D_Tv7zaOPYQMI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_03-f111424cfd584bfeac329fa2932278ca.jpg)
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -87,15 +89,9 @@ Lifewire / Emily Isaacs
  For customers with multiple external devices, such as Blu-ray players or gaming consoles, ports are located along the TV’s left-hand side and directly on its backside. These connection options include 4[HDMI](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) 2.1 ports, 3[USB](https://www.lifewire.com/universal-serial-bus-usb-2626039) ports, one cable/antenna input, one LAN port, and audio connections. The HDMI 2.1 ports are especially important since consoles began emerging in 2020 that rely on HDMI 2.1 such as the Playstation 5.
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/mxKfDJGuIKYcsSIQoKfzwDbYYmg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_02-3da87ff8439343f691cf02e9234d1f04.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ## **Setup Process: Do it yourself worthy, but you’ll need a hand**
 
  Due to its large size and fragile nature, consider where the LG C9 will be most secure before moving ahead with setup. It shouldn’t be placed anywhere where there’s a risk it could be knocked down or climbed on, for instance, so choose a location safely tucked away from pets and children.
@@ -125,15 +121,13 @@ Lifewire / Emily Isaacs
  While OLED TVs aren’t generally known for their great sound quality, the LG C9 has a surprisingly good sound system all things considered—but a soundbar would still be recommended. Audio in TV or movies is generally good, but it struggles to regulate loud and soft noises in a scene. Streaming Lizzo’s_Cuz I Love You_ on Spotify produces a surprising depth of sound, but it’s simply not comparable to a more robust system that a soundbar or home theater system would provide.
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/SZUaFESJi6OZubIeLdK1e9L9FEM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_04-c559e4cc6de64f0c8baf4470f883dd9e-4844a7694fb74eb2904f1128ba93f760.jpeg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: Smooth and easy to use**
 
  As with earlier models, the LG WebOS powers the C9\. It’s a user-friendly interface that makes navigating the TV incredibly smooth, enabling you to switch between apps and features built into the[smart TV](https://www.lifewire.com/best-smart-tvs-4135681) with ease. Meanwhile, the LG Magic Remote can function as a traditional remote control, as a mouse would for a computer screen, or issue voice commands with Google Assistant and Alexa, making navigating the menus second nature. While most major streaming services are already included (Hulu, Netflix, Amazon Prime, Google Play Movies & TV, to name a few) it’s also possible to download additional apps through the LG store. The drawback to the store, however, is that the apps are somewhat limited in availability.
@@ -142,11 +136,19 @@ Lifewire / Emily Isaacs
 
  In addition to the WebOS software, the LG C9 also comes with Google Assistant as well as Amazon’s Alexa. It makes it easy to search content, switch between apps and features, or check the weather, among other things.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A premium price for a premium TV**
 
  65-inch 4K TV’s generally retail for between $800-$5,000, and this cost jumps further as screen size increases. The LG C9 is a premium 4K TV that sits at the top of this curve, offering integrated smart technologies and excellent picture with an intuitive, easy-to-use interface. As such, it comes at a premium price of $2,500 (Amazon) that exceeds the cost of many competitor models, but with so many additional features it’s worth the high price—even if it’s difficult to swallow.
 
 [How to Buy a TV For Your Home in 2024](https://www.lifewire.com/best-60-inch-tvs-4580159)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **LG OLED C9 65-inch vs. Samsung 65-inch Class Q60R**
 
@@ -194,14 +196,11 @@ Lifewire / Emily Isaacs
 * Audio  Dolby Atmos 2.2 Channel 40 Watts
 * Additional Audio Features  Bluetooth audio streaming, Intelligent Voice Recognition, LG Sound Sync
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -210,4 +209,18 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-tips-for-achieving-crystal-clear-1080p-on-fb/"><u>[Updated] 2024 Approved Tips for Achieving Crystal Clear 1080P on FB</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-launching-a-youtube-series-focused-on-product-quality-insights-for-2024/"><u>[Updated] Launching a YouTube Series Focused on Product Quality Insights for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-streaming-perfection-techniques-for-clear-webcam-feed/"><u>[Updated] Streaming Perfection Techniques for Clear Webcam Feed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/5-important-questions-answered-before-you-invest-in-a-fitness-tracker/"><u>5 Important Questions Answered Before You Invest in a Fitness Tracker</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-review-of-b550-xts-voice-technology/"><u>A Comprehensive Review of B550-XT's Voice Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/achieve-fitness-goals-in-style-the-comprehensive-review-of-the-garmin-vivomove-hr-smartwatch/"><u>Achieve Fitness Goals in Style: The Comprehensive Review of the Garmin Vivomove HR Smartwatch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/all-day-energy-the-moto-g-powers-remarkable-battery-capabilities-and-stylish-exterior-reviewed/"><u>All-Day Energy: The Moto G Power's Remarkable Battery Capabilities and Stylish Exterior Reviewed</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-mobile-and-desktop-mkv-software-for-2024/"><u>Best Mobile and Desktop MKV Software for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-atandt-iphone-11-with-3-methods-by-drfone-ios/"><u>How to Unlock AT&T iPhone 11 with 3 Methods</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-transform-your-videos-the-ultimate-guide-to-spinning-media/"><u>In 2024, Transform Your Videos The Ultimate Guide to Spinning Media</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Oppo A1 5G? | Dr.fone</u></a></li>
+</ul></div>
 

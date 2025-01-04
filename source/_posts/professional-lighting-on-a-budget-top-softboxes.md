@@ -1,7 +1,7 @@
 ---
 title: Professional Lighting on a Budget - Top Softboxes
-date: 2024-08-10T23:53:36.554Z
-updated: 2024-08-11T23:53:36.554Z
+date: 2024-12-30T16:42:01.610Z
+updated: 2025-01-03T19:32:15.632Z
 categories:
   - BestProducts
 description: This Article Describes Professional Lighting on a Budget - Top Softboxes
@@ -13,11 +13,12 @@ thumbnail: https://www.lifewire.com/thmb/iAh6B4TvHm9Nvf5fdXeT63v5zAE=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## YONGNUO YN560 IV Wireless Flash Speedlite Master
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Yongnuo YN560 IV Wireless Flash Speedlite Master](https://www.lifewire.com/thmb/uk1o4WlK-bsMCk1tgtC5d79QMNM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_3LW4072366-Yongnuo-YN560-1-33b6547cc9014731ab6e144b0613aaef.jpg)
 
 Lifewire / Jonno Hill
@@ -40,15 +41,13 @@ Lifewire / Jonno Hill
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## YONGNUO YN560 IV Wireless Flash Speedlite Master
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ![Yongnuo YN560 IV Wireless Flash Speedlite Master](https://www.lifewire.com/thmb/UOD6afkRh-xS-Dh1-iagOeoOSdY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_3LW4072366-Yongnuo-YN560-1-33b6547cc9014731ab6e144b0613aaef.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -104,9 +103,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup: A lot of reading before use**
 
  Once you unpack your flash and install the four AA batteries, you’re going to want to familiarize yourself with the buttons and menu system a little. The YN560 IV has a lot of functionality, but it doesn’t have the most intuitive interface. The front of the device contains a top row of four buttons (a Light/Music icon, Mode, a Wi-Fi icon, and Zoom). Below this is a charge indicator button marked “PILOT”, a direction pad, and an On/Off button.
@@ -121,19 +117,15 @@ Lifewire / Jonno Hill
 
  Overall, the YN560 IV gives you a lot of functionality and control, but definitely requires some reading and troubleshooting before you can master the device.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## **Price: Significant savings for manual users**
 
  Buyers that need a lot of manual control for complex flash setups will be very pleased with what the get for the approximately $60 the YN560 IV costs. It sits at a price that’s a fraction of its TTL-enabled Canon and Nikon counterparts, but twice that of even simpler options. Do you need all the functionality that the YN560 IV offers? Are you willing to troubleshoot a bit with returns to make sure you get good, non-defective units? If the answer to those questions is yes, this is definitely the flash for you.
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Yongnuo YN560 IV Wireless Flash Speedlite Master vs Neewer TT560 Flash Speedlite**
 
@@ -150,13 +142,18 @@ Lifewire / Jonno Hill
  The Yongnuo YN560 IV Wireless Flash Speedlite Master may not be a very simple flash, but it packs enough functionality to make a very versatile platform for more aspirational photographers. Buyers that want full manual control and radio transmission without paying an arm and a leg will be more than pleased with what they get.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Canon Speedlite 430EX III-RT Flash](https://www.lifewire.com/canon-speedlite-430ex-iii-rt-flash-review-4686835)
 * [Nikon D3400](https://www.lifewire.com/nikon-d3400-review-4776644)
 * [Fovitec SPK10-037 Softbox Lighting Kit](https://www.lifewire.com/fovitec-spk10-037-softbox-lighting-kit-review-4692503)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -181,8 +178,6 @@ Lifewire / Jonno Hill
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -190,4 +185,24 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-expert-picks-8-superior-linux-snapshot-tools/"><u>[New] 2024 Approved Expert Picks 8 Superior Linux Snapshot Tools</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-become-a-snapchat-boomerang-pro-complete-tutorial-for-2024/"><u>[New] Become a Snapchat Boomerang Pro Complete Tutorial for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/solved-windows-could-not-connect-to-the-system-event-notification-service-service/"><u>[SOLVED] Windows Could Not Connect to the System Event Notification Service Service</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-what-financial-gain-stems-from-one-million-youtube-eyeballs/"><u>[Updated] 2024 Approved What Financial Gain Stems From One Million YouTube Eyeballs?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-between-outlookcom-and-gmail-a-comprehensive-guide-to-best-practices/"><u>Choosing Between Outlook.com and Gmail: A Comprehensive Guide to Best Practices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-seamless-sound-with-ion-audio-tailgater-plus-instant-powerful-bass-and-endless-music/"><u>Experience Seamless Sound with Ion Audio Tailgater Plus - Instant Powerful Bass and Endless Music!</u></a></li>
+<li><a href="https://win-able.techidaily.com/expert-tips-for-a-stable-minecraft-experience-avoid-crashes-with-simple-solutions/"><u>Expert Tips for a Stable Minecraft Experience: Avoid Crashes with Simple Solutions!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-thrills-of-fortnite-a-review-of-its-most-recent-exciting-season/"><u>Navigating the Thrills of Fortnite - A Review of Its Most Recent, Exciting Season</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/pivot-to-alternatives-considerations-with-vidmas-reader/"><u>Pivot to Alternatives? Considerations with Vidma's Reader</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/reconnected-disabled-printer-service/"><u>Reconnected Disabled PRINTER Service</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/secure-your-pcs-future-from-windows-8-upgrade-to-win-11/"><u>Secure Your PC's Future: From Windows 8, Upgrade to Win 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-apex-of-luxury-mobile-tech-a-detailed-look-at-the-exquisite-samsung-galaxy-s10/"><u>The Apex of Luxury Mobile Tech: A Detailed Look at the Exquisite Samsung Galaxy S10</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-karaoke-machines-of-2024/"><u>The Best Karaoke Machines of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-ranking-of-cell-phone-reception-boosters-top-picks/"><u>The Definitive Ranking of Cell Phone Reception Boosters: Top Picks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-lenovo-nook-touch-testing-its-features-in-detail/"><u>The Lenovo Nook Touch - Testing Its Features in Detail</u></a></li>
+<li><a href="https://win-able.techidaily.com/top-techniques-for-resolving-frame-rate-problems-in-elden-ring-fast/"><u>Top Techniques for Resolving Frame Rate Problems in Elden Ring Fast</u></a></li>
+<li><a href="https://win-blog.techidaily.com/trouble-with-game-launching-heres-how-to-validate-and-fix-it/"><u>Trouble with Game Launching? Here's How to Validate and Fix It!</u></a></li>
+</ul></div>
 

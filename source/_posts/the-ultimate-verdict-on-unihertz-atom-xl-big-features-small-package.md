@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Verdict on Unihertz Atom XL – Big Features, Small Package!
-date: 2024-08-10T23:53:23.501Z
-updated: 2024-08-11T23:53:23.501Z
+date: 2025-01-02T02:08:13.138Z
+updated: 2025-01-04T02:23:13.387Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Verdict on Unihertz Atom XL – Big Features, Small Package!
@@ -13,15 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/G_k85uM6rdIn8lEZfqHd0vFtWrE=/400x300/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Garmin Vivosmart 4
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Garmin Vivosmart 4](https://www.lifewire.com/thmb/EJl3EcpC1pj4FEXukKPZt82BlKk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Garmin-Vivosmart-4-Fitness-Tracker-1-0a7c6cef1af44b5c9acb1c657c292521.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -49,10 +47,11 @@ Lifewire / Erika Rawes
 
 ## Garmin Vivosmart 4
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Garmin Vivosmart 4](https://www.lifewire.com/thmb/ll2Uv9bgkmIddyfa-EOFiFCtsyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Garmin-Vivosmart-4-Fitness-Tracker-1-0a7c6cef1af44b5c9acb1c657c292521.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -76,9 +75,6 @@ Lifewire / Erika Rawes
 
  Fitness trackers have come a long way over the last few years, and you can find options in a variety of shapes, sizes, styles, and price ranges. The Garmin Vivosmart 4 is priced in about the mid-range, and it offers a few cool perks in addition to the standards like calorie counting and step counting. I tested the Garmin Vivosmart 4 for a month to see how it performs compared to other similarly priced fitness trackers on the market.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## **Design: You can’t remove the band**
 
  The Vivosmart is lightweight, weighing only 16.5 grams (for the small/medium size). It has a very slim profile, with the silicone band measuring only about a half of an inch in width. Now, this is great for style purposes, as the band looks great on the wrist. But, the slim design isn’t particularly functional, as the screen is extremely small and somewhat hard to read from a distance (especially if you have poor vision like me). The tiny screen measures a mere 0.26 inches wide by 0.70 inches tall.
@@ -115,6 +111,10 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: Garmin Connect App**
 
  The Vivosmart 4 doesn’t have any hard buttons, but rather a monotone touchscreen that you double-tap on the bottom portion to awaken. You scroll up and down to navigate through the various functions. I’m not in love with the interface, which isn’t particularly intuitive or feature-rich. Although companion apps are important to any good fitness tracker, the Vivosmart 4 relies too heavily on its app. It doesn’t have built-in GPS either, so it’s more tethered to your phone than some other fitness trackers on the market.
@@ -123,16 +123,14 @@ Lifewire / Erika Rawes
 
  The Garmin Connect app allows you to dive as deep into your fitness tracking as you want. If you’re a runner, it can track everything from your cadence to your max pace. It provides charts and graphs of your long term activity level, heart rate, stress, body battery, and more. You can also use insights to compare that data with the averages in your age and gender category.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![Garmin Vivosmart 4](https://www.lifewire.com/thmb/XmHmMYvuaOGE3gAGIsa_vChmpas=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivosmart-4-Fitness-Tracker-4-22ab906932be467bb2e3309e30555ab4.jpg)
 
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Battery: May last a full seven days**
 
  The battery is supposed to last for up to seven days, but the battery life depends largely on the features you use and how frequently you use the tracker. If you’re only passively tracking a few metrics, your battery might last a full week. If you’re constantly checking your heart rate, pulse ox, stress levels, sleep, and counting reps several times a day, your battery will not last that long. I got three and a half days of battery life when taking full advantage of the fitness tracker’s features.
@@ -142,6 +140,10 @@ Lifewire / Erika Rawes
 ## **Price: Reasonable**
 
  The Vivosmart 4 retails for $130, which is slightly high for this unit. You can find a refurbished version on Amazon for around $80, which is a more reasonable price.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Garmin Vivosmart 4 vs. Fitbit Charge 3**
 
@@ -153,9 +155,6 @@ Lifewire / Erika Rawes
 
  The Garmin Vivosmart 4 is a great option for anyone who wants to track their sleep, stress, energy, and cardio, but there are better options out there for weight training.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Vivosmart 4
@@ -181,14 +180,11 @@ Lifewire / Erika Rawes
 * Other features  training, planning and analysis, heart rate, running, cycling, swimming, kids activity tracking
 * What’s included  Vívosmart 4 smart activity tracker, Charging/data cable, Manuals
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -197,4 +193,18 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-a-brief-guide-to-kickstarting-conversations-on-instagram/"><u>[Updated] In 2024, A Brief Guide to Kickstarting Conversations on Instagram</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-elevating-gameplay-with-optimized-ram-assignment-for-minecraft/"><u>[Updated] In 2024, Elevating Gameplay with Optimized Ram Assignment for Minecraft</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-navigate-to-top-compre-written-in-english-please-here-is-a-list-of-30-alternative-titles-that-convey-similar-meanings-to-track-your-videos-w/"><u>[Updated] In 2024, Navigate to Top Compre Written in English, Please. Here Is a List of 30 Alternative Titles that Convey Similar Meanings to Track Your Videos With These Top 8 YouTube Rank Trackers</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-safe-and-sound-securing-your-fb-live-conversations-on-screen-for-2024/"><u>[Updated] Safe & Sound Securing Your FB Live Conversations on Screen for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-locked-or-disabled-from-iphone-12-pro-7-mehtods-you-cant-miss-by-drfone-ios/"><u>Apple ID Locked or Disabled From iPhone 12 Pro? 7 Mehtods You Cant-Miss</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-highest-quality-asus-routers-available/"><u>Exploring the Highest Quality Asus Routers Available</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/photoscape-software-insights-a-comprehensive-review-of-this-no-cost-visual-editing-solution/"><u>PhotoScape Software Insights: A Comprehensive Review of This No-Cost Visual Editing Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/professional-eyewear-insights-in-depth-analysis-of-bifocal-and-reading-glasses-that-filter-out-harmful-blue-light/"><u>Professional Eyewear Insights: In-Depth Analysis of Bifocal & Reading Glasses That Filter Out Harmful Blue Light</u></a></li>
+<li><a href="https://common-error.techidaily.com/understanding-windows-error-31-comprehensive-troubleshooting-techniques/"><u>Understanding Windows Error 31 - Comprehensive Troubleshooting Techniques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unplugging-your-gameplay-expert-review-of-razer-portals-cutting-edge-wi-fi-technology/"><u>Unplugging Your Gameplay: Expert Review of Razer Portal's Cutting-Edge Wi-Fi Technology</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/yl-software-solutions-diagnosing-and-fixing-blue-screen-issues-on-windows-systems/"><u>YL Software Solutions: Diagnosing and Fixing Blue Screen Issues on Windows Systems</u></a></li>
+</ul></div>
 

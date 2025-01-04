@@ -1,7 +1,7 @@
 ---
 title: "Syma S111G RC Helicopter Review: Low-Cost Indoor Fun"
-date: 2024-12-19T16:19:15.161Z
-updated: 2024-12-25T18:08:37.446Z
+date: 2024-12-28T17:12:46.309Z
+updated: 2025-01-04T03:35:21.681Z
 categories:
   - BestProducts
 description: "This Article Describes Syma S111G RC Helicopter Review: Low-Cost Indoor Fun"
@@ -50,6 +50,10 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Emily Isaacs
 
 [View On Walmart $138](https://www.walmart.com/ip/Microsoft-Sculpt-Ergonomic-Desktop-Black-Wireless-USB-Keyboard-Keypad-and-Mouse/31390902?slfpid=3) [View On Best Buy $66](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F1818024.p) [View On Newegg.com $169](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.newegg.com%2Fmicrosoft-sculpt-ergonomic-desktop-l5v-00001-usb-rf-wireless%2Fp%2FN82E16823109349%3Fitem%3D9SIA24G28N0197%26slfpid%3D3)
@@ -70,15 +74,15 @@ Lifewire / Emily Isaacs
 
  You can tell Microsoft put a considerable amount of thought into the Sculpt Ergonomic Keyboard’s design. From the manta ray style folds, which keep shoulders and hands at a relaxed, comfortable angle, to the detached numpad and magnetized risers for increased customization options when you want them, the Sculpt is quite the package. As with anything new, it took a period of adjustment, but we found it relatively quick thanks to the intuitive, easy-to-use design.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Made for comfort**
 
  The Sculpt is an ergonomic keyboard with a split design akin to that of a manta ray. The two halves of the keyboard sweep outwards and downwards creating an empty, raised space in the center of its swoop design. Its keys vary in size, with those nearest to the split being slightly wider than those on the outer edges of the keyboard. It’s largely made with plastic and has a bit of a clacky sound as you type. The Sculpt employs a standard layout with a fabric wrist pad at the front for extra comfort. This intuitive, split design combined with the wrist pad help your wrists, hands, and shoulders sit at a neutral, natural angle in order to[alleviate repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) that frequent typists are prone to over time.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -87,6 +91,10 @@ Lifewire / Emily Isaacs
  Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key.
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Batteries required**
 
@@ -97,10 +105,6 @@ Lifewire / Emily Isaacs
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
@@ -116,11 +120,11 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
- Lifewire / Emily Isaacs
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Emily Isaacs
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
@@ -135,7 +139,7 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
@@ -149,10 +153,6 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -184,17 +184,22 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-bright-and-bold-easy-techniques-to-lighten-up-iphone-videos/"><u>[New] Bright & Bold Easy Techniques To Lighten Up iPhone Videos</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-apple-podcasts-get-your-audio-fix-instantly/"><u>[Updated] Apple Podcasts Get Your Audio Fix Instantly</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-crafting-effective-youtube-thumbnails-and-banners/"><u>[Updated] Crafting Effective YouTube Thumbnails & Banners</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-monoprice-graphics-tablet-assessment-top-value-for-artists/"><u>Affordable Monoprice Graphics Tablet Assessment - Top Value for Artists</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/before-investing-in-a-health-gadget-read-this-list-of-5-crucial-fitness-tracker-insights/"><u>Before Investing in a Health Gadget, Read This List of 5 Crucial Fitness Tracker Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-value-in-streaming-in-depth-analysis-of-the-roku-express-edition/"><u>Best Value in Streaming: In-Depth Analysis of the Roku Express Edition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/catalan-skills-minutes-only-start-today/"><u>Catalan Skills, Minutes Only! Start Today</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-the-omoton-t1-a-solid-choice-for-cost-conscious-tablet-enthusiasts/"><u>Comprehensive Analysis: The Omoton T1, a Solid Choice for Cost-Conscious Tablet Enthusiasts</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/comprehensive-guide-step-by-step-process-of-restoring-a-lost-partition-from-your-external-hard-drive/"><u>Comprehensive Guide: Step-by-Step Process of Restoring a Lost Partition From Your External Hard Drive</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/mastering-custom-youtube-shorts-image-credits-with-ease-for-2024/"><u>Mastering Custom YouTube Shorts Image Credits with Ease for 2024</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/mov-to-avi-conversion-guide-step-by-step-process-on-mac-os/"><u>MOV to AVI Conversion Guide: Step-by-Step Process on Mac OS</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/cting-your-clips-top-youtubers-cameras-listed/"><u>Perfecting Your Clips Top YouTubers' Cameras Listed</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-best-apps-to-modify-your-voice-on-commute-for-2024/"><u>[New] Best Apps to Modify Your Voice on Commute for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-stepwise-guide-to-windows-11-sound-capture-setup-for-2024/"><u>[Updated] Stepwise Guide to Windows 11 Sound Capture Setup for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazon-fire-tv-screen-saver-update-introducing-new-ad-supported-features/"><u>Amazon Fire TV Screen Saver Update: Introducing New Ad-Supported Features</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/augmented-reality-stickers-by-google-unveiled-and-compared/"><u>Augmented Reality Stickers by Google Unveiled and Compared</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/avoid-external-gaming-capture-tools-stream-your-game-sessions-with-steam/"><u>Avoid External Gaming Capture Tools: Stream Your Game Sessions with Steam</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/can-shifting-to-arm-processors-revolutionize-microsoft-groaming-consoles/"><u>Can Shifting to ARM Processors Revolutionize Microsoft' Groaming Consoles?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/closure-announcement-redboxs-service-discontinuation-imminent/"><u>Closure Announcement: Redbox's Service Discontinuation Imminent</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/crafting-your-story-together-the-role-of-chatgpt-in-book-authorship/"><u>Crafting Your Story Together: The Role of ChatGPT in Book Authorship</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-must-watch-shows-on-leading-streaming-services-tailored-for-anime-lovers/"><u>Discover Must-Watch Shows on Leading Streaming Services Tailored for Anime Lovers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-playtime-with-top-tier-titles-a-guide-to-locating-superior-games-in-a-sea-of-choices/"><u>Elevate Your Playtime with Top-Tier Titles: A Guide to Locating Superior Games in a Sea of Choices</u></a></li>
+<li><a href="https://driver-install.techidaily.com/enhancing-file-system-performance-on-windows-plus-samsung-ssd/"><u>Enhancing File System Performance on Windows + Samsung SSD</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Infinix Smart 8 HD | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-urdu-key-words-and-phrases-guide/"><u>First Steps in Urdu: Key Words & Phrases Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/full-assessment-razers-hd-webcam/"><u>Full Assessment Razer's HD Webcam</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-auto-play-youtube-iphoneandroid-no-notification/"><u>In 2024, Auto-Play YouTube IPhone/Android, No Notification</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/quick-and-simple-discover-the-best-dav-to-avi-video-converter-apps-ranked-1-to-5/"><u>Quick and Simple: Discover the Best DAV-to-AVI Video Converter Apps Ranked #1 to #5</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/windows-fans-alert-netflix-terminates-in-system-downloading-service/"><u>Windows Fans Alert: Netflix Terminates In-System Downloading Service</u></a></li>
 </ul></div>
 

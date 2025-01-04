@@ -1,7 +1,7 @@
 ---
 title: The Premier eLearning Platforms for Developers
-date: 2024-08-15T09:34:14.670Z
-updated: 2024-08-16T09:34:14.670Z
+date: 2024-12-29T02:24:00.045Z
+updated: 2025-01-03T19:03:27.208Z
 categories:
   - BestProducts
 description: This Article Describes The Premier eLearning Platforms for Developers
@@ -40,15 +40,12 @@ thumbnail: https://www.lifewire.com/thmb/rBNY6v5dSJHJhGbVntYpGxI0U2s=/400x300/fi
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2K NBA 2K19 (PlayStation 4)
 
 ![NBA 2K19](https://www.lifewire.com/thmb/F87icpH4iTJJpiVp_cNJbOlHFPQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4042353-HeroSquare-3b0318500db84677b58649cacfa1d321.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 
  Lifewire / Eric Watson
 
@@ -75,19 +72,17 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 ![NBA 2K19](https://www.lifewire.com/thmb/YMXeWIxicIbj-86epw-TmdCR6Tg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4042353_04-8c4928a895a842cfa8abf52e0e1beb01.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Eric Watson
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## **Setup Process: Just install**
 
  Getting things ready is just a matter of putting in the disc and waiting for updates to install or doing a digital download. Nothing more to it.
 
 ![NBA 2K19](https://www.lifewire.com/thmb/M0pJx3LQWfKzQz2c6Cn61WEoZGc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4042353_07-bbd2e90a40b241c097157fea5b64a6f7.jpg)
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Eric Watson
 
@@ -102,6 +97,10 @@ DbSchema database designer for all databases, schema design in the team, schema 
  Defense feels especially rewarding, with high-speed steals and ever-present blocks forcing nearly every offensive engagement into a tactical matchup. The controls are easy to learn but tricky to master, resulting in a satisfying balance if you have the patience. Completely new players may be in for a bit of a hill to climb, however, as the practice mode tutorial is a hot mess of laborious tooltips.
 
 ![NBA 2K19](https://www.lifewire.com/thmb/Sy1Ow0C2SYcU7a6suicNTH7_juQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4042353_03-328b17a765df4296b364ba758a1cb996.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Eric Watson
 
@@ -120,8 +119,9 @@ DbSchema database designer for all databases, schema design in the team, schema 
  Lifewire / Eric Watson
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **The Way Back: Go mad Ants!**
 
  We were impressed with NBA 2K19’s career mode, which follows the story of a talented but undrafted young player named A.I., in a story called The Way Back. A.I. is fully customizable as we select his primary skill sets, attributes, and physical stature.
@@ -136,7 +136,15 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 ![NBA 2K19](https://www.lifewire.com/thmb/i0CH0_5PrBA7hMefnDah7sN9tL0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4042353_06-5d9dbed07cd6485ab0ffa086aa6159c8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Eric Watson
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Graphics: Impressive player models**
 
@@ -149,8 +157,9 @@ DbSchema database designer for all databases, schema design in the team, schema 
  Lifewire / Eric Watson
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Audio: Excellent commentary and soundtrack**
 
  Kevin Harlan and Greg Anthony continue to be fantastic commentators for NBA 2K19\. In NBA 2K19 they’re also joined by Bill Simmons, Kobe Bryant, and Kevin Garnett. NBA 2K19 features some of the best commentaries for any sports game, with insightful breakdowns, fun player anecdotes, and up tempo play-by-plays. The on-action commentary lags a bit behind when playing online, however, as Harlan shouts excitedly about a dunk after the other team is already at half court.
@@ -159,13 +168,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 [The soundtrack](https://www.liveabout.com/gaming-4842275) is also solid, featuring over 50 hip-hop and rock-pop tracks mixed and curated by rapper Travis Scott (who also provides five of the tracks). Other artists include Alison Wonderland, Migos, Bruno Mars, Brockhampton, and Angel the God.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ## **Price: Pricey anniversary edition**
 
  Like all major sports game franchises, NBA 2K19 always launches with a full $60 price tag, and like most games, that price will drop and get discounted throughout the year. NBA 2K19 enjoys deeper discounts and sale prices than most sports games, however, often at prices of $20 or less depending on how long you’re willing to wait. Even at full price NBA 2K19 is an easy recommendation for sports fans.
@@ -182,9 +184,6 @@ No advertising on the website.
 
  Given the large number of dunks, passes, throws, and technical maneuvers you can perform, all while facing a shot clock, a stingy defense, and a boringly lame tutorial, NBA 2K19 may be one of the most difficult sports games to jump into. Your patience will be rewarded, however, as it’s a tight, deeply strategic and satisfying basketball simulator, with some fun extra modes and a surprisingly enjoyable career story. That said, we wish 2K would ease up on the virtual currency.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  NBA 2K19 (PlayStation 4)
@@ -195,14 +194,11 @@ No advertising on the website.
 * Multiplayer  Online, Local
 * Platforms  PC, PlayStation 4, Switch, Xbox One
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -211,4 +207,24 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ed-business-mastery-through-youtubes-top-ten-channels/"><u>[Updated] Business Mastery Through YouTube's Top Ten Channels</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-dive-into-multi-tasking-mastery-with-chromes-pip-feature-for-2024/"><u>[Updated] Dive Into Multi-Tasking Mastery with Chrome's PIP Feature for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-essential-guide-to-sharing-art-on-public-platforms-responsibly-for-2024/"><u>[Updated] The Essential Guide to Sharing Art on Public Platforms Responsibly for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-the-top-10-economical-platforms-for-seamless-online-video-meetings-for-2024/"><u>[Updated] The Top 10 Economical Platforms for Seamless Online Video Meetings for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-examination-sonys-stunning-49-ultra-hd-smart-led-tv-xbr49x900f/"><u>A Comprehensive Examination: Sony's Stunning 49 Ultra HD Smart LED TV (XBR49X900F)</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/accelerate-your-system-understanding-ram-velocity-and-latency-effects/"><u>Accelerate Your System: Understanding RAM Velocity and Latency Effects</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/achieve-more-with-fitbit-versa-3-seamless-tracking-via-built-in-gps-and-a-variety-of-wellness-applications-to-keep-you-inspired/"><u>Achieve More with Fitbit Versa 3 - Seamless Tracking Via Built-In GPS and a Variety of Wellness Applications to Keep You Inspired</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/adaptable-brightness-discover-spk10-037-softbox-kick-assassin/"><u>Adaptable Brightness - Discover SPK10-037 Softbox Kick Assassin</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-and-efficient-topmate-c302-companion-a-comprehensive-laptop-cooler-guide/"><u>Affordable & Efficient TopMate C302 Companion - A Comprehensive Laptop Cooler Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-apple-smartwatch-se-assessment-and-analysis/"><u>Affordable Apple Smartwatch SE Assessment and Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-brilliance-detailed-look-at-the-impressive-zte-blade-a3y-smartphone/"><u>Affordable Brilliance: Detailed Look at the Impressive ZTE Blade A3Y Smartphone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-excellence-comprehensive-oneplus-nord-n1-revealed-review/"><u>Affordable Excellence: Comprehensive OnePlus Nord N1# Revealed Review</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Infinix Note 30 VIP Racing Edition? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722732325808-build-bonds-and-exchange-games-seamlessly-amongst-pals-on-xbox-one/"><u>Build Bonds & Exchange Games Seamlessly Amongst Pals on Xbox One.</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/efficient-recapture-techniques-for-twitch-streams/"><u>Efficient Recapture Techniques for Twitch Streams</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-vr-content-developers-you-should-know/"><u>Top VR Content Developers You Should Know</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-tips-eliminate-crashing-in-risk-of-rain-2-once-and-for-all/"><u>Troubleshooting Tips: Eliminate Crashing in Risk of Rain 2 Once and For All</u></a></li>
+</ul></div>
 

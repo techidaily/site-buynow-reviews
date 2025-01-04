@@ -1,7 +1,7 @@
 ---
 title: "The Top-Tier Virtual Basketball Game: NBA 2K19"
-date: 2024-08-15T09:33:44.250Z
-updated: 2024-08-16T09:33:44.250Z
+date: 2024-12-28T16:41:41.220Z
+updated: 2025-01-03T17:30:11.674Z
 categories:
   - BestProducts
 description: "This Article Describes The Top-Tier Virtual Basketball Game: NBA 2K19"
@@ -42,9 +42,6 @@ Lifewire / Erika Rawes
 ## Ubiquiti Amplifi HD Mesh Wi-Fi System
 
 ![Amplifi HD](https://www.lifewire.com/thmb/Njd1HQu0FsmaveVCH4FDT0Spa6c=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_HeroSquare-fdb67079a06b415b98467919ec8e34a6.jpg)
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -80,15 +77,16 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup: Couldn’t get any easier**
 
  The setup for the Amplifi HD system is probably the easiest setup process I’ve encountered. The app walks you through the process step-by-step, with pictures to guide you on each instruction. The most difficult part was deciding where to place the two mesh points in my test home. I placed one in the far bedroom and one in my office, two rooms that notoriously experience drop-offs.
 
  By default, the app creates a dual (2.4 and 5Ghz) network, which directs traffic based on the most efficient pathways. You can create separate 2.4 and 5Ghz networks, or make other adjustments as you see fit though. You can change the band on the mesh points (from 2.4 to 5Ghz), create additional SSIDs, and more. For the purpose of testing, I used the default combined network and allowed the system to direct network traffic between bands.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Connectivity: Lags when you add too many devices**
 
  The Amplifi HD system is not Wi-Fi 6 capable.[It has 802.11ac](https://www.lifewire.com/wireless-standards-802-11a-802-11b-g-n-and-802-11ac-816553) , and it's backwards compatible. On the back of the router sit four gigabit LAN ports in addition to the WAN connection. There’s no multigig port, but the four ports were a welcome addition.
@@ -98,8 +96,9 @@ Lifewire / Erika Rawes
  In my test home, speeds from my ISP max out at 500 Mbps. In the same room as the main router, Ookla measured the speed at 131 Mbps. The speed remained consistent throughout the home, even in rooms that typically experience drop offs with other routers. However, outside in the backyard, the speed reduced to 111 Mbps.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Key Features: A display screen**
 
  The touchscreen on the front of the main router can display the time, total GB, WAN and Router IP addresses, internet speeds, and port statuses. You touch the screen to cycle through the different screen options. The power cable connects via[USB-C](https://www.lifewire.com/usb-c-4149490) , and there’s a USB 2.0 port as well, but it doesn’t allow you to connect an external hard drive (the port is reserved for future use).
@@ -109,8 +108,9 @@ Lifewire / Erika Rawes
  The app creates a dual (2.4 and 5Ghz) network, which directs traffic based on the most efficient pathways.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Software: Amplifi App**
 
  In the Amplifi App, you can set up a guest network, manage devices, pause the internet, check the health of the system, and check your speeds on your entire network and on individual devices. You can optimize the priority level for each of your devices between normal, streaming, or gaming.
@@ -118,8 +118,9 @@ Lifewire / Erika Rawes
  You can also set up parental controls and control your system remotely. The app is extremely user friendly and simple to navigate. There are a few more advanced features, like assigning static IPs and port forwarding, but overall the app is designed for the average user.
 
 ![Amplifi HD](https://www.lifewire.com/thmb/2X1DxWPlS1VXqnwsUCG5qviJXwc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_03-56584e48b76942519745c71443c2e8d5.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -129,8 +130,9 @@ Lifewire / Erika Rawes
  The Amplifi HD system isn’t cheap. The package I tested, which came with the router and two mesh points, retails for $340\. You can find mesh systems for much less, and of course, some mesh systems are much more expensive. But, the Amplifi system’s design, easy setup, and feature set help justify the price.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Amplifi HD vs. Nest Wi-Fi**
 
  A Nest Wi-Fi package sells for around the same price as the Amplifi system. However, with the Nest system, all of the components match, while the Amplifi router looks very different from its mesh points. The Nest system points also serve as Google Assistant speakers, and the system features some more advanced technologies (like WPA3 encryption). However, one big issue with the Nest system is that it only has two Ethernet ports, while the Amplifi router has four spare ports.
@@ -159,14 +161,11 @@ Lifewire / Erika Rawes
 * Remote connect  Yes
 * What’s included  Amplifi HD Router, two mesh points, power and Ethernet cables, guides
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -175,4 +174,19 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-get-ahead-with-these-best-7-android-browsers-without-ads/"><u>[Updated] 2024 Approved Get Ahead with These Best 7 Android Browsers Without Ads</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-path-to-perfected-video-covers-update-guide-and-tips-for-2024/"><u>[Updated] The Path to Perfected Video Covers Update Guide & Tips for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/8-must-know-tips-and-criteria-when-selecting-the-ideal-tablet/"><u>8 Must-Know Tips and Criteria When Selecting the Ideal Tablet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/acer-predator-triton-300-se-explored-where-performance-and-portability-collide/"><u>Acer Predator Triton 300 SE Explored: Where Performance and Portability Collide</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/achieve-seamless-cross-platform-videos-with-vlc-and-apple-tv-techniques/"><u>Achieve Seamless Cross-Platform Videos with VLC and Apple TV Techniques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-hp-stream-14-analysis-balancing-cost-and-performance/"><u>Affordable HP Stream 14 Analysis - Balancing Cost and Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722646358739-dysregulated-signaling-pathways-contribute-to-the-development-of-either-osteolytic-or-osteoblastic-metastatic-bone-lesions/"><u>Dysregulated Signaling Pathways Contribute to the Development of Either Osteolytic or Osteoblastic Metastatic Bone Lesions.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722646403010-experience-high-end-flash-modes-on-a-budget-try-yn560iv/"><u>Experience High-End Flash Modes on a Budget - Try YN560IV!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Samsung Galaxy A23 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-realme-gt-5-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Realme GT 5 to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Infinix Zero 30 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Oppo Find N3? | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Tablet Showdown: Selecting Based on Core Strengths"
-date: 2024-08-15T09:32:29.972Z
-updated: 2024-08-16T09:32:29.972Z
+date: 2024-12-30T17:45:37.248Z
+updated: 2025-01-04T03:12:46.944Z
 categories:
   - BestProducts
 description: "This Article Describes Tablet Showdown: Selecting Based on Core Strengths"
@@ -37,14 +37,12 @@ Lifewire / Scott Gercken
 
 4.4
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner
 
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/0KtwvTBY-2P8KkZ_aO3Di4x-41c=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_HeroSquare-191df3b949f947dc9398373d6f610c19.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Scott Gercken
@@ -75,6 +73,10 @@ Lifewire / Scott Gercken
 
  Check out our buyers guide for more information on what you should look for in an optical drive.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Solid construction for portability**
 
  The Pioneer BDR-XS06 Blu-ray Burner is a shiny, silver drive. It’s a tiny 5.3" square, only .7” tall, with a silver top and sides, and a black underside. The bottom has two rubberized feet that run the width of the device, keeping it stable on slippery surfaces, nice if you’re using it away from your desk. The silver outer shell doesn’t smudge easily, so it’ll look nice without constant cleaning.
@@ -84,11 +86,12 @@ Lifewire / Scott Gercken
  It’s a slot loading drive, which works exactly the way you’d expect. It may be personal preference, but slot loading systems seem cleaner and less fussy than clamshell or tray systems. The back side has two ports, a[USB 3.0](https://www.lifewire.com/what-is-usb-3-0-2626038) micro-B and a port for a DC power input (not included with the drive). The drive also comes with a micro-B to USB-A cord, making it easy to connect the Pioneer BDR-XS06 to your computer.
 
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/LB5BA5cM1cVQB_sK6BgcOEl3l9k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_02-60d78cf22bf04b52979d5f65437a35e8.jpg)
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Scott Gercken
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: So easy**
 
@@ -96,9 +99,6 @@ Lifewire / Scott Gercken
 
  The BDR-XS06 also comes with a copy of Roxio Toast Lite. We inserted the installation disc into the BDR-XS06 to get the process started. When the drive mounted the disc, it showed a window with the application and an alias for the applications folder. Installation was as easy as dragging the icon to our applications folder. When we opened the app, the only setup step was registration, and then we were ready to go.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Compatibility: Works right out of the box**
 
  Even without the software, the BDR-XS06 worked right away. This model works right out of the box with both Windows and MacOS with little to no additional fuss. It’s one of the most plug-and-play burners we’ve tested.
@@ -112,9 +112,6 @@ It’s one of the most plug-and-play burners we’ve tested.
  To test read/write speeds, we ripped a copy of_Die Hard,_ a 37GB file, using a program called_MakeMKV._ The whole process took an hour and 13 minutes, and the drive hit speeds between 5.2x and 6x. To test the write speeds, we made a backup copy of a 14GB photo library. It took just under 42 minutes, though the same task took 32 minutes on Roxio Toast. While these speeds aren’t the fastest on the market, they live up to Pioneer’s advertising. While using Roxio Toast, the software measured an average write speed of 3x while using a BD-R, though its max speed is 6x for that format.
 
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/hYWwVcK8E-FSog7TpOTOgE-hYnY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_03-df0bfb492ead4e86a35df19618bcd5d4.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 
  Lifewire / Scott Gercken
 
@@ -122,16 +119,14 @@ It’s one of the most plug-and-play burners we’ve tested.
 
  While Blu-ray burners and[optical drives](https://www.lifewire.com/what-is-an-optical-disc-drive-2618157) aren’t exactly designed to play movies, we tried it anyway. We used a free Blu-ray player for Mac, and the picture was pretty good. On the Mac, it was sharp, almost as good as a[Blu-ray player](https://www.lifewire.com/best-blu-ray-players-1846400) designed for the TV. Next, we connected an HDMI cable to the Mac to see what it would look like on an[HDTV](https://www.lifewire.com/best-tvs-to-buy-4061107) . It wasn’t as good as on the computer, but it wasn’t bad either. The TV reported that the resolution was 768p at 60hz, not as good as a Blu-ray player built for that purpose, but better than SD.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## **Sound Quality: Blu-ray quality sound**
 
  While many people rave about[HD](https://www.lifewire.com/what-you-need-to-see-hd-1847338) image quality, we think that the depth of sound is the most exciting feature of the Blu-ray format. When you get all the high-end and low-end sound, it feels more immersive, and the Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner delivered the audio quality you’d expect from a Blu-ray. If you don’t mind the reduction in image quality vs. a dedicated player, the BDR-XS06 could double as a Blu-ray player for your PC or TV.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Software: Quirky but useful**
 
  The drive comes with Roxio Toast Lite v11 for creating or copying data discs. You need to upgrade to the full version to create an audio disc, video disc, or to convert files to another format.
@@ -145,6 +140,10 @@ It’s one of the most plug-and-play burners we’ve tested.
 ## **Price: Good value for the speed and portability**
 
  For the price, it delivers strong performance and portability. At an MSRP of $120, the BDR-XS06 is a little more expensive than some of its competition, but it feels more solid than even Pioneer’s own models in this price range. That extra durability is worth the slightly higher cost than this drive’s competitors.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: A step ahead**
 
@@ -163,6 +162,10 @@ It’s one of the most plug-and-play burners we’ve tested.
 **A solid portable Blu-ray burner.**
 
  The Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner is a solid, portable Blu-ray burner. It’s small enough to pack up to take on a trip, and it’s solid enough to give us confidence that it can endure some jostling on the way. It costs a little more than its competitors, but we think the solid construction is worth it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -187,14 +190,11 @@ It’s one of the most plug-and-play burners we’ve tested.
 * Warranty  1 year
 * Color options  Silver
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -203,4 +203,18 @@ It’s one of the most plug-and-play burners we’ve tested.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-redefining-virtual-adventure-with-jaunt-vr/"><u>[New] Redefining Virtual Adventure with Jaunt VR</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-transform-videos-with-tiktok-effects/"><u>[Updated] 2024 Approved Transform Videos with TikTok Effects</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-my-current-iphones-performance-with-ios-17/"><u>Comparing My Current iPhone's Performance with iOS 17</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-literature-with-a-twist-the-2019-kindle-oasis-bookworms-guide-to-reading-simulated-paper/"><u>Experience Literature with a Twist: The 2019 Kindle Oasis Bookworm's Guide to Reading Simulated Paper</u></a></li>
+<li><a href="https://article-tips.techidaily.com/exploring-classical-works-free-for-all-for-2024/"><u>Exploring Classical Works Free for All for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-benefits-of-googles-nest-wifi-the-ideal-choice-for-flawless-home-internet-coverage/"><u>In-Depth Look at the Benefits of Google's Nest Wifi: The Ideal Choice for Flawless Home Internet Coverage</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/pinnacle-blu-ray-players-1s-for-2024/"><u>Pinnacle Blu-Ray Players - #1S for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/powershot-sx720hs-a-compact-zoom-solution-unpacked/"><u>PowerShot SX720HS: A Compact Zoom Solution Unpacked</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-guide-to-integrating-music-and-editing-in-canva-vids-for-2024/"><u>The Guide to Integrating Music & Editing in Canva Vids for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-5-essential-barbecue-gadgets-in-2n22-revealed-by-zdnet/"><u>Top 5 Essential Barbecue Gadgets in 2N22 Revealed by ZDNet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-samsung-galaxy-a71-5g-the-smart-and-economical-option-to-luxury-brands/"><u>Unveiling the Samsung Galaxy A71 5G: The Smart and Economical Option to Luxury Brands</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of DJI Phantom 4 Pro V2.0: Nearly the Ideal Drone"
-date: 2024-08-15T09:34:46.412Z
-updated: 2024-08-16T09:34:46.412Z
+date: 2024-12-28T03:18:54.808Z
+updated: 2025-01-03T20:54:53.355Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis of DJI Phantom 4 Pro V2.0: Nearly the Ideal Drone"
@@ -37,6 +37,10 @@ Lifewire / Danny Chadwick
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Rexing V1 DashCam
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/5zZ5bclZ7zJVo8nRB2Y33JNM3w4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_HeroSqaure-ac1bb2840cb04106b14f3838b80a3bf2.jpg)
@@ -65,11 +69,12 @@ Lifewire / Danny Chadwick
  It has all the additional features you’d expect from a[dashcam](https://www.lifewire.com/types-of-dash-cameras-534889) , like loop recording and crash detection, and even some unique ones like timelapse recording. If you’re in the market for a dashcam, the Rexing V1 is definitely worth considering.
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/JfL4E5NnuBPl6-93Hv3PI4IJsV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_05-bcfff5f440b545378c9ee4e6b431ffac.jpg)
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Fits perfectly on your windshield**
 
@@ -86,17 +91,9 @@ Lifewire / Danny Chadwick
  It also has an internal accelerometer that can detect the impact of an accident, as well as[GPS capabilities](https://www.lifewire.com/what-is-gps-how-it-works-4688647) . Unfortunately, it doesn’t come with all the necessary equipment to use the GPS feature—if you want to enable these, you have to buy the[Rexing GPS Logger](https://www.amazon.com/Rexing-GPS-Logger-V1-V1P/dp/B01AKH377A/?tag=lifewire-onsite-prod-20&ascsubtag=4770571%7Cn9eae1cd5706347139b8b83241f9d42ea10%7C) separately.
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/ztn3EsFqtKkWImvQhtgcr1vlHwI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_02-9ee3aa46e7394a1ab263a6b12b287314.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## **Setup Process: Be sure that’s where you want to put it**
 
  For those concerned about the hassle of installing a dashcam, don’t worry. The user manual for the Rexing V1 was the clearest and most detailed of all the dashcams we tested. The instructions are written in easy-to-understand language, and every button, feature, and tool is explained in detail so there’s no guesswork when you turn the device on.
@@ -108,11 +105,16 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
  Also included in the box is a special tool that helps you hide the power cable. To prevent the wire from hanging down in front of your windshield, you need to wedge it up under the edge of the roof and through the side panels (the instruction manual shows you the best route to take). It may seem complicated at first, but this whole process only took us about ten minutes to accomplish.
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/df0_L-UzAk3OryqSCncsjfqi8QM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_03-2273fff3f71944368711b60f5da9687e.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Camera Quality: Basic**
 
@@ -122,11 +124,12 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/9_1pHoEq74JWPJ8reothv8PeI8E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_04-c5d42af8ddfa4296a6c6b1e8551edef6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ## **Performance: Set it and forget it**
 
  During our testing, we took the Rexing V1 on several lengthy drives through the cities and countryside of northern Utah. In the week that we had it, we never had a problem with how it functioned. It stayed firmly attached to the windshield, powered on every time we turned the ignition and never missed a frame while we were driving. This is one of those devices that embodies the “set it and forget it” mentality.
@@ -141,9 +144,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  Like the rest of the dashboard cameras we tested, the Rexing V1 has the ability to record audio, but it does a middling job of it. Voices in the car and sounds coming from the interior speakers were clear enough to understand, but sounds from outside the vehicle were muddy at best.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: A good value**
 
  The Rexing V1 retails for $130, but as of the time of this writing, can typically be purchased for closer to $100\. We feel like this is a perfectly appropriate price for this device—it falls right in the middle of the typical dashcam price range, providing better performance than super budget models, but without the high-tech features of the more expensive options out there. In short, it’s a good price for a solid, basic device.
@@ -178,14 +178,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 * Night Vision  No
 * Connectivity Options  MicroSD, USB
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -194,4 +191,23 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-free-online-archive-copyright-free-gaming-harmonies-for-2024/"><u>[New] Free Online Archive Copyright-Free Gaming Harmonies for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-story-savers-unleashed-instagrams-free-limit-breaker-for-2024/"><u>[New] Story Savers Unleashed Instagram's Free Limit Breaker for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-navigating-video-dimensions-on-instagram-today-and-tomorrow/"><u>[Updated] 2024 Approved Navigating Video Dimensions on Instagram Today & Tomorrow</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-creative-filmmaking-on-a-budget-using-smartphones-as-webcams/"><u>[Updated] In 2024, Creative Filmmaking on a Budget Using Smartphones as Webcams</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-comparative-game-capture-review-obs-vs-shadowplay/"><u>2024 Approved Comparative Game Capture Review OBS Vs. ShadowPlay</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-groundbreaking-shift-in-laptop-technology-unveiling-the-power-of-apples-m1-chip-in-their-macbook-air-13-inch-model-202-cuinty-a-detailed-review/"><u>A Groundbreaking Shift in Laptop Technology: Unveiling the Power of Apple's M1 Chip in Their MacBook Air 13-Inch Model (202 Cuinty) - A Detailed Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-step-by-step-guide-to-identifying-suitable-motherboards/"><u>A Step-by-Step Guide to Identifying Suitable Motherboards</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ad-free-local-listings-with-oodle-your-ultimate-classified-solution/"><u>Ad-Free Local Listings with Oodle - Your Ultimate Classified Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/adaptable-lighting-at-its-best-explore-the-spk10-037-kit/"><u>Adaptable Lighting at Its Best: Explore the SPK10-037 Kit</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/adding-extra-games-to-your-nes-classic-console-tips-and-tricks/"><u>Adding Extra Games to Your NES Classic Console - Tips & Tricks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-high-speed-wifi-in-depth-analysis-of-the-tp-link-archer-a6-ac1200-router/"><u>Affordable High-Speed WiFi: In-Depth Analysis of the TP-Link Archer A6 AC1200 Router</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/democracy-dynamics-leading-electoral-simulators/"><u>Democracy Dynamics Leading Electoral Simulators</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-i-sign-a-docm-file-electronically-by-ldigisigner-sign-a-word-sign-a-word/"><u>How do i sign a .docm file electronically</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/should-you-switch-to-samsung-galaxy-z-flip-6-from-z-flip-n5-a-detailed-review/"><u>Should You Switch to Samsung Galaxy Z Flip 6 From Z Flip N°5? A Detailed Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/soundbot-sb210-in-depth-a-convenient-winter-companion-for-quality-acoustics-when-active/"><u>SoundBot SB210 in Depth: A Convenient Winter Companion for Quality Acoustics When Active</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722661594193-unleashing-potential-a-comprehensive-look-at-hero7-black/"><u>Unleashing Potential - A Comprehensive Look at HERO7 Black</u></a></li>
+</ul></div>
 

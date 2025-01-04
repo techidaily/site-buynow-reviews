@@ -1,7 +1,7 @@
 ---
 title: "Top NBA 2K19 Game: Ultimate Virtual Basketball Experience"
-date: 2024-08-15T09:34:36.563Z
-updated: 2024-08-16T09:34:36.563Z
+date: 2025-01-02T02:04:23.887Z
+updated: 2025-01-04T02:55:14.812Z
 categories:
   - BestProducts
 description: "This Article Describes Top NBA 2K19 Game: Ultimate Virtual Basketball Experience"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/1d6ebdf0f9be5148c3910502b3b0ab4551af7a691
 ## Experience the Ultimate JRPG with Yakuza: Like a Dragon
 
 4
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## SEGA Yakuza: Like a Dragon
 
@@ -42,9 +46,6 @@ Lifewire / Erika Rawes
 ## SEGA Yakuza: Like a Dragon
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/2HQ40tAW6PvhutMT0JyWvwFpbdI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_HeroSquare-ea84381e359846e6951c77b6f7e7c5a0.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -71,8 +72,9 @@ Lifewire / Erika Rawes
  Yakuza: Like a Dragon places you in the shoes of Ichiban Kasuga, a young Yakuza upstart who was raised as an orphan in a Soap House by the owner and the women who worked there. Kasuga gets into a bit of trouble with a Yakuza family but is saved by Masumi Arakawa, the patriarch of the Arakawa family. Because of this, Kasuga pledges his life to Arakawa, promising to repay the debt.
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/Mo4mMH944CddmYJTyCxtMRxK9-k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_05-e59c99ba9bd249e7a2241f532dd742dc.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -94,8 +96,9 @@ Lifewire / Erika Rawes
  Overall, the story is interesting and engaging, with excellent voice acting and deep and interesting characters. There are plenty of opportunities to get to know the people who travel with you, and you come to care about the characters and their motivations. Yakuza: Like a Dragon is story-rich, and you won’t be disappointed at the amount of content to explore.
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Gameplay: Fun, yet slow-paced at times
 
  Gameplay in Yakuza: Like a Dragon feels incredibly polished. World exploration feels intuitive—you can run from point to point, stopping for distractions along the way, and sometimes engage in a conversation with your party during travel. Yokohama feels alive and real. There are billboards, stores, and people everywhere. You have to be careful when crossing the street, as you can suddenly get hit by a car, which seems to happen more than it should.
@@ -107,9 +110,6 @@ Lifewire / Erika Rawes
  Combat is handled with a turn-based system. During the fight, you have a menu of different selections, from regular attacks and items to defending and special attacks. This is where Yakuza: Like a Dragon really shines. The game provides you with a ton of options in the fight, and many of the moves are both over the top and quite funny. For instance, you can have a homeless teammate attack with a flock of pigeons, or maybe have your bartender attack with moves from her boxing fitness class.
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/ZvcwNcecc79umImvw53CUJlLvIc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_02-6396bcd8866c4a479331a02e160eb890.jpg)
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -135,15 +135,16 @@ Lifewire / Erika Rawes
 
 Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Price: The typical $60
 
  The base version of Yakuza: Like a Dragon comes in at $60 like most new titles. The price is reasonable for the amount of gameplay. However, you have two other purchase options as well. The Hero Edition, which costs $70, includes the Job Set and the Management Mode set and features two extra jobs and three sets of Management mode employees.
 
  The Legendary Hero edition costs $90, and it includes both previously listed sets, as well as the Crafting Mat, Stat Boost, Karaoke, and Ultimate Costume sets. These are all nice bonuses and can certainly add to the experience, but you will also find more than enough gameplay in the base game.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ## Yakuza: Like a Dragon vs. Dragon Quest Series
 
  It’s clear Yakuza: Like a Dragon draws some inspiration from the recent Dragon Quest, Dragon Quest XI. Both games feature turn-based combat, jobs working as roles, and a large sweeping and epic tale. Yakuza: Like a Dragon diverges in one major way, and that is not being afraid to innovate and push the limits of what a JRPG can be. Where Dragon Quest is the basic formula, Yakuza: Like a Dragon is what happens when a mad scientist gets a hold of that formula and creates something both crazy and brilliant.
@@ -154,14 +155,15 @@ Lifewire / Erika Rawes
 
  A well-crafted masterpiece. Yakuza: Like a Dragon falls into the must-play category for anyone who loves a good story, JRPGs, or a wild game that will make you laugh. It’s definitely a departure from the rest of the series, but that contributes to a lot of the fun and uniqueness of the game.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Cyberpunk 2077](https://www.lifewire.com/cyberpunk-2077-review-5113844)
 * [Godfall](https://www.lifewire.com/godfall-review-5095668)
 * [Torment: Tides of Numenera](https://www.lifewire.com/torment-tides-of-numenera-review-5077302)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -182,8 +184,6 @@ Lifewire / Erika Rawes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -191,4 +191,18 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-reviews.techidaily.com/1722583828654-watch-dogs-legion-unveiled-a-fresh-backdrop-revolutionizes-the-franchise/"><u>'Watch Dogs: Legion' Unveiled - A Fresh Backdrop Revolutionizes the Franchise!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-circumnavigating-youtubes-block-list/"><u>[New] In 2024, Circumnavigating YouTube's Block List</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-filters-to-fun-factors-maximizing-iphones-gif-capabilities/"><u>[Updated] From Filters to Fun Factors Maximizing iPhone's GIF Capabilities</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-enhanced-engagement-with-effective-youtube-video-outros-strategies/"><u>[Updated] In 2024, Enhanced Engagement with Effective YouTube Video Outros Strategies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/5-star-fitness-tracker-reviews-whats-hot/"><u>5-Star Fitness Tracker Reviews: What's Hot ?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/advanced-forecasting-tools-choosing-the-best-storm-tracking-applications/"><u>Advanced Forecasting Tools: Choosing the Best Storm Tracking Applications</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-mobvoi-ticwatch-e2-examination-why-its-not-worth-the-bargain/"><u>Affordable Mobvoi TicWatch E2 Examination - Why It's Not Worth the Bargain</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/elevate-interview-skills-the-chatgpt-way/"><u>Elevate Interview Skills: The ChatGPT Way</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210530959-9781612834849-freeing-the-captives/"><u>Freeing the Captives | Free Book</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722721633277-maximize-your-devices-lifetime-with-chargetechs-superior-27000mah-battery-bank-reviewed/"><u>Maximize Your Device's Lifetime with ChargeTech's Superior 27000mAh Battery Bank Reviewed</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-embracing-the-future-with-alternatives-top-mobile-chat-apps-for-android-users/"><u>New Embracing the Future with Alternatives Top Mobile Chat Apps for Android Users</u></a></li>
+</ul></div>
 

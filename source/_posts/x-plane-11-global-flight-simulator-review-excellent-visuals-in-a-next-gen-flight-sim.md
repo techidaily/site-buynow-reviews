@@ -1,7 +1,7 @@
 ---
 title: "X-Plane 11 Global Flight Simulator Review: Excellent Visuals in a Next-Gen Flight Sim"
-date: 2024-12-19T17:19:49.092Z
-updated: 2024-12-25T19:31:24.160Z
+date: 2024-12-30T18:59:42.842Z
+updated: 2025-01-03T17:52:43.021Z
 categories:
   - BestProducts
 description: "This Article Describes X-Plane 11 Global Flight Simulator Review: Excellent Visuals in a Next-Gen Flight Sim"
@@ -68,7 +68,7 @@ Lifewire / Erika Rawes
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: It’s all in the name (basic)**
@@ -89,10 +89,14 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels (in a rural area)**
@@ -101,15 +105,7 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Range: 35 miles**
 
@@ -126,7 +122,7 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -140,6 +136,10 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -172,15 +172,15 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-elevate-your-videography-instagram-captioning-techniques/"><u>[New] Elevate Your Videography Instagram Captioning Techniques</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/brand-storytelling-through-imagery-a-podcast-designers-guide-for-2024/"><u>Brand Storytelling Through Imagery A Podcast Designer's Guide for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/efficiently-refreshing-your-dualsense-companion/"><u>Efficiently Refreshing Your DualSense Companion</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/fresh-download-links-for-logitech-c270-hd-camera-drivers-windows-compatible/"><u>Fresh Download Links for Logitech C270 HD Camera Drivers - Windows Compatible</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/netgears-stronger-signal-solution-unleashing-the-power-of-nighthawk-x6s/"><u>Netgear's Stronger Signal Solution: Unleashing the Power of Nighthawk X6S</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-the-battle-for-your-living-room-tivo-vs-comcast-dvr-comparison-for-2024/"><u>New The Battle for Your Living Room TiVo vs Comcast DVR Comparison for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/primetrackings-best-in-class-battery-life-smart-trackers-expert-reviews-and-comparisons/"><u>PrimeTracking's Best-in-Class Battery Life Smart Trackers - Expert Reviews & Comparisons</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/save-big-on-gaming-in-octobers-exclusive-deal-extravaganza-seize-your-chance-to-snag-discounts-up-to-1000-dont-miss-out/"><u>Save Big on Gaming in October's Exclusive Deal Extravaganza! Seize Your Chance to Snag Discounts up to $1000 – Don’t Miss Out</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-blend-of-style-meets-practicality-in-our-latest-acer-chromebook-r-11-review/"><u>The Blend of Style Meets Practicality in Our Latest Acer Chromebook R 11 Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-fitbit-versa-guide-an-analysis-of-a-cost-effective-high-quality-wearable-device/"><u>The Fitbit Versa Guide: An Analysis of a Cost-Effective, High-Quality Wearable Device</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/earn-how-to-build-youtube-backlinks-for-your-channel/"><u>[New] Learn How to Build YouTube Backlinks for Your Channel</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unmatched-8-vr-equipment-companion-guide/"><u>[Updated] 2024 Approved Unmatched 8 VR Equipment Companion Guide</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-syncing-your-presence-in-real-time-tiktoks/"><u>[Updated] Syncing Your Presence in Real-Time TikToks</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-infinix-note-30i-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/become-a-social-butterfly-engage-in-fb-live-on-your-roku-box/"><u>Become a Social Butterfly Engage in FB Live on Your Roku Box</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparison-showdown-how-does-the-tp-link-archer-ax6000-stack-up-against-the-nighthawk-ax12/"><u>Comparison Showdown: How Does the TP-Link Archer AX6000 Stack Up Against the Nighthawk AX12?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-motorolas-moto-g-featuring-a-stylus-outstanding-performance-satisfactory-battery-longevity/"><u>In-Depth Review of Motorola's Moto G Featuring a Stylus: Outstanding Performance, Satisfactory Battery Longevity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-gaming-performance-in-depth-review-of-the-havit-5-fan-cooler-for-laptops/"><u>Maximize Gaming Performance: In-Depth Review of the HAVIT 5 Fan Cooler for Laptops</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-macbook-pros-performance-with-ssd/"><u>Revolutionize Your MacBook Pro's Performance with SSD</u></a></li>
+<li><a href="https://apple-account.techidaily.com/tips-and-tricks-for-apple-id-locked-issue-on-apple-iphone-7-by-drfone-ios/"><u>Tips and Tricks for Apple ID Locked Issue On Apple iPhone 7</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Zombie Survival Guide: A Motorcyclist's Review of 'Days Gone'"
-date: 2024-12-19T17:52:47.840Z
-updated: 2024-12-25T16:29:47.736Z
+date: 2025-01-02T18:41:06.929Z
+updated: 2025-01-04T02:31:34.650Z
 categories:
   - BestProducts
 description: "This Article Describes Zombie Survival Guide: A Motorcyclist's Review of 'Days Gone'"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/ff27900c09b1e7c1dbf788a17f82a6622f15751a0
 ## 7 Days to Die
 
 ![7 Days to Die](https://www.lifewire.com/thmb/VJoNxFQndEBfEN4NQeMVjVAovNk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4164252-1-e8b8c3eb31dd46e8a63e8e40a5a9d04b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -49,7 +53,7 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/mKaiRcg5xaWaOPRj0Ph1dRjUbSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4164252-1-e8b8c3eb31dd46e8a63e8e40a5a9d04b.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
@@ -75,6 +79,10 @@ Lifewire / Rebecca Isaacs
  Everyone loves zombies, but there are so many zombie shooters, it can be hard to tell them apart. But when we played 7 Days to Die, we jumped for joy and grabbed our digital cricket bats, fully prepared to go full Shaun of the Dead on hordes of the undead. A game loosely based around a nuclear fallout that ends with the fall of civilization and the spawning of undead, hungry friends sounds like a good time. Racking up over 500 hours on the game, we’ve tested it across four major alpha updates, taking note of gameplay, plot, ease of use, and price. Read on to find out our thoughts.
 
 ![7 Days to Die](https://www.lifewire.com/thmb/MW5wYA5ujBjG5LdXn-w9bTJd5WQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-2-a59091cd21c04d99a42270199349fc2a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -104,6 +112,10 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Gameplay: Could be better, but solid overall**
 
  7 Days to Die boasts two playable maps: Navezgane, which is a massive square map consisting of five biomes in which you can use the sandbox world to your advantage; and random map generation, which is a map that randomly spawns cities and biomes. The latter is for players who want a greater challenge, as no random map is the same. The former, however, has fun elements like a school, complete with charging football zombies, and a strip club. From these two kinds of maps alone, gameplay can last for hours (as we said, we’ve clocked in 500 hours at this point).
@@ -124,14 +136,10 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/O0do2JbbpgP_VF7azi5OhENnDpc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-5-13eba1dcdd7d45b48c0c3d07711686e6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Graphics: Outdated, but detailed on optimal**
@@ -148,17 +156,9 @@ Lifewire / Rebecca Isaacs
 
  Last time we checked, the company that owned all console rights, Telltale, went bust, and The Fun Pimps (the developer) were in legal limbo trying to reacquire their own rights. There’s a good chance that there will not be an update in the console versions of the game anytime soon as this issue makes its way through the courts. Therefore, we strongly recommend that you purchase the PC version if you decide this is a game you might like to try.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Average for an alpha game**
 
  At around $25, 7 Days isn’t the most expensive zombie game on the market. However, it is the most expensive alpha zombie game out there. Because you can purchase it on[Steam](https://www.lifewire.com/what-is-steam-4177380) or Humble Bumble, we recommend waiting for a Steam sale and getting it for a discount, especially since it’s still in progress. This way, if you decide you don’t like it in the future, you aren’t out the full price.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Other sandbox shooters**
 
@@ -173,7 +173,7 @@ Lifewire / Rebecca Isaacs
  Despite flaws in graphics, there’s a lot to love about 7 Days to Die. The challenging skill tree system and dangerous intelligent zombies add an element that’s not typically found in zombie shooters. If you want a game to commit to for hours on end, building bases and exploring dungeon-like homes while slaying zombie cheerleaders, then 7 Days to Die could be a fun way to ease some stress after a long day of work.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -209,20 +209,16 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/xplore-and-review-free-powerful-and-user-friendly-ios-edits/"><u>[New] Explore & Review Free, Powerful, and User-Friendly iOS Edits</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-from-laughs-to-clicks-your-stepwise-journey-on-9gag/"><u>[New] From Laughs to Clicks Your Stepwise Journey on 9GAG</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-prodigy-ai-image-editing-arsenal/"><u>[Updated] 2024 Approved Prodigy AI Image Editing Arsenal</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-recorders-unite-compete-for-2024/"><u>[Updated] Recorders Unite, Compete for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-review-on-tp-links-av1e-network-booster-expectations-vs-reality/"><u>A Comprehensive Review on TP-Link's AV1e Network Booster: Expectations vs Reality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722642165629-comprehensive-fitbit-versa-lite-appraisal-top-quality-health-metrics-for-less/"><u>Comprehensive Fitbit Versa Lite Appraisal: Top-Quality Health Metrics for Less!</u></a></li>
-<li><a href="https://win-special.techidaily.com/detect-and-eradicate-cryptomining-malware-a-guide-to-protect-your-system/"><u>Detect & Eradicate Cryptomining Malware: A Guide to Protect Your System</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/discover-the-ultimate-list-of-gratis-online-fax-providers/"><u>Discover the Ultimate List of Gratis Online Fax Providers</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-your-essential-list-of-the-finest-ios-ps2-emulators/"><u>In 2024, Your Essential List of the Finest iOS PS2 Emulators</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722798725813-top-rated-zmi-powerpack-20000-examined-the-perfect-compact-power-device-reviewed/"><u>Top-Rated ZMI PowerPack 20000 Examined: The Perfect Compact Power Device Reviewed.</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unlock-world-languages-find-the-top-14-video-translators-for-effortless-conversion-for-2024/"><u>Unlock World Languages Find the Top 14 Video Translators for Effortless Conversion for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-samsung-galaxy-fit-an-ultimate-review-of-your-new-workout-companion/"><u>Unveiling the Samsung Galaxy Fit: An Ultimate Review of Your New Workout Companion</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-sturdy-nikon-w100/"><u>Unveiling the Sturdy Nikon W100</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-truth-behind-premium-game-pc-specifications/"><u>Unveiling the Truth Behind Premium Game PC Specifications</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>Will iSpoofer update On Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-essential-info-for-tweeting-videos-aspect-ratios-required/"><u>[Updated] In 2024, Essential Info for Tweeting Videos Aspect Ratios Required</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-recommendations-best-mice-options-for-mac-users-in-202/"><u>Expert Recommendations: Best Mice Options for Mac Users in 202</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-moto-g-play-exceptional-battery-endurance-combined-with-solid-operating-capabilities/"><u>Exploring the Moto G Play: Exceptional Battery Endurance Combined with Solid Operating Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-master-hunting-alien-monsters-an-in-depth-review-of-monster/"><u>How to Master Hunting Alien Monsters: An In-Depth Review of Monster</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-easy-methods-to-unlock-icloud-locked-iphone-6ipadipod-by-drfone-ios/"><u>In 2024, 3 Easy Methods to Unlock iCloud Locked iPhone 6/iPad/iPod</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-realme-gt-neo-5-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Realme GT Neo 5 Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/making-money-with-chatgpt-alternatives-are-these-side-jobs-worth-your-time-and-skillset/"><u>Making Money with ChatGPT Alternatives: Are These Side Jobs Worth Your Time and Skillset?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/mastering-the-craft-of-looped-visuals-for-social-media-success/"><u>Mastering the Craft of Looped Visuals for Social Media Success</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-checklist-5-critical-factors-for-choosing-the-right-fitness-tracker/"><u>The Ultimate Checklist: 5 Critical Factors for Choosing the Right Fitness Tracker</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Vivo V29? | Dr.fone</u></a></li>
 </ul></div>
 

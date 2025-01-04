@@ -1,7 +1,7 @@
 ---
 title: "Dell XPS 13 Gen 8 (7390) 2-in-1 Laptop Evaluation: Stunning & Versatile Ultralight Design"
-date: 2024-12-19T18:04:05.691Z
-updated: 2024-12-25T16:31:20.323Z
+date: 2025-01-03T00:32:08.355Z
+updated: 2025-01-03T18:22:36.282Z
 categories:
   - BestProducts
 description: "This Article Describes Dell XPS 13 Gen 8 (7390) 2-in-1 Laptop Evaluation: Stunning & Versatile Ultralight Design"
@@ -18,17 +18,9 @@ thumbnail: https://thmb.techidaily.com/983f31d4ff46a88bf34dd06f49261024f8d7c362e
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## LG Gram 15.6-inch (2018)
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/UTcUqy8dPDWlsYUZPdsu5EVj8HU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_hero-Square-f2b4744360d644a1b93b7541af7eb182.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -56,6 +48,10 @@ Lifewire / Andrew Hayward
 ## LG Gram 15.6-inch (2018)
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/R_aYhYLFGT6--hIRDTNUJTlIVn8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_hero-Square-f2b4744360d644a1b93b7541af7eb182.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -110,23 +106,15 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/1qu1WvdEgTzjUQ8QH_Lssx79xF0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Trackpad_05-f0d9dc63b03e4650a92e30747090889a.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Just follow the directions**
 
  There's little reason to worry about getting the LG Gram 15.6-inch laptop up and running quickly. It has Windows 10 pre-installed, so you'll simply follow the onscreen prompts to enter your Wi-Fi info, check for updates, select a few options, and ultimately find yourself ready to roll on the desktop. It shouldn't take more than a handful of minutes.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Display: Large and capable enough**
 
@@ -164,10 +152,14 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/AhDZOG33ttJ8LfKQnzvHO7K-S8I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Closed_02-d40445064b4945729278aeae3d8ae1c0.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Battery: Seriously amazing**
@@ -179,7 +171,7 @@ Lifewire / Andrew Hayward
  With our typical workflow of browsing the web, chatting on Slack, typing up documents, and streaming a little bit of media, we typically saw 8-9 hours of uptime at 100% brightness.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: Hello, Windows (but no Windows Hello)**
@@ -196,7 +188,15 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/5yzhAkphyYfWOMofqawuktHJlA0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-v.-Surface-comparison-4946178bf2e94230820d2b19d2fb7197.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **LG Gram 15.6-inch (2018) vs. Microsoft Surface Laptop 2: Better than Microsoft's own?**
 
@@ -244,21 +244,19 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-how-to-set-up-an-impromptu-zoom-meeting-with-your-android-smartphone/"><u>[New] How to Set Up an Impromptu Zoom Meeting with Your Android Smartphone</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-empowering-videos-with-your-cellphones-camera-function/"><u>[New] In 2024, Empowering Videos with Your Cellphone's Camera Function</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-innovative-photo-tips-for-exquisite-iphone-close-ups-and-macros/"><u>[New] In 2024, Innovative Photo Tips for Exquisite iPhone Close-Ups & Macros</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-key-techniques-for-capturing-youtube-streaming-content-for-2024/"><u>[New] Key Techniques for Capturing YouTube Streaming Content for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-budget-friendly-strategies-to-infuse-text-and-video-for-2024/"><u>[Updated] Budget-Friendly Strategies to Infuse Text & Video for 2024</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/how-to-bounce-back-from-failed-video-repair/"><u>How to Bounce Back From Failed Video Repair?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-google-nest-mini-camera-exploring-facial-recognition-and-innovative-delivery-notifications/"><u>In-Depth Analysis of the Google Nest Mini Camera: Exploring Facial Recognition & Innovative Delivery Notifications</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/intuitive-action-capture-in-depth-analysis-of-the-budget-friendly-z-edge-z3-plus/"><u>Intuitive Action Capture: In-Depth Analysis of the Budget-Friendly Z-Edge Z3 Plus</u></a></li>
-<li><a href="https://win-blog.techidaily.com/master-the-apocalypse-solve-all-state-of-decay-2-crashing-problems-with-these-tips/"><u>Master the Apocalypse: Solve All State of Decay 2 Crashing Problems With These Tips</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/master-your-gameplay-on-phillips-49-inch-curved-oled-gaming-monitor-evonia-series/"><u>Master Your Gameplay on Phillips’ 49-Inch Curved OLED Gaming Monitor - Evonia Series</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-print-projects-expert-strategies-inside-adobe-photoshop/"><u>Navigating Print Projects: Expert Strategies Inside Adobe Photoshop</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/overcome-connectivity-woes-with-the-netgear-ex3700-an-authoritative-review-on-ac750-wi-fi-boosters/"><u>Overcome Connectivity Woes with the Netgear EX3700 - An Authoritative Review on AC750 Wi-Fi Boosters</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/putting-the-tp-link-av1300-to-the-test-an-expert-review-on-powerline-network-extension/"><u>Putting the TP-Link AV1300 to the Test: An Expert Review on Powerline Network Extension</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/quality-accessories-that-will-revolutionize-your-iphone-usage/"><u>Quality Accessories That Will Revolutionize Your iPhone Usage</u></a></li>
-<li><a href="https://win11.techidaily.com/swiftly-overcome-ppt-save-blunders-6-quick-fixes-windows-users-need/"><u>Swiftly Overcome PPT Save Blunders: 6 Quick Fixes Windows Users Need</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-realme-11x-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-masterclass-conquering-one-device-livestream-challenges/"><u>[New] Masterclass Conquering One-Device Livestream Challenges</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-insiders-handbook-for-instagram-video-woes-for-2024/"><u>[Updated] The Insider’s Handbook for Instagram Video Woes for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-record-and-share-moments-instantly-using-vlcs-webcam-recorder/"><u>2024 Approved Record & Share Moments Instantly Using VLC's Webcam Recorder</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bouncie-track-and-trace-revealed-budget-friendly-gps-monitoring-unveiled/"><u>Bouncie Track & Trace Revealed: Budget-Friendly GPS Monitoring Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-razer-blade-pro-17-assessment-for-on-the-go-productivity/"><u>Comprehensive Razer Blade Pro 17 Assessment for On-the-Go Productivity</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/discover-the-best-testdisk-alternatives-free-trials-available-now-plus-pay-for-options/"><u>Discover the Best TestDisk Alternatives: Free Trials Available Now, Plus Pay-For Options</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-on-the-wellness-tracker-features-of-the-samsung-galaxy-watch-active/"><u>Expert Review on the Wellness Tracker Features of the Samsung Galaxy Watch Active</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/fix-windows-media-player-silent-playback-step-by-step-guide/"><u>Fix Windows Media Player Silent Playback - Step-by-Step Guide</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/gemini-unleashed-1m-tokens-redefine-market-value/"><u>Gemini Unleashed - $1M Tokens Redefine Market Value</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-financial-flourishing-in-youtube-content-markets/"><u>In 2024, Financial Flourishing in YouTube Content Markets</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-optimal-live-video-distributors-suite/"><u>In 2024, Optimal Live Video Distributors' Suite</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-vogue-your-way-simple-video-concepts-for-you/"><u>In 2024, Vogue Your Way Simple Video Concepts for You</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/iphone-13-assessment-cutting-edge-technology-on-a-silver-platter/"><u>IPhone 13 Assessment: Cutting-Edge Technology on a Silver Platter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-free-darkroom-suite-lightzone-edition-for-windows-macos-and-linux-users/"><u>The Ultimate Guide to Free Darkroom Suite: LightZone Edition for Windows, macOS and Linux Users</u></a></li>
 </ul></div>
 

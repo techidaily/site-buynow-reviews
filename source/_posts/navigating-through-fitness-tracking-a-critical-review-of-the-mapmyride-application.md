@@ -1,7 +1,7 @@
 ---
 title: "Navigating Through Fitness Tracking: A Critical Review of the MapMyRide Application"
-date: 2024-08-10T23:53:38.607Z
-updated: 2024-08-11T23:53:38.607Z
+date: 2024-12-29T16:47:50.919Z
+updated: 2025-01-03T16:39:15.506Z
 categories:
   - BestProducts
 description: "This Article Describes Navigating Through Fitness Tracking: A Critical Review of the MapMyRide Application"
@@ -13,9 +13,17 @@ thumbnail: https://thmb.techidaily.com/02545b46a0f89851cd200be4f89aa4a5cf07cac66
 
 4.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Assassin's Creed Valhalla (PC)
 
 ![AC Vallhalla](https://www.lifewire.com/thmb/uNOEoXtNzm8yuWudHDVzDNDutY8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Assassins-Creed-Valhalla-1-b7cabc5b5656439bbb47518048f57aa5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -38,9 +46,6 @@ thumbnail: https://thmb.techidaily.com/02545b46a0f89851cd200be4f89aa4a5cf07cac66
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Assassin's Creed Valhalla (PC)
 
 ![AC Vallhalla](https://www.lifewire.com/thmb/1uTfLpDv2WlYuf-Ekg6qBUTQqP4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Assassins-Creed-Valhalla-1-b7cabc5b5656439bbb47518048f57aa5.jpg)
@@ -69,9 +74,6 @@ thumbnail: https://thmb.techidaily.com/02545b46a0f89851cd200be4f89aa4a5cf07cac66
 
  I played the game on PC for several days, but it’s also available on all other major platforms including the upcoming[Xbox Series X](https://www.lifewire.com/price-release-date-specs-xbox-series-x-5077092) , Xbox One, upcoming[PlayStation 5](https://www.lifewire.com/playstation-5-4778089) , and PlayStation 4\.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Story: A lot going on, and none of it to be spoiled**
 
  There’s a lot to say here, but not much that can be said without spoilers. Given how engaging I found the plot, it would be a shame to spoil it in any way. Suffice it to say that, though it begins as a typical revenge story, it soon becomes more complex and interesting. You play as Eivor, a male or female warrior who raids England during the reign of Alfred the Great.
@@ -90,11 +92,12 @@ thumbnail: https://thmb.techidaily.com/02545b46a0f89851cd200be4f89aa4a5cf07cac66
 
 ![AC sneak](https://www.lifewire.com/thmb/Vk4XvoE4lJwcjde1C_tJUVBc0Ac=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-9-a5e8ef2a5bef455d8cbaa9e749167f53.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Gameplay: Easy to pick up, challenging to master**
 
  Valhalla’s gameplay will be familiar to fans of the Assassin's Creed franchise, particularly the more recent entries in the series. As usual, there are tweaks and innovations, but it was easy enough for me to pick up, with my most recent experience being with AC Unity. Players who’ve played Origins and Odyssey will find much to be familiar. The fluid movement and iconic parkour makes navigating around the expansive open world fun and engaging, though novices may accidentally fling themselves off a cliff or two by accident as they learn the ropes.
@@ -109,9 +112,6 @@ thumbnail: https://thmb.techidaily.com/02545b46a0f89851cd200be4f89aa4a5cf07cac66
 
  Ubisoft has truly mastered the mechanics of boats, and sailing is just pure joy with your loyal crew singing their way down the fjords as the wind whistles in the rigging, your ship riding the realistic swells. Alternatively, your bard may accompany your seafaring with diverting tales. If there’s one downside is that unlike Odyssey, there’s no ship-to-ship naval combat, but perhaps that makes sense because the Vikings were more land raiders despite their extensive use of longboats to travel.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![AC Valhalla 3](https://www.lifewire.com/thmb/giaP-JV9QK6uFcdU_di4iWkvszw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-5-56a01de51a2a4540ae8650bece502873.jpg)
 
  Lifewire / Andy Zahn
@@ -128,18 +128,20 @@ thumbnail: https://thmb.techidaily.com/02545b46a0f89851cd200be4f89aa4a5cf07cac66
 
 ![AC ship](https://www.lifewire.com/thmb/n9S5L4JClTiqP1vYa_7cTGw6o0c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-7-d89d4a9941b8488ea6ef1aeba6486895.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Difficulty and Content Settings: Lots to customize**
 
  Valhalla gives you plenty of ways to customize your experience. You can adjust the difficulty of stealth, combat, and exploration separately, so you can choose which gameplay elements are difficult and which you’d rather not get in the way. Additionally, mature elements in the game such as blood and gore can be toggled on and off, which will be a[relief to parents](https://www.lifewire.com/best-pc-games-4147292) and a boon to anyone who doesn’t fancy seeing severed heads flying through the air.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## **Minigames: Enjoyable diversions**
 
  There’s more to do than fighting and exploring; in Valhalla there are a number of intriguing minigames to divert you from quests. I particularly enjoyed Flyting, which is a battle of words These are timed, competitive poetry contests where you must quickly select the most appropriate verse from a list of options. It’s both amusing and character building.
@@ -156,9 +158,6 @@ thumbnail: https://thmb.techidaily.com/02545b46a0f89851cd200be4f89aa4a5cf07cac66
 
  I was particularly struck by the amber rays of the setting sun that slanted through the rigging of my longboat as I returned from a mountain climbing excursion.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ## **Graphics: Epic good looks**
 
  Valhalla is an absolutely gorgeous game. Everything from the detailed character models to the vibrant open world is beautiful to look upon. Changing weather alters the mood of landscapes, and can create breathtaking moments. I was particularly struck by the amber rays of the setting sun that slanted through the rigging of my longboat as I returned from a mountain climbing excursion.
@@ -166,6 +165,10 @@ thumbnail: https://thmb.techidaily.com/02545b46a0f89851cd200be4f89aa4a5cf07cac66
  Towns and cities are richly detailed, with people going about their daily business in this muddy and gritty medieval setting. The wilderness is also magnificent, with wild natural beauty and towering ruins in equal measure. Wildlife and farm animals are both present in this world, adding vibrancy to the countryside.
 
 ![AC Mountain](https://www.lifewire.com/thmb/YazM4IIiw6qfR_cd-AfR8Cek9pg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-10-b813058de14c4b92978d22f84715ab98.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -177,9 +180,6 @@ thumbnail: https://thmb.techidaily.com/02545b46a0f89851cd200be4f89aa4a5cf07cac66
 
  When I first jumped into the game after the intro cutscene, I was greeted with the most horrendous graphics glitching I’ve ever experienced. Thinking this was because I had foolishly maxed the settings I restarted after tweaking down graphics, but upon restart, the glitches were appearing in the menu itself. I exited the game and the glitches persisted for about 10 seconds after Valhalla had closed. The built-in benchmarking tool in the game refused to run entirely. In the end, I decided not to push my luck with the laptop.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![AC ruins](https://www.lifewire.com/thmb/R1pb8_CqlpJqAmK9Ka9-pgyOyJk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-3-ea07cee8afaa4cc89c4e2bb286b894a0.jpg)
 
  Lifewire / Andy Zahn
@@ -188,20 +188,22 @@ thumbnail: https://thmb.techidaily.com/02545b46a0f89851cd200be4f89aa4a5cf07cac66
 
  Of course, if you’re playing on[console](https://www.lifewire.com/best-gaming-consoles-4154610) you don’t have to worry about performance issues since the game is better optimized. It’s currently available for Xbox One and PlayStation 4, and will be available for the Xbox Series X and PlayStation 5 at launch. You can also get it on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Typical AAA**
 
  The base game will set you back the typical $60, while the gold edition bundles in the season pass and costs a full $100\. That will include the planned expansions which will add Ireland and France to the map. Expensive though $100 is, it does promise a potentially huge amount of content. The game also has microtransactions, which is a bit of a bummer, though these weren’t integrated into the game at the time of writing.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ![AC horse](https://www.lifewire.com/thmb/teY5MG-6xAT5sxNurIFy_iYPPvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-2-58ab82ef1f624e01b1c1c6dab8bca06b.jpg)
 
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Assassin’s Creed: Valhalla vs. Watch Dogs: Legion**
 
  It’s interesting that Ubisoft decided to launch two third-person action games set in England within a span of a few weeks. Where Valhalla is set in the Middle Ages,[Watch Dogs: Legion](https://www.lifewire.com/watch-dogs-legion-review-a-new-setting-for-the-series-5085469) is set in a near-future sci-fi dystopia, though in both games you are battling against tyrannical rulers in England. Choose Watch Dogs if you want sci-fi focused on hackers and non-violent solutions, and Valhalla if you love bloody medieval fighting and exploration.
@@ -220,14 +222,11 @@ thumbnail: https://thmb.techidaily.com/02545b46a0f89851cd200be4f89aa4a5cf07cac66
 * Platforms  PC, Xbox Series X, Xbox One, PlayStation 5, PlayStation 4, Stadia
 * Rating  M
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -236,4 +235,18 @@ thumbnail: https://thmb.techidaily.com/02545b46a0f89851cd200be4f89aa4a5cf07cac66
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-splitcam-assessment-best-video-recorder-ranking-for-2024/"><u>[Updated] SplitCam Assessment Best Video Recorder Ranking for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-climb-the-fame-hierarchy-on-instagram-discovering-9-game-changing-tips/"><u>2024 Approved Climb the Fame Hierarchy on Instagram Discovering #9 Game-Changing Tips</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-nokia-g22-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Nokia G22 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-garmin-forerunner-e945-the-ultimate-gps-companion-for-fitness-enthusiasts/"><u>Expert Review: Garmin Forerunner E945 – The Ultimate GPS Companion for Fitness Enthusiasts</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-nokia-c12-plus-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Nokia C12 Plus? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ideal-matches-free-and-paid-ultra-hd-playback-tools-for-windows-macos/"><u>Ideal Matches Free & Paid Ultra HD Playback Tools for Windows, macOS</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-best-of-both-worlds-free-paid-film-apps-for-iphones/"><u>In 2024, Best of Both Worlds Free, Paid Film Apps for iPhones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-budget-with-the-75-inch-caixun-4k-smart-tv-a-full-review/"><u>Maximizing Budget with the 75-Inch Caixun 4K Smart TV - A Full Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pros-and-cons-the-ultimate-guide-to-the-garmin-forerunner-marathon-gps-watch/"><u>Pros and Cons: The Ultimate Guide to the Garmin Forerunner Marathon GPS Watch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/step-by-step-tutorial-for-installing-blinks-outdoor-4-cameras-with-light-features/"><u>Step-by-Step Tutorial for Installing Blink's Outdoor 4 Cameras with Light Features</u></a></li>
+</ul></div>
 

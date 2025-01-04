@@ -1,7 +1,7 @@
 ---
 title: Create a Research Budget
-date: 2024-08-10T23:52:55.757Z
-updated: 2024-08-11T23:52:55.757Z
+date: 2024-12-29T02:48:34.037Z
+updated: 2025-01-04T03:15:09.738Z
 categories:
   - BestProducts
 description: This Article Describes Create a Research Budget
@@ -36,8 +36,9 @@ thumbnail: https://thmb.techidaily.com/23c6d535c7ad4efdb52e10a3b68daec9ba5e42c7d
 [Jump to Review](https://www.lifewire.com/#toc-easiest-on-the-budget-hyper-mega-tech-super-pocket)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Just Buy This (All Around Best)
 
 [Nintendo Switch OLED](https://www.amazon.com/Nintendo-Switch-OLED-Model-White-Joy/dp/B098RKWHHZ?tag=lifewire-onsite-prod-20&ascsubtag=8656300%7Cn828e9c21ba084df1b24d3ffdd45b85b813%7CB098RKWHHZ)
@@ -81,8 +82,9 @@ thumbnail: https://thmb.techidaily.com/23c6d535c7ad4efdb52e10a3b68daec9ba5e42c7d
 * **What do buyers think?** 90% of buyers on Amazon have rated the Nintendo Switch OLED five stars, with the console having an average score of 4.8 out of 5.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Also Great
 
 [Valve Steam Deck](https://www.amazon.com/Valve-Handheld-Console-No-Operating-System/dp/B0BBQRYN9M?tag=lifewire-onsite-prod-20&ascsubtag=8656300%7Cn828e9c21ba084df1b24d3ffdd45b85b813%7CB0BBQRYN9M)
@@ -127,6 +129,10 @@ thumbnail: https://thmb.techidaily.com/23c6d535c7ad4efdb52e10a3b68daec9ba5e42c7d
 * **Who else recommends it?** The Verge, Forbes, IGN, PCGamer, and Wired have all recommended the Steam Deck with the Steam Deck OLED considered a particular highlight.
 * **What do buyers think?** The Steam Deck has sold over 3 million units on the Steam website. Relatively recently featured on Amazon, it has 86% four- or five-star ratings across 564 reviews.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Easiest on the Budget
 
 [Hyper Mega Tech Super Pocket](https://www.walmart.com/ip/Hyper-Mega-Tech-Capcom-Super-Pocket-Retro-System/5194946970)
@@ -139,10 +145,6 @@ thumbnail: https://thmb.techidaily.com/23c6d535c7ad4efdb52e10a3b68daec9ba5e42c7d
 
 **TL;DR:** Old enough to remember the Nintendo Game Boy? This is a lot like that with plenty of nostalgic games on-board and more to be purchased separately. It’s perfect for anyone seeking nostalgia and it’s very keenly priced too.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### Why We Recommend This
 
  The Hyper Mega Tech Super Pocket approaches the handheld gaming market differently from other consoles. It’s focused squarely on offering great retro gaming experiences.
@@ -172,9 +174,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * **Who else recommends it?** TechRadar, GamesRadar, Stuff, and The Guardian have all highly rated the Hyper Mega Tech Super Pocket.
 * **What do buyers think?** Between the two models, the Hyper Mega Tech Super Pocket has an average rating of 4.5 out of 5 on Amazon. 84% of customers have rated the Capcom version 4 or 5 stars, with 90% rating the Taito the same score.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How I Test
 
  I reviewed every handheld gaming console featured here over a number of weeks. The Nintendo Switch OLED, Switch Lite, and Steam Deck were purchased by me, while the Hyper Mega Tech Super Pocket, and Logitech G Cloud were acquired on loan from the manufacturer.
@@ -182,16 +181,18 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  While playing them, I focused on how fun they are to use, how portable they are, and how user-friendly they are.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Other Handheld Gaming Consoles We Considered
 
  The[Nintendo Switch Lite](https://www.amazon.com/dp/B092VT1JGD?tag=lifewire-onsite-prod-20&ascsubtag=8656300%7Cn828e9c21ba084df1b24d3ffdd45b85b813%7C) is the smaller and solely portable Switch option. It can’t be docked to your TV and has a weaker screen, but it’s cheaper and ideal for solo gaming.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Logitech G Cloud.](https://www.lifewire.com/thmb/SMW56Oe3oBSahp0Lznq6lQGJiTU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LogitechGCloud1-c2a2bb36b9ff4fa7bf3d6d8e65253de1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Logitech G Cloud.
 
@@ -231,8 +232,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -240,4 +239,20 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/updated-dual-domain-delight-posting-videos-across-social-platforms/"><u>[Updated] Dual-Domain Delight Posting Videos Across Social Platforms</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-free-youtube-sound-ripper-collection-top-17-extractors-revealed/"><u>[Updated] In 2024, Free YouTube Sound Ripper Collection Top 17 Extractors Revealed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-cp24-criacr-bluetooth-fm-transmitter-assessment-size-and-imperfections-analyzed/"><u>Comprehensive CP24 Criačr Bluetooth FM Transmitter Assessment: Size and Imperfections Analyzed</u></a></li>
+<li><a href="https://fox-where.techidaily.com/defending-against-crypto-scams-expert-tips-from-yl-computings-blockchain-security-guide/"><u>Defending Against Crypto Scams: Expert Tips From YL Computing's Blockchain Security Guide</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/elevate-your-privacy-game-connect-through-duckduckgos-cutting-edge-ai-chat-offerings/"><u>Elevate Your Privacy Game – Connect Through DuckDuckGo’s Cutting-Edge AI Chat Offerings</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expert-advice-on-preventing-and-repairing-408-request-timeout-errors/"><u>Expert Advice on Preventing & Repairing 408 Request Timeout Errors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-marvels-spider-man-miles-morales-delivers-impactful-gameplay-on-a-smaller-scale/"><u>How 'Marvel’s Spider-Man: Miles Morales' Delivers Impactful Gameplay on a Smaller Scale</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/how-to-restore-game-sounds-solving-borderlands/"><u>How to Restore Game Sounds: Solving Borderlands</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-from-iphone-8-plus-without-password-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account From iPhone 8 Plus without Password?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/journey-with-precision-top-tech-recommendations/"><u>Journey with Precision: Top Tech Recommendations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-leading-external-dvd-writers-of-2024/"><u>Ultimate Guide: Leading External DVD Writers of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleash-your-photographic-potential-with-canon-sx530/"><u>Unleash Your Photographic Potential with Canon SX530</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-how-the-enhanced-ps4-transforms-your-game-graphics-into-true-4k/"><u>Unveiling How the Enhanced PS4 Transforms Your Game Graphics Into True 4K</u></a></li>
+</ul></div>
 

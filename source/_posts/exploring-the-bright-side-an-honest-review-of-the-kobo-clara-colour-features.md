@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Bright Side: An Honest Review of the Kobo Clara Colour Features"
-date: 2024-12-24T19:13:17.177Z
-updated: 2024-12-25T17:10:22.345Z
+date: 2024-12-29T20:22:33.307Z
+updated: 2025-01-03T23:47:56.708Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring the Bright Side: An Honest Review of the Kobo Clara Colour Features"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/b88f149e018190d8db992f5fa62ce84a76816eeb0
 ## Acer Predator Triton 300 SE
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/NyMNso4w7RvAOB9yPKnTs3aeA94=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Acer-Predator-Triton-300-SE-Gaming-Laptop-1-d6f9eeb5a43845a9a328125976c835b0.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -99,7 +95,7 @@ Lifewire / Matthew S. Smith
  All the laptop’s ports are placed near the front of the chassis. You’ll have to deal with tangled cables more often than with a laptop that places most ports on the rear. I found this annoying when using an external mouse, as cables jutting from the laptop’s flanks often bumped my hand while playing games.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What’s New: This one is special
@@ -118,9 +114,17 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/eRv5Q4rKutM9zrhSTCRxbBO4rVc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-6-2af7f9999ae847bda4f5b9b830c9c555.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
 
  There’s one downside: poor viewing angles. This is unusual in a modern laptop, though I’ve noticed this trait in many high-refresh laptop displays. I can’t give the Triton 300 SE too much flak for this given its otherwise excellent performance.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Performance: Great for games, ok for everything else
 
@@ -131,7 +135,7 @@ Lifewire / Matthew S. Smith
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/_blPSVdy574t15clSGhbK6JH68o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-4-5a097b76e29b4ee985eee421ed6d0fe8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
@@ -144,10 +148,6 @@ Lifewire / Matthew S. Smith
 
  For me, the Triton 300 SE is easily fast enough: it can handle most games at an average of 60 frames per second (fps), and often much higher, at 1080p resolution. I wouldn’t recommend the Triton 300 SE if you plan to use an external 1440p or 4K monitor, however. Pushing a higher pixel count will lead to sub-60fps performance in most demanding games.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Productivity: All business
 
  The Acer Predator Triton 300 SE’s business-like design carries over to the keyboard and mouse. Key feel is good, with significant key travel and firm bottoming action, and the spacious layout will be comfortable for most users.
@@ -157,6 +157,10 @@ Lifewire / Matthew S. Smith
  Keyboard backlighting is standard and set to white by default, but the color can be customized across three zones. It’s not as impressive as the per-key RGB backlighting found on some gaming laptops but I’m happy to see some customization offered.
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/IiMzYmVU-_I6PnObn0bkjyCzqUk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-3-7cae0e5d13154048bbc93c40976706ca.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -170,10 +174,6 @@ Lifewire / Matthew S. Smith
 
  There are limits, of course. It isn’t loud enough to project impressive volume in a living room or kitchen. It can also sound muddy and confused when playing bass-forward music or the most frantic action games. Still, it’s an impressive set of speakers that will rarely leave you wanting for more.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Network: Killer performance
 
  Downloading a big, hot new game can be a real hassle, especially over Wi-Fi, but the Triton 300 SE can help. It has Intel’s Killer Wi-Fi 6 AX1650 and let me tell you: this thing rips.
@@ -182,13 +182,13 @@ Lifewire / Matthew S. Smith
 
  This translated to excellent real-world results. I created a real-world stress test by downloading Cyberpunk 2077 on Steam while simultaneously downloading Metro Exodus on Epic. Surprisingly, both downloads averaged in excess of 25Mbps. I’m used to seeing numbers in the teens.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Camera: BYOW (Bring Your Own Webcam)
 
  Acer’s Predator Triton 300 SE straddles the line between entertainment and productivity in its design, but the camera falls short of its professional aspirations. It’s a tiny 720p pinhole camera that squeezes between the display and the top bezel. Video quality is grainy in all but the brightest rooms and uneven lighting can easily confuse it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Battery: Ouch
 
@@ -203,10 +203,6 @@ Lifewire / Matthew S. Smith
  Still, buyer beware. The Triton 300 SE might look like a productivity laptop, but its battery life is solidly in the realm of full-blown gaming machines.
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/RSfl2dEVmErlvh3BUUFcxqsbt9w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-2-c5eed4bfe7e44014952b5503566097d9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -241,7 +237,7 @@ Lifewire / Matthew S. Smith
  Acer’s Predator Triton 300 SE is an excellent value that has what gamers want: a great gaming experience and a quality display. Its short battery life and mediocre multi-core processor hold it back in everyday use, but the laptop’s competitive price makes these flaws easy to forgive.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -249,6 +245,10 @@ Lifewire / Matthew S. Smith
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
 * [Dell XPS 13 2-in-1 Laptop](https://www.lifewire.com/dell-xps-13-2-in-1-laptop-review-4795686)
 * [Microsoft Surface Laptop 2](https://www.lifewire.com/microsoft-surface-laptop-2-review-4779760)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -284,21 +284,21 @@ Lifewire / Matthew S. Smith
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-aerial-vehicles-a-taxonomy/"><u>[New] 2024 Approved Aerial Vehicles A Taxonomy</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-snapshot-elite-windows-vista2008-for-2024/"><u>[New] SnapShot Elite Windows Vista/2008 for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-achieve-full-screen-display-in-social-media-videos/"><u>[Updated] In 2024, Achieve Full-Screen Display in Social Media Videos</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-beyondbaselinecameras-whats-upnext/"><u>2024 Approved BeyondBaselineCameras What's UpNext?</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-pioneering-color-correction-with-adobes-top-luts/"><u>2024 Approved Pioneering Color Correction with Adobe’s Top LUTs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-detailed-review-of-netgear-c3700-dissecting-its-performance-as-a-cable-modem-with-built-in-router-functionality/"><u>A Detailed Review of Netgear C3700: Dissecting Its Performance as a Cable Modem with Built-In Router Functionality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-fresh-look-at-demons-souls-stunning-upgrades-and-timeless-adventure/"><u>A Fresh Look at Demon's Souls: Stunning Upgrades & Timeless Adventure</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/breaking-down-the-netgear-ac1200-wi-fi-range-extender-a-detailed-ex6200-evaluation/"><u>Breaking Down the Netgear Ac1200 Wi-Fi Range Extender: A Detailed EX6200 Evaluation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722597288481-cyberpunk/"><u>Cyberpunk 지구: 아름다운 소나타가 된 미완제의 시연에 대한 평가.</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-every-detail-about-the-apple-watch-series-8-release-timeline-specifications-and-more/"><u>Discover Every Detail About the Apple Watch Series 8 - Release Timeline, Specifications & More</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-80-pro-straight-screen-edition-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Honor 80 Pro Straight Screen Edition Phone with Broken Screen</u></a></li>
-<li><a href="https://fox-zaraz.techidaily.com/overcome-the-green-screen-of-death-simple-troubleshooting-for-iphones/"><u>Overcome the 'Green Screen of Death': Simple Troubleshooting for iPhones</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/remedying-non-communicating-hp-inkjets/"><u>Remedying Non-Communicating HP Inkjets</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potential-of-the-samsung-galaxy-fit-a-revolutionary-device-for-fitness-buffs/"><u>Unveiling the Potential of the Samsung Galaxy Fit: A Revolutionary Device for Fitness Buffs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-wonders-of-yokus-island-express-a-unique-gaming-odyssey/"><u>Unveiling the Wonders of Yoku's Island Express - A Unique Gaming Odyssey</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/user-guide-to-choosing-a-ring-battery-doorbell-plus-reviews-and-insights/"><u>User Guide to Choosing a Ring Battery Doorbell Plus - Reviews and Insights</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-best-16-youtube-intro-makers-to-bring-you-more-views/"><u>[New] 2024 Approved Best 16 YouTube Intro Makers to Bring You More Views</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-the-path-to-effective-marketing-best-practices-for-health-promos/"><u>[New] 2024 Approved The Path to Effective Marketing Best Practices for Health Promos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nlocking-your-creative-potential-style-and-niche/"><u>[New] Unlocking Your Creative Potential Style & Niche</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-video-capture-app-for-fb-messenger/"><u>[Updated] Video Capture App for FB Messenger</u></a></li>
+<li><a href="https://win-blog.techidaily.com/common-problems-and-solutions-for-non-functional-multiplayer-in-elden-ring/"><u>Common Problems and Solutions for Non-Functional Multiplayer in Elden Ring</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/critical-review-the-mighty-xbox-series-x-delivers-revolutionary-4k-visual-mastery/"><u>Critical Review: The Mighty Xbox Series X Delivers Revolutionary 4K Visual Mastery</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/deciphering-the-asus-rog-gt-ac5300-the-ultimate-gadget-for-avid-gamers-and-tech-geeks/"><u>Deciphering the Asus ROG GT-AC5300: The Ultimate Gadget for Avid Gamers & Tech Geeks</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-bypass-the-required-apple-store-verification-for-apple-iphone-12-mini-drfone-by-drfone-ios/"><u>In 2024, How To Bypass the Required Apple Store Verification For Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-password-cracking-tools-for-samsung-galaxy-s23-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Samsung Galaxy S23</u></a></li>
+<li><a href="https://driver-download.techidaily.com/install-canon-ip110-drivers-for-seamless-printing-on-windows-systems-win11win10win8win7-supported/"><u>Install Canon iP110 Drivers for Seamless Printing on Windows Systems - Win11/Win10/Win8/Win7 Supported</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/job-security-alert-navigating-the-dangers-of-chatgpt-in-your-employment/"><u>Job Security Alert: Navigating the Dangers of ChatGPT in Your Employment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lg-k51-assessment-a-gorgeous-mobile-device-with-a-bottleneck-in-processing-speed/"><u>LG K51 Assessment - A Gorgeous Mobile Device With a Bottleneck in Processing Speed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pro-choices-or-plenty-deciding-between-the-new-iphone-15-plus-and-pro-max-variants/"><u>Pro Choices or Plenty: Deciding Between the New iPhone 15 Plus and Pro Max Variants</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reliable-pet-nutrition-with-the-smart-easy-to-use-petsafe-automatic-feeder/"><u>Reliable Pet Nutrition with the Smart, Easy-to-Use PetSafe Automatic Feeder</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/steps-to-download-images-from-microsoft-word-files/"><u>Steps to Download Images From Microsoft Word Files</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/studiokit-xz103-ultimate-savings-in-lighting/"><u>StudioKit XZ103 - Ultimate Savings in Lighting</u></a></li>
 </ul></div>
 

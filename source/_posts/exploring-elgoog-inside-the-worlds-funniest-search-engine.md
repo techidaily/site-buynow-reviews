@@ -1,7 +1,7 @@
 ---
 title: "Exploring elgooG: Inside The World's Funniest Search Engine"
-date: 2024-12-22T16:03:56.509Z
-updated: 2024-12-25T16:17:22.579Z
+date: 2024-12-28T22:39:47.727Z
+updated: 2025-01-04T04:02:39.466Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring elgooG: Inside The World's Funniest Search Engine"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/9d7c9f6d98f25a60252afdb702bb0a4fb1162bcb6
 ## Amazon Halo
 
 ![Amazon Halo](https://www.lifewire.com/thmb/KDrlBicwDSsm8oahXwLC9cx5FSs=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_HeroSquare-2e5c3941b8fe49afbd7464f382164976.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -47,6 +43,10 @@ Lifewire / Yoona Wagener
 [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Famazon-halo-activity-and-sleep-tracker-medium-7-onyx%2F6445215.p)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Amazon Halo
 
@@ -78,7 +78,15 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/W0-czfRzA-7ixa5VS8Cb4sBcaqM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_02-b2292f1ee1b54f4e9990c92e582c5a4b.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Design: An accessory that blends in
 
@@ -88,11 +96,11 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/QHImxX0EsYwunnnS2aNtTX9j80s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_03-66da73beea854cd39f6c35c06975ef4e.jpg)
 
-Lifewire / Yoona Wagener
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Lifewire / Yoona Wagener
 
 ## Comfort: Streamlined but not immune to typical fit issues
 
@@ -104,10 +112,6 @@ Lifewire / Yoona Wagener
 
  As for water resistance, I didn’t test the 50-meter swimproof rating of the Halo in a pool, but I did shower with the device for three days. Despite the band’s moisture-wicking band material, it remained damp far longer than was comfortable and compared to a fast-drying silicone band. If you’re an avid swimmer or prefer not to remove your wearable while showering, the sport band option will most likely be the more desirable option.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Performance: Constantly monitoring movement, not performance
 
  While this streamlined device doesn’t log detailed workout metrics, the Halo has the upper hand when it comes to continuously monitoring movement—and sedentary stints throughout the day. Whether you’re sitting at a desk or venture out for an errand, the Halo will capture that and pretty accurately categorize it. It consistently registered walking and running activities, though the readout wasn’t very accurate for the latter. Truthfully, I don’t get the impression that that’s the point of the Halo.
@@ -115,6 +119,10 @@ Lifewire / Yoona Wagener
  Instead, the Halo presents all activity data through a convenient point-tracking system. The weekly goal is 150, which converts to 150 minutes of cardiovascular activity, as recommended by the American Heart Association. Periods of movement and exercise count toward this point goal, while periods of non-movement subtract from points earned. It’s a digestible system that offers a new twist on the steps or movement alert functions you’ll find in fitness trackers and[smartwatches](https://www.lifewire.com/an-introduction-to-smart-watches-3441381) from Samsung, Garmin, Fitbit, and others. This system was an encouraging reset from those reminders that sometimes feel more annoying than motivating.
 
 ![Amazon Halo](https://www.lifewire.com/thmb/FjdFyV6Y4mTXNsqccZ4aEBJNpV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_05-e671ee9f77cc4cee8e2580a2dba449d5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener.
 
@@ -146,13 +154,13 @@ Lifewire / Yoona Wagener
 
 Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Price: A reasonable price for the feature set
 
  Retailing for just about $100, the Amazon Halo band certainly won’t break the bank for budget-minded shoppers. While the lack of display could be a deterrent, the solid mobile app provides convenient access to the detailed sleep, automatic activity tracking, and specialized tone of voice and body fat analysis the Halo provides.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Amazon Halo vs. WHOOP Strap 3
 
@@ -166,19 +174,11 @@ Lifewire / Yoona Wagener
 
  The Amazon Halo isn’t for everyone with its lack of display and additional layers of data tracking to capture tone of voice and body fat percentage. But for the user that wants a little less hardware but more forward-thinking fitness/health tracking, this unique wearable offers a different approach to increasing activity and wellness awareness on a daily basis.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Apple Watch Series 5](https://www.lifewire.com/apple-watch-series-6-review-5087552)
 * [Fitbit Sense](https://www.lifewire.com/fitbit-sense-review-5085832)
 * [Ticwatch Pro](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -211,22 +211,22 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-reviews.techidaily.com/yakuza-like-a-dragon-game-review-a-non-negotiable-rpg-adventure/"><u>'Yakuza: Like a Dragon' Game Review: A Non-Negotiable RPG Adventure</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-what-does-the-signature-blue-glyph-on-messenger-stand-for/"><u>[New] What Does the Signature Blue Glyph on Messenger Stand For?</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-unleash-creativity-a-deep-dive-into-metaverse-meme-culture-for-2024/"><u>[Updated] Unleash Creativity A Deep Dive Into Metaverse Meme Culture for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-cinematographers-secret-top-7-go-to-sites-for-first-look-at-new-films/"><u>A Cinematographer's Secret: Top 7 Go-To Sites for First Look at New Films</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-credit-card-from-your-iphone-11-apple-id-and-apple-pay-by-drfone-ios/"><u>In 2024, How to Change Credit Card from Your iPhone 11 Apple ID and Apple Pay</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/in-2024-top-8-digital-audio-workstations-daws-on-pc-compatible-with-windows-10-and-7-free-and-paid-options/"><u>In 2024, Top 8 Digital Audio Workstations (DAWs) on PC Compatible with Windows 10 & 7, Free and Paid Options</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-xiaomi-redmi-k70-pro-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Xiaomi Redmi K70 Pro Phone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/navigating-google-meet-discussions-tips-and-tricks-for-2024/"><u>Navigating Google Meet Discussions Tips & Tricks for 2024</u></a></li>
-<li><a href="https://os-tips.techidaily.com/simple-strategies-for-transferring-motorola-information-pc-cloud-and-device-options/"><u>Simple Strategies for Transferring Motorola Information: PC, Cloud & Device Options</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unleashing-productivity-in-onlyoffice-with-chatgpt-integration/"><u>Unleashing Productivity in ONLYOFFICE with ChatGPT Integration</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlock-the-secrets-to-building-utopian-metropolises-with-cities-skylines-reviewed/"><u>Unlock the Secrets to Building Utopian Metropolises with Cities: Skylines Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/upgrade-or-stick-with-current-comparing-the-newest-flagships-galaxy-s24-and-s23/"><u>Upgrade or Stick with Current? Comparing the Newest Flagships - Galaxy S24 and S23</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/urban-armor-gear-protective-sleeve-for-macbook-pro-is-it-tough-enough/"><u>Urban Armor Gear Protective Sleeve for MacBook Pro - Is It Tough Enough?</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/versatile-tools-flawless-repair-across-systems/"><u>Versatile Tools: Flawless Repair Across Systems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/whisker-wonders-games-galore/"><u>Whisker Wonders: Games Galore!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-the-latest-apple-ipad-102-is-outshining-its-predecessors-for-value-seekers/"><u>Why the Latest Apple iPad 10.2 Is Outshining Its Predecessors for Value Seekers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/z7-photo-masterclass-how-nikon-conquers-mirrorless-challenges/"><u>Z7 Photo Masterclass: How Nikon Conquers Mirrorless Challenges</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2023s-most-effective-sound-isolation-earphones-reviewed-and-ranked/"><u>2023'S Most Effective Sound Isolation Earphones Reviewed and Ranked!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-most-advanced-and-user-friendly-voip-solutions-choose-wisely/"><u>2024'S Most Advanced and User-Friendly VoIP Solutions - Choose Wisely!</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/get-sound-back-fixing-common-problems-with-the-logitech-g633-microphone/"><u>Get Sound Back: Fixing Common Problems with the Logitech G633 Microphone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-infinix-smart-8-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Infinix Smart 8</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-vivo-y100-5g-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Vivo Y100 5G Phone Hassle-Free</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/inspirational-metaverse-sayings-arvr-edition/"><u>Inspirational Metaverse Sayings AR/VR Edition</u></a></li>
+<li><a href="https://discover-best.techidaily.com/live-streaming-pro-enhancing-your-broadcasts-with-manycam-features/"><u>Live Streaming Pro: Enhancing Your Broadcasts with ManyCam Features</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/reinventing-ai-interaction-gpt-5s-imminent-features/"><u>Reinventing AI Interaction: GPT-5's Imminent Features</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/stop-windows-from-stopping-fix-error-2e/"><u>Stop Windows From Stopping, Fix Error 2E</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-ranking-laptop-picks-for-2eplus4-thoroughly-evaluated-by-tech-aficionados-zdnet/"><u>Top-Ranking Laptop Picks for 2E+4: Thoroughly Evaluated by Tech Aficionados | ZDNET</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-optimal-residential-alarm-networks-2023-edition/"><u>Ultimate Guide to Optimal Residential Alarm Networks - 2023 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-of-elite-gaming-throne-options-for-the-year-2gamingchairreviews/"><u>Ultimate Selection of Elite Gaming Throne Options for the Year 2#GamingChairReviews</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-of-premium-bluetooth-connectors-for-the-year-2024-unveiled/"><u>Ultimate Selection of Premium Bluetooth Connectors for the Year 2024 Unveiled!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-premium-iphone-se-casings-reviewed/"><u>Ultimate Selection: Premium iPhone SE Casings Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-the-leading-fitness-activity-monitors-for-the-year-2024/"><u>Ultimate Selection: The Leading Fitness Activity Monitors for the Year 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-wireless-gaming-headsets-for-your-nintendo-switch-the-2024-guide-to-choosing-the-right-pair/"><u>Ultimate Wireless Gaming Headsets for Your Nintendo Switch: The 2024 Guide to Choosing the Right Pair</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/windows-10-stream-success-post-upgrade/"><u>Windows 10 Stream Success Post-Upgrade</u></a></li>
 </ul></div>
 

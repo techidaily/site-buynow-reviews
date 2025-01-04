@@ -1,7 +1,7 @@
 ---
 title: "Discover the Joy of Robotic Engineering: A Comprehensive Guide to the Makeblock mBot DIY Kit!"
-date: 2024-08-15T09:32:10.179Z
-updated: 2024-08-16T09:32:10.179Z
+date: 2024-12-31T00:56:45.959Z
+updated: 2025-01-03T18:56:06.330Z
 categories:
   - BestProducts
 description: "This Article Describes Discover the Joy of Robotic Engineering: A Comprehensive Guide to the Makeblock mBot DIY Kit!"
@@ -69,8 +69,9 @@ Lifewire / Yoona Wagener
  We tested the Withings Move to see how comfortable it is for everyday use and explore the extent of its smartwatch characteristics.
 
 ![Withings Move](https://www.lifewire.com/thmb/SRCqvDOet8fouJ8uY8ze0LlCiog=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-2-1fdc9f06eb6a45f2baa2b840822fba5d.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
@@ -91,6 +92,10 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/Qz1dlsE8jl99mXc7-kQ5LCVoiK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-3-b1e97631284d40829bd5714c59dc5f2a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
 ## **Setup Process** :**As easy as 1-2-3**
@@ -103,6 +108,10 @@ Lifewire / Yoona Wagener
 
  First, we paired the Withings Move with our phone via Bluetooth, which was instantaneous. Next, we provided profile information for better activity metrics, downloaded an update, made sure the watch dials were working and the time was set correctly, and we were good to go.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Comfort: Light as a feather, even while sleeping**
 
  Some watches can feel heavy by the end of the day, but we didn’t encounter that weighed-down feeling with the Withings Move. The watch is really lightweight and the band is soft, flexible, and slim, which made sleeping with it a non-issue. It was also easy to achieve a good fit—especially for smaller wrists—thanks to the plentiful notches and the tab to keep the band in place.
@@ -112,15 +121,13 @@ Lifewire / Yoona Wagener
  We did notice that both the front and back of the watch face scratched easily over the course of a week, and suspect this could be a bigger issue for those who are harder on their accessories.
 
 ![Withings Move](https://www.lifewire.com/thmb/WIXFA6BpXvAMWLdKpJ_jmzZh6o4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-5-cbc0f43d847b453bbfae994f03374cdb.jpg)
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Limited activity tracking**
 
  While hybrid smartwatches like the Withings Move offer ease of use and versatility with your wardrobe and daily wear, they’re limited when it comes to tracking performance. Some activities are automatically recorded: walking, running, hiking, and swimming. With outdoor exercising, you can also track distance and elevation with the connected GPS feature.
@@ -136,8 +143,9 @@ Lifewire / Yoona Wagener
  We also tested the water-resistance while washing dishes and in the shower. The Withings Move is water-resistant up to 50 meters, which, according to the manufacturer, makes it acceptable for lap swimming, splashing, and dishwashing. Even though we didn’t put it to the depth test, it held up to submersion in soapy water and never missed a beat.
 
 ![Withings Move](https://www.lifewire.com/thmb/vaUmI1isQP98tmL8uIZSghmAWGs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-6-259d8034cfb64485be60f9c5754fec79.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
@@ -148,11 +156,12 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/02bkMrpkzqBOue1ffhHNfQqaIuk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-4-df866fafd70a44c592e0e06e0ea53ae7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Software: An emphasis on general wellness**
 
  Though activity data is somewhat limited, the Withings Move does offer some other more in-depth insights. Sleep activity, for example, is automatically detected and doesn’t require any other action besides wearing the watch while sleeping. When you wake in the morning, you’ll be able to view your quality of sleep for the previous night based on the number of interruptions, duration, and even depth of sleep. There is a hiccup with this feature, though—we noticed when we took it off at our desk one morning, it seemed to think we had fallen back asleep and continued reading our sleep quality.
@@ -165,23 +174,12 @@ Lifewire / Yoona Wagener
 
  There are also a number of other supplemental programs you can sign up for through the Health Connect app in order to up your general wellness. Most of these programs, which are free to join, require a specific type of Withings device, but others, like a meditation and pregnancy tracking program, don’t need any additional equipment.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: A bargain for the value**
 
  The Withings Move retails for $69.95, which is an attractive and affordable price for a hybrid smartwatch—most competitors tend to be well above $100\. While these other models, like the Fossil Harper and Fossil Q Commuter, typically come with more functionality like music storage or streaming, notifications, or taking a picture from your phone, there’s also a bigger price associated with those features.
 
  Those looking for a dressier and more substantial watch may find these Fossil models to be better alternatives. Other devices that are comparable in price, like the Fitbit Inspire Fitness Tracker, lack the analog watch qualities and look like designated activity trackers. The Withings Move splits the difference at a modest price.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Withings Move vs. Misfit Phase**
 
  The Misfit Phase is another hybrid smartwatch with a classic wristwatch look, maybe even more so than the Withings Move. Priced at around $175, the Misfit Phase is more expensive, but also comes with a few bonuses that the Withings Move lacks, like text notifications, playing and pausing music on your phone, and also taking selfies.
@@ -196,15 +194,6 @@ Lifewire / Yoona Wagener
 
  The Withings Move is a strong entry-level fitness tracker for the person who wants to track activities without going all-in on a smartwatch. It’s inexpensive, sporty, and subtle, which makes it compelling for those who don’t want to be distracted by notifications and all the hands-on features smartwatches bring to the table.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Withings Move Hybrid Smartwatch
@@ -223,8 +212,6 @@ Lifewire / Yoona Wagener
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -232,4 +219,24 @@ Lifewire / Yoona Wagener
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-unleashing-the-best-mobile-moba-battles/"><u>[Updated] 2024 Approved Unleashing the Best Mobile MOBA Battles</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/at-lp120xusb-unveiled-record-revival-on-a-turntable/"><u>AT-LP120XUSB Unveiled: Record Revival on a Turntable</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/fixing-the-unreachable-steamdll-error-on-your-pc-with-ease/"><u>Fixing the Unreachable Steam.dll Error on Your PC with Ease</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-honor-magic5-ultimate-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Honor Magic5 Ultimate To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-top-7-icloud-activation-bypass-tools-for-your-apple-iphone-xs-by-drfone-ios/"><u>In 2024, Top 7 iCloud Activation Bypass Tools For your Apple iPhone XS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/premier-select-affordable-youtube-sbs-extraction-for-2024/"><u>Premier Select Affordable YouTube SBS Extraction for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/read-like-never-before-with-the-201n-kindle-oasis-an-experts-perspective-on-comfort-reading/"><u>Read Like Never Before with The 201N Kindle Oasis – An Expert’s Perspective on Comfort Reading!</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/recmaster-pro-in-depth-analysis-of-the-latest-release-for-2024/"><u>Recmaster Pro In-Depth Analysis of the Latest Release for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/samsung-galaxy-f34-5g-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Samsung Galaxy F34 5G ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sony-wh-1000xm4-unveiled-an-expert-analysis/"><u>Sony WH-1000XM4 Unveiled: An Expert Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-essential-guide-to-aukeys-no-nonsense-sleek-usb-30-hub-review/"><u>The Essential Guide to Aukey's No-Nonsense Sleek USB 3.0 Hub Review</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1172682-9781932073539-the-soul-solution/"><u>The Soul Solution | Free Book</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-the-lg-oled-c9-television-stunning-visuals-in-a-smart-package/"><u>The Ultimate Review of the LG OLED C9 Television - Stunning Visuals in a Smart Package</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ltimate-selection-identifying-best-12-vloggers-camera-choices/"><u>The Ultimate Selection Identifying Best 12 Vloggers' Camera Choices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-garmin-forerunner-745-top-gear-in-advanced-multisport-tracking/"><u>Ultimate Guide to the Garmin Forerunner 745: Top Gear in Advanced Multisport Tracking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-evaluation-the-capable-cameras-of-the-rca-video-doorbell/"><u>Unboxing and Evaluation: The Capable Cameras of the RCA Video Doorbell</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/uncover-the-topmost-storm-monitoring-applications-available/"><u>Uncover the Topmost Storm Monitoring Applications Available</u></a></li>
+</ul></div>
 

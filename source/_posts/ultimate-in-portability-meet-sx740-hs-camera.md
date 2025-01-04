@@ -1,7 +1,7 @@
 ---
 title: Ultimate in Portability? Meet SX740 HS Camera
-date: 2024-08-10T23:53:44.891Z
-updated: 2024-08-11T23:53:44.891Z
+date: 2024-12-31T21:46:23.455Z
+updated: 2025-01-03T20:27:33.035Z
 categories:
   - BestProducts
 description: This Article Describes Ultimate in Portability? Meet SX740 HS Camera
@@ -13,12 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/vkH8OSOZgCeUs6mT7JzHBybwoJI=/400x300/fi
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Epic Games Fortnite Battle Royale
 
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/DMGMgrBEv5v68pMF79BSGG86pwg=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fortnite_Battle-Royale_Standard-Mode_HeroSquare-2f7eb4d812104cb290c513cb5db717fd.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -43,6 +44,10 @@ thumbnail: https://www.lifewire.com/thmb/vkH8OSOZgCeUs6mT7JzHBybwoJI=/400x300/fi
 [View On Amazon](https://www.amazon.com/Warner-Bros-Fortnite-Freeze-Bundle-PlayStation/dp/B07HFTGBZL/?tag=lifewire-onsite-prod-20&ascsubtag=4780857%7Cnfbec125106e649d48fa9a707bc1b5f4910%7CB07HFTGBZL) [View On Epicgames.com](https://www.epicgames.com/fortnite/en-US/home)
 
 4.8
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Epic Games Fortnite Battle Royale
 
@@ -75,19 +80,12 @@ thumbnail: https://www.lifewire.com/thmb/vkH8OSOZgCeUs6mT7JzHBybwoJI=/400x300/fi
 
  Lifewire / Emily Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ## **Plot: None, but it’s better that way**
 
  Fortnite is plot light, a battle royale designed like the Hunger Games in that it drops players onto a map with one singular goal: survive to the end of the match and be the only player, or squad, left standing. Instead of a continuous story mode, players experience dramatic shifts in the game mechanics and the map season-to-season.
 
  These include new explorable areas, changes to existing areas, weapon buffs, and new in-game mechanics, such as fishing or the addition of boats. Past seasons have included airplanes, snowboards, mechs and more—so who knows what future seasons will hold. The Battle Royale mode can become a little repetitive over time, but that's why new seasons are important. They change up the pace of the game and reinvigorate the interest of players. The one guarantee is that each new season brings change, and with the dawn of Chapter 2, it’s clear that Epic Games hasn’t lost their touch for re-imagining their game.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/u0p3ac203yN2fyC3DvKLcXMqdAY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fornite_BattleRoyale_StandardMode_02-8da4487c33dc4aed81eabc862664a1f8.jpg)
 
  Lifewire / Emily Isaacs
@@ -102,18 +100,27 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  The storm is an ever-encroaching threat that closes over set intervals and deals damage that increases over time to players trapped within its boundaries, forcing everyone closer together as the safe zone shrinks. The last team standing will claim the Victory Royale for themselves.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Graphics: Good, campy fun**
 
  Fortnite’s graphics are campy, oversaturated, and brightly-colored fun making them a treat to look at. Unlike competitors such as PUBG or Apex Legends, Fortnite’s graphics trade realism for cartoonish, exaggerated features. When combined with the emotes and skins earned throughout the game, these can create some very entertaining in-game visuals.
 
  It’s worth noting that DirectX 12 support is officially here for PC users, which means that people playing on higher quality graphics cards should see a more consistent gameplay experience thanks to an increased and more stable frame rate. If your system is older, you can play on reduced settings, but it does make the picture choppy and difficult to follow. It’ll get the job done, but we wouldn’t recommend it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/1EGFvaMlK-nV8KKnng7WcI-X7iI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fortnite_BattleRoyale_StandardMode_03-aff88589c9a04d05a9663f5a75975706.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Building Mechanics: Build, build and build some more**
 
@@ -123,9 +130,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  For the more casual player, these building controls can be found on the keyboard, but binding the building keys to unused mouse buttons can quickly become an asset on the battlefield where every second counts. A seamless defense can be the difference between victory and defeat.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Seasons: The down and dirty on the Battle Pass**
 
  The seasonal Battle Pass system offers rewards to players as they gain experience in the game, a change from the previous system Chapter 1 used which relied on leveling up through Battle Stars earned from Weekly Challenges. The shift to experience-based leveling feels much more intuitive. And honestly, it’s fun to watch the experience bar increase during the match, although it’d be better if you could toggle its presence to collapse or display in the HUD.
@@ -136,16 +140,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  To access the premium rewards, players need to buy into the Battle Pass by purchasing in-game currency known as V-Bucks. The Battle Pass costs 950 V-Bucks or $9.50\. If you value cosmetic upgrades, it’s a fun add-on. If cosmetics aren’t as important to you, the Battle Pass is easily a feature you can skip, but if you like having a variety of goals you can work towards and earn, then it’s a no brainer. Each Battle Pass is only valid for the season in which they are bought, so if you’re joining late in the season consider if it’s worth it to invest in a reward system you may not be able to complete.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/Ock_qOb167XfWuEIuPpuFC0DpUQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fortnite_Battle-Royale_Standard-Mode_05-95fe04b07a934bdbbcf8ae58496c736c.jpg)
 
  Lifewire / Emily Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Modes: Limited-time and alternative game modes for variety**
 
  As if the game mechanics and the cosmetics weren’t thrilling enough, Epic Games takes the shake-ups a step further by offering alternative modes, limited-time game modes, and events with unique rewards.
@@ -158,9 +156,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  The only decision players need to make is whether or not they want to pick up the Battle Pass, which retails for 950 V-Bucks ($9.50). Otherwise,[Fortnite Battle Royale](https://www.lifewire.com/game-play-and-streaming-4781449) is free and available on almost every major platform: PC/Mac, Xbox One, PS4, iOS, Android, and Nintendo Switch. What’s better—cross-platform gameplay is also supported, so you can pick up and play with friends anywhere, anytime.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Apex Legends vs. Fortnite Battle Royale**
 
  Battle royale games have seen a lot of shake-up in the field lately, with the latest challenger arriving in February 2019 thanks to Respawn Entertainment’s[Apex Legends](https://www.ea.com/games/apex-legends) . Apex Legends is a first-person shooter meets battle royale game where 60 players are dropped onto a map competing with squads of three for domination.
@@ -179,6 +174,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Fortnite has taken the world by storm, and with over 250 million players worldwide, it’s easy to see why it’s so beloved. If you’re a fan of campy fun, vibrant graphics, third-person shooters, or battle royale games, Fortnite’s Battle Royale is well worth a look—and best of all, it is free to play. Combined with Epic Games’ continuous ability to reinvent Fortnite season after season, Fortnite Battle Royale a sure-fire winner in our books.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Fortnite Battle Royale
@@ -191,14 +190,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Platforms  PC/Mac, Xbox One, PS4, iOS, Android, and Nintendo Switch
 * Languages Supported  English, French, German, Italian, Japanese, Korean, Polish, Portuguese (Brazil), Russian, Spanish (Latin America, Spain), Turkish
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -207,4 +203,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-crafting-countdowns-the-essentials-for-obs-users/"><u>[New] In 2024, Crafting Countdowns The Essentials for OBS Users</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-ultimate-list-of-phone-editors-for-gopro-content/"><u>[New] Ultimate List of Phone Editors for GoPro Content</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-improving-speed-of-powerpoint-media-streaming/"><u>[Updated] Improving Speed of PowerPoint Media Streaming</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-divergent-paths-in-video-sharing-comparing-igtv-and-youtube/"><u>[Updated] In 2024, Divergent Paths in Video Sharing Comparing IGTV & YouTube</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/dts-mp4-movavi/"><u>DTS MP4 프리미엄 비주얼을 원격화해야 합니까? - Movavi</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/get-free-channels-with-an-economical-amazonbasics-flat-antenna-our-comprehvew-report/"><u>Get Free Channels with an Economical AmazonBasics Flat Antenna: Our Comprehvew Report</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-8-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone 8 Without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovos-revolutionary-x1-fold-tablet-unveiled-a-comprehensive-examination/"><u>Lenovo's Revolutionary X1 Fold Tablet Unveiled: A Comprehensive Examination</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/master-the-world-of-digital-drawing-with-gaomons-pd1560-stylus-board-a-full-featured-review/"><u>Master the World of Digital Drawing with Gaomon's PD1560 Stylus Board - A Full-Featured Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/on-the-go-bibliophiles-rejoice-kobo-clara-hd-the-ultimate-mobile-reading-solution/"><u>On-the-Go Bibliophiles Rejoice: Kobo Clara HD - The Ultimate Mobile Reading Solution</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/pioneering-recovery-stellar-retrieves-hdd-data-breaking-new-ground/"><u>Pioneering Recovery: Stellar Retrieves HDD Data, Breaking New Ground</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stream-and-conquer-a-detailed-look-at-the-powerhouse-nvidia-shield-tv-pro/"><u>Stream and Conquer: A Detailed Look at the Powerhouse - NVIDIA Shield TV Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-temperature-of-the-hot-reservoir-heat-addition-is-30c-which-is-equivalent-to-30-plus-27315-30315-k/"><u>The Temperature of the Hot Reservoir (Heat Addition) Is 30°C, Which Is Equivalent to 30 + 273.15 = 303.15 K.</u></a></li>
+</ul></div>
 

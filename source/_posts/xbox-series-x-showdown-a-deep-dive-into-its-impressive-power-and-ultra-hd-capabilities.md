@@ -1,7 +1,7 @@
 ---
 title: "Xbox Series X Showdown: A Deep Dive Into Its Impressive Power and Ultra HD Capabilities"
-date: 2024-12-21T16:36:12.233Z
-updated: 2024-12-25T18:08:31.000Z
+date: 2024-12-29T16:49:31.382Z
+updated: 2025-01-03T23:22:03.507Z
 categories:
   - BestProducts
 description: "This Article Describes Xbox Series X Showdown: A Deep Dive Into Its Impressive Power and Ultra HD Capabilities"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/87Y0vp91-Opdxctf3M6BGQ6r1d8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -76,29 +72,25 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -124,6 +116,10 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: Lots of options with mixed utility**
 
  For the tinkerers out there, Sound Blaster provides a myriad of audio adjustments through their Z-Series software package. Here, you can EQ any frequency between 20 and 20,000 Hz or activate “Crystallization,” “Scout Mode,” and “Theater Mode.” Crystallization adds punch to the audio’s treble, making voices stand out against the background. Theater Mode is similar to Crystallization, but it tries to_only_ boost voices instead of the entire treble range. We found it great for watching videos. Meanwhile, Scout Mode is squarely aimed at gamers. It theoretically makes enemy noises like footsteps louder.
@@ -133,7 +129,7 @@ Lifewire / Emily Ramirez
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Unjustified expense**
@@ -161,13 +157,17 @@ Lifewire / Emily Ramirez
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -207,18 +207,24 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ssentials-for-professionals-advanced-strategies-in-video-tagging/"><u>[New] Essentials for Professionals Advanced Strategies in Video Tagging</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-breaking-down-barriers-with-shared-youtube-curations-for-2024/"><u>[Updated] Breaking Down Barriers with Shared YouTube Curations for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-easy-recording-techniques-for-live-gameplay/"><u>[Updated] Easy Recording Techniques for Live Gameplay</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-itel-p40-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Itel P40</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-tecno-spark-go-2024-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Tecno Spark Go (2024) | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-new-era-with-dells-alienware-aurora-r9-an-in-depth-review/"><u>Exploring the New Era with Dell's Alienware Aurora R9: An In-Depth Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-versatility-in-portable-charging-detailed-look-at-omnicharges-omni-20-power-bank-with-qi-technology/"><u>Exploring Versatility in Portable Charging: Detailed Look at Omnicharge's Omni 20 Power Bank With Qi Technology</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/guidelines-to-choose-your-ideal-dash-video-recorder/"><u>Guidelines to Choose Your Ideal Dash Video Recorder</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-12-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 12 without Data Loss? | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-2022-winter-games-skate-spotlights/"><u>In 2024, 2022 Winter Games Skate Spotlights</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-convert-kings-playbook-youtube-to-mp4mpeg-edition/"><u>In 2024, The Convert King's Playbook YouTube to MP4/MPEG Edition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-testing-and-reaction-to-creatives-premium-2013-gaming-audio-the-sound-blaster-zxr/"><u>In-Depth Testing and Reaction to Creative's Premium 2013 Gaming Audio, the Sound Blaster ZxR</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/protect-your-ios-device-with-the-finest-antivirus-programs-a-comprehensive-guide/"><u>Protect Your iOS Device with the Finest Antivirus Programs - A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ulinary-callings-innovative-naming-for-foodie-channels/"><u>[New] Culinary Callings Innovative Naming for Foodie Channels</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-auditory-aesthetics-incorporating-youtube-music-into-videos/"><u>[Updated] Auditory Aesthetics Incorporating YouTube Music Into Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-the-entry-level-guide-to-superior-gaming-editing-systems/"><u>[Updated] In 2024, The Entry Level Guide to Superior Gaming Editing Systems</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-post-youtube-video-on-the-best-days-to-get-more-view-for-2024/"><u>[Updated] Post Youtube Video on the Best Days to Get More View for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-imo-messenger-app-analysis-a-must-read-guide/"><u>Comprehensive Imo Messenger App Analysis: A Must-Read Guide</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/de-beste-13-mp4-combinators-efficient-en-gezond-alternatief-voor-bijschriften/"><u>De Beste 13 MP4-Combinators - Efficiënt en Gezond Alternatief Voor Bijschriften</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-mlb-the-show-19-when-sports-beauty-meets-unexpected-rpg-twists/"><u>Exploring MLB The Show 19: When Sports Beauty Meets Unexpected RPG Twists</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/gamers-guide-unboxing-the-nvidia-shield-tv-pro-the-ultimate-streaming-console/"><u>Gamer's Guide: Unboxing the Nvidia Shield TV Pro - The Ultimate Streaming Console</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723013539324-halo-infinite-blackout-blues-heres-how-you-can-fix-it/"><u>Halo Infinite Blackout Blues? Here's How You Can Fix It</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-on-iphone-se-by-drfone-ios/"><u>How To Remove the Two Factor Authentication On iPhone SE</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-vivo-x100-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Vivo X100? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-twelve-souths-bookbook-v2-macbook-sleeve-smart-and-innovative/"><u>In-Depth Analysis of Twelve South's BookBook V2 MacBook Sleeve – Smart & Innovative</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-fujitsu-scansnap-ix1600-a-sturdy-desk-document-scanner/"><u>In-Depth Look at the Fujitsu ScanSnap iX1600: A Sturdy Desk Document Scanner</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/maximizing-health-outreach-via-fb-advertising-for-2024/"><u>Maximizing Health Outreach via FB Advertising for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/natures-dream-the-ultimate-homestead-expansion-blueprint/"><u>Nature's Dream: The Ultimate Homestead Expansion Blueprint</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revitalized-ratchet-and-clank-experience-an-in-depth-analysis-of-the-remastered-adventure/"><u>Revitalized Ratchet & Clank Experience: An In-Depth Analysis of the Remastered Adventure</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/uncover-the-potential-testing-and-review-of-the-netgear-ex6200-wifi-signal-amplifier-ac1200-model/"><u>Uncover the Potential: Testing and Review of the Netgear EX6200 WiFi Signal Amplifier (AC1200 Model)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-xbox-one-elite-series-2-is-crowned-as-a-legendary-controller/"><u>Why Xbox One Elite Series 2 Is Crowned as a Legendary Controller</u></a></li>
 </ul></div>
 

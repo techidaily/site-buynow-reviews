@@ -1,7 +1,7 @@
 ---
 title: The Mighty Compact Gaming Machine - A Detailed Look at Xbox Series S Specs and Packaging
-date: 2024-12-19T17:01:05.426Z
-updated: 2024-12-25T17:31:22.973Z
+date: 2024-12-31T18:14:25.072Z
+updated: 2025-01-03T16:39:05.879Z
 categories:
   - BestProducts
 description: This Article Describes The Mighty Compact Gaming Machine - A Detailed Look at Xbox Series S Specs and Packaging
@@ -18,16 +18,12 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Beantech Bitwatch S1 Plus
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/JogmBSjTGQl_gqbjuX8prgeJJPA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -51,12 +47,16 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 4
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Beantech Bitwatch S1 Plus
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/RIxQYWLMnyHkO9IcguCoRX11EbY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -82,10 +82,14 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/8rMhc1Lk5yFRFW4Zlt2K9cmPdFo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-4-01d7e5ff51aa47008d803513064f4a7a.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design and Software: A surprising amount of features in this chunky watch**
 
@@ -102,10 +106,6 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
  Setting up the Bitwatch works as you’d expect. Pair it via the Bluetooth on your phone and download the Beantech app. It works with both Android and iOS, so you should have no difficulty. Alerts will show up in the remote notifier app, and apps such as the calendar are not synced with your phone’s calendar apps, so keep that in mind if you’d like to add any events, notifications, or alarms to your watch.
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/O7xHfA9sKsBdC0nmqNXbFky-Dm4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-2-3b838f1124184bbd9452b79bb8449c2b.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -174,20 +174,24 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-starter-steps-to-wealthy-streaming-in-periscope/"><u>[New] Starter Steps to Wealthy Streaming in Periscope</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-unleash-creativity-gratuity-in-humor-tools/"><u>[Updated] 2024 Approved Unleash Creativity Gratuity in Humor Tools</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-software-to-fix-and-repair-corrupt-mp4-mov-avi-video-files-of-y200e-5g-by-stellar-video-repair-mobile-video-repair/"><u>Best software to Fix and Repair Corrupt MP4,MOV,AVI video files of Y200e 5G</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-oneplus-11r-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on OnePlus 11R?</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/llamas-3-against-gpt-4-battle-analyzing-which-emerges-victorious-in-the-ai-arena/"><u>Llamas 3 Against GPT-4 Battle: Analyzing Which Emerges Victorious in the AI Arena</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/must-play-alert-unveiling-the-magic-of-yakuza-like-a-dragon-jrpg/"><u>Must Play Alert! Unveiling the Magic of Yakuza: Like a Dragon JRPG</u></a></li>
-<li><a href="https://extra-information.techidaily.com/quick-and-easy-the-top-ten-for-youtube-mpeg-transformation/"><u>Quick and Easy The Top Ten for YouTube MPEG Transformation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/samsung-qn55q6f-an-insightful-review-of-the-cutting-edge-4k-hdr-technology-in-smart-televisions/"><u>Samsung QN55Q6F: An Insightful Review of the Cutting-Edge 4K HDR Technology in Smart Televisions</u></a></li>
-<li><a href="https://discover-able.techidaily.com/strategies-de-sauvegarde-reussie-des-fichiers-dans-windows-7-8-10-et-11-un-guide-complet/"><u>Stratégies De Sauvegarde Réussie Des Fichiers Dans Windows 7, 8, 10 Et 11: Un Guide Complet</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/superior-selection-best-windows-videophone-apps-guide-for-2024/"><u>Superior Selection Best Windows Videophone Apps Guide for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/taking-tech-to-new-heights-in-depth-analysis-and-review-of-the-apple-macbook-air-13-inch-m1-2020-edition/"><u>Taking Tech to New Heights: In-Depth Analysis & Review of the Apple MacBook Air 13-Inch (M1, 2020 Edition)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-battle-of-portability-vs-power-ipad-pro-vs-macbook-pro-compared/"><u>The Battle of Portability vs Power: IPad Pro Vs. MacBook Pro Compared</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-definitive-guide-to-the-owc-mercury-pro-premium-quality-for-peak-performance/"><u>The Definitive Guide to the OWC Mercury Pro: Premium Quality for Peak Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-path-to-victory-understanding-the-wii-us-winning-formula/"><u>The Path to Victory: Understanding the Wii U's Winning Formula</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-for-mohu-blade-tv-antenna-outstanding-aesthetics-and-robust-indoor-coverage/"><u>The Ultimate Review for Mohu Blade TV Antenna: Outstanding Aesthetics and Robust Indoor Coverage</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-best-practices-for-using-vimeo-in-instagram-shots/"><u>[New] 2024 Approved Best Practices for Using Vimeo in Instagram Shots</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-captivating-clips-transforming-footage-vertically-in-final-cut-x/"><u>[New] In 2024, Captivating Clips Transforming Footage Vertically in Final Cut X</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-mastering-video-quality-with-yi-4k-action-camera/"><u>[New] In 2024, Mastering Video Quality with Yi 4K Action Camera</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-step-by-step-guide-activate-or-deactivate-picture-in-picture-on-apples-youtube-app/"><u>[Updated] 2024 Approved Step-by-Step Guide Activate or Deactivate Picture-in-Picture on Apple's YouTube App</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-list-the-most-reliable-and-efficient-ups-units-of-2024/"><u>Comprehensive List: The Most Reliable and Efficient UPS Units of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-oneplus/"><u>Comprehensive Review of OnePlus</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-silver-screen-on-your-patio-expert-review-of-the-4k-sealoc-coastal-tv-55/"><u>Discover the Silver Screen on Your Patio: Expert Review of the 4K Sealoc Coastal TV (55)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-next-level-gaming-on-the-unparalleled-curved-49-philips-evonia-oled-monitor/"><u>Experience Next-Level Gaming on The Unparalleled, Curved 49'' Philips Evonia OLED Monitor</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-audio-capture-made-easy-in-windows-10/"><u>In 2024, Audio Capture Made Easy in Windows 10</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-13t-pro-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi 13T Pro Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Itel P55+ | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Tecno Camon 20 Premier 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-smooth-shooting-secured-choosing-ideal-tripods-and-gimbals/"><u>In 2024, Smooth Shooting Secured Choosing Ideal Tripods & Gimbals</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-why-the-xbox-one-elite-series-2-stands-out-amongst-gaming-controllers/"><u>In-Depth Analysis: Why the Xbox One Elite Series 2 Stands Out Amongst Gaming Controllers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inexpensive-feline-film-camera-study/"><u>Inexpensive Feline Film Camera Study</u></a></li>
+<li><a href="https://some-skills.techidaily.com/techniques-for-reversing-chronological-order-for-2024/"><u>Techniques for Reversing Chronological Order for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-apple-iphone-12-assessment-a-step-up-from-previous-models/"><u>Top Rated Apple iPhone 12 Assessment: A Step-Up From Previous Models</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-savings-and-convenience-with-a-kindle/"><u>Unlock Savings & Convenience With a Kindle</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-windows-11-transition-from-windows-10-processes/"><u>Unlocking Windows 11: Transition From Windows 10 Processes</u></a></li>
 </ul></div>
 

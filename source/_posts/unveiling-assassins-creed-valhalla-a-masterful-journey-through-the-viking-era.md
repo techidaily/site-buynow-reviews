@@ -1,7 +1,7 @@
 ---
 title: "Unveiling Assassin's Creed: Valhalla – A Masterful Journey Through the Viking Era"
-date: 2024-12-12T17:17:07.441Z
-updated: 2024-12-16T22:55:50.123Z
+date: 2024-12-27T20:15:20.731Z
+updated: 2025-01-04T02:04:53.354Z
 categories:
   - BestProducts
 description: "This Article Describes Unveiling Assassin's Creed: Valhalla – A Masterful Journey Through the Viking Era"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 ## Mobvoi TicWatch Pro 3 GPS
 
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/wXSOotjbAduhYyUz7IKsUnjxMCY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_HeroSquare-666cef27669e4f4ea53d69a546098b20.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -47,10 +51,6 @@ Lifewire / Yoona Wagener
 
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/N-GQ6pPXvhJw5LQ_NHsY_n8NkZQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_HeroSquare-666cef27669e4f4ea53d69a546098b20.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Yoona Wagener
 
 [View On Amazon $120](https://www.amazon.com/dp/B08BRFWGMC/?tag=lifewire-onsite-prod-20&ascsubtag=5120915%7Cnc635061288084b3aac8ef97dc66e8cb722%7CB08BRFWGMC) [View On Walmart $170](https://www.walmart.com/ip/753687122) [View On Adorama.com $300](https://www.adorama.com/mbp10320003a.html)
@@ -75,19 +75,11 @@ Lifewire / Yoona Wagener
 
  This Wear OS device is friendly to both iPhone and Android users, though it's decidedly still more beneficial to the latter. Despite missing out on some key features best for[Android phones](https://www.lifewire.com/best-android-smartphones-577403) and generally feeling like this was just a bit too much watch for my wrist, I came away from a few days of use impressed by the battery life and solid workout tracking.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Design: Sleek and sporty with a large display
 
  If you enjoy a prominent display, the TicWatch Pro 3 offers that in spades, with a unique 1.4-inch two-fold design. The top layer is an always-on, low-light display that's usable in an extended battery-saving mode (Essential Mode). Underneath this efficient layer, you'll find a bright 454 x 454 Retina AMOLED display that adjusts automatically based on the amount of available light. Mobvoi also offers an extensive library of watch faces on the device itself or through the companion apps.
 
  The all-black build and face design gives this watch a sporty feel, extended by the two large buttons that serve as handy controls for launching workouts or waking the display. This display is also touch-responsive, which I found functioned well generally. There were moments when taps and swipes didn't seem to register immediately. These incidents were infrequent and minor when compared to the general user-friendliness of the device.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Comfort: Bulky for extended wear
 
@@ -106,10 +98,6 @@ Lifewire / Yoona Wagener
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/dmQpg73jtc8s6Xxx-CSGe6DOKEc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_04-262f4af125a04f3fab6055508f2c6d3b.jpg)
 
 Lifewire / Yoona Wagener
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Performance: A well-rounded wearable
 
@@ -135,6 +123,10 @@ Lifewire / Yoona Wagener
 
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/ThEB2Hv12xN060OsalPhyRbn4bY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_05-15d86ca8cd8548709c66efced9dfb14a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
  This wearable offers the most functionality to Android users as a[Wear OS](https://www.lifewire.com/complete-guide-to-android-wear-4086408) device. Despite not having access to some of the smart features that entice smartwatch shoppers, I was impressed by the relative ease of use with an iPhone.
@@ -142,6 +134,10 @@ Lifewire / Yoona Wagener
  Setup was seamless, and so were notifications. While I couldn't respond to texts or receive calls from the watch, I could use it to answer or decline calls to my phone. And though I didn't download Spotify from the Google Play store, the default media player made controlling playback from Spotify or my chosen smartphone podcast app very simple.
 
  The TicWatch Pro 3 does have 8GB of onboard storage, which makes this watch attractive for Android smartphone users who want to use it for onboard music storage. Apps like NavMusic make this easy. Android users also have easier control over and access to third-party fitness, productivity, and other useful apps from the[Google Play](https://www.lifewire.com/what-is-google-play-1616720) store than iOS users—who will likely find this a bit clunky to manage.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Battery: Solid 72-hour longevity
 
@@ -157,10 +153,6 @@ Lifewire / Yoona Wagener
 
 Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Price: A bit costly for those missing a few premium features
 
  The TicWatch Pro 3 retails for nearly $300, a considerable investment on par with some[smartphones](https://www.lifewire.com/best-smartphones-4043781) . It's also steep considering that, unlike some premium wearables, this watch lacks an ECG monitor or other wellness bells and whistles. Fit personalization isn't as generous as some wearables, either.
@@ -170,7 +162,7 @@ Lifewire / Yoona Wagener
  Though the strap is replaceable, the size of the display could be prohibitively unwieldy. But for an Android smartphone user who can find a great fit, this watch promises well-rounded connectivity and fitness tracking.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Mobvoi TicWatch Pro 3 GPS vs. Samsung Galaxy Watch3
@@ -187,11 +179,19 @@ Lifewire / Yoona Wagener
 
  The Mobvoi TicWatch Pro 3 GPS is a sporty, sleek smartwatch with good looks and great battery life. While the larger profile won't fit everyone, Android users, in particular, will find a lot to enjoy about this customizable wearable that functions as a daily workout tracker, smartwatch companion, and reliable time-telling accessory.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Apple Watch SE](https://www.lifewire.com/apple-watch-se-review-5088223)
 * [Garmin Vivomove HR](https://www.lifewire.com/garmin-vivomove-hr-review-4843913)
 * [Mobvoi TicWatch Pro 4G LTE](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -228,18 +228,20 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/new-harnessing-success-with-freefire-hashtag-tips/"><u>[New] Harnessing Success with FreeFire Hashtag Tips</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-navigating-the-world-of-srt-alteration-in-macos-systems/"><u>[Updated] In 2024, Navigating the World of SRT Alteration in macOS Systems</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-mastering-subscription-the-art-of-positive-engagement/"><u>[Updated] Mastering Subscription The Art of Positive Engagement</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-top-7-must-have-metaverse-devices-you-need-to-prepare/"><u>2024 Approved Top 7 Must-Have Metaverse Devices You Need to Prepare</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/detailed-approach-for-a-hassle-free-macos-catalina-switch/"><u>Detailed Approach for a Hassle-Free macOS Catalina Switch</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fitbit-versa-3-review/"><u>Fitbit Versa 3 Review</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/high-quality-capture-with-obs-a-screencast-showcase-for-2024/"><u>High-Quality Capture with OBS A Screencast Showcase for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-leave-a-life360-group-on-xiaomi-13t-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Xiaomi 13T Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-unveiling-the-secrets-to-efficient-recording/"><u>In 2024, Unveiling the Secrets to Efficient Recording</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/increase-your-connectivity-the-most-effective-wi-fi-repeaters-on-the-market/"><u>Increase Your Connectivity: The Most Effective Wi-Fi Repeaters on the Market</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/laptop-graphics-enhancement-blueprint/"><u>Laptop Graphics Enhancement Blueprint</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-from-footage-to-film-the-best-software-for-burning-home-dvds/"><u>New From Footage to Film The Best Software for Burning Home DVDs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-syma-s1am1g-mini-drone-low-cost-indoor-piloting-delight/"><u>The Ultimate Guide to the Syma S1am1G Mini Drone: Low-Cost Indoor Piloting Delight</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-techniques-for-efficiently-blending-flv-files/"><u>[New] Techniques for Efficiently Blending FLV Files</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-bring-life-to-your-instagram-posts-with-branded-graphics-and-icons/"><u>[Updated] Bring Life to Your Instagram Posts with Branded Graphics & Icons</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-why-the-huion-kamvas-gt-191-is-a-masterpiece-pen-display-for-artists/"><u>Expert Review: Why the Huion Kamvas GT-191 Is a Masterpiece Pen Display for Artists</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/game-changer-logitec-g-pro-xs-sonic-revolution/"><u>Game Changer: Logitec G Pro X's Sonic Revolution</u></a></li>
+<li><a href="https://games-able.techidaily.com/get-more-for-less-xbox-gaming-offers/"><u>Get More for Less: Xbox Gaming Offers</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-unbrick-a-dead-honor-x7b-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-poco-x6-pro-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Poco X6 Pro Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-honor-play-40c-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Honor Play 40C Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-motorola-edgeplus-a-flagship-contender-or-misses-the-mark/"><u>Is Motorola Edge+ a Flagship Contender or Misses the Mark?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mkv-to-redmi-note-13-pro-5g-converter-convert-mkv-for-redmi-note-13-pro-5g-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV to Redmi Note 13 Pro 5G converter - convert MKV for Redmi Note 13 Pro 5G</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/pinnacle-portability-ideal-devices-for-4k-media-artists-for-2024/"><u>Pinnacle Portability Ideal Devices for 4K Media Artists for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/shift-key-malfunctions-heres-how-you-can-get-it-fixed-now/"><u>Shift Key Malfunctions? Here's How You Can Get It Fixed Now</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-case-for-applecare-plus-extended-plan-a-detailed-look/"><u>The Case for AppleCare Plus Extended Plan: A Detailed Look</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-device-guide-to-chilling-by-seapool/"><u>Ultimate Device Guide to Chilling by Sea/Pool</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/your-guide-to-choosing-the-ideal-handheld-console-2024-edition/"><u>Your Guide to Choosing the Ideal Handheld Console - 2024 Edition</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Mass Effect Saga - Eliminating Frame Drops and Improving Playback Quality
-date: 2024-12-19T16:03:34.183Z
-updated: 2024-12-25T17:06:13.783Z
+date: 2024-12-28T00:50:48.629Z
+updated: 2025-01-03T23:49:49.693Z
 tags:
   - win11
   - win10
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/d021ea19d35ef3673abfe0bc9bdff457eb34791e5
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Fix WOW crashing?
 
  Here are some solutions that have helped people resolve the same problem. You don’t need to try them all; just work your way down the list until your game works again.
@@ -36,10 +40,6 @@ thumbnail: https://thmb.techidaily.com/d021ea19d35ef3673abfe0bc9bdff457eb34791e5
 4. **[Disable DVR app in Xbox](https://tools.techidaily.com/drivereasy/download/)**
 
  Note: the screenshots below come from Windows 10, and fixes apply to Windows 8 and Windows 7.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 1: Install the latest patch
 
@@ -83,17 +83,17 @@ Open Word of Warcraft and see if the crashing issue has been resolved.
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b8fa6c02c345.jpg)
 3. Click the**Options** button and select**Scan and Repair** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b8fa6fe36d60.jpg)
 4. Click**Begin Scan** , and follow the on-screen instructions to finish. It may take a while.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b8fa7275b199.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Once finish, restart your game and see if it works properly.
@@ -110,20 +110,16 @@ Here’s what you can do:
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bd6b3940d874.jpg)
 2. You’ll need to log into your Microsoft account if it’s the first time you open it. If that’s the case, enter your Microsoft account to log in.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3. Click the**Gear** button on the left to open**Settings** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bd6b3bdbf4aa.jpg)
 4. Click the**Game DVR** tab, and turn it**off** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bd6b3e5954b9.png)
 5. Restart your computer and open World of Warcraft to see if it stops crashing.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  INFORMATION: If you don’t use Xbox in your computer, try uninstalling Xbox application to run your game properly.
 
@@ -133,6 +129,10 @@ Here’s what you can do:
 2. Click the**Gaming** section.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b8fab18ae4d5.jpg)
 3. Click**Game DVR** on the left, and make sure to turn off**Record** **in the background while I’m playing a game** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/img_5bd6b4223cc30.jpg)
 4. Restart your computer and launch World of Warcraft and see if it works.
@@ -159,21 +159,22 @@ Here’s what you can do:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discord-videos.techidaily.com/new-in-2024-terminate-discord-access-dual-devices/"><u>[New] In 2024, Terminate Discord Access - Dual Devices</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-compliance-with-copyright-law-when-sharing-media-through-fb-for-2024/"><u>[Updated] Compliance with Copyright Law when Sharing Media Through FB for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-detailed-look-at-how-the-m1-chip-elevates-the-apple-macbook-pro-13-inch-laptop-in-2020/"><u>A Detailed Look at How the M1 Chip Elevates the Apple MacBook Pro 13-Inch Laptop in 2020</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/advanced-tech-meets-convenience-elite-rechargeable-battery-chargers-of-the-year-2024/"><u>Advanced Tech Meets Convenience: Elite Rechargeable Battery Chargers of the Year 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-ssl-certificates-a-safe-bet/"><u>Affordable SSL Certificates: A Safe Bet?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-syma-s111g-rc-helicopter-ultimate-guide-for-indoor-enjoyment/"><u>Affordable Syma S111G RC Helicopter - Ultimate Guide for Indoor Enjoyment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazon-echo-dot-gen3-unveiled-a-complete-breakdown-for-smart-home-enthusiasts/"><u>Amazon Echo Dot (Gen3) Unveiled: A Complete Breakdown for Smart Home Enthusiasts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/aminy-examines-the-sky-high-fabrications/"><u>Aminy Examines the Sky-High Fabrications</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/eyoyo-em1n05-the-ultimate-compact-and-cost-effective-choice-in-portable-105-display-tech/"><u>Eyoyo EM1n05: The Ultimate Compact & Cost-Effective Choice in Portable 10.5” Display Tech</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-snap-your-world-how-to-watch-360-videos-on-android/"><u>In 2024, Snap Your World How to Watch 360 Videos on Android</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/purchase-macx-mediatrans-at-a-reduced-price-shop-online/"><u>Purchase MacX MediaTrans at a Reduced Price – Shop Online!</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-nubia-red-magic-9-pro-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from Nubia Red Magic 9 Pro</u></a></li>
-<li><a href="https://driver-install.techidaily.com/tailored-driver-setup-and-deployment-on-win-os/"><u>Tailored Driver Setup & Deployment on Win OS</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-insiders-handbook-to-crafting-shareable-meme-gifs-for-2024/"><u>The Insider's Handbook to Crafting Shareable Meme GIFs for 2024</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/updated-what-is-ai-generated-text-for-2024/"><u>Updated What Is AI Generated Text for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722696505365-xbox-one-game-sharing-made-easy-tips-and-tricks-for-playing-with-pals/"><u>Xbox One Game Sharing Made Easy - Tips and Tricks for Playing with Pals</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-expedite-your-tiktok-videos-with-ease/"><u>[New] In 2024, Expedite Your TikTok Videos with Ease</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-kinemasters-journey-through-seamless-segmentation/"><u>[New] Kinemaster's Journey Through Seamless Segmentation</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-streamline-your-virtual-gatherings-with-this-10-free-web-application-list/"><u>[Updated] In 2024, Streamline Your Virtual Gatherings With This 10 Free Web Application List</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/5-ways-to-fix-a-windows-device-thats-stuck-in-dark-mode/"><u>5 Ways to Fix a Windows Device That's Stuck in Dark Mode</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-2er-ipad-pro-with-m1-chip-unmatched-desktop-power-in-portable-form/"><u>Comprehensive Analysis of the 2Er iPad Pro with M1 Chip - Unmatched Desktop Power in Portable Form</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-oneplus-nord-n10-5g-the-budget-phone-that-stands-out/"><u>Comprehensive Guide to the OnePlus Nord N10 5G - The Budget Phone That Stands Out</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/connectivity-redefined-a-detailed-review-of-the-innovative-mobvoi-ticwatch-pro-4g-smartwatch/"><u>Connectivity Redefined: A Detailed Review of the Innovative Mobvoi Ticwatch Pro 4G Smartwatch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-microsoft-surface-duo-a-pricey-tech-with-persistent-bugs-and-clumsiness/"><u>Evaluating Microsoft Surface Duo: A Pricey Tech with Persistent Bugs and Clumsiness</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/gigglegraph-make-amusing-graphics-swiftly/"><u>GiggleGraph Make Amusing Graphics Swiftly</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-data-from-apple-iphone-x-to-zte-phones-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer Data from Apple iPhone X to ZTE Phones | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-delving-deeply-into-obs-studios-capture-capabilities/"><u>In 2024, Delving Deeply Into OBS Studio's Capture Capabilities</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-unravel-the-mystery-of-accessing-your-watchlist-on-facebook/"><u>In 2024, Unravel the Mystery of Accessing Your Watchlist on Facebook</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-asus-stylish-bw-16d1x-u-blu-ray-drive-some-quirky-observations-inside/"><u>In-Depth Look at Asus' Stylish BW-16D1X-U Blu-Ray Drive - Some Quirky Observations Inside</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/premium-psd-aesthetic-optimization-for-2024/"><u>Premium PSD Aesthetic Optimization for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stress-free-pet-nutrition-with-the-arf-pets-smart-feeder/"><u>Stress-Free Pet Nutrition with the Arf Pets Smart Feeder</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-transformative-impact-of-apples-m1-chip-on-imac-a-detailed-review/"><u>The Transformative Impact of Apple's M1 Chip on iMac: A Detailed Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-pros-and-cons-of-the-google-pixel-5-a-blend-of-economy-and-elite/"><u>Unveiling the Pros and Cons of the Google Pixel 5: A Blend of Economy and Elite</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Best Open Source and Commercial Alternatives to MS Office - Compared
-date: 2024-08-10T23:54:20.440Z
-updated: 2024-08-11T23:54:20.440Z
+date: 2024-12-31T22:29:43.314Z
+updated: 2025-01-03T20:38:16.442Z
 categories:
   - BestProducts
 description: This Article Describes The Best Open Source and Commercial Alternatives to MS Office - Compared
@@ -52,8 +52,9 @@ thumbnail: https://www.lifewire.com/thmb/MI-KH2-hRS_4mtHQnh89chqA4E0=/400x300/fi
 [Jump to Review](https://www.lifewire.com/#toc-compact-alternative-asus-zendrive)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Best Overall
 
 [ASUS BW-16D1X-U Blu-ray Drive](https://www.amazon.com/dp/B071WB35MH?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB071WB35MH)
@@ -84,10 +85,6 @@ PHOTO: Amazon
 
 [Asus BW-16D1X-U Powerful Blu-ray Drive Review](https://www.lifewire.com/asus-bw-16d1x-u-blu-ray-drive-review-4774686)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## Budget Buy
 
 [LG GP65NB60 External Drive](https://www.amazon.com/dp/B00ODDE33U?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB00ODDE33U)
@@ -116,8 +113,9 @@ PHOTO: Amazon
  The LG GP65NB60 needs a single USB connection for all its power and data transfer needs. Further rounding out the package, the LG GP65NB60 supports Windows and Mac, can burn archival-quality M-Disc, and comes in various colors, with black, gold, white, and silver on offer.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Most Compact
 
 [Verbatim External Slimline Blu-ray Writer](https://www.amazon.com/dp/B09PY6SC9Y?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB09PY6SC9Y)
@@ -147,8 +145,9 @@ PHOTO: Amazon
  It can write CDs at 24x, DVDs at 8x, and Blu-rays at 6x — even supporting M-Disc. It’s a CD/DVD/BD drive weighing less than half a pound. The Verbatim 70102 is a mobility champion, with power and data transfer over USB, so you’ll only need one cable.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Budget Alternative
 
 [Dell DW316 External USB Slim DVD Drive](https://www.amazon.com/dp/B00VWVZ0V0?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB00VWVZ0V0)
@@ -177,8 +176,9 @@ PHOTO: Amazon
  The Dell DW316 performs in line with what most of the competition offers. It boasts maximum read speeds of 24x for CDs and 8x for DVDs, and it can provide those same speeds for writing as well.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Compact Alternative
 
 [ASUS ZenDrive](https://www.amazon.com/dp/B01A27IUUM?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB01A27IUUM)
@@ -207,8 +207,9 @@ PHOTO: Amazon
  The Asus ZenDrive supports Windows and Mac, and it includes CyberLink software to help you get started storing content on physical media. The drive also comes with six months of free cloud storage from ASUS, so you can rip content from your CDs and DVDs and move it there as needed.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What to Look For
 
  For people who own and consume lots of media, an indispensable external optical drive is one of your best bets. External optical drives allow you to store massive amounts of data, including photos, videos, and software from CDs and DVDs, with easy access whenever and wherever you need it.
@@ -276,8 +277,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -285,4 +284,21 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-edge-it-all-out-the-finest-frame-options-for-social-media-photography/"><u>[Updated] In 2024, Edge It All Out The Finest Frame Options for Social Media Photography</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-champions-5-wearable-devices-for-top-fpv-racing/"><u>2024 Approved Champion's 5 Wearable Devices for Top FPV Racing</u></a></li>
+<li><a href="https://apple-account.techidaily.com/a-step-by-step-guide-to-finding-your-apple-id-from-your-apple-iphone-14-pro-by-drfone-ios/"><u>A Step-by-Step Guide to Finding Your Apple ID From Your Apple iPhone 14 Pro</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-oneplus-ace-2v-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide OnePlus Ace 2V Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-the-rotibox-bluetooth-hat-ultimate-comfort-meets-high-quality-audio-performance/"><u>In-Depth Review of the Rotibox Bluetooth Hat: Ultimate Comfort Meets High-Quality Audio Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-the-economical-and-reliable-amazonbasics-6-sheet-paper-shredder/"><u>In-Depth Review: The Economical and Reliable AmazonBasics 6-Sheet Paper Shredder</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/livestream-titans-clash-facebook-live-and-youtube-vs-twitter-spaces/"><u>Livestream Titans Clash Facebook LIVE & YouTube Vs. Twitter Spaces</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-definitive-list-of-premium-vector-sites/"><u>The Definitive List of Premium Vector Sites</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-verdict-on-criacrs-bluetooth-fm-transmitter-cp24-review-reveals-a-small-package-with-big-issues/"><u>The Verdict on Criačr's Bluetooth FM Transmitter: CP24 Review Reveals a Small Package with Big Issues</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-most-efficient-ergonomic-keyboards/"><u>Ultimate Guide to the Most Efficient Ergonomic Keyboards</u></a></li>
+<li><a href="https://win-blog.techidaily.com/unresolved-stability-problems-how-arcadegeddon-keeps-failing-on-pc-systems/"><u>Unresolved Stability Problems: How Arcadegeddon Keeps Failing on PC Systems</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1722896154209-unveiling-the-newest-apple-earwear-device-anticipated-launch-dates-and-features-inside/"><u>Unveiling the Newest Apple EARWEAR Device - Anticipated Launch Dates & Features Inside!</u></a></li>
+<li><a href="https://driver-error.techidaily.com/win11-tackling-max-disk-usage-alerts/"><u>Win11: Tackling Max Disk Usage Alerts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/your-comprehensive-guide-to-the-best-wearable-tech-2024s-premier-smartwatches/"><u>Your Comprehensive Guide to the Best Wearable Tech: 2024’S Premier Smartwatches</u></a></li>
+</ul></div>
 

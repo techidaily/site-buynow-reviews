@@ -1,7 +1,7 @@
 ---
 title: In-Depth Look at Acer's XFA2n Series - Where Functionality Leads Design Choices
-date: 2024-08-15T09:34:29.111Z
-updated: 2024-08-16T09:34:29.111Z
+date: 2024-12-27T21:26:54.550Z
+updated: 2025-01-03T19:03:15.148Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Look at Acer's XFA2n Series - Where Functionality Leads Design Choices
@@ -37,12 +37,13 @@ Lifewire / Yoona Wagener
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Amazfit GTS Smartwatch
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/A_Lpmewuqg5_v_xhsfuydQ5zl6E=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_HeroSquare-067af9089d9c4269979450e8963726c9.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -79,17 +80,15 @@ _We purchased the Amazfit GTS_   _so our reviewer could put it to the test. Keep
  Along with the crisp and easy-to-read display, the GTS's biggest asset is the flexible and durable silicone with a healthy selection of notches and two tabs to keep the band in place once you’ve latched it. Though it comes in a single size, I was able to find a comfortably close fit on my small 5.5-inch wrist.
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/hMe1Ur0Wtt9LDIiSfC3zvE_5G7E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_02-0b1e98c2de40486b9fea116eb28ccd3c.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
  I was unable to test this device’s 50-meter water resistance for swimming or other aquatic workouts, but I did wear it in the shower without experiencing any issue. The manufacturer does note, however, that this wearable isn’t safe for hot showers or other water sports such as scuba diving, diving, and high-speed water sports, generally.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Comfort: Easy to wear but not as user-friendly
 
  While the Amazfit GTS is stylish enough to wear all day and easily coordinate with your wardrobe and comfortable to sleep with, confusing interface issues impaired overall ease of use. Along with the modular watch faces, there are screens for nearly every data point measured, accessible by swiping up from the bottom of the device.
@@ -103,18 +102,11 @@ Lifewire / Yoona Wagener
  One standout example is putting this device in sleep mode. Unlike most wearables that deactivate the display with a tap of a sleep icon, the Amazfit GTS presents several do-not-disturb options that aren’t clearly explained by the onboard descriptions. This felt like a severe limitation to the out-of-the-box comfort of this device, which extends to other areas such as viewing sleep and fitness data.
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/BCJ0gqS-gzR_dq3WSGazLqPMNCk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_05-9f844a14ab734d9291e338b6fa2519da.jpg)
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
  While the display looks great and is responsive, the lack of clarity about certain menu options, both the meaning and how to activate them, and the lack of control over data widget order, takes a few points away from the overall stylish look.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Performance: Solid GPS and decent activity tracking
 
  The Amazfit GTS supports 12 common workout profiles, including running and walking, which I used the most. While it wasn’t spot-on compared with my usual tracking device, the[Garmin Venu](https://www.lifewire.com/garmin-venu-review-4843916) , it wasn’t way off the mark. On one 3-mile run, the Amazfit GTS was less than 1 minute behind and the pace also followed suit at 9 seconds slower and 275 steps shorter, while heart rate was less accurate at about 15 beats faster than the Venu. Another pleasant consistency was the reliable onboard GPS and automatic stop/start feature that worked fairly well, though with some delay.
@@ -147,11 +139,19 @@ Lifewire / Yoona Wagener
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/hqD81eq-Q8n6BPE_n48M4SpkIRA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_03-97749edaabac498bb95b0f8a9f569f0a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
  Certain data points such as PAI, like other areas of the Zepp app, are backed by scientific citations and explanations of importance, but there’s just too much text to make any of it digestible or glanceable.
 
  While I gathered that a PAI of 100 seemed to be ideal for cardiovascular health, the app further complicated things by suggesting, for example, a 120-minute indoor workout to gain 15 PAI. It was difficult to grasp why that would be worth it or realistic, and like many areas of the software, it felt more flashy and underdeveloped than insightful.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Battery: Solid but considerably shy of the 14-day claim
 
@@ -159,14 +159,15 @@ Lifewire / Yoona Wagener
 
  That’s pretty much the way I used this device, though with maybe an extra workout or two and with the display in always-on mode, and the battery drained by day seven. On the bright side, it recharged quickly in less than the manufacturer’s 2-hour estimate. Amazfit also claims that the battery can last up to 46 days in basic mode without Bluetooth or heart-rate monitoring turned on.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Price: Slightly pricey for what it is
 
  The Amazfit GTS retails for about $120, though it’s possible to purchase it closer to $100\. While it’s more on the budget-friendly end of the spectrum, its Apple Watch-adjacent design doesn’t extend to the benefit of the first-rate fitness technology you’ll find in its alter ego.
 
  Spending between $100 to $130 for a style-conscious, band-style fitness tracker from heavy hitters such as[Fitbit](https://www.lifewire.com/what-is-fitbit-4176010) and Garmin could increase the tracking benefits considerably with extras like VO2 Max and SPO2 monitoring. For a little more (or less), gaining a user-friendly layout and companion app could be worth losing the Apple Watch aesthetic this device works hard to mirror.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Amazfit GTS vs. Garmin vivosmart 4
 
@@ -181,8 +182,9 @@ Lifewire / Yoona Wagener
  The Amazfit GTS is comfortable and stylish and performs the basic fitness tracking tasks relatively well, but the confusing ecosystem diminishes the polish. If you love the look of the Apple Watch, this is a budget-friendly look-alike. But if you want a strong balance between performance and looks, the Amazfit GTS may not deliver.
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Apple Watch SE](https://www.lifewire.com/apple-watch-se-review-5088223)
@@ -211,8 +213,6 @@ Lifewire / Yoona Wagener
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -220,4 +220,19 @@ Lifewire / Yoona Wagener
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-break-down-long-form-videos-the-insiders-guide-to-youtube-chapter-inclusion/"><u>[Updated] 2024 Approved Break Down Long-Form Videos The Insider's Guide to YouTube Chapter Inclusion</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-creating-compelling-montage-images-step-by-step/"><u>[Updated] In 2024, Creating Compelling Montage Images Step by Step</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722768102985-2024s-top-rated-phone-signal-enhancers-boosting-your-cellular-reception-today/"><u>2024'S Top Rated Phone Signal Enhancers: Boosting Your Cellular Reception Today</u></a></li>
+<li><a href="https://win-latest.techidaily.com/1728464557235-windows-11/"><u>三种办法在保留程序完整性的前提下为Windows 11进行再生产：详解</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-game-changer-in-handheld-comfort-and-accuracy-the-ideal-companion-for-precision-at-any-distance-sabrent-travel-wireless-mouse/"><u>A Game Changer in Handheld Comfort and Accuracy: The Ideal Companion for Precision at Any Distance - Sabrent Travel Wireless Mouse</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-tp-link-archer-a6-ac1200-router-comprehensive-performance-evaluation/"><u>Affordable TP-Link Archer A6 AC1200 Router - Comprehensive Performance Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722663592853-assassins-creed-valhalla-a-riveting-saga-of-vikings-through-the-middle-agebustling-action-and-immersive-story-reviewed/"><u>Assassin's Creed: Valhalla – A Riveting Saga of Vikings Through the Middle Agebustling Action and Immersive Story Reviewed</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-update-windows-7-wifi-drivers-simple-steps-for-seamless-connection/"><u>Download and Update Windows 7 WiFi Drivers: Simple Steps for Seamless Connection</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-making-money-with-youtube-understanding-partner-program/"><u>In 2024, Making Money with YouTube Understanding Partner Program</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-10plus-best-free-podcast-player-apps-for-ios-and-android/"><u>New 2024 Approved 10+ Best FREE Podcast Player Apps for iOS and Android</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-samsung-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from Samsung</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unveiling-top-tiktok-edit-techniques-for-max-impact-for-2024/"><u>Unveiling Top TikTok Edit Techniques for Max Impact for 2024</u></a></li>
+</ul></div>
 

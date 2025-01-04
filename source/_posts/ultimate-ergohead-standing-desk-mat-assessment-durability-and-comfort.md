@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Ergohead Standing Desk Mat Assessment: Durability & Comfort"
-date: 2024-12-20T17:34:30.494Z
-updated: 2024-12-25T19:30:26.007Z
+date: 2024-12-27T17:32:09.291Z
+updated: 2025-01-04T04:05:27.520Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Ergohead Standing Desk Mat Assessment: Durability & Comfort"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/288c4a8a533b0f1094aca3a28c5db0188ea8b5a3c
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Razer Book 13
 
@@ -47,6 +43,10 @@ Lifewire / Andy Zahn
 [View On Amazon](https://www.amazon.com/dp/B08LP734G3/?tag=lifewire-onsite-prod-20&ascsubtag=5176895%7Cnf0e7737a413045878ab8a2384bc1f06617%7CB08LP734G3) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6442337.p) [View On Adorama.com](https://www.adorama.com/rz0903571em2.html)
 
 4.9
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Razer Book 13
 
@@ -78,6 +78,10 @@ Lifewire / Andy Zahn
 
  An[ultrabook](https://www.lifewire.com/best-laptops-to-buy-4043650) is typically a thing of compromises, and if you want a laptop that’s thin and light, power is often sacrificed. However, the Razer Book 13 challenges that stereotype and offers a sleek and attractive alternative to other high-end[ultra-portables](https://www.lifewire.com/best-lightweight-laptops-to-buy-4065134) . I tested it for 40 hours to find if it can live up both to its stunning ultrabook looks and Razer’s prowess in building high-powered gaming laptops.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Design: Beauty in minimalism
 
  Razer is known for their flashy gaming-focused laptops, mice, and keyboards that are clearly marketed towards gamers, but they have always also employed a certain degree of restraint over some more exuberant gaming products. With the Book 13, that restraint is pushed even further with only a few tasteful reminders of the laptop’s gaming heritage—the twisted snaky Razer logo on the top, and of course RGB backlighting for the keyboard.
@@ -94,17 +98,9 @@ Lifewire / Andy Zahn
 
  For such a thin laptop, there’s a surprising amount of ports included with the Book 13\. You get 4[Thunderbolt ports](https://www.lifewire.com/what-is-thunderbolt-832713) , a USB type-A port,[HDMI port](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) , a microSD slot, and a 3.5mm headphone/microphone combo port. Such a versatile array of inputs is not to be taken for granted these days, and is a big point in the Book 13’s favor.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Setup Process: Very straightforward
 
  There’s not a lot to say about setting up the Razer Book 13\. It’s just a standard install of Windows 10 Home with no surprises along the way so you can be up and running in just a few minutes.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Display: Positively stunning
 
@@ -134,13 +130,13 @@ Lifewire / Andy Zahn
 
 Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Connectivity: The latest and greatest
 
  With[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , the Book 13 had no trouble taking full advantage of my home network. It provides a fast and reliable connection, and Bluetooth 5.0 is available as well.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Battery: Juice for the day
 
@@ -149,16 +145,24 @@ Lifewire / Andy Zahn
 ![Razer Book 13](https://www.lifewire.com/thmb/6yYQ1e8vR0Ldvs2GP61CrvFy3zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_05-1c8a8e1bdd78413fb72cc6307a07ea40.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Audio: Big sound for a small laptop
 
  You wouldn’t expect to get good audio out of such a small laptop, but the Book 13 does quite well in this regard. It features THX spatial audio and delivers a remarkably good listening experience. It’s certainly loud enough to deliver sound at max volume without noticeable distortion. 2Cellos cover of “Thunderstruck” is my go-to song for testing speakers and headphones, and I also listened to their new cover of “Livin’ on a Prayer.” The Book 13 rendered them both beautifully.
 
 ![Razer Book 13](https://www.lifewire.com/thmb/PL2MokPWQ_egcxv3fE0tw_k09Yo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_04-6eed60095cbe467c9552c651ba4c9d46.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -169,7 +173,7 @@ Lifewire / Andy Zahn
  The webcam on the Book 13 is about average for a laptop. It captures 720p video and is perfectly acceptable, though not exceptional in any way. Video quality looks decent, even in relatively challenging situations.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Price: The cost of quality
@@ -191,10 +195,6 @@ Lifewire / Andy Zahn
  **A laptop with great looks, compact design, and remarkable power.**
 
  There’s a lot to love about the Razer Book 13, and not a lot of negative things to say about it. It’s not a graphical powerhouse, but the fact that it’s able to game at all is remarkable. Between its solid design, attractive aesthetics, and nice little touches that tie the whole package together, this is one awesome little ultrabook.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -234,22 +234,18 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-reviews.techidaily.com/1722695673237-invest-less-to-charge-more-powerdrive-the-ultimate-budget-option-for-rapid-portable-electric-car-battery-packs/"><u>“Invest Less to Charge More: PowerDrive – The Ultimate Budget Option for Rapid Portable Electric Car Battery Packs</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-ten-practical-ways-to-prevent-vr-sickness/"><u>[New] 2024 Approved Ten Practical Ways to Prevent VR Sickness</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-beginners-tutorial-how-to-insert-on-screen-dialogue-in-video-formats/"><u>[New] A Beginner's Tutorial How to Insert On-Screen Dialogue in Video Formats</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-precision-recording-a-stepwise-plan-for-pc-ios-macbooks/"><u>[New] Precision Recording A Stepwise Plan for PC, iOS, MacBooks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2024s-essential-linkedin-courses-for-advancing-professional-expertise/"><u>2024’S Essential LinkedIn Courses for Advancing Professional Expertise</u></a></li>
-<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Lava Yuva 3 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-flavorful-journey-into-the-whirlwind-world-of-overcooked-2-a-reviewers-perspective/"><u>A Flavorful Journey Into the Whirlwind World of Overcooked! 2: A Reviewer's Perspective</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ace-your-budget-the-acer-aspire-e-15-unmatched-value-for-laptop-shoppers/"><u>Ace Your Budget: The Acer Aspire E 15 - Unmatched Value for Laptop Shoppers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/adaptive-moko-mini-bluetooth-keyboard-ideal-for-on-the-go-typing/"><u>Adaptive MoKo Mini Bluetooth Keyboard: Ideal for On-the-Go Typing</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-amazon-insignia-ns-43df710na19-fire-tv-stick-a-detailed-review-with-alexa-and-ultra-hd-features/"><u>Affordable Amazon Insignia NS-43DF710NA19 Fire TV Stick: A Detailed Review with Alexa & Ultra HD Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/alienware-aurora-r11-review-why-it-claimed-the-title-of-top-notch-gaming-pc/"><u>Alienware Aurora R11 Review - Why It Claimed the Title of Top-Notch Gaming PC</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/alienware-aurora-r7-analyzed-high-performance-meets-expensive-tagging/"><u>Alienware Aurora R7 Analyzed: High Performance Meets Expensive Tagging</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-apple-iphone-11-pro-backup-password-never-set-but-still-asking-heres-the-fix-drfone-by-drfone-ios/"><u>In 2024, Apple iPhone 11 Pro Backup Password Never Set But Still Asking? Heres the Fix | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/lava-storm-5g-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Lava Storm 5G Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1722999644103-the-ultimate-solution-for-football-manager-2022-not-releasing-now-available/"><u>The Ultimate Solution for Football Manager 2022 Not Releasing - Now Available!</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/transforming-photos-with-simple-bg-removal-in-picsart-for-2024/"><u>Transforming Photos with Simple Bg Removal in Picsart for 2024</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-discover-the-best-no-cost-internet-accessible-daw-platforms-for-todays-audio-engineers/"><u>Updated In 2024, Discover the Best No-Cost, Internet-Accessible DAW Platforms for Todays Audio Engineers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-fast-lanes-migrating-iphone-media-to-a-desktop/"><u>[New] 2024 Approved Fast Lanes Migrating iPhone Media to a Desktop</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-industrys-leading-heavy-duty-drone-picks/"><u>[New] Industry's Leading Heavy-Duty Drone Picks</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastering-pip-mode-with-youtube-on-your-iphone-device/"><u>[New] Mastering PIP Mode with YouTube on Your iPhone Device</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-the-ultimate-valheim-planting-manual/"><u>2024 Approved The Ultimate Valheim Planting Manual</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cameras-absent-in-depth-analysis-of-the-new-generation-google-nest-hub/"><u>Cameras Absent: In-Depth Analysis of the New Generation Google Nest Hub</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-apple-homepod-mini-evaluation-exploring-music-playback-intelligent-assistant-and-extra-functions/"><u>Comprehensive Apple HomePod Mini Evaluation: Exploring Music Playback, Intelligent Assistant, and Extra Functions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-the-intelligent-functions-of-the-stunning-samsung-un65ru8000fxza-display-in-our-review/"><u>Explore the Intelligent Functions of the Stunning Samsung UN65RU8000FXZA Display in Our Review</u></a></li>
+<li><a href="https://solve-howtos.techidaily.com/gratis-omzettingen-van-pef-bestandsformaten-professioneel-zonder-kosten-met-movavi/"><u>Gratis Omzettingen Van PEF-Bestandsformaten: Professioneel Zonder Kosten Met Movavi</u></a></li>
+<li><a href="https://discover-best.techidaily.com/guide-converting-and-watching-mkv-videos-on-your-dvd-player/"><u>Guide: Converting and Watching MKV Videos on Your DVD Player</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-voice-transcription-tools-a-comprehensive-guide/"><u>Leading Voice Transcription Tools : A Comprehensive Guide</u></a></li>
+<li><a href="https://win-webster.techidaily.com/mirrordossier-smartsync-protection-et-duplication-des-fichiers-sans-efforts-manuels/"><u>MirrorDossier SmartSync: Protection Et Duplication Des Fichiers Sans Efforts Manuels</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/next-level-innovation-in-a-slim-profile-a-comprehensive-look-at-macbook-pro-m1-2020/"><u>Next-Level Innovation in a Slim Profile: A Comprehensive Look at MacBook Pro M1 (2020)</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/overcoming-printer-errors-why-your-document-wont-print-and-how-to-fix-it-with-yl-computing-expert-advice/"><u>Overcoming Printer Errors: Why Your Document Won't Print & How to Fix It with YL Computing | Expert Advice</u></a></li>
 </ul></div>
 

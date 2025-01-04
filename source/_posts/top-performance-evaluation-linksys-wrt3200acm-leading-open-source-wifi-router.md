@@ -1,7 +1,7 @@
 ---
 title: "Top Performance Evaluation: Linksys WRT3200ACM - Leading Open-Source WiFi Router"
-date: 2024-12-18T18:08:32.389Z
-updated: 2024-12-25T16:14:51.712Z
+date: 2024-12-31T21:04:57.731Z
+updated: 2025-01-03T17:21:51.792Z
 categories:
   - BestProducts
 description: "This Article Describes Top Performance Evaluation: Linksys WRT3200ACM - Leading Open-Source WiFi Router"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/c9a47d41b34d7090487ad8a1c43825738349119fb
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/6eJwPC0xPwMxCh4aQhG73X9dkzU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -67,10 +71,6 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -81,11 +81,11 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Setup: Easier than most**
 
@@ -96,7 +96,7 @@ Lifewire / Erika Rawes
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels**
@@ -106,6 +106,10 @@ Lifewire / Erika Rawes
  The attached coax cable isn’t as long as I’ve seen on other similarly-priced antennas, but it is long enough (10 feet) to place the antenna up high without an extender.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -117,21 +121,17 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -174,21 +174,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-speedy-stories-top-10-rapid-release-games-on-tablets-pcs/"><u>[New] In 2024, Speedy Stories Top 10 Rapid Release Games on Tablets, PCs</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-the-essential-8-in-virtual-reality-gaming/"><u>[New] The Essential 8 in Virtual Reality Gaming</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-enhancing-visual-storytelling-utilizing-luts-techniques/"><u>[Updated] 2024 Approved Enhancing Visual Storytelling Utilizing Luts Techniques</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-pro-level-10-video-editors-to-boost-w-tiktoks/"><u>[Updated] 2024 Approved Pro-Level 10 Video Editors to Boost W TikToks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/aqualive-review-robust-speaker-depth-performance/"><u>Aqualive Review: Robust Speaker Depth Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/at-lp120xusb-bridging-generations-of-record-players/"><u>AT-LP120XUSB: Bridging Generations of Record Players</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/benchmarking-brilliance-in-depth-review-of-owcs-high-performance-mercury-pro/"><u>Benchmarking Brilliance: In-Depth Review of OWC's High-Performance Mercury Pro</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-fellowes-microban-wired-keyboard-evaluation-an-affordable-top-pick/"><u>Budget-Friendly Fellowes Microban Wired Keyboard Evaluation: An Affordable Top Pick</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/capture-and-share-effortlessly-the-power-of-nixplay-iris/"><u>Capture & Share Effortlessly - The Power of Nixplay Iris</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-oneplus-ace-2-pro-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from OnePlus Ace 2 Pro to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-community-standards-appropriate-suspension-of-trump-temporarily/"><u>Tech Community Standards: Appropriate Suspension of Trump, Temporarily</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-vivo-v29-pro-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Vivo V29 Pro</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/unravel-the-secrets-to-successful-instagram-metrics-management-with-top-tools-for-2024/"><u>Unravel the Secrets to Successful Instagram Metrics Management with Top Tools for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-refined-features-and-streamlined-appeal-of-the-samsung-galaxy-s21/"><u>Unveiling the Refined Features and Streamlined Appeal of the Samsung Galaxy S21</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-get-professional-results-top-10-free-green-screen-apps-for-mobile-phones/"><u>Updated 2024 Approved Get Professional Results Top 10 Free Green Screen Apps for Mobile Phones</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-dji-mavic-2-pro-remains-the-ultimate-tool-for-aerial-photography-experts/"><u>Why DJI Mavic 2 Pro Remains the Ultimate Tool for Aerial Photography Experts</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unlocking-profitability-on-youtube-shorts-essentials-and-future-earning-prospects/"><u>[New] Unlocking Profitability on Youtube Shorts Essentials and Future Earning Prospects</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-financial-face-off-comparing-dailymotion-and-youtube-profitability-for-2024/"><u>[Updated] Financial Face-Off Comparing Dailymotion & YouTube Profitability for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-top-free-editors-androids-ultimate-choice/"><u>2024 Approved Top Free Editors Android's Ultimate Choice</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/excel-essentials-simplifying-complex-decisions-with-the-advanced-ifs-statement-tutorial/"><u>Excel Essentials: Simplifying Complex Decisions with the Advanced IFS Statement Tutorial</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/freestyle2-on-mac-goes-blue-why-its-the-perfect-pick-for-apple-devotees/"><u>Freestyle2 on Mac Goes Blue – Why It's the Perfect Pick for Apple Devotees.</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Vivo Y78 5G | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-from-apple-iphone-6s-plus-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked From Apple iPhone 6s Plus?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-hunting-exotic-beasts-in-monster-hunter-world-a-comprehensive-guide/"><u>In-Depth Analysis of Hunting Exotic Beasts in Monster Hunter: World - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-stylish-and-practical-blueear-wireless-earphone-cap-balancing-aesthetics-and-sound-clarity/"><u>In-Depth Analysis of the Stylish and Practical Blueear Wireless Earphone Cap: Balancing Aesthetics and Sound Clarity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-your-workflow-with-the-high-performing-owc-mercury-pro-hard-drive-review/"><u>Maximizing Your Workflow with the High-Performing OWC Mercury Pro Hard Drive Review</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcoming-nvidias-silent-troubles-how-to-get-your-hd-stereo-back/"><u>Overcoming Nvidia's Silent Troubles: How to Get Your HD Stereo Back</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-wifi-solution-expert-review-of-eero-pro-mesh-router-and-its-whole-home-coverage-capabilities/"><u>The Ultimate WiFi Solution: Expert Review of Eero Pro Mesh Router and Its Whole Home Coverage Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-simplicity-and-strength-with-the-hp-stream-11-laptop/"><u>Unveiling Simplicity and Strength with the HP Stream 11 Laptop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-apple-m4-chip-features-release-timeline-and-tech-insights/"><u>Unveiling the Apple M4 Chip: Features, Release Timeline & Tech Insights</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-essential-auditory-enhancers-eliminating-ambient-sounds-effectively/"><u>Updated In 2024, Essential Auditory Enhancers Eliminating Ambient Sounds Effectively</u></a></li>
 </ul></div>
 

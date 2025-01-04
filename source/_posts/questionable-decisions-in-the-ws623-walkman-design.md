@@ -1,7 +1,7 @@
 ---
 title: Questionable Decisions in the WS623 Walkman Design
-date: 2024-12-18T18:32:02.419Z
-updated: 2024-12-25T19:18:48.703Z
+date: 2024-12-30T20:51:24.812Z
+updated: 2025-01-03T20:45:37.402Z
 categories:
   - BestProducts
 description: This Article Describes Questionable Decisions in the WS623 Walkman Design
@@ -21,6 +21,10 @@ thumbnail: https://www.lifewire.com/thmb/-Cr0-SCaIqkQaWKOAtau13mGySQ=/400x300/fi
 ## Rexing V1 DashCam
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/uK2E64Wzmh1SC5wGVrVGSMMtQgk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_HeroSqaure-ac1bb2840cb04106b14f3838b80a3bf2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
 
@@ -71,10 +75,6 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/JfL4E5NnuBPl6-93Hv3PI4IJsV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_05-bcfff5f440b545378c9ee4e6b431ffac.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Danny Chadwick
 
 ## **Design: Fits perfectly on your windshield**
@@ -94,13 +94,13 @@ Lifewire / Danny Chadwick
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/ztn3EsFqtKkWImvQhtgcr1vlHwI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_02-9ee3aa46e7394a1ab263a6b12b287314.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Be sure that’s where you want to put it**
@@ -118,7 +118,7 @@ Lifewire / Danny Chadwick
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Camera Quality: Basic**
@@ -128,6 +128,10 @@ Lifewire / Danny Chadwick
  When we reviewed the footage captured by the Rexing V1, we found it to be highly detailed and clear when the car was moving along city streets. However, when we hit the freeway, the picture became a little less clear. Signs were hard to read unless you stopped the recording, and small details such as license plates and bumper stickers on other cars couldn’t be made out at all. Nevertheless, the videos yield a good picture of what happens when you drive.
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/9_1pHoEq74JWPJ8reothv8PeI8E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_04-c5d42af8ddfa4296a6c6b1e8551edef6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
 
@@ -148,10 +152,6 @@ Lifewire / Danny Chadwick
 ## **Price: A good value**
 
  The Rexing V1 retails for $130, but as of the time of this writing, can typically be purchased for closer to $100\. We feel like this is a perfectly appropriate price for this device—it falls right in the middle of the typical dashcam price range, providing better performance than super budget models, but without the high-tech features of the more expensive options out there. In short, it’s a good price for a solid, basic device.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Z3 Plus vs. Rexing V1**
 
@@ -198,22 +198,19 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-captivating-audience-with-these-innovative-videos/"><u>[New] 2024 Approved Captivating Audience with These Innovative Videos</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-turn-back-time-on-snapchat-a-comprehensive-guide/"><u>[New] 2024 Approved Turn Back Time on Snapchat A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/astering-video-thumbnail-personalization-on-youtube/"><u>[New] Mastering Video Thumbnail Personalization on YouTube</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2020-apple-iphone-se-analysis-the-smart-and-practical-choice/"><u>2020 Apple iPhone SE Analysis: The Smart and Practical Choice</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-shaping-the-unexpected-a-guide-to-photo-warp-and-bend/"><u>2024 Approved Shaping the Unexpected A Guide to Photo Warp and Bend</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2024s-most-powerful-and-sleek-17-inch-laptop-selection/"><u>2024'S Most Powerful and Sleek 17-Inch Laptop Selection</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-comprehhavisual-review-of-the-refined-samsung-galaxy-s21-features/"><u>A Comprehhavisual Review of the Refined Samsung Galaxy S21 Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-step-toward-smart-spending-petcubes-affordable-hd-pet-cam/"><u>A Step Toward Smart Spending: Petcube’s Affordable HD Pet Cam</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-remobell-security-camera-review-top-choices-for-less-than-100/"><u>Affordable RemoBell Security Camera Review – Top Choices for Less Than $100</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/all-you-need-to-know-about-garmin-vivosmart-4-mastering-body-battery-and-stress-monitor-for-improved-wellness/"><u>All You Need to Know About Garmin Vivosmart 4: Mastering Body Battery & Stress Monitor for Improved Wellness</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/best-of-breed-macs-data-recovery-solutions-top-8-rankings/"><u>Best of Breed - Mac's Data Recovery Solutions, Top 8 Rankings</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722551609577-discovering-the-new-terrain-of-watch-dogs-an-expert-analysis-of-legion/"><u>Discovering the New Terrain of Watch Dogs: An Expert Analysis of Legion.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722678435738-experience-ultra-hd-with-the-reasonably-priced-sony-xbr65x850f-our-review/"><u>Experience Ultra HD with the Reasonably Priced Sony XBR65X850F - Our Review!</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-next-gen-gaming-horizon-upcoming-bests-in-playstation-vr/"><u>In 2024, Next-Gen Gaming Horizon Upcoming Bests in PlayStation VR</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/the-ultimate-asus-display-a-journey-through-precision-and-color/"><u>The Ultimate ASUS Display A Journey Through Precision and Color</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>Will the iPogo Get You Banned and How to Solve It On Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-elite-recording-devices-for-livestream-producers/"><u>2024 Approved Elite Recording Devices for Livestream Producers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-poco-f5-pro-5g-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Poco F5 Pro 5G without App | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-iphone-models-for-mobile-gaming-in-2-comparison-and-reviews/"><u>Best iPhone Models for Mobile Gaming in 2# Comparison and Reviews</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/converting-mb-to-seconds-a-20mb-scenario-for-2024/"><u>Converting MB to Seconds A 20MB Scenario for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/create-iso-images-from-dvds-with-ease-comprehensive-guide-for-users-of-windows-111087-and-mac-osx/"><u>Create ISO Images From DVDs with Ease: Comprehensive Guide for Users of Windows 11/10/8/7 and Mac OSX</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/exclusive-ig-edits-for-apple-and-android-users-for-2024/"><u>Exclusive IG Edits for Apple & Android Users for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-building-an-audience-on-ig-steps-to-reach-1k-in-one-month/"><u>In 2024, Building an Audience on IG Steps to Reach 1K in One Month</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-vivo-y100-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Vivo Y100 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-versatile-intro-editing-app-for-your-device-repertoire/"><u>In 2024, Versatile Intro Editing App for Your Device Repertoire</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/insightful-reviews-for-garmin-vivosmart-4-the-new-era-in-body-energy-and-stress-evaluation/"><u>Insightful Reviews for Garmin Vivosmart 4 - The New Era in Body Energy & Stress Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-review-of-bybs-exceptional-e430-led-lamp-with-advanced-swivel-feature/"><u>The Definitive Review of BYB's Exceptional E430 LED Lamp with Advanced Swivel Feature</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-step-by-step-tutorial-on-how-to-use-the-print-function-in-photoshop/"><u>The Ultimate Step-by-Step Tutorial on How to Use the 'Print' Function in Photoshop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-review-twelve-south-compass-pro-device-delivers-superior-stability-performance/"><u>Top Rated Review: Twelve South Compass Pro Device Delivers Superior Stability Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-amazonbasics-7-port-usb-30-hub-your-solution-for-extra-ports/"><u>Ultimate Guide to the AmazonBasics 7-Port USB 3.0 Hub: Your Solution for Extra Ports</u></a></li>
 </ul></div>
 

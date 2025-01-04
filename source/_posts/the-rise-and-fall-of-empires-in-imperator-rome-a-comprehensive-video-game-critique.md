@@ -1,7 +1,7 @@
 ---
 title: "The Rise and Fall of Empires In Imperator: Rome – A Comprehensive Video Game Critique"
-date: 2024-12-22T16:56:13.316Z
-updated: 2024-12-25T17:16:45.221Z
+date: 2025-01-02T17:17:13.944Z
+updated: 2025-01-04T03:27:01.621Z
 categories:
   - BestProducts
 description: "This Article Describes The Rise and Fall of Empires In Imperator: Rome – A Comprehensive Video Game Critique"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/c367633b9f9ef727c06fd08d3dd4d78a496570d92
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
@@ -43,7 +47,7 @@ Lifewire / Jeffrey Daniel Chadwick
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Kensun AC/DC Portable Air Pump Tire Inflator
@@ -72,10 +76,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -98,6 +98,10 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: T-minus one minute**
 
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
@@ -105,7 +109,7 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
@@ -135,10 +139,6 @@ Lifewire / Jeffrey Daniel Chadwick
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
@@ -179,24 +179,17 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-close-up-confidence-navigating-google-meets-zoom-feature/"><u>[New] In 2024, Close-Up Confidence Navigating Google Meet's Zoom Feature</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-master-the-art-of-livestreaming-three-key-approaches-subscriber-less-style/"><u>[New] Master the Art of Livestreaming Three Key Approaches, Subscriber-Less Style</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-prime-software-for-professional-4k-screen-capture-for-2024/"><u>[New] Prime Software for Professional 4K Screen Capture for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-the-secrets-to-discreetly-fading-out-sounds-using-audacity-for-2024/"><u>[Updated] The Secrets to Discreetly Fading Out Sounds Using Audacity for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-turn-your-youtube-snippets-into-memorable-gifs-for-2024/"><u>[Updated] Turn Your YouTube Snippets Into Memorable GIFs for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/everything-you-need-to-know-about-unlocked-iphone-12-by-drfone-ios/"><u>Everything You Need To Know About Unlocked iPhone 12</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-cutting-edge-capabilities-of-the-samsung-galaxy-s24-ultra/"><u>Exploring the Cutting-Edge Capabilities of the Samsung Galaxy S24 Ultra</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/find-your-keys-easily-with-these-exceptional-trackers-of-2024/"><u>Find Your Keys Easily with These Exceptional Trackers of 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-latest-canon-mg3600-driver-software-here/"><u>Get the Latest Canon MG3600 Driver Software Here!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/handheld-fun-with-the-nintendo-switch-lite-an-economical-alternative-to-full-console/"><u>Handheld Fun with the Nintendo Switch Lite: An Economical Alternative to Full Console</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/hp-zbook-firefly-15-g8-review-mobile-masterpiece/"><u>HP Zbook Firefly 15 G8 Review: Mobile Masterpiece</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/immersing-in-a-changed-landscape-the-intricate-review-of-watch-dogs-legion/"><u>Immersing in a Changed Landscape: The Intricate Review of Watch Dogs: Legion</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/next-gen-powerhouse-unveiled-exclusive-review-of-the-macbook-pro-13-inch-m1-model/"><u>Next-Gen Powerhouse Unveiled: Exclusive Review of the MacBook Pro 13-Inch M1 Model</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/nintendo-showdown-which-is-best-for-you-the-compact-switch-lite-or-the-enhanced-oled/"><u>Nintendo Showdown: Which Is Best For You – The Compact Switch Lite or the Enhanced OLED?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/nixplay-seeds-innovative-design-shines-as-a-leader/"><u>Nixplay Seed's Innovative Design Shines as a Leader</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-s21-ultra-unveiled-the-premier-choice-in-android-devices/"><u>Samsung Galaxy S21 Ultra Unveiled: The Premier Choice in Android Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sml385btbk-effortless-setup-and-brilliant-display-make-this-singing-machine-perfect-for-partygoers/"><u>SML385BTBK Effortless Setup and Brilliant Display Make This Singing Machine Perfect for Partygoers</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/the-ultimate-guide-to-effective-screen-recorders/"><u>The Ultimate Guide to Effective Screen Recorders</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/unified-drivers-and-utilities-officejet-pro-8600-for-pc-users/"><u>Unified Drivers & Utilities: OfficeJet Pro 8600 for PC Users</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-prime-low-cost-full-hd-cameras-for-stunts/"><u>[New] Prime Low-Cost Full HD Cameras for Stunts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unraveling-the-benefits-of-rapid-youtube-subscription/"><u>[Updated] Unraveling the Benefits of Rapid YouTube Subscription</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-garmin-forerunner-ebx02873ccereviews-in-depth-look-at-the-advanced-gps-smartwatch/"><u>Comprehensive Garmin Forerunner Ebx02873cce_reviews: In-Depth Look at the Advanced GPS Smartwatch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/effortless-meal-times-with-arfs-auto-feeder-device-for-your-furry-friends/"><u>Effortless Meal Times with Arf's Auto-Feeder Device for Your Furry Friends</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-motorola-moto-e13-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Motorola Moto E13</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/e-oasis-youtubes-finest-yoga-retreats/"><u>Online Oasis YouTube's Finest Yoga Retreats</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-xiaomi-redmi-note-12-4g-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Xiaomi Redmi Note 12 4G Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/redirect-saved-image-to-custom-folder-on-mac-for-2024/"><u>Redirect Saved Image to Custom Folder on Mac for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sitting-pretty-in-productivity-why-the-x-chair-x4-is-a-top-contender-for-office-environments/"><u>Sitting Pretty in Productivity: Why the X-Chair X4 Is a Top Contender for Office Environments</u></a></li>
+<li><a href="https://win-blog.techidaily.com/step-by-step-fix-for-itunes-not-recognizing-your-iphone-on-a-windows-10-system/"><u>Step-by-Step Fix for iTunes Not Recognizing Your iPhone on a Windows 10 System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-current-landsncape-of-voip-services-does-vonage-still-stand-out/"><u>The Current Landsncape of VoIP Services - Does Vonage Still Stand Out?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/unleash-the-potential-master-avi-to-gif-conversion-using-filmora/"><u>Unleash the Potential Master AVI-to-GIF Conversion Using Filmora</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Moto G Play Review: Massive Battery and Decent Performance"
-date: 2024-08-15T09:33:33.441Z
-updated: 2024-08-16T09:33:33.441Z
+date: 2024-12-29T21:18:02.027Z
+updated: 2025-01-03T21:19:10.261Z
 categories:
   - BestProducts
 description: "This Article Describes Moto G Play Review: Massive Battery and Decent Performance"
@@ -42,8 +42,9 @@ Lifewire / Andrew Hayward
 ## Halo Bolt Portable Charger/Jump Starter
 
 ![Halo Bolt Portable Charger/Jump Starter](https://www.lifewire.com/thmb/wNeN4Rq5GyM9MuDOzyg5QlRT-U4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-HeroSquare-889ebc2fc6b54573a26c09cabb34bd5c.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
@@ -65,8 +66,9 @@ Lifewire / Andrew Hayward
  Granted, it doesn’t pack as much power as some dedicated laptop chargers, which may be a better option for that need. Still, the added versatility gives the Halo Bolt a unique edge in the market. I tested the Halo Bolt for a week with multiple devices, including laptops and smartphones.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: The shiny brick**
 
  While certainly portable, the Halo Bolt isn’t designed to be pocket-friendly. This big brick of a battery pack comes in at 7.2 x 1.6 x 3.8 inches (HWD) with a weight of more than 1.5 pounds. Smaller, cheaper battery packs are available for smartphones, but this beast is made for heavier-duty needs and is designed accordingly.
@@ -83,9 +85,6 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## **Setup Process: Load it up**
 
  You’ll need to charge the brick to total capacity before using it, and the four green battery lights on the right side of the front face indicate how much capacity is currently left. The battery is fully charged when all four are illuminated when pressing any of the power buttons. Otherwise, for the AC and USB ports, the Halo Bolt is a plug-and-play charger.
@@ -93,8 +92,9 @@ Lifewire / Andrew Hayward
  The whole process for jump-starting a car is detailed in the included instructions. The Halo Bolt has built-in safety features that ensure you have correctly aligned the jumper cables before starting the connected car, boat, lawnmower, or other vehicles.
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/mUdXUjWxeupVqNR_y43_eFTC0ic=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-02-69b93dc934684ef5b71a40215f6162f2.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -114,20 +114,21 @@ Lifewire / Andrew Hayward
  For example, charging a[Samsung Galaxy S10](https://www.lifewire.com/samsung-galaxy-s10-review-4685690) smartphone using one of the Halo Bolt’s USB-A ports took 2 hours and 56 minutes to complete at a paltry 5.19W (4.76V x 1.09A), starting from 0 percent. However, when I repeated the test using Samsung’s charger via the AC port, it finished in 1 hour and 34 minutes thanks to fast charging—nearly half the total time.
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/MNFqifirQ0sn61GPO1e-bLQ1t8s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-06-8bc3449bd35243aaaf67272c1d3774a6-bc803e0a114b4116adf3078af6a2de00.jpeg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: It’s priced right**
 
  For a jack-of-all-trades power brick that can jump-start your car and charge its battery, serve as a bright flashlight for roadside emergencies, and charge a wide array of portable devices, the $100 price seen on Amazon looks pretty reasonable. However, given that it couldn’t charge my laptop to total capacity and lacks a USB-C port, handier, higher-capacity charging bricks are available specifically for laptop and smartphone charging needs.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Halo Bolt ACDC 58830 vs. ZMI PowerPack 20000**
 
  Here’s a prime example. The[ZMI PowerPack 20000](https://www.lifewire.com/zmi-powerpack-20000-review-5071991) (see on[Amazon](https://www.amazon.com/dp/B072BD98CM?linkCode=ogi&th=1&psc=1&tag=lifewire-onsite-prod-20&ascsubtag=5071993%7Cn35698be70c304b229c7a194255ab2d3620%7C) ) doesn’t have an AC port. However, it’s pocket-friendly, packs a lot of capacity (20,000mAh), and can quickly recharge laptops with its included USB-C port. It also has two USB-A ports and sufficient juice to recharge the same MacBook Pro from empty. Best of all, it only costs $70.
@@ -151,14 +152,11 @@ Lifewire / Andrew Hayward
 * Ports  2x USB-A. 1x AC, 1x Jump Start
 * Waterproof  N/A
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -167,4 +165,24 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/new-unlocking-the-power-of-pause-time-mastering-art-of-slow-motion-videos-using-photos-apps-and-websites/"><u>[New] Unlocking the Power of Pause Time Mastering Art of Slow Motion Videos Using Photos Apps and Websites</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-become-an-expert-tutorial-for-making-gifs-into-desirable-whatsapp-and-telegram-stickers/"><u>[Updated] Become an Expert Tutorial for Making GIFs Into Desirable WhatsApp & Telegram Stickers</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-sonic-artistry-and-video-prowess-in-sonys-xperia-xz-for-2024/"><u>[Updated] Sonic Artistry and Video Prowess in Sony's Xperia XZ for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/7-cost-effective-cellular-plans-to-save-money/"><u>7 Cost-Effective Cellular Plans to Save Money</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comparison-of-ipad-and-ipad-air-what-sets-them-apart/"><u>A Comparison of iPad and iPad Air: What Sets Them Apart?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-alarm-clocks-totobays-second-generation-sunrise-simulator-revealed/"><u>Affordable Alarm Clocks - Totobay's Second Generation Sunrise Simulator Revealed!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-elegance-in-your-hand-comprehensive-review-of-samsungs-galaxy-s10e/"><u>Affordable Elegance in Your Hand - Comprehensive Review of Samsung's Galaxy S10e</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-mobvoi-ticwatch-e2-a-bargain-or-a-disappointment/"><u>Affordable Mobvoi TicWatch E2 - A Bargain or a Disappointment?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-propella-7s-40-inflatable-boards-top-review-for-budget-friendly-fun-on-water/"><u>Affordable Propella 7S 4.0 Inflatable Boards - Top Review for Budget-Friendly Fun on Water</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722623955693-ankerner-2-in-1-unbeatable-price-point-for-high-speed-in-car-charging-solutions-read-on-to-find-out-more/"><u>Anker'ner 2-in-1: Unbeatable Price Point for High Speed In-Car Charging Solutions - Read on to Find Out More!</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-meizu-21-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-track-apple-iphone-12-pro-max-location-by-number-drfone-by-drfone-virtual-ios/"><u>How to Track Apple iPhone 12 Pro Max Location by Number | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722788135768-nickelodeon-introduces-the-latest-nickwatch-at-kids-choice-awards-in-the-us/"><u>Nickelodeon Introduces the Latest NickWatch at Kids' Choice Awards in the U.S.</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/top-10-video-konvertierung-programme-fur-windows-11-sicheres-und-schnelles-umwandeln/"><u>Top 10 Video Konvertierung Programme Für Windows 11 - Sicheres Und Schnelles Umwandeln</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/forming-ideas-into-engaging-youtube-video-plans-for-2024/"><u>Transforming Ideas Into Engaging YouTube Video Plans for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/transfer-the-ultimate-selection-of-free-android-apps-for-youtube-melodies/"><u>Tune Transfer The Ultimate Selection of Free Android Apps for YouTube Melodies</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/unlocking-the-secrets-of-site-layouts-defining-web-structure-and-seo-optimization-techniques-the-digital-marketers-handbook/"><u>Unlocking the Secrets of Site Layouts: Defining Web Structure & SEO Optimization Techniques | The Digital Marketer's Handbook</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Unboxing the New Era of Ratchet & Clank: Remixed Retro Experience"
-date: 2024-08-10T23:54:39.790Z
-updated: 2024-08-11T23:54:39.790Z
+date: 2024-12-29T17:44:51.333Z
+updated: 2025-01-04T01:32:15.173Z
 categories:
   - BestProducts
 description: "This Article Describes Unboxing the New Era of Ratchet & Clank: Remixed Retro Experience"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/9dde14122d86332e2939d12b71c8c112849e5b475
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Alienware Aurora R11
 
 ![Alienware Aurora R11 Review](https://www.lifewire.com/thmb/J9uvbxB74ArYDye_pchXYOwWr08=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Alienware-Aurora-R11-Desktop-PC-1-2d25241deb1445b5af4661451cda9988.jpg)
@@ -42,12 +39,17 @@ Lifewire / Erika Rawes
 
 4.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Alienware Aurora R11
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![Alienware Aurora R11 Review](https://www.lifewire.com/thmb/s3I5Cw7w0g8bE2MkogNY13CmpcM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Alienware-Aurora-R11-Desktop-PC-1-2d25241deb1445b5af4661451cda9988.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -83,9 +85,6 @@ Lifewire / Erika Rawes
 
  I tested the second-tier model with the 10th Gen Intel Core i7 10700F, the NVIDIA GeForce RTX 2060 (6GB GDDR6), 16 GB of RAM, dual drives (256GB SSD + 1TB SATA), and the Dark Side of the Moon chassis with Low-Profile Smart Cooling CPU Heatsink and 550W Power Supply. The model I tested had air cooling, but you can get liquid cooling in this model for as little as $20 added to the base price.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Alienware Aurora R11](https://www.lifewire.com/thmb/hRBDZ5clhMthsEMeqGYzOi7oIE8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Alienware-Aurora-R11-Desktop-PC-2-e6bece84be7c48a3af3db3806a85a31e.jpg)
 
  Lifewire / Erika Rawes
@@ -100,6 +99,10 @@ Lifewire / Erika Rawes
 
  There are ports galore on this rig. It has multiple USB ports, and it even has USB-C ports. One of the front USB ports has PowerShare, which is a nice feature for charging devices.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Display: OC Ready**
 
  The NVIDIA GeForce RTX 2060 (6GB GDDR6) has a base clock of 1,365 MHz. The card is OC ready though, so it’s built for overclocking. It supports a maximum resolution of up to 7680 x 4320\. The card also supports VR, and multiple monitors (up to four).
@@ -108,11 +111,16 @@ Lifewire / Erika Rawes
 
 ![Alienware Aurora R11](https://www.lifewire.com/thmb/JFFJbdkvNwhJ-T2_-B88xFQhCNQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Alienware-Aurora-R11-Desktop-PC-4-d7147c6bd520432285a9f2e58f788322.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: An absolute powerhouse**
 
  I was impressed with the R11’s overall performance, especially considering the model I tested is one of the more affordable configurations. Boot times are fast, and it jumps around different applications at lightning speed. It scored admirably in benchmark testing, clocking a single-core score of 4403 and a multi-core score of 33335 on Geekbench 3\. On PCMark 10, it scored a 6692, which was better than 92% of all results. It scored highest in essentials and digital content creation and slightly lower in productivity.
@@ -135,20 +143,18 @@ Lifewire / Erika Rawes
 
  The R11 handled Far Cry 5’s internal benchmark, and it maintained lag-free gaming on the ultra settings.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Productivity: Free optional keyboard and optical mouse**
 
  The Aurora R11 is designed as a gaming PC, but you could absolutely use it for work. Since this PC has ample processing power and gaming-grade graphics, you could also use it for photo or video editing. The R11 includes a free keyboard and optical mouse, but you have to specifically indicate that you want those free options. Otherwise, you’ll just get the tower and power cord.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Audio: 7.1 surround sound**
 
  The R11 has a number of options for audio sources, including ports for connecting a microphone, headphones, and[surround sound speakers](https://www.lifewire.com/what-is-surround-sound-1846802) . It even has an optical audio port. You should have no problem finding an audio solution that fits your needs. The R11 doesn’t include speakers in the box, but it does have integrated 7.1 channel audio (with SPDIF port).
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Network: Want Wi-Fi 5 or Wi-Fi 6?**
 
  The R11 includes the Dell Wireless DW1810 802.11ac Wireless card (Wi-Fi, Wireless LAN, and Bluetooth 5.0). For $20 added to the price, you can upgrade to the Killer AX1650 (2x2) 802.11ax Wireless Card and get Bluetooth 5.1 and Wi-Fi 6 capability.
@@ -161,9 +167,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: Alienware Command Center**
 
  Like most gaming PCs, the R11 runs on Windows 10 Home. You can opt for additional software like Microsoft Office and McAfee antivirus protection while you’re customizing the PC during purchase.
@@ -173,8 +176,9 @@ Lifewire / Erika Rawes
  Another application, Alienware Mobile Connect, lets you connect your PC to your mobile device. You can do things like a text from the application, make calls, access images and contacts, and mirror your screen.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Cooling: Air cooling vs. liquid cooling**
 
  The R11 comes in[air cooled](https://www.lifewire.com/best-laptop-cooling-pads-4149823) or[liquid cooled](https://www.lifewire.com/what-is-liquid-cooling-832445) configurations. I tested an air-cooled configuration. There’s a fan in the front that sucks air into the PC, and then there’s larger venting along the top and sides that helps push the air through the PC to cool down the processors. The fans are strategically placed for the optimal airflow, with a fan on the top that helps promote air circulation.
@@ -183,9 +187,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ## **Upgradability: A latch system**
 
  The R11 is not quite as easy to open as a chassis with an easy-remove glass side panel, but it still offers easy upgradability. The tower opens with a lock and latch system that releases the side panel. Once you remove the side panel, you can move the power supply out of the way so you can better access the internals.
@@ -205,8 +206,9 @@ Lifewire / Erika Rawes
  For the higher tier models, the prices are steep. The highest tier R11 costs just under five grand. For that price, many people would be happier building their own rig.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Alienware Aurora R11 vs. HP Omen Obelisk**
 
  The[HP Omen Obelisk](https://www.lifewire.com/hp-omen-obelisk-review-5072832) has a clean design, with sharp lines and angles and a glass side panel. It’s very different from the R11’s oval-shaped jet engine style. The Obelisk comes in different configurations, and the lowest tier model is $900 (comparable to the lowest tier Aurora R11). The lowest tier Obelisk includes the AMD Ryzen5 3500 Processor and the NVIDIA GeForce GTX 1660 (6 GB), while the lowest tier Aurora includes a 10th gen[Intel](https://www.lifewire.com/amd-vs-intel-which-processor-is-best-for-you-4780276) i5 processor and the NVIDIA GeForce GTX 1650 SUPER 4GB GDDR6\. The Aurora R11 has 10th gen Intel processors in all of its configurations, and it offers the option for a much higher level system.
@@ -217,9 +219,6 @@ Lifewire / Erika Rawes
 
  The Aurora R11 could replace its predecessor as the best gaming desktop of the year.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Aurora R11
@@ -245,8 +244,6 @@ Lifewire / Erika Rawes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -254,4 +251,26 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-navigating-the-best-quadcopter-engine-landscape/"><u>[New] 2024 Approved Navigating the Best Quadcopter Engine Landscape</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-speedy-strategies-capturing-your-screen-in-a-flash-dell/"><u>[New] 2024 Approved Speedy Strategies Capturing Your Screen in a Flash (Dell)</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-multitask-media-magic-harnessing-netflixs-picture-in-picture-feature/"><u>[New] In 2024, Multitask Media Magic Harnessing Netflix's Picture-in-Picture Feature</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-enrich-your-brain-with-these-15-ultimate-science-youtubes/"><u>2024 Approved Enrich Your Brain with These 15 Ultimate Science Youtubes</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-optimize-your-iphones-camera-for-perfection/"><u>2024 Approved Optimize Your iPhone's Camera for Perfection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-your-digital-helper-alexa-vs-google-assistant-find-out-who-wins/"><u>Choosing Your Digital Helper: Alexa Vs. Google Assistant - Find Out Who Wins!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/creative-mastery-meets-gaming-prowess-in-the-corsair-one-pro-desktop-examination/"><u>Creative Mastery Meets Gaming Prowess in the Corsair One Pro Desktop Examination</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/galactic-gallery-top-videos-plus-glowing-endorsements/"><u>Galactic Gallery: Top Videos + Glowing Endorsements</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-set-up-fast-download-and-install-drivers-for-your-brother-mfc-l2700dw-on-windows-computers/"><u>Get Set Up Fast: Download & Install Drivers for Your Brother MFC-L2700DW on Windows Computers</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-through-speed-and-costs-comprehensive-review-of-swagtrons-swagboard-t1-model/"><u>Navigating Through Speed and Costs - Comprehensive Review of Swagtron's Swagboard T1 Model</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ps5-vs-ps4-pro-should-you-upgrade/"><u>PS5 vs PS4 Pro: Should You Upgrade?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/read-anywhere-with-ease-comprehensive-guide-to-the-latest-and-greatest-kobo-clara-hd-reader/"><u>Read Anywhere with Ease: Comprehensive Guide to The Latest and Greatest Kobo Clara HD Reader</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/rediscover-androids-intended-experience-through-google-pixel-3-insights/"><u>Rediscover Android's Intended Experience Through Google Pixel 3 Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-lg-stylo-6-top-features-combining-elegance-with-a-superior-stylus-experience/"><u>Reviewing the LG Stylo 6: Top Features Combining Elegance with a Superior Stylus Experience</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-disabling-the-security-pin-on-windows-10/"><u>Step-by-Step Guide: Disabling the Security Pin on Windows 10</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-vivo-y100t-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Vivo Y100t | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-seamless-connectivity-with-tp-links-deco-p9-a-detailed-exploration-and-review/"><u>Unlock Seamless Connectivity with TP-Link's Deco P9 - A Detailed Exploration and Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/waveguard-assessment-deep-water-fidelity-standards/"><u>WaveGuard Assessment: Deep Water Fidelity Standards</u></a></li>
+</ul></div>
 

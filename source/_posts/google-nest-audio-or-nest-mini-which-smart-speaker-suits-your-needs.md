@@ -1,7 +1,7 @@
 ---
 title: Google Nest Audio or Nest Mini - Which Smart Speaker Suits Your Needs?
-date: 2024-12-20T16:26:07.671Z
-updated: 2024-12-25T16:05:36.990Z
+date: 2024-12-31T20:28:16.571Z
+updated: 2025-01-03T22:50:39.996Z
 categories:
   - BestProducts
 description: This Article Describes Google Nest Audio or Nest Mini - Which Smart Speaker Suits Your Needs?
@@ -21,6 +21,10 @@ thumbnail: https://www.lifewire.com/thmb/Ypqt7AJdOioUDWQ3WmCLmb2YZS0=/400x300/fi
 ## Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/kFg5xi-56ujXYZRJ5JqhJueaSnw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_HeroSquare-61fda9713bb44c89bf3c2f1f74386bee.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -48,10 +52,6 @@ Lifewire / Erika Rawes
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/_gP-SgRbIGXPYdlmqqhNJSxhmSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_HeroSquare-61fda9713bb44c89bf3c2f1f74386bee.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Erika Rawes
 
 [View On Amazon $199](https://www.amazon.com/dp/B07P3FGKYD?tag=lifewire-onsite-prod-20&ascsubtag=4942498%7Cn31dea18fa28a4d9a88e5e3a62470a49720%7CB07P3FGKYD) [View On Adorama.com $450](https://www.adorama.com/nerax120100n.html?utm%5Fsource=google&utm%5Fmedium=organic&utm%5Fcampaign=organicshopping&utm%5Fsource=adl-gbase-hometech) [View On B&H Photo Video $399](https://www.bhphotovideo.com/c/product/1469206-REG/netgear%5Frax120%5Fnighthawk%5Fax12%5F12%5Fstream%5Fwifi.html)
@@ -78,10 +78,6 @@ Lifewire / Erika Rawes
 
  The[Netgear](https://www.lifewire.com/best-netgear-routers-4159862) Nighthawk RAX120 is supposed to provide lightning-fast speeds while serving as one of the[best long-range wireless routers](https://www.lifewire.com/best-long-range-routers-4122554) currently on the market. Fully loaded with[Wi-Fi 6 technology](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , smart home connectivity, and a slew of other features, the AX12 should be an ideal router for small businesses, very large homes, or for homes with multiple devices. I tested the Netgear Nighthawk RAX120 to see how well it performs in the real world.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Batman’s router**
 
  The Netgear Nighthawk RAX120 has a futuristic design—angular, with clean lines. It looks like a cross between a spaceship and the Batmobile. It’s matte black and rectangular, but instead of the multiple antennas you’d typically see protruding from the top of a Nighthawk router, it has two wing-like extensions that come from each side.
@@ -90,17 +86,21 @@ Lifewire / Erika Rawes
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/fw0FJuD9bAOkQEHuAZ9OFq5toXk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_05-2a03227466354aad82fe55b884b76ac6-4d18f476974a44b081aafc943a8e56b1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup: Quick and easy**
 
  The Netgear Nighthawk app walks you through the setup process. There’s a QR code sticker on the router, as well as a temporary network name and password on the label, which allow you to connect quickly and easily.
 
  The app guides you through creating separate 2.4 and 5GHz networks, but you can also take advantage of a feature called smart connect, which combines your networks and designates your devices based on optimal performance. You can create a guest network, as well as manage and monitor your devices individually. The initial setup process took me about ten minutes in total.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Connectivity: Superfast speeds**
 
@@ -114,10 +114,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Network performance: Stellar**
 
  The Nighthawk RAX120 indicates top speeds of 1,200 Mbps on the 2.4Ghz band and 4,800 Mbps on the 5Ghz band. My Internet speed maxes out at 500 Mbps. I have about 50 connected devices, more than half of which are smart home devices like smart light switches, smart appliances, security cameras, and smart speakers and displays. The RAX120 had no problem managing my numerous smart devices, nor did I experience any lag or connectivity issues on streaming and gaming devices. I simultaneously ran a gaming computer, two playstations, and two FireTVs without the connection missing a beat.
@@ -129,6 +125,10 @@ Lifewire / Erika Rawes
  Final Verdict
 
  The RAX120 is backward compatible with 802.11a/b/g/n/ac as well, so it’ll work with virtually all of your devices, Wi-Fi 6 or not.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Key Features: Quality hardware, lacks antivirus**
 
@@ -142,25 +142,25 @@ Lifewire / Erika Rawes
 
  The router has two USB 3.0 storage ports on the back for connecting an external hard drive.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Software: Nighthawk App**
 
  In the Nighthawk app, you can change your router’s settings, create a guest network, control your router remotely, manage your devices individually, and you can test your network speeds. However, when testing my network speeds, they consistently clock much faster on the Nighthawk app than on other platforms like Ookla and VeeApps.
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/MPwp1LtMC7Ua30t8VnJy7bjuqn4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_02-94fbae95ca5d4851a1cf40b197da4161.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Price: Expensive**
 
  The Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router will cost you a pretty penny—it sells for $400, which is $100 lower than its original retail price of $500\. But it’s still on the higher end of the price spectrum, especially considering it doesn’t include any sort of mesh points, and you only get the router, power supply, and an Ethernet cable.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Netgear Nighthawk RAX120 vs. TP-Link Archer AX6000**
 
@@ -210,21 +210,16 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://network-issues.techidaily.com/solved-apex-legends-crash-quickly-and-easily/"><u>[Solved] Apex Legends Crash | Quickly & Easily</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-high-quality-video-communication-ranking-the-top-10-mobile-apps/"><u>[Updated] 2024 Approved High-Quality Video Communication Ranking the Top 10 Mobile Apps</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-the-ultimate-guide-to-shutting-down-a-stale-linkedin-account/"><u>2024 Approved The Ultimate Guide to Shutting Down a Stale LinkedIn Account</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/discover-the-leading-livestream-service-sites/"><u>Discover the Leading Livestream Service Sites</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/re-the-world-in-high-definition-on-youtube-for-2024/"><u>Explore the World in High Definition on YouTube for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-motorola-edge-40-neo-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Motorola Edge 40 Neo? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Motorola Moto G84 5G | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-xiaomi-redmi-note-12r-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Xiaomi Redmi Note 12R To iPhone 15/14/13? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-your-xiaomi-14-pro-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Xiaomi 14 Pro Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-walmart-plus-worth-it-4-reasons-why-you-should-get-a-membership/"><u>Is Walmart Plus Worth It? 4 Reasons Why You Should Get a Membership</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-the-art-of-photo-prints-using-photoshop-tips/"><u>Mastering the Art of Photo Prints Using Photoshop Tips</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/microsoft-surface-ergonomic-keyboard-review-high-quality/"><u>Microsoft Surface Ergonomic Keyboard Review: High-Quality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/reviewing-googles-latest-marvel-the-pixel-6-and-its-photographic-prowess/"><u>Reviewing Google's Latest Marvel - The Pixel 6 and Its Photographic Prowess</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revitalize-your-intel-imac-with-this-detailed-system-improvement-guide/"><u>Revitalize Your Intel iMac With This Detailed System Improvement Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/scrutinizing-the-security-of-google-passwords/"><u>Scrutinizing the Security of Google Passwords</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sealocus-oceanfront-silverscreen-slender-design-4k-outdoor-tv-55-unveiled/"><u>Sealocus Oceanfront Silverscreen - Slender Design 4K Outdoor TV (55) Unveiled</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-premier-8-webcams-to-elevate-your-livestreams-for-2024/"><u>[New] Premier 8 Webcams to Elevate Your Livestreams for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-ready-set-edit-transforming-your-tiktok-avatar-and-content-for-2024/"><u>[New] Ready, Set, Edit! Transforming Your TikTok Avatar and Content for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-detailed-study-of-frozen-delights-playback-gadgets/"><u>[Updated] Detailed Study of Frozen Delights Playback Gadgets</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-unveiling-the-premier-android-emulators-for-ps2-games-for-2024/"><u>[Updated] Unveiling the Premier Android Emulators for PS2 Games for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-netgear-c3000-wireless-gigabit-router-is-it-behind-the-times/"><u>Comprehensive Analysis of the Netgear C3000 Wireless Gigabit Router - Is It Behind the Times?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-netgear-orbi-assessment-why-its-a-must-have-for-unmatched-wi-fi-performance/"><u>Comprehensive Netgear Orbi Assessment: Why It's a Must-Have for Unmatched Wi-Fi Performance</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/fundamental-techniques-from-video-links-to-downloaded-audios/"><u>Fundamental Techniques From Video Links to Downloaded Audios</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-apple-ipad-air-4-your-next-best-investment-ipad-pro-alternative-insights/"><u>Is the Apple iPad Air 4 Your Next Best Investment? - iPad Pro Alternative Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-game-changer-how-the-new-cpu-elevates-the-2020-apple-macbook-pro-13-to-unprecedented-heights/"><u>The Game Changer: How the New CPU Elevates the 2020 Apple MacBook Pro 13 to Unprecedented Heights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-testing-the-fitbit-inspire-hr-a-non-stop-health-monitor-for-daily-workouts-reviewed/"><u>Unboxing & Testing the Fitbit Inspire HR – A Non-Stop Health Monitor for Daily Workouts Reviewed</u></a></li>
 </ul></div>
 

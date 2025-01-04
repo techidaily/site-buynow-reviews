@@ -1,7 +1,7 @@
 ---
 title: Flash Into Action with YN560IV Speedy Flash & Manual Control Mastery
-date: 2024-08-10T23:54:12.979Z
-updated: 2024-08-11T23:54:12.979Z
+date: 2024-12-31T17:32:17.440Z
+updated: 2025-01-04T01:36:14.119Z
 categories:
   - BestProducts
 description: This Article Describes Flash Into Action with YN560IV Speedy Flash & Manual Control Mastery
@@ -15,15 +15,6 @@ thumbnail: https://www.lifewire.com/thmb/D3JB0dOJvbzFClasEyEehvWN5c8=/400x300/fi
 
 ## YONGNUO YN560 IV Wireless Flash Speedlite Master
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 ![Yongnuo YN560 IV Wireless Flash Speedlite Master](https://www.lifewire.com/thmb/uk1o4WlK-bsMCk1tgtC5d79QMNM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_3LW4072366-Yongnuo-YN560-1-33b6547cc9014731ab6e144b0613aaef.jpg)
 
 Lifewire / Jonno Hill
@@ -48,10 +39,11 @@ Lifewire / Jonno Hill
 
 ## YONGNUO YN560 IV Wireless Flash Speedlite Master
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![Yongnuo YN560 IV Wireless Flash Speedlite Master](https://www.lifewire.com/thmb/UOD6afkRh-xS-Dh1-iagOeoOSdY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_3LW4072366-Yongnuo-YN560-1-33b6547cc9014731ab6e144b0613aaef.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -76,8 +68,9 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Punching above the price point**
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master features a robust design that doesn’t feel like the manufacturer skimped on build quality — one of our biggest concerns with budget-minded flashes like this. When adjusting the position of the[flash head](https://www.lifewire.com/using-the-dslr-pop-up-flash-492975) through its 90 degrees of vertical and 270 degrees of horizontal range, it felt very solid.
@@ -89,6 +82,10 @@ Lifewire / Jonno Hill
  Finally, on the rear of the device users will see the LCD display and a suite of buttons and indicators, which we will cover in the next section.
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Features & Functionality: Full suite manual control**
 
@@ -110,9 +107,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## **Setup: A lot of reading before use**
 
  Once you unpack your flash and install the four AA batteries, you’re going to want to familiarize yourself with the buttons and menu system a little. The YN560 IV has a lot of functionality, but it doesn’t have the most intuitive interface. The front of the device contains a top row of four buttons (a Light/Music icon, Mode, a Wi-Fi icon, and Zoom). Below this is a charge indicator button marked “PILOT”, a direction pad, and an On/Off button.
@@ -128,18 +122,15 @@ Lifewire / Jonno Hill
  Overall, the YN560 IV gives you a lot of functionality and control, but definitely requires some reading and troubleshooting before you can master the device.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Significant savings for manual users**
 
  Buyers that need a lot of manual control for complex flash setups will be very pleased with what the get for the approximately $60 the YN560 IV costs. It sits at a price that’s a fraction of its TTL-enabled Canon and Nikon counterparts, but twice that of even simpler options. Do you need all the functionality that the YN560 IV offers? Are you willing to troubleshoot a bit with returns to make sure you get good, non-defective units? If the answer to those questions is yes, this is definitely the flash for you.
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Yongnuo YN560 IV Wireless Flash Speedlite Master vs Neewer TT560 Flash Speedlite**
 
  Photographers just starting out (or with significantly less complicated lighting ambitions) might be better served by getting a dead-simple option like the Neewer TT560 Flash Speedlite. It’s a no-fuss option with very few extraneous controls that will be a good starting point for most users, and solid for pros who don’t want more than optical trigger functionality on a flash.
@@ -153,6 +144,10 @@ Lifewire / Jonno Hill
 **Full featured manual flash**
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master may not be a very simple flash, but it packs enough functionality to make a very versatile platform for more aspirational photographers. Buyers that want full manual control and radio transmission without paying an arm and a leg will be more than pleased with what they get.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -183,8 +178,6 @@ Lifewire / Jonno Hill
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -192,4 +185,23 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-maximizing-impact-best-practices-for-corporate-screencast-training/"><u>[New] 2024 Approved Maximizing Impact Best Practices for Corporate Screencast Training</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-harmonizing-visual-narratives-with-live-sounds-for-2024/"><u>[Updated] Harmonizing Visual Narratives with Live Sounds for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-oneplus-nord-ce-3-5g-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your OnePlus Nord CE 3 5G</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/essential-screen-recorders-for-todays-windows-users-for-2024/"><u>Essential Screen Recorders for Today's Windows Users for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/eufy-t8200-analyzed-a-comprehensive-review-of-subscription-free-video-doorbells/"><u>Eufy T8200 Analyzed: A Comprehensive Review of Subscription-Free Video Doorbells</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/generation-4-echo-show-in-depth-analysis-and-improvement-overview/"><u>Generation 4 Echo Show: In-Depth Analysis and Improvement Overview</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Samsung Galaxy M34 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-harnessing-household-light-use-of-outdoor-elements/"><u>In 2024, Harnessing Household Light Use of Outdoor Elements</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-dimensions-for-impressive-videography/"><u>Instagram Dimensions for Impressive Videography</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigate-to-success-with-2024s-ultimate-list-of-online-code-schools/"><u>Navigate to Success with 2024'S Ultimate List of Online Code Schools</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-power-of-galaxys-rc-ford-f-150-trucks-a-reviewers-perspective/"><u>Navigating the Power of Galaxy's RC Ford F-150 Trucks: A Reviewer’s Perspective</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-booking-your-visit-at-the-genius-bar/"><u>Step-by-Step Guide: Booking Your Visit at the Genius Bar</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-manfrotto-befree-traveler-superior-stability/"><u>Ultimate Manfrotto Befree Traveler: Superior Stability</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-best-interactive-online-programming-workshops-of-the-year/"><u>Unveiling the Best Interactive Online Programming Workshops of the Year</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-secrets-in-depth-analysis-and-reviews-of-affordable-6-sheet-amazonbasics-document-destroyer/"><u>Unveiling the Secrets: In-Depth Analysis and Reviews of Affordable 6-Sheet AmazonBasics Document Destroyer</u></a></li>
+<li><a href="https://article-files.techidaily.com/virtual-reality-more-than-meets-the-eye/"><u>Virtual Reality More than Meets the Eye</u></a></li>
+</ul></div>
 

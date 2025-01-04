@@ -1,7 +1,7 @@
 ---
 title: Budget-Friendly Beast - Exploring the Features and Capabilities of the Dell G5 5090 Gaming Desktop
-date: 2024-12-20T19:22:07.724Z
-updated: 2024-12-25T16:50:24.461Z
+date: 2025-01-02T03:35:37.640Z
+updated: 2025-01-03T19:29:36.315Z
 categories:
   - BestProducts
 description: This Article Describes Budget-Friendly Beast - Exploring the Features and Capabilities of the Dell G5 5090 Gaming Desktop
@@ -43,9 +43,17 @@ Lifewire / Jeremy Laukkonen
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Lenovo Tab M10 HD (2nd Gen)
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/nflgcBFiQwDyFecUir_IrCX-Gc4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_HeroSquare-00489478f3e74cb9b38444e2d94ab257.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -80,10 +88,6 @@ Lifewire / Jeremy Laukkonen
 
  I recently unpacked a second-gen Tab M10 HD and used it for about a week for everything from email and web browsing to video conferencing and streaming movies from[apps like Netflix](https://www.lifewire.com/overview-of-the-netflix-streaming-service-1847831) and[HBO Max](https://www.lifewire.com/what-is-hbo-max-how-to-watch-it-4782926) . During my time with the tablet, I tested overall performance, video and audio quality, wireless speeds, and a variety of other factors to see if this budget friendly Android tablet is worth the asking price.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What’s New: Better price, better specs, lower resolution
 
  The first-generation Lenovo Tab M10 hit shelves back in 2019\. It shipped with Android 8.1 and an MSRP just shy of $200\. Right off the top you can see that Lenovo decided to chase a more budget-friendly market segment with the second generation of the hardware.
@@ -107,6 +111,10 @@ Lifewire / Jeremy Laukkonen
  It’s possible that it might work as a charging connector if you bought a second-hand dock, but Lenovo actually ships the two versions of this tablet with different firmware, locking out the extra dock functionality in this version. The bottom line here is that if you want the dock functionality, you need to buy the Smart Tab M10 HD that includes the dock in the box.
 
  The rear of the tablet is mostly featureless, aside from the aforementioned cut-outs. The single rear-facing camera is located in the upper left corner, and that’s about it. Due to the metal construction, it does look and feel more premium than you’d expect from the price.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Display: Looks good, but the resolution could be higher
 
@@ -137,7 +145,7 @@ Lifewire / Jeremy Laukkonen
  These results aren’t very surprising, but they do indicate that you’re unlikely to have that great experience playing complex games on this tablet. If you’re looking for a tablet to run in Google Kids Space, it will run most of those games pretty well. If you’re looking to play anything that’s demanding on a graphics level, keep looking. Even Lenovo’s similarly-equipped Tab M10 FHD Plus performs significantly better in this department.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Productivity: Best suited to basic tasks
@@ -150,10 +158,6 @@ Lifewire / Jeremy Laukkonen
 
 Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Audio: Decent stereo sound with support for Dolby Atmos
 
  The Tab M10 HD includes stereo speakers and supports Dolby Atmos. It isn’t the best-sounding tablet I’ve ever listened to, but it sounds great for a device in this price range. I love that the stereo speakers are situated on opposite sides of the tablet, as that makes for a much improved listening experience compared to devices that put both speakers on one side.
@@ -161,10 +165,6 @@ Lifewire / Jeremy Laukkonen
  The sound lacks bass and sounds a bit tinny, but that’s to be expected. It’s more than loud enough to fill a room, although I preferred to lower it quite a bit for a more pleasant listening experience. I was actually able to watch movies on Netflix before bed without plugging headphones into the audio jack, as I had no trouble making out dialog, and there wasn’t ever any unpleasant distortion.
 
  On the subject of audio and headphones, the Tab M10 HD includes a[built-in FM radio](https://www.lifewire.com/use-fm-radio-on-smartphone-4176272) using your headphones as the antenna. I plugged in my favorite earbuds, loaded up an FM radio app, and I was able to pull down dozens of local FM radio stations with pretty decent reception. This is a feature that isn’t always enabled even when the hardware technically supports it, so it’s a nice little extra you’ll be able to rely on even if your internet goes down.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Network: Good Wi-Fi speeds and an LTE option
 
@@ -181,7 +181,7 @@ Lifewire / Jeremy Laukkonen
  Finally, I took it out into my garage, about 100 feet from the modem, and the speed dropped to 76.4 Mbps. That’s pretty solid performance, and lines up with my experience of being able to stream media wherever I tried anywhere in my house.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Camera: Decent enough for a budget tablet
@@ -190,6 +190,10 @@ Lifewire / Jeremy Laukkonen
 
 ![ Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/QWjGqm3tIOfUaMl-XbAiyNGq3Qs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_04-1ce5df00874d43509815a19be12088ad-889e4f6f68c041b58b9e2d96cd0d9c29.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
  Photos taken with the rear camera are more or less what I’ve come to expect from devices in this price class. Colors tend to look washed out, and uneven light results in parts of a photo being blown out. In anything less than full daylight outdoors, I noticed a whole lot of noise as well.
@@ -197,7 +201,7 @@ Lifewire / Jeremy Laukkonen
  The front camera is even worse, and you probably won’t be uploading any selfies taken with this tablet to your Instagram. I found it to work fine for video calls, but my face was always washed out or blown out depending on the lighting conditions.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Battery: Could be bigger
@@ -209,7 +213,7 @@ Lifewire / Jeremy Laukkonen
  While this isn’t an all-day battery, and you’ll probably have to stick it on the charger every day, six hours is long enough to catch up on your favorite show in bed at night, or keep the kids entertained in the car during a long drive.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Software: Stock Android 10 and Google Kids Space
@@ -217,10 +221,6 @@ Lifewire / Jeremy Laukkonen
  Lenovo doesn’t mess around with stock Android too much, and the Tab M10 HD ships with a very clean, very stock Android 10 experience. It works exactly like you’d expect a stock Android 10 device to work, with the extra apps it forces on you being only the Lenovo Tips app, an FM radio app, and Dolby Atmos.
 
  The biggest news here is that the second gen Tab M10 HD comes with Google Kids Space, which is a great app if you have kids, as it allows you to transform the tablet into a kid-friendly spigot of entertainment. It includes tons of pre-approved apps, books, and videos so you don’t have to worry about curating age-appropriate content. It also integrates with the Google Family Link app, providing you with remote control over screen time limits, bed times, and more.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Price: Hits the right price point for what you get
 
@@ -287,22 +287,22 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-diy-youtube-thumbnails-on-smartphones/"><u>[New] In 2024, DIY YouTube Thumbnails on Smartphones</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-unlocking-the-secrets-of-youtube-video-comments-for-2024/"><u>[New] Unlocking the Secrets of YouTube Video Comments for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ace-your-shoots-with-the-top-ranking-dji-mavic-2-pro-examined-by-experts/"><u>Ace Your Shoots with the Top-Ranking DJI Mavic 2 Pro Examined by Experts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722569101673-affordable-hd-reception-with-amazonbasics-flat-tv-antenna-your-guide-to-cutting-costs-on-broadcast-television/"><u>Affordable HD Reception with AmazonBasics' Flat TV Antenna - Your Guide to Cutting Costs on Broadcast Television</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/apple-enthusiasts-rejoice-the-ultimate-freestyle2-blue-mac-app-review/"><u>Apple Enthusiasts Rejoice: The Ultimate Freestyle2 Blue Mac App Review</u></a></li>
-<li><a href="https://win-ratings.techidaily.com/comment-proteger-et-transferer-votre-systeme-windows-11-vers-une-cle-usb/"><u>Comment Protéger Et Transférer Votre Système Windows 11 Vers Une Clé USB</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-get-the-newest-drivers-for-your-nvidia-geforce-mx150-a-step-by-step-guide-for-windows-users/"><u>How to Get the Newest Drivers for Your NVIDIA GeForce MX150: A Step-by-Step Guide for Windows Users</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/ideal-microphone-logging-software-on-mac-devices-compile-the-best-5/"><u>Ideal Microphone Logging Software on Mac Devices Compile the Best 5</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-asus-rog-phone-8-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Asus ROG Phone 8 Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-navigate-office-tasks-with-voice-recognition-in-microsoft-word/"><u>In 2024, Navigate Office Tasks with Voice Recognition in Microsoft Word</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/kommunikationskunst-10-deutsche-grussformeln-ohne-hallo/"><u>Kommunikationskunst: 10 Deutsche Grußformeln Ohne 'Hallo'</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722677244873-luxury-speedy-flash-for-savvy-shooters-get-yn560iv-discounted/"><u>Luxury Speedy Flash for Savvy Shooters - Get YN560IV Discounted</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/tackling-video-upload-snags-your-pathway-to-success-on-fb-for-2024/"><u>Tackling Video Upload Snags Your Pathway to Success on Fb for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tropico-6-analysis-controlling-a-lush-utopia/"><u>Tropico 6 Analysis: Controlling a Lush Utopia</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-features-of-kooteks-versatile-laptop-cooler-a-detailed-review-for-tech-enthusiasts/"><u>Unpacking the Features of Kootek’s Versatile Laptop Cooler – A Detailed Review for Tech Enthusiasts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-upgraded-samsung-galaxy-watch-active2-superior-connectivity-and-insights/"><u>Unveiling the Upgraded Samsung Galaxy Watch Active2: Superior Connectivity and Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/vintage-gaming-companion-in-depth-review-of-the-nintendo-game-and-watch-super-mario-bros-edition/"><u>Vintage Gaming Companion: In-Depth Review of the Nintendo Game & Watch - Super Mario Bros Edition</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-learn-to-modify-snapchats-audio-effect-in-two-ways/"><u>[New] Learn to Modify Snapchat's Audio Effect in Two Ways</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-epic-zombie-battles-our-favorites-revealed/"><u>[Updated] In 2024, Epic Zombie Battles Our Favorites Revealed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-watch-what-you-liked-no-more-unveiling-yt-deletions-online/"><u>[Updated] Watch What You Liked No More Unveiling YT Deletions Online</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/audible-is-subscribing-essential-discover-the-top-benefits/"><u>Audible: Is Subscribing Essential? Discover the Top Benefits</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/bridging-human-and-machine-potential-this-years-most-promising-ai-tech/"><u>Bridging Human & Machine Potential: This Year's Most Promising AI Tech</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-iphone-15-pro-max-and-samsung-galaxy-s24-ultra-key-features-and-specifications/"><u>Comparing iPhone 15 Pro Max and Samsung Galaxy S24 Ultra: Key Features & Specifications</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/cookiebot-driven-solutions-enhancing-user-experience-with-smart-tracking/"><u>Cookiebot-Driven Solutions: Enhancing User Experience with Smart Tracking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/criacr-bluetooth-fm-transmitter-cp24-review-compact-but-flawed/"><u>Criacr Bluetooth FM Transmitter CP24 Review: Compact but Flawed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-pros-and-cons-of-budget-windows-laptops-with-a-focus-on-hp-stream-14/"><u>Exploring the Pros & Cons of Budget Windows Laptops with a Focus on HP Stream 14</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/1723862834381-get-the-best-deal-just-249-for-a-stunning-34-inch-asus-tuf-curved-monitor-amazon-exclusive/"><u>Get the Best Deal: Just $249 for a Stunning 34-Inch Asus TUF Curved Monitor - Amazon Exclusive</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hero7-black-setting-new-standards-for-professional-action-cameras/"><u>HERO7 Black: Setting New Standards for Professional Action Cameras</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-sculpting-brilliance-a-deep-dive-into-hdr-in-lightroom/"><u>In 2024, Sculpting Brilliance A Deep Dive Into HDR in Lightroom</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pros-and-cons-face-off-samsung-galaxy-s10plus-versus-the-newest-s20-model/"><u>Pros & Cons Face-Off: Samsung Galaxy S10+ Versus the Newest S20 Model</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/pushing-limits-with-vr-which-console-and-controller-fits-best-for-2024/"><u>Pushing Limits with VR Which Console and Controller Fits Best for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/uncover-the-excellence-of-the-owc-mercury-pro-a-top-tier-drive-reviewed/"><u>Uncover the Excellence of the OWC Mercury Pro: A Top-Tier Drive Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-youtube-tv-might-just-be-the-ultimate-streaming-service/"><u>Why YouTube TV Might Just Be the Ultimate Streaming Service</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/wide-top-earners-in-the-streaming-sphere/"><u>Worldwide Top Earners in the Streaming Sphere</u></a></li>
 </ul></div>
 

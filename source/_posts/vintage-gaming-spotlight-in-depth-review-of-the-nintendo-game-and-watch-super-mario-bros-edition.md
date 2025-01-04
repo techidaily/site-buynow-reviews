@@ -1,7 +1,7 @@
 ---
 title: "Vintage Gaming Spotlight: In-Depth Review of the Nintendo Game & Watch - Super Mario Bros Edition"
-date: 2024-08-10T23:55:04.494Z
-updated: 2024-08-11T23:55:04.494Z
+date: 2024-12-28T18:55:18.645Z
+updated: 2025-01-03T21:22:24.115Z
 categories:
   - BestProducts
 description: "This Article Describes Vintage Gaming Spotlight: In-Depth Review of the Nintendo Game & Watch - Super Mario Bros Edition"
@@ -14,11 +14,16 @@ thumbnail: https://thmb.techidaily.com/9e54865f3f57ec57dc69d69631538169245afb52f
 4.5
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Nintendo Game & Watch: Super Mario Bros
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/CbS7qDMrVVuRiuPL-4w-ip5Ked0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_HeroSquare-c0176be04bfb4d83b2f7724b1332c18b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -43,9 +48,6 @@ Lifewire / Emily Isaacs
 
 ## Nintendo Game & Watch: Super Mario Bros
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/Gqz0Wb1wB-1ecipbSoEbqeuT3EU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_HeroSquare-c0176be04bfb4d83b2f7724b1332c18b.jpg)
 
 Lifewire / Emily Isaacs
@@ -71,9 +73,6 @@ Lifewire / Emily Isaacs
 
  What better way to celebrate both of their birthdays than by bringing both titles together for a self-contained wombo-combo celebrating their 40th and 35th anniversaries respectively? I put the handheld to the test for three weeks.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## Design: Retro, bold look & feel
 
  From the moment you pick up and pop open the box, the design oozes old-school cool and nostalgia. It’s a special edition release—and it feels like it. Intentionally stylized black and gold packaging, which resembles the retro feel of the 1980s Game & Watch classic titles, is a familiar and warm return to an era.
@@ -84,10 +83,11 @@ Lifewire / Emily Isaacs
 
  The screen itself is tiny, measuring barely over two inches in length, but the bright LCD screen makes it easy to see Mario or Luigi clearly while playing. While the controls are a bit small, it's not wholly unexpected for a Nintendo Game & Watch product.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/RGM_gLdIp2jvsVG5LhRKLVw0nho=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_04-f94be735a5644020b52656e67a6c0465.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -99,11 +99,12 @@ Lifewire / Emily Isaacs
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/IzTLcGKhslJLE9YpMMkMKBV1BME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_03-5ca824e25f85464a83c9187541b0f059.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Emily Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Gameplay: Challenging, but fun
 
  The Game & Watch: Super Mario Bros. is preloaded with Super Mario Bros., Super Mario Bros. 2 (also known as The Lost Levels), and Ball_,_ the foremost title in the Game & Watch series. Also included are 35 hidden interactions, which make the standard Watch mode a joy as well.
@@ -122,10 +123,11 @@ Lifewire / Emily Isaacs
 
  At loud tonnes, the Game & Watch does have a bit of wobble, but it just adds to the tension as you race through the levels to beat the game.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/PvTcnsQLDp7SFCPIeHreGfS-dgM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_05-01b731a5406d4cbfa37be90277c6e89b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -133,10 +135,11 @@ Lifewire / Emily Isaacs
 
  Thanks to the Game & Watch’s lovely, classic retro design, sturdy frame, crisp and clear LCD screen, and great game content, retailing for only $50, the Nintendo Game & Watch: Super Mario Bros. is a great value for the price. We just wish there were more games included, especially as other similar classic releases such as the SNES mini have seen as many as 30 titles included with its launch.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/Te3HyEg18zLT9zKT-eZuFtev8So=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_02-6af770f871344e16ad3f45320d46d52a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -162,9 +165,6 @@ Lifewire / Emily Isaacs
 * [Xbox One X](https://www.lifewire.com/xbox-one-x-review-4707143)
 * [PlayStation 4 Pro](https://www.lifewire.com/playstation-4-pro-review-4707193)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Game & Watch: Super Mario Bros.
@@ -187,8 +187,6 @@ Lifewire / Emily Isaacs
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -196,4 +194,19 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-undercover-audio-gems-top-6-non-public-mobile-voice-capturers/"><u>[New] 2024 Approved Undercover Audio Gems Top 6 Non-Public Mobile Voice Capturers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-what-are-the-different-versions-of-windows-movie-maker/"><u>[New] In 2024, What Are the Different Versions of Windows Movie Maker?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-ultimate-guide-securely-integrating-tiktok-profile-links/"><u>[New] Ultimate Guide Securely Integrating TikTok Profile Links</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-a-beginners-guide-to-customizing-your-instagram-snapshonscape/"><u>2024 Approved A Beginner's Guide to Customizing Your Instagram Snapshonscape</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/compact-car-revive-options-2024-edition/"><u>Compact Car Revive Options, 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-ergodriven-topo-mat-a-revolutionary-anti-fatigue-solution-for-your-workspace/"><u>Comprehensive Analysis of the ErgoDriven Topo Mat - A Revolutionary Anti-Fatigue Solution for Your Workspace</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-overview-of-the-netgear-wireless-range-extender-ac120amplifies-your-internet-experience-ex6200/"><u>Comprehensive Overview of the Netgear Wireless Range Extender AC120amplifies Your Internet Experience (EX6200)</u></a></li>
+<li><a href="https://games-able.techidaily.com/how-to-nab-the-early-bird-spidey-edition/"><u>How to Nab the Early Bird Spidey Edition</u></a></li>
+<li><a href="https://win-dash.techidaily.com/improve-game-play-using-updated-drivers-for-nvidias-geforce-rtx-2080-ti-gpu/"><u>Improve Game Play Using Updated Drivers for NVIDIA's GeForce RTX 2080 Ti GPU</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-the-50-must-try-virtual-bikes-for-riders/"><u>In 2024, The 50 Must-Try Virtual Bikes for Riders</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-electronics-with-toms-detailed-hardware-explorations/"><u>Mastering Electronics with Tom's Detailed Hardware Explorations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-verdict-on-microsoft-surface-duo-an-expensive-device-marred-by-flaws/"><u>The Verdict on Microsoft Surface Duo: An Expensive Device Marred by Flaws</u></a></li>
+</ul></div>
 

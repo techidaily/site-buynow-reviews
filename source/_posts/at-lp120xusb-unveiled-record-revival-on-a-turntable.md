@@ -1,7 +1,7 @@
 ---
 title: "AT-LP120XUSB Unveiled: Record Revival on a Turntable"
-date: 2024-08-15T09:32:53.679Z
-updated: 2024-08-16T09:32:53.679Z
+date: 2025-01-01T17:30:13.252Z
+updated: 2025-01-03T22:00:23.157Z
 categories:
   - BestProducts
 description: "This Article Describes AT-LP120XUSB Unveiled: Record Revival on a Turntable"
@@ -44,6 +44,10 @@ Lifewire / Jeff Dojillo
 
 ![GoPro HERO7 Black](https://www.lifewire.com/thmb/GYZOA14ZRWOM3tJzi8ZbmTTASe8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4158963-1-2553e26bad2246dea19f86f8fb2c3714.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Jeff Dojillo
 
 [View On Amazon $374](https://www.amazon.com/dp/B07GDGZCCH?tag=lifewire-onsite-prod-20&ascsubtag=4705929%7Cnde50fad4b8a24784badd8dc01044b4ab22%7CB07GDGZCCH) [View On Best Buy $250](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6283807.p) [View On Musiciansfriend.com](https://www.musiciansfriend.com/pro-audio/gopro-hero7-black/l43176000000000?slfpid=3)
@@ -76,8 +80,9 @@ Lifewire / Jeff Dojillo
  Lifewire / Jeff Dojillo
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Classic action camera design**
 
  The GoPro HERO7 Black measures in at 2.4 x 1.3 x 1.8 inches, so it’s super compact and almost a cube. The device is all black with a very nice rubber casing around the unit that makes it feel soft to the touch.
@@ -102,9 +107,6 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Sensor: Small but mighty**
 
  The GoPro HERO7 Black boasts a 1/2.3-inch 12-megapixel sensor that is built for action. The new and improved image processor now has the ability to stabilize footage through electronic image stabilization technology called HyperSmooth. This feature works by tracking unwanted motion in your videos and algorithmically correcting shake. It makes your footage impressively stable even when filming handheld or while riding on rough terrain.
@@ -116,6 +118,10 @@ Lifewire / Jeff Dojillo
 ## **Lens: Great for video**
 
  The fixed lens on the GoPro HERO7 Black shoots wide or in SuperView mode, the latter of which is an extra-wide field of view and can sometimes give a kind of distorted fisheye effect to your footage. This distortion can be frustrating, but there are ways to work around it during editing, including using video editing software to correct. And when shooting at a lower resolution, the camera can shoot with a linear field of view which reduces the distortion of the lens. The SuperView is not available when shooting in a 4:3 aspect ratio.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Video Quality: Amazing 4K quality with variable frame rates**
 
@@ -140,17 +146,9 @@ Lifewire / Jeff Dojillo
  But generally speaking, the GoPro HERO7 Black is not a camera known for its stunning photographs—it is known for its stunning video capabilities. It’s not for someone that wants to use it specifically for still photographs.
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Sound Quality: Sensitive to the touch**
 
  The GoPro HERO7 Black’s microphones are sensitive and record ambient noise easily. The microphones are located on the body of the camera and any slight touch becomes audible in your video. When taking some handheld footage, we accidentally covered up the microphones with our fingers, which caused the audio to sound muffled in our video.
@@ -163,9 +161,6 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Connectivity: Speedy Wi-Fi and Bluetooth pairing**
 
  Wifi and Bluetooth connectivity is a breeze with the GoPro HERO7 Black. Once we installed the GoPro app on our smartphone, the camera connected instantly. The app also gave us a much larger and easier-to-read interface, plus a live view function that allowed us to use our phone to frame and compose videos and remotely control the camera.
@@ -173,8 +168,9 @@ Lifewire / Jeff Dojillo
  Inside the app, there are also options to edit mode settings, change the original set up, review camera info, changed Wi-Fi remotes, as well as monitor the battery level and[SD card](https://www.lifewire.com/how-to-format-sd-card-camera-4587017) capacity. It also makes it easier to review footage and images that the camera captures.
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Battery Life: High-res video drains it quickly**
 
  When recording 4K video at 60 fps, the HERO7 Black’s battery only lasts about 50 minutes, so if you’re going to be shooting all day, it would be smart to have a few extra batteries available.
@@ -189,9 +185,6 @@ Lifewire / Jeff Dojillo
 
  The portability of the GoPro HERO7 Black is perfect for adventurers, filmmakers, and vloggers that need a rugged and compact camera to create content on the go.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Competition: Less rugged, but better with still photography**
 
 **_Canon PowerShot G7 X Mark II:_** The Canon PowerShot G7 X Mark II retails for $700, and though it usually sells for between $600 and $650, it’s still considerably more expensive than the GoPro HERO7 Black. For those who are considering the GoPro as a vlogging camera, the PowerShot is another great option. It records video at 1080p rather than 4K, but it has a larger 20.3-megapixel sensor and a 180-degree articulating LCD touchscreen display that’s perfect for self-recording.
@@ -215,18 +208,15 @@ Lifewire / Jeff Dojillo
  Between the amazing video quality and the enhanced HyperSmooth electronic image stabilization, the GoPro HERO7 Black is perfect for adventurers who want to record or even live-stream their most rugged expeditions. It produces beautiful videos with enhanced color and sharpness and is small enough to wear or mount somewhere without it getting in the way.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [AKASO EK7000 Pro 4K Action Camera](https://www.lifewire.com/akaso-ek7000-pro-4k-action-camera-review-4770265)
 * [Canon PowerShot G7 X Mark II](https://www.lifewire.com/canon-powershot-g7-x-mark-ii-review-4706895)
 * [Sony DSC-W800](https://www.lifewire.com/sony-dsc-w800-review-4589510)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  HERO7 Black
@@ -249,8 +239,6 @@ Lifewire / Jeff Dojillo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -258,4 +246,19 @@ Lifewire / Jeff Dojillo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-what-makes-virtual-reality-headsets-unique/"><u>[New] 2024 Approved What Makes Virtual Reality Headsets Unique?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nhance-engagement-with-these-essential-freegame-hashtags-for-youtube-for-2024/"><u>[New] Enhance Engagement with These Essential FreeGame Hashtags for YouTube for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/avoiding-motion-illusions-tips-for-vr-users/"><u>Avoiding Motion Illusions Tips for VR Users</u></a></li>
+<li><a href="https://win-great.techidaily.com/exploring-new-windows-11-feature-hidden-auto-backup-to-onedrive-revealed-cnet-news/"><u>Exploring New Windows 11 Feature: Hidden Auto-Backup to OneDrive Revealed | CNET News</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixes-for-disappeared-desktop-icon-problems-in-windows-11-users/"><u>Fixes for Disappeared Desktop Icon Problems in Windows 11 Users</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/guide-to-saving-youtube-content-as-mp4avi-for-playstation-portable-psp-viewing/"><u>Guide to Saving YouTube Content as MP4/AVI for PlayStation Portable (PSP) Viewing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/prioritizing-what-matters-five-critical-aspects-when-buying-your-first-activity-tracker/"><u>Prioritizing What Matters: Five Critical Aspects When Buying Your First Activity Tracker</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-essential-guide-to-the-new-gen-3-echo-dot-with-alexa-features-and-functionality-explored/"><u>The Essential Guide to the New Gen 3 Echo Dot with Alexa: Features and Functionality Explored</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-timeless-journey-continues-insightful-analysis-of-ratchet-and-clanks-latest-installment/"><u>The Timeless Journey Continues: Insightful Analysis of 'Ratchet & Clank's Latest Installment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-nvidia-shield-tv-pro-top-tier-entertainment-for-hardcore-gamers/"><u>Unveiling the Nvidia Shield TV Pro: Top-Tier Entertainment for Hardcore Gamers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-ultimate-phone-apple-iphone-xs-max-a-comprehensive-assessment/"><u>Unveiling the Ultimate Phone: Apple iPhone XS Max - A Comprehensive Assessment</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/wiederherstellung-geloschter-daten-mit-der-eingabeaufforderung-erfahren-sie-wie-es-geht/"><u>Wiederherstellung Gelöschter Daten Mit Der Eingabeaufforderung - Erfahren Sie, Wie Es Geht</u></a></li>
+</ul></div>
 

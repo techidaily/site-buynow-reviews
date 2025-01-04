@@ -1,7 +1,7 @@
 ---
 title: "Expert Analysis on the Budget Champion: TP-Link Archer C80 Below $100 Wireless Review"
-date: 2024-12-09T21:22:11.210Z
-updated: 2024-12-16T17:54:01.912Z
+date: 2024-12-28T00:16:56.633Z
+updated: 2025-01-03T23:00:17.218Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Analysis on the Budget Champion: TP-Link Archer C80 Below $100 Wireless Review"
@@ -45,6 +45,10 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/o0LkMzwRLq9UDT8tBDJerDIsp8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
@@ -77,7 +81,7 @@ Lifewire / Erika Rawes
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/Ep4Dk2l5q44AgM0S3cs9My3AE3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_03-a367c45b39474785856cb986e82c88dc.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -96,10 +100,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Network Performance: Fast speeds, No USB port**
 
  Although this is a low to mid-tier level device, I was quite impressed with its speed and performance. I live in a suburb about 20 minutes away from Raleigh, NC, and I have Spectrum as my internet service provider. The Wi-Fi speeds in my home max out at 400 Mbps. I have a smart box that sits in a utility closet where the router connects. I mounted the router on the wall in that closet, which has a solid door that acts as an immediate signal obstruction. In spite of the presence of this solid door, I was still able to get between 340 and 350 Mbps all throughout the entire downstairs (on the 5GHz band). On the 2.4GHz band, I could get up to 90Mbps all throughout the first floor and in my garage.
@@ -108,17 +108,21 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Range: Even better than advertised**
 
  TP-Link advertises the C80 as a router for three-bedroom homes. However, that estimate understates the router’s range capabilities. My home is a two-story, 3,000 square-foot residence with five-bedrooms, and I was able to maintain a stable Wi-Fi connection in every corner. Every closet, bathroom, and bedroom got a steady signal, and I experienced no dead zones whatsoever. Even in the garage, front yard, and backyard, the signal remained strong. It was only when I attempted to use multiple gaming and streaming devices at one time that I experienced any sort of lag.
 
  Every closet, bathroom, and bedroom maintained a signal, and I experienced no dead zones whatsoever.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: TP-Link Tether app**
 
@@ -131,7 +135,7 @@ Lifewire / Erika Rawes
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -149,10 +153,6 @@ Lifewire / Erika Rawes
 **Fast speeds and an exceptionally long range.**
 
  Even though it lacks a USB port, the Archer C80 puts out impressive speeds over a long range in homes with light to medium networking capacity. For homes that have several people streaming, gaming, and working on cloud applications, they’ll want something more high octane.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -189,17 +189,16 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-fotor-pro-advanced-workflow/"><u>[New] Fotor Pro Advanced Workflow</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-smart-way-to-combine-igtv-with-stories/"><u>[New] In 2024, The Smart Way to Combine IGTV with Stories</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-discover-the-power-of-mycam-recording-features/"><u>[Updated] Discover the Power of MyCam Recording Features</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-influence-of-immersive-technology/"><u>[Updated] In 2024, The Influence of Immersive Technology</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/behind-the-funny-lines-an-overview-of-elgoegs-unique-mirror-domain/"><u>Behind the Funny Lines: An Overview of elgoeG's Unique Mirror Domain</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/choose-wisely-a-focus-on-7-important-aspects-of-motherboards/"><u>Choose Wisely: A Focus on 7 Important Aspects of Motherboards</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/elevate-content-creation-with-ipublish-innovative-tools-for-digital-publishers/"><u>Elevate Content Creation with IPublish: Innovative Tools for Digital Publishers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enhancing-outdoor-connectivity-with-the-netgear-orbi-rbs50y-in-depth-analysis-and-review/"><u>Enhancing Outdoor Connectivity with the Netgear Orbi RBS50Y - In-Depth Analysis and Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/master-your-photography-no-cost-multiplatform-darkroom-software-lightzone-for-all-users/"><u>Master Your Photography: No Cost, Multiplatform Darkroom Software (Lightzone) for All Users</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/premium-aural-accessories-for-screen-entertainment/"><u>Premium Aural Accessories for Screen Entertainment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-review-crisp-conversations-with-the-midland-gxt1000vp4-unit/"><u>Top Review: Crisp Conversations with the Midland GXT1000VP4 Unit</u></a></li>
-<li><a href="https://extra-information.techidaily.com/top-ranked-motors-the-quintessential-guide-to-flight-mastery/"><u>Top-Ranked Motors The Quintessential Guide to Flight Mastery</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-sunset-to-silhouette-adobe-guide/"><u>[Updated] Sunset to Silhouette Adobe Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expand-and-strengthen-home-internet-with-the-netgear-nighthawk-x6s-router-range-extender/"><u>Expand and Strengthen Home Internet with the Netgear Nighthawk X6S Router Range Extender</u></a></li>
+<li><a href="https://driver-error.techidaily.com/expert-tips-for-diagnosing-and-repairing-the-dll-rpc-server-process-failure-on-windows-vista-and-7/"><u>Expert Tips for Diagnosing and Repairing the 'DLL RPC Server Process' Failure on Windows Vista & 7</u></a></li>
+<li><a href="https://extra-information.techidaily.com/exploring-the-realm-of-video-production-obs-and-free-luts/"><u>Exploring the Realm of Video Production OBS & Free LUTs</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Lava Agni 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-pre-owned-ipad-market-a-buyers-checklist-of-5-key-points/"><u>Navigating the Pre-Owned iPad Market: A Buyer’s Checklist of 5 Key Points</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/prime-filmmaker-forecasts-group/"><u>Prime Filmmaker Forecasts Group</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-ups-power-solutions-ultimate-protection/"><u>Top-Rated UPS Power Solutions: Ultimate Protection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tp-link-archer-c9-review-a-favorite-budget-router/"><u>TP-Link Archer C9 Review: A Favorite Budget Router</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/vivo-y100-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Vivo Y100 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
 </ul></div>
 

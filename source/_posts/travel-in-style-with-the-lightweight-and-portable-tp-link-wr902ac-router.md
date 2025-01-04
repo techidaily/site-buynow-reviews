@@ -1,7 +1,7 @@
 ---
 title: Travel in Style with the Lightweight and Portable TP-Link WR902AC Router
-date: 2024-12-18T19:26:06.037Z
-updated: 2024-12-25T18:07:48.139Z
+date: 2024-12-29T03:32:03.331Z
+updated: 2025-01-03T17:13:59.390Z
 categories:
   - BestProducts
 description: This Article Describes Travel in Style with the Lightweight and Portable TP-Link WR902AC Router
@@ -19,7 +19,7 @@ thumbnail: https://www.lifewire.com/thmb/22WjFUPJyfDyoiQncgDsnN0FJoQ=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## DBPOWER 600A Peak 18000mAh Portable Car Jump Starter
@@ -52,6 +52,10 @@ thumbnail: https://www.lifewire.com/thmb/22WjFUPJyfDyoiQncgDsnN0FJoQ=/400x300/fi
 
 ![600A Peak 18000mAh Portable Car Jump Starter](https://www.lifewire.com/thmb/lCHc739SU7lyQkMIbG0aNWYsqy8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DBPower_JumpStarter_5LW4140286_HeroSquare-4defda07335a4d7bafb41bb20cacee2f.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Tony Mitera
 
 [View On EBay](https://www.ebay.com/p/1372623471)
@@ -75,10 +79,6 @@ thumbnail: https://www.lifewire.com/thmb/22WjFUPJyfDyoiQncgDsnN0FJoQ=/400x300/fi
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: A rugged brick of power contained within its own nice case**
 
  The unit and all its accessories are contained within a semi-hard case with a relatively durable zipper holding the two sides of the case together. One side contains the unit itself within a foam insert, and the other is an elastic mesh pouch for all the accessories. The idea here is that you can keep the case stashed in your trunk or under a seat and have everything you need.
@@ -90,7 +90,7 @@ thumbnail: https://www.lifewire.com/thmb/22WjFUPJyfDyoiQncgDsnN0FJoQ=/400x300/fi
  The accessory kit contains a wall charger and a 12V port charger for the unit, a DC cable, and a variety of ends to allow for charging a laptop. The jumper cables sprout from a module that plugs into a specific port on the unit and terminate in your standard clamps. The module itself has a status light that illuminates to indicate the unit’s readiness to jump start the car.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: The cables are short but easy to use**
@@ -100,10 +100,6 @@ thumbnail: https://www.lifewire.com/thmb/22WjFUPJyfDyoiQncgDsnN0FJoQ=/400x300/fi
 It's a breeze using the 600A to jump start a car.
 
  If it’s other devices that need power, you simply need to turn the unit on and then plug them into the appropriate port. For a laptop, that means you must pick the correct adapter, use the power button to switch the unit to the right power mode for your laptop, and plug it into the DC power port. For a phone or other USB device you pretty much just need to pick one of the two ports and plug in, though the smart port provides better amperage and faster charging.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Immediate power to get you back on the road**
 
@@ -129,6 +125,10 @@ It packs a ton of value into its diminutive size.
 
  You can find this model available online for between $70 and $75, and at that price point it packs a ton of value into its diminutive size. There are other units that are a little less expensive, but generally at the expense of some features or included accessories.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Competition: Splitting hairs on what features matter most to you**
 
 **_Beatit BT-D11:_** The two units are so similar in their design and production that it really boils down to one question: How important is charging your laptop to you? If it’s worth the extra $10, stick with the DBPOWER 600A. If not, you can pick up the Beatit BT-D11 for a bit less money and otherwise get a strikingly similar unit.
@@ -144,7 +144,7 @@ It packs a ton of value into its diminutive size.
  It’s worth looking at other jump starters to see what they offer, but the DBPOWER 600A Peak 18000mAh Portable Car Jump Starter does everything that it's designed for quite well, is reliable and durable, and comes in a semi-hard case that you can easily stash in just about any vehicle.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -178,22 +178,21 @@ It packs a ton of value into its diminutive size.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-become-a-viral-sensation-maximizing-your-youtube-reach/"><u>[New] Become a Viral Sensation Maximizing Your YouTube Reach</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-unveiling-5-compelling-literary-video-tts/"><u>[New] In 2024, Unveiling 5 Compelling Literary Video TTs</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-seamless-snapshots-mobile-tripods-for-iphones-androids/"><u>2024 Approved Seamless Snapshots Mobile Tripods for iPhones, Androids</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-nokia-105-classic-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Nokia 105 Classic</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-tech-on-the-go-amazon-fire-hd-8-8th-gen-features-and-value-insights/"><u>Affordable Tech on the Go: Amazon Fire HD 8 (8Th Gen) Features and Value Insights.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/audiopure-pd-301-audiophiles-favorite-cd-player/"><u>AudioPure PD-301: Audiophile's Favorite CD Player</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-conscious-pet-owners-rejoice-petcubes-affordable-hd-cam/"><u>Budget-Conscious Pet Owners Rejoice - Petcube’s Affordable HD Cam</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/choosing-your-ideal-ipad-our-comprehensive-comparison-chart-explained/"><u>Choosing Your Ideal iPad? Our Comprehensive Comparison Chart Explained</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-apple-iphone-12-evaluation-why-its-the-superior-choice-this-year/"><u>Comprehensive Apple iPhone 12 Evaluation - Why It's the Superior Choice This Year</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-asus-rog-gt-ac5300-adapter-analysis-the-ideal-choice-for-gamers-and-technology-buffs/"><u>Comprehensive Asus ROG GT-AC5300 Adapter Analysis: The Ideal Choice for Gamers & Technology Buffs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722707245661-ddpai-mini3-revealed-how-this-dashcam-is-shaking-up-the-norm-with-fun/"><u>DDpai Mini3 Revealed: How This Dashcam Is Shaking Up the Norm with Fun!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-highest-quality-iphone-extras-and-enhancements/"><u>Discover the Highest Quality iPhone Extras and Enhancements</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On ZTE Blade A73 5G? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/effortless-hd-video-conversion-made-easy-upload-movies-and-videos-to-ios-devices-with-winx-mediamaker-for-macos/"><u>Effortless HD Video Conversion Made Easy: Upload Movies and Videos to iOS Devices with WinX MediaMaker for MacOS</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-to-fix-osetupdll-not-found-or-missing-errors/"><u>How to Fix Osetup.dll Not Found or Missing Errors</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-oneplus-11-5g-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your OnePlus 11 5G Device</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-in-pursuit-of-quality-sound-capture-on-a-budget-ultimate-guide-to-free-voice-recorders-for-the-year-2024/"><u>Updated In Pursuit of Quality Sound Capture on a Budget - Ultimate Guide to Free Voice Recorders for the Year 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-seamless-addition-youtube-videos-into-google-slides/"><u>[New] In 2024, Seamless Addition YouTube Videos Into Google Slides</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-stardew-value-maximized-top-7-customization-excellence/"><u>[New] In 2024, Stardew Value Maximized Top 7 Customization Excellence</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-the-path-to-artistic-expression-discover-free-tools-for-voice-modification/"><u>[New] In 2024, The Path to Artistic Expression – Discover Free Tools for Voice Modification</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-premier-live-streaming-platforms-revealed-for-2024/"><u>[New] Premier Live Streaming Platforms Revealed for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-constructing-an-inspirational-tiktok-end-screen/"><u>[Updated] Constructing An Inspirational TikTok End Screen</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-secure-and-share-your-live-sounds-5-proven-online-approaches/"><u>[Updated] Secure & Share Your Live Sounds - 5 Proven Online Approaches</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-between-iphone-and-samsung-a-comprehensive-guide-on-which-smartphone-suits-you-best/"><u>Choosing Between iPhone and Samsung: A Comprehensive Guide on Which Smartphone Suits You Best</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-reviews-leading-external-data-storage-devices/"><u>Expert Reviews: Leading External Data Storage Devices</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-on-apple-iphone-15-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock On Apple iPhone 15 Online</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-competition-unveiled-twitchs-clash-with-youtube/"><u>In 2024, The Competition Unveiled Twitch's Clash with YouTube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-the-reliability-of-the-halo-bolt-multi-functional-chargerjump-starter-unleashed/"><u>In-Depth Review: The Reliability of the Halo Bolt Multi-Functional Charger/Jump Starter Unleashed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/microsoft-surface-go-analysis-an-economical-tablet-with-a-contradictory-self-image/"><u>Microsoft Surface Go Analysis: An Economical Tablet with a Contradictory Self-Image</u></a></li>
+<li><a href="https://app-tips.techidaily.com/navigating-hybrid-cloud-intricacies-with-cutting-edge-features-of-red-hats-latest-enterprise-linux-distribution/"><u>Navigating Hybrid Cloud Intricacies with Cutting-Edge Features of Red Hat's Latest Enterprise Linux Distribution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/neewer-tt560-seamless-shutter-speed-mastery/"><u>Neewer TT560: Seamless Shutter Speed Mastery</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/outdoor-networking-made-easy-with-the-netgear-orbi-rbs50y-a-thorough-assessment/"><u>Outdoor Networking Made Easy with the Netgear Orbi RBS50Y - A Thorough Assessment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/power-meets-style-delving-into-the-durable-battery-features-of-motorolas-newest-offering-the-moto-g-power/"><u>Power Meets Style: Delving Into the Durable Battery Features of Motorola's Newest Offering, The Moto G Power</u></a></li>
 </ul></div>
 

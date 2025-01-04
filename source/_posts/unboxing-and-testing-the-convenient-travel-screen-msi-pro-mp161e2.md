@@ -1,7 +1,7 @@
 ---
 title: Unboxing and Testing the Convenient Travel Screen - MSI PRO MP161E2
-date: 2024-08-15T09:32:24.684Z
-updated: 2024-08-16T09:32:24.684Z
+date: 2025-01-03T01:29:25.131Z
+updated: 2025-01-04T03:31:21.473Z
 categories:
   - BestProducts
 description: This Article Describes Unboxing and Testing the Convenient Travel Screen - MSI PRO MP161E2
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/1J0Vm7sbVC-MensEPmh2LK7-GAw=/400x300/fi
 ## Experience Optimal Performance with the Sabrent Mini Travel Mouse - A Blend of Precision and Reliable Cables
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Sabrent Mini Travel USB Optical Mouse
 
@@ -72,9 +76,6 @@ Lifewire / Rebecca Isaacs
  It’s important to keep in mind that this is a wired, ergonomic mouse that relies on a USB port connection. So while it doesn’t require any batteries, it can be problematic if you need more than 25 inches the cable provides. The cable itself expands with a gentle pull of the cable from its own mini-port, and is easily retractable with a tug on each side of the cable. Just be careful when retracting it, as it is similar to a window shade in that it retracts with near-violent gusto.
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/E-UHv94vEiLyLkgwTG1qIFE6uvQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_04-76e4b475ca3f4449a746c22f3713f784.jpg)
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -85,15 +86,13 @@ Lifewire / Rebecca Isaacs
  Setting up the Sabrent proved simple and convenient. Expanding the cable and plugging it into the PC’s USB port allows the Sabrent to self-install. In under less than a minute, the plug and play features kick in. If you need to alter it to suit ambidextrous needs, you’ll need to head into the control panel of your PC to make the swap. Those requiring left-handed features will need to alter it. Once the software quickly installs, and you’re able to begin scrolling in no time.
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/mM3uSf3Y2pyayDyWJzP8_5uUya4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_05-04e025144b514674b109e77f79129d74.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Precise, but mildly problematic**
 
  The Sabrent boasts that it’s a high precision mini mouse, and in that regard, we have to agree. While 1200 dpi is minimal in comparison to some of the other heavy-hitting mice on the market, this mouse wasn’t designed to be used as a gaming mouse—it was designed in mind that you could take it and pack it on the go and get the job done.
@@ -101,9 +100,6 @@ Lifewire / Rebecca Isaacs
  After using it for over 25 hours, the precision blew us away; even the smallest twitch of the mouse registered movement on the PC and[laptop](https://www.lifewire.com/computer-and-laptop-reviews-4102643) we tested it across. Not once did we have to reclick on an item because the Sabrent failed to register the movement, proving that the cable was of speedy and accurate benefit to the mouse. The speed of the mouse highlighted its precision, darting across the monitor screens as we shifted the mouse instantaneously.
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/ZAK9csfHFEKVkNFSzE-Knbqabgs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_03-c6a7b875505642c69218c2c6c3449e50.jpg)
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -114,15 +110,17 @@ Lifewire / Rebecca Isaacs
  The cable length left something to be desired in a work PC, however. At 25 inches, it sounds like a dream come true, however, testing it on a standing desk where the PC tower is located further away from the keyboard and mouse we realized there was a problem. The length cable prevented us from shifting our grip on the mouse, and the tugging was a frustrating physical constraint. Laptop users won’t even notice the cable, but PC users may want to look for something a little more wireless.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Comfort: Too small**
 
  Because the mouse is so tiny, and barely fit into the palm of our hand, we constantly had to adjust our fingers to compensate for its size. Granted, we used the mouse for up to eight hours at a time in testing, and our muscles didn’t tire out and hands didn’t cramp, which was a testament to the ergonomic design. However, constantly having to shift our grip to press buttons and scroll was mildly annoying, especially when we were deeply engaged in work.
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/h8ibsbPtDqgJOD0XgpZSD6FOXUU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_02-1331828bbc3f460baebd85cbd24d61e2.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -145,6 +143,10 @@ Lifewire / Rebecca Isaacs
 
  While we constantly had to shift our grip on the tiny Sabrent mouse, we really liked its portability and fast, accurate movements. The cable proved to be difficult for desktop use, however, laptop users will enjoy the speeds that accompany the wired cable.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Mini Travel USB Optical Mouse
@@ -157,14 +159,11 @@ Lifewire / Rebecca Isaacs
 * Compatibility  Windows 2000 and up, Mac OS X and up, Linux systems
 * Connectivity options  USB Port, NOT Bluetooth Enabled
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,4 +172,19 @@ Lifewire / Rebecca Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-art-of-looking-back-unveiling-reversed-images-on-social-media/"><u>[Updated] 2024 Approved The Art of Looking Back Unveiling Reversed Images on Social Media</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-videotoaudiotweeter-direct-output/"><u>[Updated] VideoToAudioTweeter Direct Output</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/boost-your-development-with-these-wsl-2-secrets/"><u>Boost Your Development with These WSL 2 Secrets</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-why-the-motorola-one-hyper-is-topping-charts-as-an-impressive-mid-tier-phone/"><u>Discover Why The Motorola One Hyper Is Topping Charts as an Impressive Mid-Tier Phone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-protective-power-and-performance-pace-of-the-cat-s42-smartphone/"><u>Evaluating the Protective Power and Performance Pace of the CAT S42 Smartphone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-top-15-virtual-classrooms-for-aspiring-scientists/"><u>In 2024, Top 15 Virtual Classrooms for Aspiring Scientists</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-the-world-of-ipads-a-detailed-model-comparison-guide/"><u>Inside the World of iPads: A Detailed Model Comparison Guide</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/insiders-guide-to-diagnosing-and-fixing-system-stability-problems-due-to-improper-grounding-in-computers-2024-edition/"><u>Insider's Guide to Diagnosing and Fixing System Stability Problems Due to Improper Grounding in Computers - 2024 Edition</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/locating-your-macbooks-serial-and-model-identifiers/"><u>Locating Your MacBook's Serial and Model Identifiers</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/precision-pc-analysis-with-toms-hardware-experts/"><u>Precision PC Analysis with Tom's Hardware Experts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/protect-your-iphone-from-malware-the-top-six-cybersecurity-apps-you-need/"><u>Protect Your iPhone From Malware: The Top Six Cybersecurity Apps You Need</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-s10e-analysis-affordable-yet-striking-performance/"><u>Samsung Galaxy S10e Analysis: Affordable Yet Striking Performance</u></a></li>
+</ul></div>
 

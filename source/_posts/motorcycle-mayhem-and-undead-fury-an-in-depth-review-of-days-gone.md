@@ -1,7 +1,7 @@
 ---
 title: "Motorcycle Mayhem & Undead Fury: An In-Depth Review of Days Gone"
-date: 2024-12-24T19:08:00.434Z
-updated: 2024-12-25T19:13:07.373Z
+date: 2025-01-01T20:13:40.228Z
+updated: 2025-01-03T20:44:01.892Z
 categories:
   - BestProducts
 description: "This Article Describes Motorcycle Mayhem & Undead Fury: An In-Depth Review of Days Gone"
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/b50fe0cbd9cbb19ed8809a46e26fef3c1e35eecf8
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/keJ5E0aZJqydWO0ehe3iUZ1hYB8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Amazon-Echo-Dot-4th-Generation-1-fc73a047312d4d588ffcbeae7bdd3368.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -46,17 +46,9 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Amazon Echo Dot (4th Gen)
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/wkHXB7KTws9HfL-i1yYYsWIMm5w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Amazon-Echo-Dot-4th-Generation-1-fc73a047312d4d588ffcbeae7bdd3368.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -81,7 +73,7 @@ Lifewire / Erika Rawes
  Amazon’s[Echo](https://www.lifewire.com/what-is-the-amazon-echo-4147189) Dot has become a go-to option for those looking for a compact and affordable smart speaker. The brand has now released a 4th generation of its[Echo Dot](https://www.lifewire.com/amazon-dot-4149509) , and the new version has a totally different look than its predecessors. What else is new and different about the Echo Dot (4th Gen)? How does the new Dot perform? I tested the Echo Dot (4th Gen) to find out.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: A completely new look**
@@ -110,7 +102,15 @@ Lifewire / Erika Rawes
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/dVUkRuy5SxFHmCHXxSseZY5tjhw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-3-320d298cdb18405d9d326c272464ef0d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Sound Quality: A front-firing speaker**
 
@@ -130,6 +130,10 @@ Lifewire / Erika Rawes
 
  The Echo Dot (4th Gen) is powered by[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) . The Alexa voice assistant on the new Echo Dot is the same Alexa that you get on the Echo Dot (3rd Gen). You’ll be able to control your smart devices, listen to music, hear the news, set routines, shop, manage your schedule, and do all of the same things you could do before.[Alexa is always learning new skills](https://www.lifewire.com/alexa-skills-4126799) though. Amazon announced new Alexa features (coming soon) like Care Hub, which is a free feature that lets you check in on loved ones.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Echo Dot (4th Gen) With Clock: A Design Game Changer**
 
  The Echo Dot (4th Gen) comes in two other iterations: The Echo Dot (4th Gen) with Clock and the Echo Dot (4th Gen) Kids Edition. I tested the “with clock” iteration as a part of this review, but I did not test the kids model.
@@ -137,10 +141,6 @@ Lifewire / Erika Rawes
  I was blown away by the Echo Dot (4th Gen) With Clock. It’s the same device (internally) as the regular Echo Dot (4th Gen), but it has an LED display on the front of the speaker. Doesn’t sound like much, right?
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/bnVMEDjyf8t4zDkpRwr4-5msD2s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-7-with-Clock-9b93a56f3d0049c5a2064cd4b21c7cb5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -150,15 +150,15 @@ Lifewire / Erika Rawes
 
  I like the Echo Dot (4th Gen) with Clock better than the regular Echo Dot (4th Gen), as the regular version feels like it’s missing something.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: $60 with clock, $50 without**
 
  The Echo Dot (4th Gen) retails for $50, and for $10 more, you can pick up the “with clock” version. The clock is very much worth it simply because the device looks so much better with it (aside from the obvious added functionality), and for first-time buyers, the default model is definitely worth $50\. It looks great, sounds good, and provides an affordable way to access Alexa and control your smart home.
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/fdW9QpFUSBjNMTYTGdjFggaOH9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-5-Comparison-6841e2f32a734282b509976489bd0383.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -204,20 +204,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-premier-filmmakers-digital-backdrop-changer-for-2024/"><u>[New] Premier Filmmaker's Digital Backdrop Changer for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-mastering-metadata-the-power-of-accurate-video-tags/"><u>2024 Approved Mastering Metadata The Power of Accurate Video Tags</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-high-speed-routers-unveiled-in-depth-review-of-tp-links-archer-c80-under-100/"><u>Affordable High-Speed Routers Unveiled: In-Depth Review of TP-Link's Archer C80 Under $100</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-portable-ultrabook-showdown-your-guide-to-the-microsoft-surface-laptop-go/"><u>Affordable, Portable Ultrabook Showdown - Your Guide to the Microsoft Surface Laptop Go</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazon-fire-tv-cube-analysis-unveiling-the-ultimate-speedy-media-streamer/"><u>Amazon Fire TV Cube Analysis: Unveiling the Ultimate Speedy Media Streamer</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/before-you-invest-in-a-new-game-console-a-checklist-of-5-key-aspects/"><u>Before You Invest in a New Game Console: A Checklist of 5 Key Aspects</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/benefits-of-hulu-a-must-watch-list-top-5/"><u>Benefits of Hulu - A Must-Watch List, Top 5</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/can-you-supercharge-a-laptops-processor-power/"><u>Can You Supercharge a Laptop's Processor Power?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/vating-call-to-action-designing-a-dynamic-subscribe-buttons-with-filmora-for-2024/"><u>Captivating Call-to-Action Designing a Dynamic Subscribe Buttons with Filmora for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/cookiebot-elevating-website-engagement-through-smart-cookies-and-ai-driven-insights/"><u>Cookiebot: Elevating Website Engagement Through Smart Cookies & AI-Driven Insights</u></a></li>
-<li><a href="https://fox-search.techidaily.com/identifying-your-printer-model-a-guide-by-yl-software/"><u>Identifying Your Printer Model: A Guide by YL Software</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/invisible-viewers-of-fb-episodes-for-2024/"><u>Invisible Viewers of Fb Episodes for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/mastering-thumbnail-creation-a-step-by-step-guide/"><u>Mastering Thumbnail Creation A Step-by-Step Guide</u></a></li>
-<li><a href="https://win-info.techidaily.com/securing-windows-10-files-four-techniques-for-uploading-to-external-storage-devices/"><u>Securing Windows 10 Files: Four Techniques for Uploading to External Storage Devices</u></a></li>
-<li><a href="https://windows11.techidaily.com/troubleshooting-windows-bar-icon-disappearance/"><u>Troubleshooting Windows Bar Icon Disappearance</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-alternative-game-capture-software-no-more-fbx-dependence-for-2024/"><u>[Updated] Alternative Game Capture Software No More FBX Dependence for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-elevate-your-live-streaming-expert-camrecorder-guidance/"><u>[Updated] In 2024, Elevate Your Live Streaming Expert CamRecorder Guidance</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-twitch-time-warp-strategies/"><u>2024 Approved Twitch Time Warp Strategies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/beyond-greatness-dissecting-the-new-era-of-smartwatches-with-apple-watch-series-4/"><u>Beyond Greatness - Dissecting the New Era of Smartwatches with Apple Watch Series #4</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/cook-up-clashes-top-10-tiktok-food-faceoffs-for-2024/"><u>Cook-Up Clashes Top 10 TikTok Food Faceoffs for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/excellence-in-penmanship-8-screenplay-classics-for-2024/"><u>Excellence in Penmanship 8 Screenplay Classics for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-motorola-moto-g84-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-fix-ghost-touch-on-an-iphone-10-potential-fixes-to-try/"><u>How to Fix Ghost Touch on an iPhone: 10 Potential Fixes to Try</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-se-2022-to-others-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone SE (2022) To Others devices? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leap-to-the-future-win7-to-win11-guide/"><u>Leap to the Future: Win7 to Win11 Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-review-the-powerhouse-netgear-nighthawk-x10-ad7200-router-delivers-lightning-fast-wi-fi-connectivity/"><u>Top Review: The Powerhouse Netgear Nighthawk X10 (AD7200) Router Delivers Lightning Fast Wi-Fi Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-evaluation-of-the-stylish-and-swift-swagtron-swagger-electric-scooter/"><u>Ultimate Evaluation of the Stylish and Swift Swagtron Swagger Electric Scooter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-apple-ipad-pro-11-screen-201e-top-tablet-picks-for-tech-enthusiasts/"><u>Ultimate Guide: Apple iPad Pro (11 Screen) 201E - Top Tablet Picks for Tech Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-pure-audio-top-earbuds-no-wires-yet/"><u>Unleashing Pure Audio: Top Earbuds, No Wires Yet?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-secrets-to-a-high-quality-pc-for-gamers/"><u>Unlocking the Secrets to a High-Quality PC for Gamers</u></a></li>
 </ul></div>
 

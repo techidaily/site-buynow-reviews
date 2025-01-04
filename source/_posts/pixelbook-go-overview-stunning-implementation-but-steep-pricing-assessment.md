@@ -1,7 +1,7 @@
 ---
 title: "Pixelbook Go Overview: Stunning Implementation but Steep Pricing Assessment"
-date: 2024-12-19T16:16:26.284Z
-updated: 2024-12-25T18:50:35.363Z
+date: 2025-01-01T02:14:11.109Z
+updated: 2025-01-04T03:08:21.579Z
 categories:
   - BestProducts
 description: "This Article Describes Pixelbook Go Overview: Stunning Implementation but Steep Pricing Assessment"
@@ -45,7 +45,7 @@ Lifewire / Andrew Hayward
 4.5
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## ASUS Chromebook Flip C302CA-DHM4
@@ -81,6 +81,10 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/3Q2pRvweVt3Gf6RfBaAwQ15QBag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_bottom_04-1508a99e93e94312a9477c6ec5c15022.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 ## **Design and Features: It’s flippin’ nice**
@@ -109,10 +113,6 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Display: Small, but strong**
 
  As mentioned, the Chromebook Flip’s 12.5-inch, 1080p screen is a little smaller than you’ll see on some rivals, but that doesn’t take away from its usability. It’s colorful and nicely vibrant, and text and graphics typically look crisp. It’s not one of the brightest screens we’ve seen, with a listed brightness of about 300 nits, but that’s pretty common amongst laptops. It’s a little dimmer than we’d like, admittedly. Visibility is impacted in direct sunlight, but in most situations, it’s hard to complain too much about this screen.
@@ -120,7 +120,7 @@ Lifewire / Andrew Hayward
  It also acts like an extra-large tablet screen since it’s a touchscreen with 10 points of interaction. It felt just as responsive as any tablet we’ve used.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: It does what it can**
@@ -140,7 +140,7 @@ Lifewire / Andrew Hayward
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Audio: Sounds fine**
@@ -152,7 +152,7 @@ Lifewire / Andrew Hayward
  The Chromebook Flip has dual-band Wi-Fi that can connect to both 2.4Ghz and 5Ghz networks, and we had no issues with either during our testing. We went online at a home network and a Starbucks Google network alike, and things were routinely speedy. On the home network, we saw speeds of about 33Mbps and upload speeds in excess of 10Mbps—essentially the same as we’ve seen with[other laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) and[smartphones](https://www.lifewire.com/best-smartphones-4043781) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Battery: Nearly a day’s worth**
@@ -164,10 +164,6 @@ Lifewire / Andrew Hayward
  Our laptop video rundown test, which streams a Netflix movie over Wi-Fi while at 100 percent brightness, delivered a similar result: it lasted 6 hours, 57 minutes before the Chromebook Flip shut down. In both use cases, we were pleasantly surprised by the battery performance of the device—it even beat the 2018 MacBook Air.
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/VR5Y-1tDILHowNSeA408pnLVtgg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_closed_04-bde5ec8f988c4bb49e4019f95cc47c31.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -183,10 +179,6 @@ Lifewire / Andrew Hayward
 
  Luckily, the Chromebook’s reputation as an online-only device isn’t true. For example, Google Docs can be used offline, you can view and edit photos, watch locally-stored media, and play games that don’t require an online connection. It’s really not that different in approach to other PCs, but the overall feel and flow of the experience varies in some key ways.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: It feels like a steal**
 
  Here’s where the Asus Chromebook Flip really makes its biggest impact. As mentioned, it’s a capable computer for most everyday tasks, it has a very good screen, and the battery life is stellar. Best of all, it’s priced at $499, although you can find it for a little bit less (we’re seeing it around $400-450 lately). There are cheaper Chromebooks out there that skimp on features and functionality, such as skipping the convertible hinge or touch functionality, or using a lower-end processor. You can spend a lot less and still get a solid laptop.
@@ -194,6 +186,10 @@ Lifewire / Andrew Hayward
  But the Chromebook Flip offers an ideal middle ground between quality and price in the Chromebook department—and compared to rival laptops like the MacBook Air or Microsoft Surface Laptop 2, you’ll save a huge amount of money while still being able to complete a wide array of tasks.
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/NHrMPSrgOWsOuCEYg0M-STQUfsU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Air-v-Surface-Comparison-a255967a27e14762b5c2ad9c442df77f.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -210,6 +206,10 @@ Lifewire / Andrew Hayward
  **It’s an excellent, affordable laptop.**
 
  Just as the recent crop of cheap, strong mid-range phones has made many flagship smartphones seem excessive and unnecessary, the Asus Chromebook Flip C302CA does much the same for laptops. This is a seriously impressive and versatile notebook without any major deficiencies, and it’s priced at just $499—less than half the price of the cheapest Apple laptop right now.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -243,16 +243,14 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/etailed-methods-for-seamless-wirecast-livestreams-on-youtube/"><u>[New] Detailed Methods for Seamless WireCast Livestreams on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-unlock-creativity-in-youtube-production-an-intro-to-wmm/"><u>2024 Approved Unlock Creativity in YouTube Production An Intro to WMM</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96375389-9780996308878-9ruby-prince-of-abyssinia/"><u>9Ruby Prince Of Abyssinia | Free Book</u></a></li>
-<li><a href="https://common-error.techidaily.com/expert-hacks-resolving-latency-problems-in-fallout-4-for-a-smoother-experience/"><u>Expert Hacks: Resolving Latency Problems in Fallout 4 for a Smoother Experience</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-restore-a-missing-windows-update-service-on-windows/"><u>How to Restore a Missing Windows Update Service on Windows</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-visual-ventures-partnership-playbook/"><u>In 2024, Visual Ventures Partnership Playbook</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-evaluation-why-alienware-aurora-r11-is-top-gaming-machine-in-202nce/"><u>Ultimate Evaluation: Why Alienware Aurora R11 Is Top Gaming Machine in 202Nce</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unihertz-atom-xl-analysis-the-compact-yet-durable-smartphone-sensation/"><u>Unihertz Atom XL Analysis - The Compact Yet Durable Smartphone Sensation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleash-your-senses-2024s-top-headphones-reviewed/"><u>Unleash Your Senses: 2024'S Top Headphones Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleashing-potential-in-depth-review-of-the-user-friendly-clearstream-eclipse-antenna/"><u>Unleashing Potential: In-Depth Review of the User-Friendly ClearStream Eclipse Antenna</u></a></li>
-<li><a href="https://win11.techidaily.com/vigorously-vault-into-victory-new-folders-in-win11/"><u>Vigorously Vault Into Victory: New Folders in Win11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-evolution-the-disappearance-of-episodic-gaming/"><u>Exploring the Evolution: The Disappearance of Episodic Gaming</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-possibilities-of-live-content-on-your-nintendo-switch-console/"><u>Exploring the Possibilities of Live Content on Your Nintendo Switch Console</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-rise-of-gaming-on-video-platforms-and-news-websites-understanding-the-trend/"><u>Exploring the Rise of Gaming on Video Platforms & News Websites: Understanding the Trend</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-venu-sports-an-in-depth-look-at-its-potential-launch/"><u>Exploring Venu Sports: An In-Depth Look at Its Potential Launch</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722961292388-immediate-access-to-lexar-usb-drives-secure-your-free-download-today/"><u>Immediate Access to Lexar USB Drives: Secure Your Free Download Today</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-the-atmosphere-leading-windows-11-weather-apps/"><u>Navigating the Atmosphere: Leading Windows 11 Weather Apps</u></a></li>
+<li><a href="https://review-topics.techidaily.com/online-signatures-for-jpg-by-ldigisigner-sign-a-jpg-sign-a-jpg/"><u>Online signatures for JPG</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-guide-to-windows-11-photo-customization-audio-plus-visuals-for-2024/"><u>The Ultimate Guide to Windows 11 Photo Customization Audio + Visuals for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-how-to-add-green-screen-effects-in-phhotoshop/"><u>Updated In 2024, How to Add Green Screen Effects In Phhotoshop</u></a></li>
 </ul></div>
 

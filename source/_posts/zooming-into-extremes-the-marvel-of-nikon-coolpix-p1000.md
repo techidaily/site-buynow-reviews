@@ -1,7 +1,7 @@
 ---
 title: "Zooming Into Extremes: The Marvel of Nikon COOLPIX P1000"
-date: 2024-12-24T18:25:33.213Z
-updated: 2024-12-25T18:30:42.534Z
+date: 2025-01-02T00:14:52.201Z
+updated: 2025-01-03T20:30:36.794Z
 categories:
   - BestProducts
 description: "This Article Describes Zooming Into Extremes: The Marvel of Nikon COOLPIX P1000"
@@ -48,6 +48,10 @@ Lifewire / Andy Zahn
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Andy Zahn
 
 [View On Walmart $562](https://www.walmart.com/ip/Canon-PowerShot-SX70-HS-20-3MP-65x-Optical-Zoom-Digital-Point-Shoot-Camera/773178799?slfpid=3) [View On Adorama.com $699](https://www.adorama.com/icasx70.html) [View On B&H Photo Video $599](https://www.bhphotovideo.com/c/product/1435399-REG/canon%5F3071c001%5Fpowershot%5Fsx70%5Fhs%5Fdigital.html)
@@ -80,10 +84,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -100,11 +100,19 @@ Lifewire / Andy Zahn
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
 
@@ -123,7 +131,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
@@ -157,7 +165,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
@@ -174,10 +182,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -188,19 +192,11 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
 
@@ -223,6 +219,10 @@ Lifewire / Andy Zahn
 * [Panasonic Lumix DC-FZ80](https://www.lifewire.com/panasonic-lumix-dc-fz80-review-4691071)
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -258,21 +258,22 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-superior-choices-in-group-chat-software-for-2024/"><u>[Updated] Superior Choices in Group Chat Software for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-advanced-techniques-for-convincing-ppt-presentations-on-gmeet/"><u>2024 Approved Advanced Techniques for Convincing PPT Presentations on GMeet</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-and-the-path-to-improved-emotional-intelligence/"><u>ChatGPT and the Path to Improved Emotional Intelligence</u></a></li>
-<li><a href="https://win11.techidaily.com/how-to-cure-corrupted-files-issue-error-code-0x80070570-in-windows-11-os/"><u>How to Cure Corrupted Files Issue (Error Code 0X80070570) in Windows 11 OS</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-effortlessly-switch-nat-settings-in-windows-oses/"><u>How to Effortlessly Switch NAT Settings in Windows OSes</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/losungen-fur-das-problem-windows-update-wird-nicht-heruntergeladen-entdecken-sie-6-einfache-methoden/"><u>Lösungen Für Das Problem: Windows-Update Wird Nicht Heruntergeladen - Entdecken Sie 6 Einfache Methoden</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-us-launch-of-the-latest-nick-watch-announced-at-kids-choice-gala/"><u>The U.S Launch of the Latest Nick Watch: Announced at Kids' Choice Gala</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-choosing-a-twelve-south-bookbook-v2-protective-case-for-your-macbook/"><u>The Ultimate Guide to Choosing a Twelve South BookBook V2 Protective Case for Your MacBook</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-ultimate-how-to-for-deleting-mac-programs/"><u>The Ultimate How-To for Deleting Mac Programs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-protector-for-your-macbook-a-comprehensive-review-of-the-innovative-bookbook-v2-by-twelve-south/"><u>The Ultimate Protector for Your MacBook? A Comprehensive Review of the Innovative BookBook V2 by Twelve South</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-5-features-explored-in-the-durable-fujitsu-scansnap-ix1600-desk-scanner/"><u>Top 5 Features Explored in The Durable Fujitsu ScanSnap iX1600 Desk Scanner</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/transforming-living-spaces-the-ultimate-review-of-amazons-latest-echo-show-10-gen-3-with-motion-features/"><u>Transforming Living Spaces: The Ultimate Review of Amazon's Latest Echo Show 10 Gen 3 with Motion Features</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-non-responsive-steam-game-launches-in-windows-11/"><u>Troubleshooting Non-Responsive Steam Game Launches in Windows 11</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-choosing-the-perfect-cable-modem-and-router-setup/"><u>Ultimate Guide to Choosing the Perfect Cable Modem & Router Setup</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-evaluating-the-apple-books-store-and-reading-app/"><u>Ultimate Guide: Evaluating the Apple Books Store and Reading App</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-top-rated-free-webm-video-editing-tools/"><u>Updated Top-Rated Free WebM Video Editing Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-restore-true-identity-on-fb-messages/"><u>[New] 2024 Approved Restore True Identity on FB Messages</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-imovie-sound-design-made-simple/"><u>[New] IMovie Sound Design Made Simple</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/est-jamboree-the-most-entertaining-youtubers-to-watch-for-2024/"><u>[New] Jest Jamboree The Most Entertaining YouTubers to Watch for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-webcam-mastery-choosing-the-best-video-tools/"><u>2024 Approved Webcam Mastery Choosing the Best Video Tools</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/adding-your-companys-logo-as-a-background-image-in-flipbook-with-flipbuilder-guide/"><u>Adding Your Company's Logo As A Background Image In FlipBook With FlipBuilder Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/can-the-fitbit-charge-3-measure-up-in-todays-market/"><u>Can the Fitbit Charge 3 Measure Up in Today's Market?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-smart-doorbells-ring-and-nest-which-one-wins/"><u>Comparing Smart Doorbells: Ring and Nest - Which One Wins?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/critical-factors-assessing-a-used-ipad-before-you-buy/"><u>Critical Factors: Assessing a Used iPad Before You Buy</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/fix-fixed-no-more-obs-camera-issues-for-2024/"><u>Fix Fixed No More OBS Camera Issues for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/important-considerations-for-prospective-unlocked-smartphone-owners/"><u>Important Considerations for Prospective Unlocked Smartphone Owners</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Tecno Spark 10 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/innovative-portable-power-sources-for-cars/"><u>Innovative Portable Power Sources for Cars</u></a></li>
+<li><a href="https://extra-support.techidaily.com/plot-puns-on-pop-culture-for-2024/"><u>Plot Puns on Pop Culture for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-verdict-on-samsungs-best-big-screen-marvel-galaxy-note-9-reviewed/"><u>The Definitive Verdict on Samsung's Best Big-Screen Marvel: Galaxy Note 9 Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-key-factors-to-evaluate-before-investing-in-health-trackers/"><u>The Ultimate Guide: Key Factors to Evaluate Before Investing in Health Trackers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-the-gorgeous-and-adaptable-dell-xps-13-7390-2-in-1-laptop-experience/"><u>The Ultimate Review of the Gorgeous and Adaptable Dell XPS 13 7390 2-in-1 Laptop Experience</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/what-lies-unseen-in-instagram-story-watching-for-2024/"><u>What Lies Unseen in Instagram Story Watching for 2024</u></a></li>
 </ul></div>
 

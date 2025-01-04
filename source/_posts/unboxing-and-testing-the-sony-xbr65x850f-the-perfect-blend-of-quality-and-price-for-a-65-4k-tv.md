@@ -1,7 +1,7 @@
 ---
 title: Unboxing and Testing the Sony XBR65X850F - The Perfect Blend of Quality and Price for a 65 4K TV
-date: 2024-08-10T23:53:41.779Z
-updated: 2024-08-11T23:53:41.779Z
+date: 2024-12-29T16:13:25.382Z
+updated: 2025-01-03T18:20:29.410Z
 categories:
   - BestProducts
 description: This Article Describes Unboxing and Testing the Sony XBR65X850F - The Perfect Blend of Quality and Price for a 65 4K TV
@@ -14,13 +14,11 @@ thumbnail: https://www.lifewire.com/thmb/dNBVHdy7xkx2kDF155mXOYN02CQ=/400x300/fi
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Sabrent Mini Travel USB Optical Mouse
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/NHk2GXtdpeJT9sEET7cl5b3Coq0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_HeroSquare-6ae9d6d299054d748f84492b5c31f033.jpg)
 
 Lifewire / Rebecca Isaacs
@@ -45,11 +43,16 @@ Lifewire / Rebecca Isaacs
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Sabrent Mini Travel USB Optical Mouse
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/XBAevViAWBKn-uqOn_jnTLrfwTw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_HeroSquare-6ae9d6d299054d748f84492b5c31f033.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -72,9 +75,6 @@ Lifewire / Rebecca Isaacs
 
  Working on the go can prove difficult on a laptop, especially when you need to work on heavy-hitting projects requiring precision. Travel mice, or portable computer mice that can be packed and unpacked on the go, can alleviate much of the proverbial headache of working on PC-heavy tasks. For those who prefer their mouse have a cable, the Sabrent fits the bill. Using high definition precision technology, the tiny, three-year-old mouse is designed for those who want convenience and extreme precision in their work.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Basic**
 
  The Sabrent was not designed for heavy gaming in mind; its design is so tiny at 3.2 x 1.5 inches (LW) that it fits into the cup of your palm with some room to spare. Unlike gaming mice, which can be complex, with a plethora of buttons/features, the all-black, 1.5-ounce mouse only has three buttons: the left (main) button, the wheel, and the right button. While this might turn off many users, in reality, it turns out to be of huge benefit. Thanks to its simplicity, ambidextrous users will appreciate its ability to swap between dominant hands.
@@ -98,9 +98,9 @@ Lifewire / Rebecca Isaacs
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Precise, but mildly problematic**
 
  The Sabrent boasts that it’s a high precision mini mouse, and in that regard, we have to agree. While 1200 dpi is minimal in comparison to some of the other heavy-hitting mice on the market, this mouse wasn’t designed to be used as a gaming mouse—it was designed in mind that you could take it and pack it on the go and get the job done.
@@ -121,9 +121,6 @@ Lifewire / Rebecca Isaacs
 
  Because the mouse is so tiny, and barely fit into the palm of our hand, we constantly had to adjust our fingers to compensate for its size. Granted, we used the mouse for up to eight hours at a time in testing, and our muscles didn’t tire out and hands didn’t cramp, which was a testament to the ergonomic design. However, constantly having to shift our grip to press buttons and scroll was mildly annoying, especially when we were deeply engaged in work.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/h8ibsbPtDqgJOD0XgpZSD6FOXUU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_02-1331828bbc3f460baebd85cbd24d61e2.jpg)
 
  Lifewire / Rebecca Isaacs
@@ -133,8 +130,9 @@ Lifewire / Rebecca Isaacs
  At around $7, this is a great budget mouse. Essentially, the cost is for basic mouse features, and not for anything heavier or more taxing on a PC. If you’re looking for a travel mouse with more features, then expect to spend more. However, if accomplishing work tasks is solely your task then this is the perfect price point.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Sabrent Mini Travel Mouse vs. VicTsing Wireless Mouse**
 
  Because the mouse is so tiny, we also tested the[VicTsing Wireless Mouse](https://www.lifewire.com/victsing-wireless-mouse-review-4799129) (view on[Amazon](https://www.amazon.com/VicTsing-Wireless-Portable-Receiver-Adjustable/dp/B013WC0P2A/?tag=lifewire-onsite-prod-20&ascsubtag=4799034%7Cn6493c6f4bf4b471ba05fab7dd162554120%7C) ) to get a feel as to which mouse is the better option for a portable, travel mouse. The answer turned out to be more complicated: whereas the Sabrent was more ideal for ambidextrous travel, the VicTsing Wireless Mouse was geared more for right-handed users who prefer adjustable and wireless features.
@@ -161,14 +159,11 @@ Lifewire / Rebecca Isaacs
 * Compatibility  Windows 2000 and up, Mac OS X and up, Linux systems
 * Connectivity options  USB Port, NOT Bluetooth Enabled
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -177,4 +172,20 @@ Lifewire / Rebecca Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unleash-your-social-media-potential-find-the-best-8-instagram-timers/"><u>[Updated] Unleash Your Social Media Potential Find the Best 8 Instagram Timers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/battle-of-the-green-thumbs-and-brains-the-ultimate-neighborville-game-guide/"><u>Battle of the Green Thumbs and Brains - The Ultimate Neighborville Game Guide.</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722877571670-chromebook-not-responding-try-these-8-troubleshooting-tips/"><u>Chromebook Not Responding? Try These 8 Troubleshooting Tips!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easy-methods-for-converting-and-uploading-dvd-files-from-your-computers-hard-drive-to-youtube-windowsmac/"><u>Easy Methods for Converting & Uploading DVD Files From Your Computer's Hard Drive to YouTube (Windows/Mac)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fitbit-charge-6-review/"><u>Fitbit Charge 6 Review</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-elite-d-class-dungeons-topping-the-list/"><u>In 2024, Elite D-Class Dungeons Topping the List</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On OnePlus Ace 2? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-microsoft-surfaces-top-tier-ergonomic-keyboard/"><u>In-Depth Look at the Microsoft Surface's Top-Tier Ergonomic Keyboard</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-family-safety-routers-the-ultimate-guide-to-the-best-choices/"><u>Leading Family Safety Routers: The Ultimate Guide to the Best Choices</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smart-streaming-showdown-roku-against-fire-tv-stick-which-wins/"><u>Smart Streaming Showdown: Roku Against Fire TV Stick – Which Wins?</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-tutorial-for-installing-amd-radeon-v2410-video-card-drivers/"><u>Step-by-Step Tutorial for Installing AMD Radeon V24.10 Video Card Drivers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-breakdown-of-vyncs-link-tracker-service-dependable-user-monitoring-with-intricate-membership-schemes/"><u>The Breakdown of Vyncs Link Tracker Service: Dependable User Monitoring with Intricate Membership Schemes</u></a></li>
+</ul></div>
 

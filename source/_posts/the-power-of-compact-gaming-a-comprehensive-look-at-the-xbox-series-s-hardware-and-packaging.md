@@ -1,7 +1,7 @@
 ---
 title: The Power of Compact Gaming - A Comprehensive Look at the Xbox Series S Hardware & Packaging.
-date: 2024-08-15T09:32:31.059Z
-updated: 2024-08-16T09:32:31.059Z
+date: 2025-01-03T00:17:18.691Z
+updated: 2025-01-03T22:41:58.700Z
 categories:
   - BestProducts
 description: This Article Describes The Power of Compact Gaming - A Comprehensive Look at the Xbox Series S Hardware & Packaging.
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 ## Fitbit Charge 4 Fitness Tracker
 
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/yo9CS9ZHHalRYthVdaCfit6zr7Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Fitbit-Charge-4-Fitness-Tracker-1-c163fbceed1748a6bd3de7883ab66a4d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Anduy Zahn
 
@@ -42,9 +46,6 @@ Lifewire / Anduy Zahn
 ## Fitbit Charge 4 Fitness Tracker
 
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/3KZYnLSyn9OGGXZdp02JH2_4wB8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Fitbit-Charge-4-Fitness-Tracker-1-c163fbceed1748a6bd3de7883ab66a4d.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Anduy Zahn
 
@@ -76,9 +77,9 @@ Lifewire / Anduy Zahn
  A quick press of the button on the side of the watch takes you back to the clock face or turns it on if it fails to show up automatically when you move your wrist (which does happen, albeit infrequently). Hold the button down and you get access to do not disturb, sleep mode, and other functions, as well as[Fitbit Pay](https://www.lifewire.com/how-to-use-fitbit-pay-4582307) .
 
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/hXje3GJQ1qjDfhBph7Q2s-LKCTE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-4-Fitness-Tracker-4-5fb3fda3d53d4120bfb7c3e1b418abab.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
@@ -89,9 +90,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  After this, it was time to actually pair the Charge 4 to my phone, and after an annoying Squaretrade “Fitbit protection plan” ad, I needed to install an update. While that was downloading I was given a list of first-time user guides. This was useful, with plenty of information about how to use the device, though I would have preferred a printed manual. After the device is up to date, a further set of animated guides showed me the various controls and gestures used to navigate the Charge 4\. Finally, the app had a few product care tips and another annoying ad (this time for a Fitbit Premium account) and was ready to go.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Comfort: A good fit**
 
  As someone with ridiculously large wrists, I really appreciated that the Charge 4 comes with a larger watch band. It was easy to switch out the band by depressing a recessed button on the underside of the watch, and between the two included bands, the Charge 4 should fit just about anyone. I was surprised by just how comfortable this smartwatch was for me; the larger band has plenty of room to spare even on my wrists.
@@ -111,12 +109,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  I didn’t find personalized exercise reminders, the workout intensity map, or exercise tracking to be particularly helpful, but that's very much a matter of personal preference. In terms of navigation and functionality, the Charge 4 functions very well without much in the way of lag, and the interface is easy to navigate. The only problem comes when you get below 20% battery. A power-saving mode kicks in at that point and the functionality of the watch drops significantly. You’ll want to charge it before it gets to this point.
 
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/UlCfm0YzhPSZMR3WWRs3oeCWPsA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-4-Fitness-Tracker-2-6afa07ba83e74effb1bd3521b2b43391-3287de2174dc42359f46f06e6576d80b.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Intuitive but ad infested**
 
@@ -125,15 +123,17 @@ Lifewire / Andy Zahn
  One thing to consider is that some features such as sleep score details and custom challenges are locked behind a steep paywall that will run you $10 a month or $80 per year. It’s pretty easy to set up a subscription like this, never use it, and forget to cancel it until years later when you’ve spent a hefty chunk of change on the service. Annoyingly, the ad for this premium service is permanently affixed to the toolbar in the app.
 
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/wFO4EEqsgPPy2Dq-eUgUTZ1q70A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-4-Fitness-Tracker-3-38e2a0e1ea5a46ee85939b8dec6d6a48.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Battery Life: Awesome, but with caveats**
 
  The Charge 4 lasts about six days on a charge under typical use, which is better than most advanced smartwatches. It charges quickly and most of the time isn’t something you have to worry about.
@@ -143,6 +143,10 @@ Lifewire / Andy Zahn
 ## **Price: Good value**
 
  With an MSRP of $150 the Fitbit Charge 4 is somewhat expensive but fairly priced for a basic smartwatch. However, extra accessories and subscription services can quickly add to the cost.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Fitbit Charge 4 vs. Fossil Sport**
 
@@ -154,9 +158,6 @@ Lifewire / Andy Zahn
 
  I was frankly shocked by how much I have come to like the Fitbit Charge 4\. It’s as functional as it’s good looking, and provides both reasonably accurate fitness tracking and well integrated basic smartwatch functionality. Despite a few minor flaws such as a subscription paywall for some features and battery hogging GPS I can heartily recommend the Charge 4.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Charge 4 Fitness Tracker
@@ -175,8 +176,6 @@ Lifewire / Andy Zahn
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -184,4 +183,21 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-a-deep-dive-into-metaverse-vs-multi-meva-key-differences-explored/"><u>[New] In 2024, A Deep Dive Into Metaverse Vs. Multi-Meva Key Differences Explored</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-efficiently-add-youtube-playlists-to-your-website-interface/"><u>[Updated] In 2024, Efficiently Add YouTube Playlists to Your Website Interface</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/e-enthusiastically-earn-enticingly-the-entrepreneurial-editors-handbook/"><u>Engage Enthusiastically, Earn Enticingly The Entrepreneurial Editor’s Handbook</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-the-issue-resolved-problem-windows-error-code-1067-premature-process-end/"><u>Fixing the Issue: Resolved Problem - Windows Error Code 1#067: Premature Process End</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-oneplus-12-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For OnePlus 12? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-nokia-72-an-exceptional-contender-among-budget-smartphones/"><u>In Depth Look at Nokia 7.2 – An Exceptional Contender Among Budget Smartphones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/iphone-head-to-head-comparison-unpacking-differences-between-iphone-15-plus-and-pro-max/"><u>IPhone Head-to-Head Comparison: Unpacking Differences Between iPhone 15 Plus and Pro Max.</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/mac-enthusiasts-stellars-phoenix-tool-shines-brightly-against-jpeg-scars/"><u>Mac Enthusiasts, Stellar's Phoenix Tool Shines Brightly Against JPEG Scars</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/making-your-iphone-more-eye-friendly-using-the-dark-mode-functionality/"><u>Making Your iPhone More Eye-Friendly: Using the Dark Mode Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-fun-with-djis-robomaster-s1-programming-battle-drones-for-the-next-generation/"><u>Mastering Fun with DJI's RoboMaster S1: Programming Battle Drones for the Next Generation</u></a></li>
+<li><a href="https://extra-information.techidaily.com/meme-design-excellence-guide/"><u>Meme Design Excellence Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/scrutinizing-djis-phantom-3-for-enthusiast-use/"><u>Scrutinizing DJI's Phantom 3 for Enthusiast Use</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smart-savings-with-the-lg-24lh4830-tv-splurge-worthy-features-at-a-wallet-friendly-price/"><u>Smart Savings with the LG 24LH4830 TV – Splurge-Worthy Features at a Wallet-Friendly Price!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-ergonomic-keyboard-picks-for-2n24/"><u>Top Rated Ergonomic Keyboard Picks for 2N24</u></a></li>
+</ul></div>
 

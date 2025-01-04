@@ -1,7 +1,7 @@
 ---
 title: "Top Picks: Sturdy & Portable Kensun Air Compressor – The Ultimate Roadside Companion"
-date: 2024-12-21T18:22:02.715Z
-updated: 2024-12-25T19:18:10.989Z
+date: 2024-12-29T17:20:31.131Z
+updated: 2025-01-04T00:53:13.076Z
 categories:
   - BestProducts
 description: "This Article Describes Top Picks: Sturdy & Portable Kensun Air Compressor – The Ultimate Roadside Companion"
@@ -19,12 +19,16 @@ thumbnail: https://thmb.techidaily.com/770723973e178e7a8930f29e3f500f2a61aa4b3cc
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/NWhMBmuK3pkL9EGvdNCEAF8sWEo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -46,13 +50,13 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -75,10 +79,6 @@ Lifewire / Jeffrey Daniel Chadwick
  The Kensun Portable Tire Inflator made a good showing when we tested it. It gets high marks for accuracy, portability, and convenience, but it does fall down in some areas such as storing the air hose and power cable. Nevertheless, it’s a handy, nifty device that delivers the air you need when you need it.
 
  Lifewire / Jeffrey Daniel Chadwick
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
@@ -109,7 +109,7 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
@@ -136,10 +136,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
  The Kensun Portable Tire Inflator is similar to the Jaco Digital Tire Inflator, they have similar cord and hose lengths, and can continually run for about half an hour. But the Kensun is more than twice the size of the Jaco, so it can deliver more power to fill your tires faster. Additionally, the Jaco lacks the ability to plug into an AC socket, so you can only use it in your car.
@@ -153,6 +149,10 @@ Lifewire / Jeffrey Daniel Chadwick
  **A portable tire inflator that can work well in a car or at home.**
 
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -179,17 +179,20 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-bridging-the-gap-between-classic-and-contemporary-videos/"><u>[New] In 2024, Bridging the Gap Between Classic and Contemporary Videos</u></a></li>
-<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-oppo-a1x-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Oppo A1x 5G | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-honor-play-8t-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Honor Play 8T Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-dichotomy-of-cyberpunk-amoknforevew-a-game-with-glitches-and-greatness/"><u>The Dichotomy of Cyberpunk amoKN_FoRevEw, A Game with Glitches and Greatness</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-corsair-one-pro-innovative-and-sleek-for-serious-gamers/"><u>The Ultimate Guide to the Corsair One Pro: Innovative and Sleek for Serious Gamers</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/top-9-free-custom-youtube-branding-tools-online-for-2024/"><u>Top 9 FREE Custom YouTube Branding Tools Online for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-pick-evaluating-the-reliable-space-saving-j5-tactical-v1-pro-flashlight-for-optimal-low-light-performance/"><u>Top Pick: Evaluating the Reliable, Space-Saving J5 Tactical V1-Pro Flashlight for Optimal Low-Light Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-hp-chromebook-11-analysis-perfectly-balanced-for-learning-productivity-and-entertainment/"><u>Ultimate HP Chromebook 11 Analysis: Perfectly Balanced for Learning, Productivity, and Entertainment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unearthing-pleasure-in-the-world-of-pokemon-shining-pearl/"><u>Unearthing Pleasure in the World of Pokemon Shining Pearl</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/which-is-better-an-in-depth-look-at-google-nest-audio-and-nest-mini-features/"><u>Which Is Better? An In-Depth Look at Google Nest Audio and Nest Mini Features</u></a></li>
-<li><a href="https://win-docs.techidaily.com/1728507388641-windows-pc/"><u>Windows PC檔案重建法：尋回失去的文件指南</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtube-snippet-income-breakdown-whats-your-profit-share-for-2024/"><u>YouTube Snippet Income Breakdown What's Your Profit Share for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-your-photo-archives-new-eden-mix-no-fee-infinite-with-paid-cloud-spaces-for-2024/"><u>[New] Your Photo Archive's New Eden Mix No-Fee Infinite with Paid Cloud Spaces for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-spectacular-imagery-narrative-engine/"><u>[Updated] 2024 Approved Spectacular Imagery Narrative Engine</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-leading-edge-in-game-capture-moving-past-fbx-methods/"><u>[Updated] In 2024, Leading Edge in Game Capture Moving Past FBX Methods</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2023s-finest-mechanical-and-wireless-keyboards-reviewed/"><u>2023'S Finest Mechanical and Wireless Keyboards Reviewed</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-clear-conferencing-backdrops-blurring-for-better-presence/"><u>2024 Approved Clear Conferencing Backdrops Blurring for Better Presence</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expertly-organized-discover-the-ideal-vertical-gpu-holders/"><u>Expertly Organized? Discover the Ideal Vertical GPU Holders!</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-step-by-step-shooting-slow-motion-videos-on-iphone/"><u>In 2024, Step by Step Shooting Slow Motion Videos on iPhone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-pick-premium-laptop-stand-selections/"><u>Leading Pick: Premium Laptop Stand Selections</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/premier-power-supply-units-reviewed-choosing-the-ideal-psu-for-your-system/"><u>Premier Power Supply Units Reviewed: Choosing the Ideal PSU for Your System</u></a></li>
+<li><a href="https://win-docs.techidaily.com/step-by-step-solution-changing-partition-scheme-on-your-usb-flash-failed-attempts/"><u>Step-by-Step Solution: Changing Partition Scheme on Your USB Flash Failed Attempts</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-solving-issues-with-your-left-click-mouse/"><u>Troubleshooting Guide: Solving Issues with Your Left-Click Mouse</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/ultra-rich-viewable-ventures-for-2024/"><u>Ultra-Rich Viewable Ventures for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/weekly-tech-highlights-unveiling-the-latest-windows-laptop-line-up-and-exclusive-insights-into-spotifys-upcoming-strategies/"><u>Weekly Tech Highlights: Unveiling the Latest Windows Laptop Line-Up & Exclusive Insights Into Spotify's Upcoming Strategies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-nintendos-decision-against-integrating-generative-ai-into-their-games-is-beneficial/"><u>Why Nintendo's Decision Against Integrating Generative AI Into Their Games Is Beneficial</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723015755755-windows-10-speaker-problems-heres-how-you-can-fix-them-easily/"><u>Windows 10 Speaker Problems? Here's How You Can Fix Them Easily</u></a></li>
 </ul></div>
 

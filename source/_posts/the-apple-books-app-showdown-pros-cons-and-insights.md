@@ -1,7 +1,7 @@
 ---
 title: "The Apple Books App Showdown: Pros, Cons & Insights"
-date: 2024-12-22T19:24:16.739Z
-updated: 2024-12-25T18:13:39.952Z
+date: 2024-12-27T21:26:20.382Z
+updated: 2025-01-04T00:34:53.684Z
 categories:
   - BestProducts
 description: "This Article Describes The Apple Books App Showdown: Pros, Cons & Insights"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/1822acf0f2845a1ba566d5d10f67d4f8ab3c535b7
 ## Star Wars: Squadrons
 
 ![Star Wars: Squadron](https://www.lifewire.com/thmb/6oS-JFwbIkBnBw9F2JGlg47BvAI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Star-Wars-Squadrons-1-daa1e236365f4a4a8831cce59004223a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -44,13 +48,13 @@ Lifewire / Andy Zahn
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Star Wars: Squadrons
 
 ![Star Wars: Squadron](https://www.lifewire.com/thmb/ymdujoeG8lwdw1L7OD6l0EFi1ug=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Star-Wars-Squadrons-1-daa1e236365f4a4a8831cce59004223a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -81,11 +85,11 @@ Lifewire / Andy Zahn
 
 ![Star Wars: Squadrons](https://www.lifewire.com/thmb/1xt9t7ffMjuv6ggtXGJER_irSnk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Star-Wars-Squadrons-2-fcfb7e9a60e74ce9b42cecff0e2061ed.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Story: Passable, but skip the exposition dumps**
 
@@ -107,6 +111,10 @@ Star Wars: Squadrons is drop-dead gorgeous.
 
  In between story missions you are fixed in place in different rooms, where you click on different characters to talk to them. I found these sequences to be very linear and I found that they tended to drag on. I’d certainly have preferred to be able to walk around rather than teleport between locations on the ship. This is probably due to this game being intended to be played in VR where the fixed positioning makes more sense due to the limitations of VR, but the game would've been well served by separate control schemes. This is a minor gripe; if desired you can just skip through these sequences pretty quickly.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Gameplay: Refined and surprisingly deep**
 
  The real meat of the game is in battle, and it’s an incredibly intense and immersive experience. Whatever system or control method you’re utilizing, there are a lot of different inputs and functions to learn. This would be daunting to newcomers, but the campaign does a great job of gradually introducing new controls and mechanics at a pace that makes them easy to pick up.
@@ -119,10 +127,6 @@ Star Wars: Squadrons is drop-dead gorgeous.
 
 ![Star Wars: Squadrons](https://www.lifewire.com/thmb/COT6eEVvzd6QqCbhmtbP4a_C--Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Star-Wars-Squadrons-6-9d086810906a486b9266ec247e2ab966-3636fb8670644ae98afd0bc57b59df8d.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
 
  The one thing that pulled me out of the game at times was the somewhat wonky ship physics, which make sense from the pilot's seat, but look a bit weird to see from other ships. You can stop quickly and turn on a dime, which benefits gameplay on a technical level, but is a bit jarring and unrealistic to witness.
@@ -130,10 +134,6 @@ Star Wars: Squadrons is drop-dead gorgeous.
  One important aspect of gameplay is how Squadrons balances the fragility of its fighters with creating a fun experience. It does this using shields and repair kits that vary from ship to ship and which can be customized. It walks the fine line between allowing you to mow down enemy fighters without wailing away at them for ages, while also preventing you from feeling like you’re piloting a glass canon.
 
  There’s also ship customization, which allows you to alter various aspects of your aircraft such as armament, hull, and engines to enhance various attributes, though this usually comes at a cost to other capabilities. For example, you can trade speed for extra agility and vice versa. It requires a deep understanding of the ship you’re customizing so you’ll probably want to wait to touch this till you’ve had plenty of practice in battle. There are also cosmetic customizations, such as paint jobs and ornaments. Both gameplay and cosmetic customizations are purchased with separate types of in-game currency.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Graphics: Attention to detail**
 
@@ -149,15 +149,15 @@ Star Wars: Squadrons is drop-dead gorgeous.
 
  With the vast majority of video games, your experience is almost as dependent on what you hear as what you see. In this regard, Squadrons is a masterpiece. This game perfectly replicates the epic feel of classic Star Wars space combat from the laser fire, to the roar of your engines, to the exhilarating whoosh of grazing an asteroid. There’s also the unforgettable John Williams soundtrack, which is fully present here and is just as vital to the experience of the game as it is to the films.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Solid on moderately powerful PCs**
 
  I was able to get consistently high frame rates during gameplay with my custom gaming PC running 32 GB of DDR4 RAM, an AMD Ryzen 7 2700X processor, and an Nvidia RTX 2070 GPU. However, I experienced some odd stuttering in the hanger between missions, which seemed more of a graphical bug than an issue with the power of my PC. I also played Squadrons on a laptop with a less powerful processor, 16GB of RAM, and a Nvidia RTX 2060 Max-Q. The game performed well and provided a smooth gameplay experience at maximum graphical settings.
 
  Dogfights are fast, brutal, and thanks to a wide variation in map design, each match feels remarkably fresh and non-repetitive.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Controls: Wide support for different inputs**
 
@@ -170,20 +170,20 @@ Star Wars: Squadrons is drop-dead gorgeous.
 ![Star Wars: Squadrons](https://www.lifewire.com/thmb/oKG6kRHcFEOz3O6bwL5_SyeUiEM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Star-Wars-Squadrons-4-78947bfe57874d45ae8f401482c3ddf6-379a507c078e44d6898e28d20f53aac9.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
  The other mode features massive large scale multi-stage fleet battles, which require careful team coordination to advance across the battlefield and destroy the enemies’ flagship. It’s a good idea to save this for after you’ve played through most of the campaign, learned the controls, and have tried your hand at a few multiplayer dogfights.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Good value**
 
  With an MSRP of just $40 Star Wars: Squadrons is a surprisingly reasonably priced game that bucks the trend of modern AAA games uniformly releasing for $60 regardless of what content they are able to offer. It’s not the longest game, and there is a limit to end-game multiplayer content, so $40 is pretty much the exact right price for Squadrons. It’s refreshing to see a distinct lack of any extra monetization in the game, with no annoying microtransactions or loot boxes.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Star Wars: Squadrons vs. Elite Dangerous**
 
@@ -218,24 +218,22 @@ Star Wars: Squadrons is drop-dead gorgeous.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-top-50plus-viral-tiktok-tags-for-higher-engagement/"><u>[New] 2024 Approved Top 50+ Viral TikTok Tags for Higher Engagement</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-ranking-the-best-camcorders-review-guide-for-2024/"><u>[New] Ranking the Best Camcorders Review Guide for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Itel A60s | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/acer-chromebook-r-11-an-in-depth-look-at-the-sleek-portable-laptop/"><u>Acer Chromebook R 11: An In-Depth Look at the Sleek, Portable Laptop</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-television-with-amazonbasics-antennas-watch-free-hd-for-less/"><u>Affordable Television with AmazonBasics Antennas: Watch Free HD for Less!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-cpu-performances-how-to-choose-the-right-processor-for-your-tablet/"><u>Best CPU Performances: How To Choose The Right Processor For Your Tablet</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-buys-premium-v770-outlook/"><u>Budget Buys, Premium V770 Outlook</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-bandsmith-sandisks-portable-music-box/"><u>Budget-Friendly Bandsmith - SanDisk's Portable Music Box</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/byb-e430-led-light-fixture-assessment-exceptional-quality-pivot-arm-design/"><u>BYB E430 LED Light Fixture Assessment: Exceptional Quality Pivot Arm Design</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/capture-every-moment-with-ease-and-precision-dive-into-sx70s-zoom-capabilities/"><u>Capture Every Moment with Ease and Precision - Dive Into SX70's Zoom Capabilities!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/cat-s42-resilient-phone-evaluation-unmatched-protection-coupled-with-limited-velocity/"><u>CAT S42 Resilient Phone Evaluation: Unmatched Protection Coupled with Limited Velocity</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-the-taotronics-tt-dl1/"><u>Comprehensive Evaluation of the TaoTronics TT-DL1</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722971115993-effortlessly-update-lenovo-device-power-management-software-here/"><u>Effortlessly Update Lenovo Device Power Management Software Here!</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-vivo-x100-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Vivo X100 Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-13-pro-max-without-swiping-up-6-ways-drfone-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone 13 Pro Max Without Swiping Up? 6 Ways | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6s-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 6s without Passcode or Face ID | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/top-5-free-screen-recorders-on-windows-10-for-2024/"><u>Top 5 Free Screen Recorders on Windows 10 for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/windows-painting-programs-showdown-zero-and-more-dollars/"><u>Windows Painting Programs Showdown Zero and More Dollars</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-professional-screen-snapshot-tool-windows-10/"><u>[New] In 2024, Professional Screen Snapshot Tool, Windows 10</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-navigating-the-filmmakers-dilemma-in-filmora/"><u>[Updated] Navigating the Filmmaker's Dilemma in Filmora</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1-best-live-streaming-solutions-discover-manycam-the-ultimate-virtual-webcam-experience/"><u>1. Best Live Streaming Solutions: Discover ManyCam - The Ultimate Virtual Webcam Experience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-playlist-rearrangement-made-simple/"><u>2024 Approved YouTube Playlist Rearrangement Made Simple</u></a></li>
+<li><a href="https://article-tips.techidaily.com/capture-and-preserve-a-detailed-look-at-7-ways-to-log-webcasts-for-2024/"><u>Capture and Preserve A Detailed Look at 7 Ways to Log Webcasts for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/efficient-iphoneandroid-guide-for-tweets-as-visuals/"><u>Efficient iPhone/Android Guide for Tweets as Visuals</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-the-google-nest-wifi-doorbell-an-in-depth-evaluation/"><u>Experience the Google Nest WiFi Doorbell - An In-Depth Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-samsung-galaxy-a51-5g-top-reviews-and-why-its-a-steal-for-enthusiasts/"><u>Exploring the Samsung Galaxy A51 5G: Top Reviews & Why It's a Steal for Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/get-rich-in-sound-without-spending-big-activbuds-reviewed/"><u>Get Rich in Sound without Spending Big: ActivBuds Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/get-seamless-internet-with-the-miniature-ourlink-u631-wifi-usb-dongle/"><u>Get Seamless Internet with the Miniature Ourlink U631 WiFi USB Dongle</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/harness-free-advanced-raw-photo-processing-tools-in-darktable-perfect-compatibility-with-macos-and-linux-systems/"><u>Harness Free, Advanced RAW Photo Processing Tools in Darktable – Perfect Compatibility with macOS and Linux Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-successfully-advertise-on-your-blog-through-buyselladscom-for-better-profits/"><u>How to Successfully Advertise on Your Blog Through BuySellAds.com for Better Profits</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-realme-narzo-60-pro-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Realme Narzo 60 Pro 5G Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pesticide-action-network-north-america-nd-glyphosate-facts-sheet-retrieved-from-httpswwwpannaorgresearchglyphosate-factsheet/"><u>Pesticide Action Network North America (N.d.). Glyphosate Facts Sheet. Retrieved From https://www.panna.org/research/glyphosate-factsheet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-breakdown-of-moto-g-power-features-high-efficiency-and-extensive-battery-life/"><u>The Ultimate Breakdown of Moto G Power Features: High Efficiency & Extensive Battery Life</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-ultimate-tutorial-for-immersive-iphone-vr-viewing/"><u>The Ultimate Tutorial for Immersive iPhone VR Viewing</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ultimate-step-by-step-tutorial-transforming-dvd-videos-into-wmv-files-with-microsofts-tools/"><u>Ultimate Step-by-Step Tutorial: Transforming DVD Videos Into WMV Files with Microsoft's Tools</u></a></li>
 </ul></div>
 

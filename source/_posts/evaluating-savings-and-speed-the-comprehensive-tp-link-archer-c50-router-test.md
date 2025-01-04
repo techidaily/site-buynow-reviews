@@ -1,7 +1,7 @@
 ---
 title: "Evaluating Savings and Speed: The Comprehensive TP-Link Archer C50 Router Test"
-date: 2024-12-22T18:11:28.431Z
-updated: 2024-12-25T16:16:54.812Z
+date: 2024-12-30T22:33:51.188Z
+updated: 2025-01-03T17:45:56.223Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating Savings and Speed: The Comprehensive TP-Link Archer C50 Router Test"
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/bb71352b27a9f0530f59cc2c36b568ff3e277e8a2
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
@@ -46,13 +46,13 @@ Lifewire / Gannon Burgett
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
 ![Max Oak](https://www.lifewire.com/thmb/0sYGw-7sF6j5aqPA13sWjU-Y2b4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -83,7 +83,7 @@ Lifewire / Gannon Burgett
 ![Max Oak](https://www.lifewire.com/thmb/SHsB9QkFaBbOrU6sw55TzNOqC7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_4Web-5c8ff4adc9e77c0001ff0b36.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
@@ -121,16 +121,12 @@ Lifewire / Gannon Burgett
  Moving onto laptops, our ASUS X555LA was able to be charged four and a half times from 0% with the MaxOak power bank, with an average charge time of three hours or so. The ASUS X555LA has a relatively small battery compared to most laptops, which means it falls in line with MaxOak’s claims that its power bank can charge a laptop two times over give or take a little.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Right down the middle**
 
  The MaxOak 50000mAh power bank comes in at $135.99 at the time of this review. This is a reasonable price when taking into consideration how much battery capacity you're getting with it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: One in the same**
 
@@ -153,6 +149,10 @@ Lifewire / Gannon Burgett
 * [Jackery PowerBar Battery Pack](https://www.lifewire.com/jackery-powerbar-battery-pack-review-4589480)
 * [ChargeTech 27000mAh Battery Pack](https://www.lifewire.com/chargetech-27000mah-battery-pack-review-4589409)
 * [Anker PowerCore+ 26800 Battery Pack Bundle](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -184,18 +184,20 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-maximizing-video-playback-speed-on-facebook-for-2024/"><u>[New] Maximizing Video Playback Speed on Facebook for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-prime-7-multimedia-players-for-macos/"><u>[New] Prime 7 Multimedia Players for MacOS</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-a-guide-to-gathering-creative-themes-using-google-trends/"><u>[Updated] 2024 Approved A Guide to Gathering Creative Themes Using Google Trends</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/apple-macbook-air-m1-2020-how-the-revolutionary-chip-elevates-portability-and-performance-in-a-sleek-13-inch-design/"><u>Apple MacBook Air (M1, 2020): How the Revolutionary Chip Elevates Portability and Performance in a Sleek 13-Inch Design</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-aeious-ny-portable-solar-generator-perfect-pure-sine-wave-power-for-medical-devices/"><u>Comprehensive Review of the Aeious Ny Portable Solar Generator - Perfect Pure Sine Wave Power for Medical Devices</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-turn-off-the-screen-lock-on-my-xiaomi-redmi-note-12-pro-4g-by-drfone-android-unlock-android-unlock/"><u>How to turn off the screen lock on my Xiaomi Redmi Note 12 Pro 4G</u></a></li>
-<li><a href="https://win-great.techidaily.com/impending-crisis-for-microsoft-just-12-months-left-to-resolve-significant-windows-10-challenges-exclusive-zdnet-report/"><u>Impending Crisis for Microsoft: Just 12 Months Left to Resolve Significant Windows 10 Challenges | Exclusive ZDNET Report</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-latvian-like-a-native-a-daily-dedication/"><u>Learn Latvian Like a Native: A Daily Dedication</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ating-creator-studio-your-expert-manual-for-2024/"><u>Navigating Creator Studio Your Expert Manual for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/navigating-the-soundscape-downloading-and-instaling-vrecorder-for-2024/"><u>Navigating the Soundscape Downloading and Instaling VRecorder for 2024</u></a></li>
-<li><a href="https://fox-place.techidaily.com/optimizing-your-website-enhancing-security-with-ssl-configuration/"><u>Optimizing Your Website: Enhancing Security with SSL Configuration</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722488748161-tuning-into-training-discover-how-the-vivoactive-3-enhances-exercise-and-playlists/"><u>Tuning Into Training: Discover How the Vivoactive 3 Enhances Exercise and Playlists</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/zmi-powerpack-20000-unboxed-an-insight-into-its-high-capacity-portable-design/"><u>ZMI PowerPack 20000 Unboxed – An Insight Into Its High-Capacity Portable Design</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-list-of-video-recording-apps-for-iphone-for-2024/"><u>[New] Top List of Video Recording Apps for iPhone for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-leveraging-s2t-technology-in-professional-decks/"><u>[Updated] In 2024, Leveraging S2T Technology in Professional Decks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-complete-cheat-sheet-mastering-googles-voice-transcription-tool/"><u>[Updated] In 2024, The Complete Cheat Sheet Mastering Google's Voice Transcription Tool</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-ideal-interactive-interface-for-podcasters/"><u>2024 Approved Ideal Interactive Interface for Podcasters</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/best-alternatives-to-anime-cruzers-top-11-websites-for-watching-and-downloading-anime/"><u>Best Alternatives to Anime Cruzers: Top 11 Websites for Watching & Downloading Anime</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/eclipse-antenna-from-clearstream-delivers-outstanding-results-with-effortless-setup/"><u>Eclipse Antenna From ClearStream Delivers Outstanding Results with Effortless Setup</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Xiaomi Redmi 13C | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/melhores-praticas-na-formatacao-de-imagens-usando-a-ferramenta-de-corte-do-movavi-guia-completo/"><u>Melhores Práticas Na Formatação De Imagens Usando a Ferramenta De Corte Do Movavi – Guia Completo</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/oneplus-6t-assessment-exceptional-features-meet-fantastic-pricing/"><u>OnePlus 6T Assessment: Exceptional Features Meet Fantastic Pricing</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/optimized-visual-quality-black-bar-and-box-frame-for-social-media-posts/"><u>Optimized Visual Quality Black Bar & Box Frame for Social Media Posts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/secure-your-entryway-like-never-before-with-the-ring-video-doorbell-2/"><u>Secure Your Entryway Like Never Before with the Ring Video Doorbell 2</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-complete-review-of-linksys-ac1900-max-stream-router-your-all-inclusive-home-networking-companion/"><u>The Complete Review of Linksys AC1900 Max-Stream Router: Your All-Inclusive Home Networking Companion</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-legacy-an-in-depth-review-of-the-latest-standard-in-wearos-20-from-lg/"><u>Unboxing the Legacy: An In-Depth Review of the Latest Standard in WearOS 2.0 From LG</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-full-potential-of-minecraft-an-ultimate-exploration-of-this-beloved-sandbox-game-for-players-of-every-age-group/"><u>Unlocking the Full Potential of Minecraft: An Ultimate Exploration of This Beloved Sandbox Game for Players of Every Age Group</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-best-smart-home-security-devices-ring-video/"><u>Unveiling the Best Smart Home Security Devices: Ring Video</u></a></li>
 </ul></div>
 

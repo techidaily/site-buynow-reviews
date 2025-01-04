@@ -1,7 +1,7 @@
 ---
 title: "Review of the Netgear Powerline AC1200: A Heavier Build, but at What Cost to Performance?"
-date: 2024-08-15T09:32:16.648Z
-updated: 2024-08-16T09:32:16.648Z
+date: 2024-12-30T23:13:45.227Z
+updated: 2025-01-04T00:21:05.534Z
 categories:
   - BestProducts
 description: "This Article Describes Review of the Netgear Powerline AC1200: A Heavier Build, but at What Cost to Performance?"
@@ -40,8 +40,9 @@ Lifewire / Erika Rawes
 4.3
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## TP-Link Archer A9 AC1900 Smart Wireless Router
 
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/aMRk3dxCpK74Zcn9NCYLlSncVTA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_HeroSquare-05a827c48b274d8e9ccd0070e770f4d4.jpg)
@@ -67,8 +68,9 @@ Lifewire / Erika Rawes
  The TP-Link Archer A9 is one of the brand’s[more popular routers](https://www.lifewire.com/best-long-range-routers-4122554) because of the features it offers at a low price point. With technologies like[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) compatibility and[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , the Archer A9 should be convenient and project a Wi-Fi signal over a long range. These days, with more and more households containing home offices, multiple streaming devices, and several smart home products, how does the Archer A9 hold up? I tested the TP-Link Archer A9 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Basic, but clever**
 
  There’s nothing striking about the design of the Archer A9\. It’s gloss black, with indicator lights on the front and the ports, power switch, WPS button, and antennas located in the back. The gloss finish fingerprints and smudges easily, so I would have rather seen a matte finish, but the A9 has an intelligent design otherwise. The branding is small—not tacky or obtrusive—and the A9’s venting is cleverly designed. Instead of just having vent holes conspicuously covering the device, it has recesses that segment the router into three portions and hide the venting. The venting recesses look purposeful, and they enhance A9’s aesthetic instead of taking away from the design.
@@ -82,8 +84,9 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Connectivity: Dual Band AC1900**
 
  The Archer A9 is a[dual-band](https://www.lifewire.com/dual-band-wireless-networking-explained-818279) AC1900 router, so speeds max out at 1300 Mbps over the 5Ghz band and 600 Mbps over the 2.4 Ghz band. Setting up the networks was fast and easy, and I had my 5 Ghz and my 2.4 Ghz networks set up within five minutes using the companion app.
@@ -100,6 +103,10 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/FTFFrgOH8v5VhGXgjmzgjTUMPNA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_03-ec9553f0029b4f2fba363745ab7b9778.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Network Performance: Not bad**
@@ -108,35 +115,11 @@ Lifewire / Erika Rawes
 
  In the same room as the router, speeds were excellent (naturally), getting up to 352 Mbps on the 5 Ghz band and 76 Mbps on the 2.4 Ghz band. I traveled upstairs, and speeds clocked in at a respectable 124 Mbps on the 5Ghz band and 36 Mbps over 2.4 Ghz. The signal remained strong almost everywhere in my two-level home, even in areas like closets, and many other places that could conceivably be Wi-Fi dead zones. However, I experienced a few slow zones in my garage, and in a guest room located on the opposite side of the home. I also experienced a spotty connection in the yard. The signal degraded significantly around the home’s exterior, so if you like to use your devices outside, you’ll want to invest in a[Wi-Fi extender](https://www.lifewire.com/best-wifi-extenders-4043312) , or go with a different router entirely.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Range: Around 2,000 square feet (give or take)**
 
  I didn’t see an exact range for the Archer A9 in the spec sheet, but I was able to get coverage in just about every area of my 3,000 square foot home. This is not to say the range is 3,000 square feet, as several factors like the type and number of devices you have, wall thickness, obstructions, your ISP, and other factors can all impact the signal quality and range. Generally speaking, it’s safe to say the A9 could probably cover at least a 2,000 square foot house.
 
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/yosOFzPzSpoghULMfbOuUFI5_E0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_06-94b9a314d8d24a37a7b4c90c7962e8a4.jpg)
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -150,9 +133,6 @@ Lifewire / Erika Rawes
 
  You can say things like, “Alexa, ask TP-Link to enable guest network” or “Alexa, ask TP-Link to prioritize gaming.”
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ## **Price: Under $100**
 
  The Archer A9 sells on Amazon for under $100\. For a router with its feature set, this is an exceptional value.
@@ -162,8 +142,9 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **TP-Link Archer A9 vs. Netgear AC2300 Nighthawk Smart Wi-Fi Router**
 
  The Netgear AC2300 router is a simultaneous dual-band router with advertised speeds of 1625/600 Mbps. The AC2300 has two USB ports (one USB 2.0 and one USB 3.0) instead of just one USB port like the Archer A9, and it has a 1Ghz dual-core processor. The two routers have some differences, but they also boast a lot of similar features—MU-MIMO, smart connect, Alexa compatibility, and a companion app. The Netgear AC2300 (view on[Amazon](https://www.amazon.com/R7000P-100NAS-Nighthawk-Ethernet-Compatible-Parental/dp/B01NA80JML/?tag=lifewire-onsite-prod-20&ascsubtag=5076937%7Cn2952d2b5973949d990fe5b789fed97f118%7C) ) is more expensive, with a price tag of $200\. Once you get up into the $200 plus range, you may want to go ahead and get a tri-band or even a Wi-Fi 6 router. The TP-Link Archer A9 provides a better balance in terms of affordability and features.
@@ -173,6 +154,10 @@ Lifewire / Erika Rawes
  **A capable long-range router for those with average to moderate networking demands.**
 
  The TP-Link Archer A9 is an ideal router for a household with an average number of devices, but homes full of gamers or home office workers may want something a little more robust.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -194,14 +179,11 @@ Lifewire / Erika Rawes
 * Range  Long range
 * Parental Controls  Yes
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -210,4 +192,21 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/updated-cross-service-harmonization-a-playlist-perspective-for-2024/"><u>[Updated] Cross-Service Harmonization A Playlist Perspective for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-vision-pro-explained-4-essential-factors-to-consider/"><u>Apple Vision Pro Explained: 4 Essential Factors to Consider</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-tcl-32-inch-s325-roku-television-evaluation-the-thoughtful-streamlined-choice/"><u>Comprehensive TCL 32-Inch S325 Roku Television Evaluation - The Thoughtful, Streamlined Choice</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dont-miss-out-land-fantastic-savings-on-roku-products-this-amazon-prime-day/"><u>Don't Miss Out - Land Fantastic Savings on Roku Products This Amazon Prime Day</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-oppo-find-x6-pro-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Oppo Find X6 Pro Users</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/microsofts-leap-with-arm-architecture-can-it-surpass-apples-m1-in-computing-power/"><u>Microsoft's Leap with ARM Architecture: Can It Surpass Apple's M1 in Computing Power?</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-elevate-your-video-editing-game-top-5-final-cut-pro-tips-and-tricks/"><u>New In 2024, Elevate Your Video Editing Game Top 5 Final Cut Pro Tips and Tricks</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-video-editing-essentials-how-to-resize-and-crop-videos/"><u>New In 2024, Video Editing Essentials How to Resize and Crop Videos</u></a></li>
+<li><a href="https://media-tips.techidaily.com/premier-chromecast-companion-apps-expert-recommendations-for-optimal-video-streaming-on-mac-and-pc/"><u>Premier Chromecast Companion Apps: Expert Recommendations for Optimal Video Streaming on Mac and PC</u></a></li>
+<li><a href="https://fox-that.techidaily.com/rev-up-your-safari-speedy-solutions-to-accelerate-on-ios/"><u>Rev Up Your Safari: Speedy Solutions to Accelerate on iOS</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/streaming-success-youtube-broadcasts-of-google-meet/"><u>Streaming Success YouTube Broadcasts of Google Meet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-the-netgear-nighthawk-rax80-blending-advanced-connectivity-and-elegance/"><u>The Ultimate Review of the Netgear Nighthawk RAX80: Blending Advanced Connectivity and Elegance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-verdict-on-expensive-tech-a-comprehensive-review-of-samsung-un65nu800fxza-smart-tv/"><u>The Verdict on Expensive Tech: A Comprehensive Review of Samsung UN65NU800([FXZA]()) Smart TV</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Performance Review: Anker's PowerCore+ 26800 Battery Pack Duo – Combining Sleek Aesthetics with Superior Charging Capabilities"
-date: 2024-08-10T23:53:10.019Z
-updated: 2024-08-11T23:53:10.019Z
+date: 2025-01-01T03:05:48.951Z
+updated: 2025-01-03T20:00:07.420Z
 categories:
   - BestProducts
 description: "This Article Describes Performance Review: Anker's PowerCore+ 26800 Battery Pack Duo – Combining Sleek Aesthetics with Superior Charging Capabilities"
@@ -14,8 +14,9 @@ thumbnail: https://thmb.techidaily.com/8979e8080587e2a8dc2c43407031e5a8747618e7a
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
 ![Max Oak](https://www.lifewire.com/thmb/CeiJTW7zTopZdtR_zhtXz9_P-Mw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
@@ -41,11 +42,16 @@ Lifewire / Gannon Burgett
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
 ![Max Oak](https://www.lifewire.com/thmb/0sYGw-7sF6j5aqPA13sWjU-Y2b4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -69,13 +75,14 @@ Lifewire / Gannon Burgett
 
  While there's no shortage of options on the market, there aren’t many that can keep you going for days. That’s not the case with the MaxOak 50000mAh, an absolutely massive and robust charger that attempts to be the jack of all when it comes to charging gadgets on the go. It’s power comes at the cost of massive size and the charging ports aren’t too fast, but if you need tons of power, this is the battery pack to get.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Bulky for travelers**
 
  First and foremost, this thing is a tank. At 2.77 pounds, it weighs many times more than most smartphones and nearly as much as most compact laptops. It also measures in at 8.1 x 5.3 x 1.3 inches (HWD), making it quite the behemoth to lug around. A small detail regarding the weight of the MaxOak is that it isn't balanced. The side without the ports holds a fair bit more weight than the side with the various ports. It's not a significant detail, but one you might notice with time.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Max Oak](https://www.lifewire.com/thmb/SHsB9QkFaBbOrU6sw55TzNOqC7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_4Web-5c8ff4adc9e77c0001ff0b36.jpg)
 
  Lifewire / Gannon Burgett
@@ -88,9 +95,6 @@ Lifewire / Gannon Burgett
 
  Charging the device is done via a small 16.8-volt 2.5A plug-in style port on the opposite side of the power button. Overall, the design is roughly what you'd expect from a 50000mAh laptop battery charger. Yes, it's heavy, yes it's quite beefy in size, but it comes with the territory.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## **Setup Process: Simple to start, but yet another adapter to carry around**
 
  Setting up the MaxOak laptop battery charger is as simple as it gets. After removing it from its unbranded cardboard box, it's simply a matter of plugging it in and getting it charged up completely. Our device came charged at roughly 50% based on the onboard[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) battery indicator, but to complete our tests we wanted it charged entirely, which leads us to our biggest complaint about this charger.
@@ -101,9 +105,6 @@ Lifewire / Gannon Burgett
 
  The MaxOak 50000mAh manages to charge at a decent rate considering its capacity, but we would’ve liked to see more high-powered ports for speedier charging. We charged and fully drained the MaxOak power bank five times and charging took roughly six to eight hours per recharge with an average of seven hours and fifteen minutes.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Max Oak](https://www.lifewire.com/thmb/FlP4JZUVLoJ3DjKoSRUIFuf1peY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_6Web-5c8ff3e6c9e77c0001a926ff.jpg)
 
  Lifewire / Gannon Burgett
@@ -117,6 +118,10 @@ Lifewire / Gannon Burgett
  The MaxOak power bank charged the Samsung Galaxy S8 Active just shy of twelve times from 0% to 100%. This aligns almost exactly with the 50000mAh capacity of the MaxOak power divided by the 4,000mAh capacity of the Samsung Galaxy S8 Active. We experienced similar results with the iPhone XS. While Apple doesn't specifically mention the battery capacity of the iPhone XS, third parties have reported it to be approximately 2,700mAh, which would equate to roughly 18.5 full charges. In our tests, we were able to get 17.5 charges from the MaxOak power bank.
 
  Moving onto laptops, our ASUS X555LA was able to be charged four and a half times from 0% with the MaxOak power bank, with an average charge time of three hours or so. The ASUS X555LA has a relatively small battery compared to most laptops, which means it falls in line with MaxOak’s claims that its power bank can charge a laptop two times over give or take a little.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Right down the middle**
 
@@ -144,9 +149,6 @@ Lifewire / Gannon Burgett
 * [ChargeTech 27000mAh Battery Pack](https://www.lifewire.com/chargetech-27000mah-battery-pack-review-4589409)
 * [Anker PowerCore+ 26800 Battery Pack Bundle](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  185Wh/50000mAh External Battery Power Bank
@@ -162,14 +164,11 @@ Lifewire / Gannon Burgett
 * Warranty  One year
 * Compatibility  Android, iOS
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -178,4 +177,22 @@ Lifewire / Gannon Burgett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-that.techidaily.com/7-ways-to-fix-your-blurry-iphone-camera/"><u>7 Ways to Fix Your Blurry iPhone Camera</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-assassins-creed-valhalla-the-ultimate-guide-to-an-epic-journey-through-medieval-europe-and-scandinavia/"><u>Exploring Assassin's Creed Valhalla: The Ultimate Guide to an Epic Journey Through Medieval Europe and Scandinavia</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Motorola G54 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-internet-performance-with-google-nest-wifi-a-detailed-review-of-its-mesh-networking-capabilities/"><u>Maximizing Internet Performance with Google Nest Wifi - A Detailed Review of Its Mesh Networking Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-sky-with-ease-top-wireless-routers-for-jet-setters/"><u>Navigating the Sky with Ease: Top Wireless Routers for Jet-Setters</u></a></li>
+<li><a href="https://extra-information.techidaily.com/no-displayed-video-fixing-camera-issue-with-sony-a6400/"><u>No Displayed Video Fixing Camera Issue with Sony A6400</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-the-asus-rog-rapture-gt-ax11000-a-game-changer-in-speed-and-functionality-for-gamers/"><u>Review: The Asus ROG Rapture GT-AX11000 - A Game Changer in Speed & Functionality for Gamers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-laptops-the-apple-macbook-pro-13-inch-with-m1-chip-2020-model-insights-and-review/"><u>Revolutionizing Laptops: The Apple MacBook Pro 13-Inch with M1 Chip - 2020 Model Insights & Review</u></a></li>
+<li><a href="https://fox-that.techidaily.com/stop-airdrop-woes-master-the-quick-fix-with-these-16-proven-techniques/"><u>Stop AirDrop Woes: Master the Quick Fix with These 16 Proven Techniques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-insider-guide-to-buying-a-game-laptop/"><u>The Insider Guide to Buying a Game Laptop</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-pros-and-cons-of-owning-a-blu-ray-player/"><u>The Pros and Cons of Owning a Blu-Ray Player</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-considerations-for-pre-owned-tech-buyers/"><u>Top Considerations for Pre-Owned Tech Buyers</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-and-resolving-hp-display-malfunctions-successfully/"><u>Troubleshooting and Resolving HP Display Malfunctions Successfully</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210868354-9781685744038-ufo-a-message-from-the-pleiades/"><u>UFO A Message From The Pleiades | Free Book</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/weekly-update-discontinuation-of-netflixs-basic-plan-and-enhanced-techniques-in-iphone-maintenance/"><u>Weekly Update: Discontinuation of Netflix's Basic Plan & Enhanced Techniques in iPhone Maintenance</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Step Into Modernity: A Firsthand Encounter with the Revolutionary New Sidecar Option From Mod E-Bikes"
-date: 2024-08-15T09:32:05.889Z
-updated: 2024-08-16T09:32:05.889Z
+date: 2024-12-30T02:23:23.291Z
+updated: 2025-01-03T17:08:13.976Z
 categories:
   - BestProducts
 description: "This Article Describes Step Into Modernity: A Firsthand Encounter with the Revolutionary New Sidecar Option From Mod E-Bikes"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/0ca2747bace885998e167d601fb15c3166c8be683
 ## EPB Shield Tunnelling Is Designed for Soft Ground Conditions with High Water Content and Uses a Balancing Mechanism at the Face of the Tunnel to Maintain Stability
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Cyberpunk 2077
 
@@ -42,9 +46,6 @@ Andy Zahn / Lifewire
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Cyberpunk 2077
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/sG6odS-sTBDQKNtpoev0kWtdSGg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cyberpunk-2077-1-d90f62b5a126437681da9916c0360527.jpg)
@@ -77,11 +78,16 @@ Andy Zahn / Lifewire
  Look a little closer, and you may find a lot to love in this game, but it’s important to be aware of Cyberpunk 2077’s many flaws before deciding to jump into the immense and darkly beautiful dystopian metropolis that is Night City.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/YQBwL9wFHphVzIqJYlYwd0J2OYU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-2-7e358ac09a2c48fbb0f6aaec1e9381e9.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Story: Engaging and well written
 
@@ -95,9 +101,6 @@ Andy Zahn / Lifewire
 
  Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Gameplay: Fun, but deeply flawed
 
  As with the game as a whole, Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows. It does some things very well and stumbles bafflingly in other regards. The game mostly takes place in the first person, with third-person view being an option while driving.
@@ -105,9 +108,6 @@ Andy Zahn / Lifewire
  Driving is not what I’d call a perfect experience in either third or first-person modes. Though beautifully designed and widely varied, vehicles tend to have little weight to them, and you really have to work to avoid careening about the road, running over pedestrians, and attracting the tepid attention of the police. They all also seem to be in desperate need of a new set of brakes, and to make matters worse the AI for the NPC vehicles is very simple indeed. Park your car with a bit of it sticking out into the road and a line will quickly build up as these simpletons exhibit infinite patience rather than simply go around.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/NwK7qVv8XDmr_i0b9XzULnmPZ9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-5-664cae2e38304560a7d6fc3ce2a84335.jpg)
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -122,8 +122,9 @@ Andy Zahn / Lifewire
  If you want to avoid conflict and don’t want to slow down for stupid drivers, your best bet is a motorcycle, and it is indeed a blast to go zipping through the streets dodging through gaps in traffic. For some reason, motorcycles control much more reliably than cars, and a cynical mind might suppose that more care was put into motorcycle control due to Cyberpunk featuring the brand of motorcycle owned by a major celebrity who plays a part in the game’s story.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/ByBdwophc_bSfdD-P0CfbqJgbwY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-7-e6be7e2c1ae24ac3a1c5dbfd4a5b595a.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
@@ -140,9 +141,6 @@ Andy Zahn / Lifewire
 
  Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ## Customization: Lots to tinker with
 
  There is a deep level of character customization possible in Cyberpunk 2077, and you can sink a lot of time into creating the perfect character. Of course, you can always just pick a preset, but where's the fun in that? I tried to craft a likeness of Snake Plissken from Escape from Los Angeles, but couldn’t get it quite right, so I made a rough approximation of Basil Fawlty instead.
@@ -194,9 +192,9 @@ Andy Zahn / Lifewire
  Even with my settings well-adjusted I still ran into occasional frame rate drops, particularly in areas with a lot of volumetric fog and many lighting sources. Traveling at high speeds also tested the limits of my gaming rig.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/toUXDFSRFZjol-BOgnhnVEyJTYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-8-7b54b824c3bc4dcfb04234f69204d2f6.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
@@ -207,9 +205,6 @@ Andy Zahn / Lifewire
 
  An alternative worth considering if you have a robust high-speed internet connection is streaming the game on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) . This will allow you to experience the game at its best without having to invest in a two thousand dollar PC. However, it does leave your ability to play the game at the mercy of your ability to access a strong internet connection.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Graphics: Ahead of its time
 
  The star of the show in Cyberpunk 2077 are the visuals, and if you have a PC with the hardware to render the game at its maximum quality while maintaining playable frame rates the world of Night City is absolutely jaw-dropping. Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
@@ -228,11 +223,16 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/o42yZx4igr8SBsJoS2Nc52n6m3U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-6-1b41a87ba1244122adf280147c09e5f1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Multiplayer: Absent for the moment
 
  At launch and for long after Cyberpunk 2077 will be a single-player game. However, CDPR has said that a few years down the road they will be launching a multiplayer mode, and a lot of people are looking forward to that. Of course, it is impossible to predict if this will be any good or if some circumstances might prevent its release, but there is a lot of potential for Cyberpunk to become a better experience when Night City goes online. With that said, CDPR really needs to fix the single-player game before they even think about launching multiplayer.
@@ -256,8 +256,9 @@ Andy Zahn / Lifewire
  Cyberpunk 2077 had enormous potential, but it launched long before it was complete and the result is a deeply conflicting experience. Game-breaking bugs, performance issues, missing features, and demanding hardware requirements make it difficult to recommend, but there is the core of something great lying within. There are hundreds of hours of content to enjoy if you can temper your expectations and employ a saintly degree of patience.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Cyberpunk 2077
@@ -267,14 +268,11 @@ Andy Zahn / Lifewire
 * Platforms  PC, Xbox Series X, Xbox One, PlayStation 5, PlayStation 4, Stadia
 * Rating  M
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -283,4 +281,26 @@ Andy Zahn / Lifewire
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-bandicam-in-focus-the-updated-guide-users/"><u>[Updated] 2024 Approved Bandicam in Focus The Updated Guide Users</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-becoming-a-top-youtuber-with-gaming-livestreams/"><u>[Updated] Becoming a Top YouTuber with Gaming Livestreams</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-heres-what-you-dont-know-about-instagram-story-viewer2/"><u>[Updated] In 2024, Here's What You Don't Know About Instagram Story Viewer2</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2023s-premier-storytelling-channels-on-youtube-for-2024/"><u>2023'S Premier Storytelling Channels on YouTube for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-discover-the-leading-apps-for-instagrams-vertical-igtv-edits/"><u>2024 Approved Discover the Leading Apps for Instagram's Vertical IGTV Edits</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/bringing-down-the-time-barrier-for-fastening-fb-video-content/"><u>Bringing Down the Time Barrier for Fastening FB Video Content</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/critique-of-motorola-edgeplus-not-fully-meeting-elite-smartphone-criteria/"><u>Critique of Motorola Edge+: Not Fully Meeting Elite Smartphone Criteria</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/eufy-t8200-review-a-no-subscription-video-doorbell/"><u>Eufy T8200 Review: A “No-Subscription” Video Doorbell</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/expert-advice-on-the-newest-iphone-15-unmatched-performance-that-attracts-both-novices-and-pro-enthusiasts-zdnet-review/"><u>Expert Advice on the Newest iPhone 15: Unmatched Performance That Attracts Both Novices and 'Pro' Enthusiasts | ZDNET Review</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-vivo-y100t-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Vivo Y100t Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-bloodbornes-gothic-universe/"><u>In-Depth Analysis of Bloodborne's Gothic Universe</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-nvidia-shield-tv-pro-top-pick-for-game-lovers-and-cinephiles-alike/"><u>In-Depth Analysis of Nvidia Shield TV Pro – Top Pick for Game Lovers and Cinephiles Alike</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/jackery-battery-pack-assessment-the-added-benefits-of-an-included-ac-connection-point/"><u>Jackery Battery Pack Assessment: The Added Benefits of an Included AC Connection Point</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stay-active-anywhere-using-the-miniature-marvel-that-is-samsung-galaxy-fit2/"><u>Stay Active Anywhere Using the Miniature Marvel That Is Samsung Galaxy Fit2</u></a></li>
+<li><a href="https://article-tips.techidaily.com/tech-triad-analysis-unraveling-the-vr-ar-mr-tapestry/"><u>Tech Triad Analysis Unraveling the VR-AR-MR Tapestry</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-comprehensive-review-of-the-linksys-ac1900-top-choice-in-home-and-office-routers/"><u>The Comprehensive Review of the Linksys AC1900 – Top Choice in Home and Office Routers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-hp-zbook-firefly-15-g8-uncovered-redefining-mobility-in-laptops/"><u>The HP ZBook Firefly 15 G8 Uncovered: Redefining Mobility in Laptops</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlock-the-secret-of-detecting-email-views-in-googles-inbox/"><u>Unlock the Secret of Detecting Email Views in Google's Inbox</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/use-proper-punctuation-grammar-and-capitalization-to-maintain-professionalism-in-your-title-without-relying-solely-on-all-caps-for-emphasis-which-could-be-i4/"><u>Use Proper Punctuation, Grammar, and Capitalization to Maintain Professionalism in Your Title without Relying Solely on All Caps for Emphasis (Which Could Be Interpreted as Shouting).</u></a></li>
+</ul></div>
 

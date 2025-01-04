@@ -1,7 +1,7 @@
 ---
 title: Evaluating the Protective Power and Performance Pace of the CAT S42 Smartphone
-date: 2024-08-10T23:55:01.288Z
-updated: 2024-08-11T23:55:01.288Z
+date: 2025-01-01T18:05:53.503Z
+updated: 2025-01-03T19:53:05.374Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating the Protective Power and Performance Pace of the CAT S42 Smartphone
@@ -13,12 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/6-p5ewDjPncMceqeBCrB17zrpa8=/400x300/fi
 
 4.9
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ## ZMI PowerPack 20000
 
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/A__IgeAPd2C0e_2iExqDqXJAGB8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-HeroSquare-492efa01c9e54737bfa9d16223ff9d82.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -69,8 +70,9 @@ thumbnail: https://www.lifewire.com/thmb/6-p5ewDjPncMceqeBCrB17zrpa8=/400x300/fi
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Small but powerful**
 
  The ZMI PowerPack 20000’s size is easily one of its biggest selling points. While it is a little heavy at 14.3 ounces, this power bank is the approximate width and height of a large smartphone, measuring up very closely to the size of my Apple iPhone 11 Pro at 6.3 x 3.2 inches (HWD). Of course, the 0.8-inch thickness is quite a bit larger than any phone today, but unlike most laptop-friendly charging banks, ZMI’s can still fit into a pocket or handbag with ease.
@@ -83,16 +85,14 @@ thumbnail: https://www.lifewire.com/thmb/6-p5ewDjPncMceqeBCrB17zrpa8=/400x300/fi
 
  This power bank doesn’t have an AC port for full-sized power plugs, as some competing power banks do, but it also costs less and is much smaller than those alternatives typically are.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/vaINPELrwcWnOZDsX1ztKkCouww=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-03-1530f666df824f6281040c2ae3285eb2-2e7956941b91403aa888795a7e5e2e33.jpeg)
 
 Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup Process: Easy does it**
 
  There’s not much to the setup process here. Using the included USB-C to USB-C cable, simply plug one end into the power bank and the other into an AC adapter that you have handy—like one for a laptop, tablet, or[smartphone](https://www.lifewire.com/best-smartphones-4043781) . Once the four lights on the side are fully illuminated, then the battery pack is fully charged. Simply plug in devices using their respective cables to charge them using the power within the ZMI PowerPack 20000.
@@ -105,12 +105,17 @@ Lifewire / Andrew Hayward
 
  The PowerPack 20000 also charged a[Samsung Galaxy S10](https://www.lifewire.com/samsung-galaxy-s10-review-4685690) smartphone from nothing to 100 percent in 1 hour, 47 minutes using the USB-C PD port, with four lights still remaining on the power bank. This sizable power bank should be able to charge an average smartphone a few times over, not to mention a[Nintendo Switch](https://www.lifewire.com/nintendo-switch-review-4707563) . Larger laptop batteries will naturally suck away more of the battery capacity on a full charge.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/asGVK-moJ54HvqyY9N6Kb-KM8hw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-04-828899fb01024cd4a0e35980251c04b4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: It’s a bargain**
 
@@ -118,9 +123,6 @@ Lifewire / Andrew Hayward
 
  With larger laptop-friendly battery packs sometimes selling for well north of $100, the $70 price point of the ZMI PowerPack 20000 is an incredibly attractive deal.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **ZMI PowerPack 20000 vs Mophie Powerstation AC**
 
  ZMI’s PowerPack 20000 is about half the size and weight of the[Mophie Powerstation AC](https://www.lifewire.com/mophie-powerstation-ac-review-5071990) (see on[Amazon](https://www.amazon.com/dp/B078GYSBVR?linkCode=ogi&th=1&psc=1&tag=lifewire-onsite-prod-20&ascsubtag=5071991%7Cn210c12f6fa164d19b551ef300c5549c018%7C) ), which has a AC power port on one end, not to mention a larger 24,000mAh cell. Those are both stellar benefits, plus the fabric-lined exterior gives it a distinctive allure. That said, Mophie’s pack sells for $200, and we’d only recommend it if you must have the AC power outlet for charging a power-hungry laptop. If the ZMI PowerPack 20000 will meet your charging needs, however, it’s a much better bargain.
@@ -142,14 +144,11 @@ Lifewire / Andrew Hayward
 * Ports  1x USB-C, 2x USB-A
 * Waterproof  N/A
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,4 +157,24 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-leveraging-zoom-for-high-quality-facebook-live-streams/"><u>[New] 2024 Approved Leveraging Zoom for High-Quality Facebook LIVE Streams</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-professional-tips-for-high-quality-video-disc-production-on-mac/"><u>[New] 2024 Approved Professional Tips for High-Quality Video Disc Production on Mac</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-harmonized-technology-judgments-by-experts/"><u>[New] Harmonized Technology Judgments by Experts</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-professional-picture-editing-hacks-how-to-add-text-with-precision/"><u>[Updated] Professional Picture Editing Hacks How to Add Text with Precision</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-the-ultimate-itunes-guide-mastering-recordings-for-2024/"><u>[Updated] The Ultimate iTunes Guide Mastering Recordings for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/4-ways-to-extract-data-from-corrupt-excel-2003-file-stellar-by-stellar-guide/"><u>4 Ways to extract data from corrupt Excel 2003 file | Stellar</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bloodborne-game-analysis-exploring-a-sinister-realm/"><u>Bloodborne Game Analysis: Exploring a Sinister Realm</u></a></li>
+<li><a href="https://extra-information.techidaily.com/dial-in-the-perfect-accessories-for-dynamic-videos/"><u>Dial in the Perfect Accessories for Dynamic Videos</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/diy-tech-support-restoring-paramount-plus-streaming-functionality-on-digital-media-adapters/"><u>DIY Tech Support: Restoring Paramount Plus Streaming Functionality on Digital Media Adapters</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/high-speed-home-networking-with-tp-link-av2000-an-in-depth-product-analysis-and-review/"><u>High-Speed Home Networking with TP-Link AV2000: An In-Depth Product Analysis and Review</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ipad-pro-vs-macbook-pro-showdown-exploring-their-main-features/"><u>IPad Pro vs MacBook Pro Showdown: Exploring Their Main Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nintendo-3ds-online-how-to-establish-a-user-profile-with-ease/"><u>Nintendo 3DS Online: How to Establish a User Profile with Ease</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/testing-the-syma-107-gs-dual-controls-drone-an-economical-way-to-soar-indoors/"><u>Testing the Syma 107 GS Dual Controls Drone - An Economical Way to Soar Indoors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-lg-gram-156-an-in-depth-review-on-how-this-ultrabook-redefines-lightweight-laptops-with-its-exceptional-battery-life-and-performance/"><u>The LG Gram 15.6: An In-Depth Review on How This Ultrabook Redefines Lightweight Laptops with Its Exceptional Battery Life and Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-pick-the-omnicharge-omni-20-reviewed-portable-power-solutions-for-all-your-devices/"><u>Top Pick: The Omnicharge Omni 20 Reviewed – Portable Power Solutions for All Your Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transform-your-document-handling-at-home-or-in-a-small-business-with-the-fujitsu-scansnap-ix1400-an-in-depth-review/"><u>Transform Your Document Handling at Home or in a Small Business with the Fujitsu ScanSnap iX1400 - An In-Depth Review</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Lenovo's Budget-Friendly Dual Device: In-Depth Look at the Chromebook Duet"
-date: 2024-08-10T23:54:15.163Z
-updated: 2024-08-11T23:54:15.163Z
+date: 2024-12-30T00:43:06.223Z
+updated: 2025-01-04T03:02:19.501Z
 categories:
   - BestProducts
 description: "This Article Describes Lenovo's Budget-Friendly Dual Device: In-Depth Look at the Chromebook Duet"
@@ -14,17 +14,9 @@ thumbnail: https://thmb.techidaily.com/0be1e99c17baad20df818e64c74b29c212a06e76b
 4.5
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## TCL 50S425 50-inch 4K Smart LED Roku TV
 
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/xdZO-ddLXgWQIKHYaUynllKab-w=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_HeroSquare-beccb9820dfd4a878196fac8bdf1d541.jpg)
@@ -78,17 +70,14 @@ Lifewire / Yoona Wagener
 
  We tested the TCL 50S425 and were impressed by the ease of setup, picture quality, and user-friendliness of this[smart TV](https://www.lifewire.com/what-is-a-smart-tv-4140172) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/8IJD6mxL-mHDn0MMWWRd5yZERlc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_04-bbd6d026c9ec48df9f12c934b7def674.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## **Design: Lightweight and straightforward**
 
  Smart TVs range in size, typically starting from 32 inches and reaching all the way up to 85 inches and beyond. If you can’t accommodate or don’t want a really large television, the TCL 50-inch Roku TV offers a decent middle ground that will appeal to shoppers who want an apartment or dorm-friendly TV without sacrificing quality.
@@ -105,18 +94,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process** :**Up and running in minutes**
 
  Setting up the 50-inch TCL Roku TV is a breeze. We opted to forego mounting the television, but the user manual indicates that this model is compatible with a VESA 200 x 200 wall mount with M6 x 12mm screws.
@@ -128,8 +105,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  Additionally, if you plan to use a set-top cable box or antenna, the user manual offers straightforward instructions for doing so. You also have the option of enabling the Smart TV experience when you use antenna TV mode. This setting uses automatic content recognition (ACR) to make viewing recommendations based on what you view through your antenna or connected HDMI devices.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Image Quality: Clear and vivid without any tweaking**
 
  One of the biggest draws of a 4K TV is the[4K resolution](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) , which offers four times the resolution quality of a standard high definition TV. This pixel resolution is also commonly referred to as Ultra HD (UHD). This Roku TV also comes with HDR, or High Dynamic Range, which is commonly bundled with 4K resolution in the newest smart TVs.[HDR improves image quality](https://www.lifewire.com/dolby-vision-and-hdr10-4060427) by intensifying the contrast between white and black areas on the screen while achieving a solid balance, so nothing looks too dark or too bright. It also broadens the palette of available colors, especially in combination with Wide Color Gamut (WCG).
@@ -160,6 +138,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/oA3AbTZysdVWZbOWuuVGOa56_8c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_02-04183ae8dcd44b778b4da0e7706d5df2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
 ## **Software: Intuitive and streamlined**
@@ -170,10 +152,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  While the remote doesn’t come with a built-in speaker, the free Roku app does offer a voice-assistant feature. It’s best when completing a general search for a show or actor or for launching a particular app. If you have a Google Assistant or Amazon Alexa enabled device, this Roku TV will support them, and they offer a generally better experience than using the Roku app voice remote function.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## **Price: A great bargain on a budget**
 
  If you don’t want to spend a fortune on a 4K TV, but you want to get as much value as possible, the TCL 50S425 50-inch Roku TV is a compelling option. It retails for $350, which situates it in the growing and competitive class of 4K TVs under $500\. In the TCL 4-Series alone you have several other models to consider that all share the same specifications except for size. The larger 55-inch TCL Roku TV retails for just $30 more than the 50-inch version and features a larger screen size of 54.6 inches. It may not seem considerable, but if you’re limited with space, the extra width and height (five and two inches, respectively) can actually feel like a pretty massive difference. And if you opt for a smaller display and a lower price tag, the 43-inch TCL Roku TV retails for about $280, but you’re sacrificing 7 inches of display.
@@ -195,8 +173,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  The TCL 50S425 50-inch Roku TV is a smart 4K TV that possesses many merits: an appealing price point, excellent 4K HDR picture quality, a size profile that won’t overwhelm small rooms or apartments, and an easy-to-use interface that requires little fuss. You may find better 4K picture and audio quality in a higher-end model, but this TV offers a welcome smart TV upgrade at a price that won’t empty your pockets.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Sony XBR49X900F 49-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/sony-xbr49x900f-49-inch-4k-ultra-hd-smart-led-tv-review-4796665)
@@ -204,8 +183,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * [LG 27UD58-B 27-Inch 4K UHD IPS Monitor](https://www.lifewire.com/lg-27ud58-b27-inch-4k-uhd-ips-monitor-review-4778916)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  50S425 50-inch 4K Smart LED Roku TV
@@ -223,14 +203,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Connectivity Options  Wi-Fi, Ethernet
 * Warranty  1 year
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -239,4 +216,26 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-window-into-the-world-a-complete-guide-to-live-tv-recording-on-your-pc/"><u>[New] Window Into the World A Complete Guide to Live TV Recording on Your PC</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-harnessing-the-hype-how-to-hike-your-youtube-horde/"><u>[Updated] Harnessing the Hype How to Hike Your Youtube Horde</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-stepwise-strategies-building-a-playlist-on-youtube/"><u>2024 Approved Stepwise Strategies Building a Playlist on YouTube</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/become-a-pro-at-tweeting-live-video-responses/"><u>Become a Pro at Tweeting Live Video Responses</u></a></li>
+<li><a href="https://video-capture.techidaily.com/best-practices-for-amassing-itunes-video-archives-for-2024/"><u>Best Practices for Amassing iTunes Video Archives for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/discover-the-leading-free-mp3-encoders-for-high-quality-sound-at-192kbps/"><u>Discover the Leading Free MP3 Encoders for High-Quality Sound at 192Kbps</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/economical-excellence-in-keyboards-a-comprehensive-review-of-the-fellowes-microban-wired-option/"><u>Economical Excellence in Keyboards: A Comprehensive Review of the Fellowes Microban Wired Option</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ensuring-continuous-gameplay-with-quality-ups-units-an-in-depth-look-at-apcs-gaming-models/"><u>Ensuring Continuous Gameplay with Quality UPS Units: An In-Depth Look at APC's Gaming Models</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-value-of-the-samsung-galaxy-tab-s3-in-todays-market/"><u>Exploring the Value of the Samsung Galaxy Tab S3 in Today's Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/furry-friends-lens-joyful-home-surveillance/"><u>Furry Friends Lens: Joyful Home Surveillance</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-reset-apple-id-and-apple-password-from-iphone-6s-by-drfone-ios/"><u>In 2024, How to Reset Apple ID and Apple Password From iPhone 6s</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-unboxing-the-apple-watch-series-9/"><u>In-Depth Analysis: Unboxing the Apple Watch Series 9</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/justifying-your-spend-on-apple-tv/"><u>Justifying Your Spend on Apple TV</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/strategies-for-expanding-your-tiktok-influence-via-hashtags/"><u>Strategies for Expanding Your TikTok Influence via Hashtags</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/streaming-wars-the-top-10-platforms-ranked-and-compared-for-2024/"><u>Streaming Wars The Top 10 Platforms Ranked and Compared for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-battle-of-tech-giants-how-does-ipad-pro-compare-to-macbook-pro/"><u>The Battle of Tech Giants: How Does iPad Pro Compare to MacBook Pro?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-how-to-guide-for-app-management-on-a-samsung-tv/"><u>The Ultimate How-To Guide for App Management on a Samsung TV</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-best-earbud-picks/"><u>Unveiling the Best Earbud Picks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potential-in-depth-insight-into-mobvois-ticwatch-pro-lte-edition/"><u>Unveiling the Potential: In-Depth Insight Into Mobvoi's Ticwatch Pro LTE Edition</u></a></li>
+</ul></div>
 

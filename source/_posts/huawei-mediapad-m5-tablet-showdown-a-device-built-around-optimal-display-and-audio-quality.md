@@ -1,7 +1,7 @@
 ---
 title: "Huawei MediaPad M5 Tablet Showdown: A Device Built Around Optimal Display and Audio Quality"
-date: 2024-12-19T18:10:27.418Z
-updated: 2024-12-25T18:55:14.047Z
+date: 2025-01-01T20:09:56.439Z
+updated: 2025-01-04T00:07:01.888Z
 categories:
   - BestProducts
 description: "This Article Describes Huawei MediaPad M5 Tablet Showdown: A Device Built Around Optimal Display and Audio Quality"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
@@ -48,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
 3.6
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/EEEMCdq2FsBPMcT8nPUgndDIw4A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
@@ -74,15 +74,15 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
  Though Sony panels are sometimes on the expensive end of the spectrum, there are some older Sony 4K TVs that can be had for a nice little discount. One such TV is Sony’s XBR65X850F from their X850F series. This specific model has now been replaced by the X850G, but that doesn’t mean you necessarily need to go with the most current model. In fact, snagging one of these earlier generation sets can save you some cash without forcing you to compromise too much.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Standard Sony**
 
  The XBR65X850F's design is a combination of sleek and workmanlike. The stand on this Sony is pretty common for TVs these days, with two V-shaped feet that stick out to either side. While they look aluminum, these are actually plastic too, with merely an aluminum finish. They are decently steady, but we noticed a bit of wobble if you move the TV around. It should be plenty sturdy for most, though you will need a fairly wide stand for them to rest on since they stick out so far. There’s also no room for adjusting the unit up or down, but they’re tall enough to fit a soundbar underneath if you want. They also flip open on the top if you want to use them for some clever cable management.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/v7wi7isxu06LAoWNZK3dJ908mCk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-4-cb1a370bd78244b383c802010a570313.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -105,7 +105,7 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vvIZMf3BNAr8JmiDAVdv4o3ceHg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-2-7eabd63fb6c0415ab75fd927d664a841.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -122,6 +122,10 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/r5reh9LkA7QvieX1JzBg5J8qNjY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-5-00a73edbf91c48c6aa2718ab211f2e5d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
  However, IPS panels are notoriously bad for black uniformity and backlight bleed, which can cause clouding around the edges. We found this to be the case on our XBR65X850F, and while not unusable, it’s probably not the best option for viewing in dark environments because of this. The TV does have solid gray uniformity however, with no dirty screen effect. This is a huge boon if you’re a big sports fan.
@@ -137,14 +141,10 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Audio Quality: Loud, but distorted**
 
@@ -166,10 +166,6 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
  One last thing, your phone can also be used as a remote if you so choose. All you need to do is download the app and connect it to the TV. This works with both Android and iOS devices (thanks Google). While it’s not a good as the regular remote, it works fine enough if you’re too lazy to get up and find the standard remote.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Not bad for the size, but not the cheapest**
 
  The X850F series come in a range of sizes, from 65 to 85 inches, so the prices can vary considerably depending on which one you go with. Any TV in this size range is going to cost a good bit of coin, no matter the manufacturer, but Sony isn’t too bad here.
@@ -177,6 +173,10 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
  On Sony’s website, the 65-inch model we tested here is listed at $1,300, the 75 at $2,300, and the 85 at a whopping $4,000\. Now these prices aren’t exactly accurate, especially since these are an older series. Typically you can find the 65-inch for about $1,100 or so. The other models are also heavily discounted depending on where you look, so definitely shop around. It’s likely that you can snag them for even less during sales.
 
  But how do these prices stack up against comparable TVs from competitors like LG or Samsung? Taking a quick look around online, you can easily save a few hundred dollars by going with a comparable LG TV, while Samsung was pretty closely matched with Sony. In the end, the price for the X850F series isn’t the best bang for your buck, but it ain’t bad either.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Sony XBR65X850F vs. Samsung UN65RU8000**
 
@@ -225,20 +225,17 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-comparing-tiktok-and-youtube-shorts-for-personal-content-creation/"><u>[Updated] In 2024, Comparing TikTok & YouTube Shorts for Personal Content Creation</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-sound-studio-everything-about-the-sound-recording-studio-mac/"><u>[Updated] In 2024, Sound Studio - Everything About the Sound Recording Studio Mac</u></a></li>
-<li><a href="https://win-top.techidaily.com/dvd4k/"><u>高画質ビデオ再生 - DVDを4Kテレビに流す方法</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/experience-ultimate-convenience-with-a-discounted-multipurpose-10-port-docking-station-exclusive-offer-on-gadgetgurustorecom/"><u>Experience Ultimate Convenience with a Discounted, Multipurpose 10-Port Docking Station | Exclusive Offer on GadgetGuruStore.com</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-5-solutions-for-realme-note-50-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Realme Note 50 Unlock Without Password</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, What are Location Permissions Life360 On Apple iPhone 14 Pro? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ipad-versus-amazon-fire-tablet-which-one-fits-your-needs-better/"><u>IPad Versus Amazon Fire Tablet - Which One Fits Your Needs Better?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/kids-playtime-perfected-by-camera-duos/"><u>Kids' Playtime Perfected by Camera Duos</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/linksys-wrt3200acm-router-showcases-superior-features-in-the-realm-of-open-source-routers/"><u>Linksys WRT3200ACM Router Showcases Superior Features in the Realm of Open Source Routers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/retro-gaming-redefined-the-updated-journey-through-ratchet-and-clank/"><u>Retro Gaming Redefined: The Updated Journey Through Ratchet & Clank</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/should-i-prepare-my-system-for-monterey/"><u>Should I Prepare My System for Monterey?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/singing-superstars-choice-expert-reviews-on-the-best-karaoke-machines-available/"><u>Singing Superstars' Choice: Expert Reviews on the Best Karaoke Machines Available</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stay-connected-anywhere-with-tp-links-compact-tl-wr902ac-travel-wi-fi-router/"><u>Stay Connected Anywhere with TP-Link's Compact TL-WR902AC Travel Wi-Fi Router</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/unboxing-viva-a-user-guide-to-its-videos/"><u>Unboxing Viva A User Guide to Its Videos</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-mastering-your-podcast-sound-with-these-10-premier-audio-editing-software-options-free-or-paid/"><u>Updated In 2024, Mastering Your Podcast Sound with These 10 Premier Audio Editing Software Options (Free or Paid)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-dynamic-image-narration-toolbox/"><u>[New] 2024 Approved Dynamic Image Narration Toolbox</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-shadowing-snaptaking-discreet-methods-to-capture-snapchats/"><u>[New] Shadowing SnapTaking Discreet Methods to Capture SnapChats</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/op-ten-historical-educational-video-streams-for-students-for-2024/"><u>[New] Top Ten Historical Educational Video Streams (For Students) for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-efficient-techniques-for-capturing-google-voice-calls/"><u>[Updated] In 2024, Efficient Techniques for Capturing Google Voice Calls</u></a></li>
+<li><a href="https://win-unique.techidaily.com/1-discover-every-control-panel-setting-a-step-by-step-guide-the-comprehensive-resource-by-yl-computing/"><u>1. Discover Every Control Panel Setting: A Step-by-Step Guide - The Comprehensive Resource by YL Computing</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-samsung-galaxy-a25-5g-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Samsung Galaxy A25 5G Phone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/realme-c51-messages-recovery-recover-deleted-messages-from-realme-c51-by-fonelab-android-recover-messages/"><u>Realme C51 Messages Recovery - Recover Deleted Messages from Realme C51</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-the-updated-demons-souls-improved-aesthetics-and-unchanged-greatness/"><u>Review of the Updated Demon's Souls: Improved Aesthetics and Unchanged Greatness</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-quality-protection-the-ultimate-selection-of-samsung-galaxy-z-fold-6-cases/"><u>Top Quality Protection: The Ultimate Selection of Samsung Galaxy Z Fold 6 Cases</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-55-television-models-a-comprehensive-guide/"><u>Top Rated 55 Television Models : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranking-nintendo-switch-gear-and-peripherals/"><u>Top-Ranking Nintendo Switch Gear and Peripherals</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-ethernet-cables-a-buyers-guide/"><u>Top-Rated Ethernet Cables : A Buyer's Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Nikon COOLPIX P1000 Review
-date: 2024-12-21T17:14:43.419Z
-updated: 2024-12-25T17:08:59.724Z
+date: 2024-12-30T17:56:39.215Z
+updated: 2025-01-04T01:49:00.927Z
 categories:
   - BestProducts
 description: This Article Describes Nikon COOLPIX P1000 Review
@@ -19,7 +19,7 @@ thumbnail: https://www.lifewire.com/thmb/Yva4wEIlM_zg0OgIqsotXVCVIYg=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
@@ -47,10 +47,6 @@ Lifewire / Andy Zahn
 [View On Walmart $562](https://www.walmart.com/ip/Canon-PowerShot-SX70-HS-20-3MP-65x-Optical-Zoom-Digital-Point-Shoot-Camera/773178799?slfpid=3) [View On Adorama.com $699](https://www.adorama.com/icasx70.html) [View On B&H Photo Video $599](https://www.bhphotovideo.com/c/product/1435399-REG/canon%5F3071c001%5Fpowershot%5Fsx70%5Fhs%5Fdigital.html)
 
 4.3
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
@@ -100,10 +96,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
@@ -122,6 +114,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Autofocus: Blazing fast**
 
  We were shocked by how fast and consistent the autofocus is in the SX70 HS, even in low-light situations. It rarely fails to lock on to your intended subject, and focus tracking works flawlessly.
@@ -129,6 +125,10 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -147,7 +147,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Modes: Plenty to choose from (and only some are useful)**
@@ -163,10 +163,6 @@ Lifewire / Andy Zahn
  A problem with all these automated modes and scene settings is that the images they produce are exclusively JPEG, with RAW being unavailable. Fortunately, Program mode is essentially the same as Auto, and you can enable RAW image recording there.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
 
@@ -198,6 +194,10 @@ Lifewire / Andy Zahn
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Competition: Dominating from the middle ground**
 
  Canon hasn’t tried to push any boundaries with the SX70 HS. Instead, it plays it safe and just does everything very well. Two of its main competitors in the superzoom arena, Panasonic and Nikon, offer intriguing alternatives by either cutting costs or offering groundbreaking technological advances.
@@ -214,15 +214,15 @@ Lifewire / Andy Zahn
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Panasonic Lumix DC-FZ80](https://www.lifewire.com/panasonic-lumix-dc-fz80-review-4691071)
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -258,24 +258,20 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-quintessential-5-add-ons-for-sea-cameras/"><u>[New] Quintessential 5 Add-Ons for Sea Cameras</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-superior-animation-suites-top-3d-modelers/"><u>[Updated] In 2024, Superior Animation Suites Top 3D Modelers</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-odins-revenge-ragnarok-coming-soon/"><u>[Updated] Odin's Revenge Ragnarök - Coming Soon</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-tweaking-sound-on-ps5ps4-games/"><u>[Updated] Tweaking Sound on PS5/PS4 Games</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-visual-fluidity-the-art-of-applying-face-centered-motion-blur-with-picsart/"><u>2024 Approved Visual Fluidity The Art of Applying Face-Centered Motion Blur with Picsart</u></a></li>
-<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Samsung Galaxy F15 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/acer-aspire-e-15-review-one-of-the-best-budget-laptops-money-can-buy/"><u>Acer Aspire E 15 Review: One of the Best Budget Laptops Money Can Buy</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722782434504-garmin-vivosmart-4/"><u>Garmin Vivosmart 4에 대한 평가: 신체 성능을 향상시키는 보조도구 역할, 스트레스를 관리하고 신원 지속성을 최대화합니다</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-best-free-cad-programs-ranked-find-your-perfect-match-now/"><u>The Best Free CAD Programs Ranked - Find Your Perfect Match Now!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-tp-link-archer-c80-wireless-router-analysis-speed-test-under-100/"><u>Top TP-Link Archer C80 Wireless Router Analysis - Speed Test Under $100</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-testing-the-blueear-bluetooth-enabled-stylish-beanie-a-comprehensive-sound-performance-analysis/"><u>Unboxing and Testing the Blueear Bluetooth-Enabled Stylish Beanie: A Comprehensive Sound Performance Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-acurite-pro-01036ms-features-a-seamless-setup-with-strong-build-quality/"><u>Unpacking the AcuRite Pro 01036M's Features: A Seamless Setup with Strong Build Quality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-hp-omen-obelisk-premium-gaming-power-without-breaking-the-bank/"><u>Unveiling the HP OMEN Obelisk: Premium Gaming Power Without Breaking the Bank</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-and-efficiency-why-you-need-to-check-out-the-netgear-nighthawk-c7000-router-today/"><u>Unveiling the Power and Efficiency: Why You Need to Check Out the Netgear Nighthawk C7000 Router Today</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/updated-budget-video-editing-top-picks-for-2024/"><u>Updated Budget Video Editing Top Picks for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/versatile-and-compact-moco-universal-portable-keyboard-with-secure-bluetooth-technology/"><u>Versatile and Compact MOCO Universal Portable Keyboard with Secure Bluetooth Technology</u></a></li>
-<li><a href="https://driver-install.techidaily.com/wacom-bamboo-seamless-upgrade-and-installation/"><u>Wacom Bamboo: Seamless Upgrade and Installation</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/why-state-entities-should-move-away-from-large-scale-technology-insights-from-microsoft-disruptions/"><u>Why State Entities Should Move Away From Large-Scale Technology: Insights From Microsoft Disruptions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/zombie-apocalypse-revival-unpacking-the-fun-and-fright-of-7-days-to-die/"><u>Zombie Apocalypse Revival: Unpacking the Fun and Fright of '7 Days to Die'</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-reaping-the-benefits-of-hdr-for-professional-videoists/"><u>[New] Reaping the Benefits of HDR for Professional Videoists</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-strategic-content-creation-unleashing-ideas-through-google-trends/"><u>[Updated] Strategic Content Creation Unleashing Ideas Through Google Trends</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-utilizing-b-roll-for-enhanced-storytelling/"><u>[Updated] Utilizing B-Roll for Enhanced Storytelling</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-remove-a-background-in-affinity-photo/"><u>2024 Approved How to Remove a Background in Affinity Photo</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhance-your-engagement-on-youtube-a-guide-to-using-text-effects-in-comments-strikethrough-bold-and-italic/"><u>Enhance Your Engagement on YouTube: A Guide to Using Text Effects in Comments (Strikethrough, Bold & Italic)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-hdmi-21-latest-features-unveiled-is-it-time-to-consider-an-upgrade/"><u>Exploring HDMI 2.1: Latest Features Unveiled - Is It Time To Consider An Upgrade?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/from-ps2-to-present-understanding-the-shift-in-console-performance-and-decreased-availability-of-60fps-games/"><u>From PS2 to Present: Understanding the Shift in Console Performance and Decreased Availability of 60FPS Games</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/gaining-practical-abilities-how-video-gaming-enhances-life-lessons/"><u>Gaining Practical Abilities: How Video Gaming Enhances Life Lessons</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/gaming-deals-unleashed-dive-into-the-excitement-of-steams-seasonal-promotion/"><u>Gaming Deals Unleashed: Dive Into the Excitement of Steam's Seasonal Promotion!</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-poco-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Poco Phone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-free-fire-techniques-for-shifting-your-characters-voice-effectively/"><u>In 2024, Free Fire Techniques for Shifting Your Character's Voice Effectively</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-iphone-layout-artistry/"><u>In 2024, Mastering iPhone Layout Artistry</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/latest-tech-news-recap-analyzing-the-impact-of-atandt-security-incident-and-launch-of-new-samsung-devices/"><u>Latest Tech News Recap: Analyzing the Impact of AT&T Security Incident and Launch of New Samsung Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ready-to-discover-more-with-your-personalized-spotify-post-spotify-wrapped/"><u>Ready to Discover More with 'Your Personalized Spotify' Post-Spotify Wrapped</u></a></li>
+<li><a href="https://video-capture.techidaily.com/the-ultimate-recorders-handbook-for-film-lovers/"><u>The Ultimate Recorder's Handbook for Film Lovers</u></a></li>
 </ul></div>
 

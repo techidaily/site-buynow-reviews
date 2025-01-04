@@ -1,7 +1,7 @@
 ---
 title: "The Omnicharge Omni E-Book: In-Depth Analysis of a Multi-Purpose Portable Power Bank with Cutting-Edge Qi Wireless Charge"
-date: 2024-08-15T09:34:09.371Z
-updated: 2024-08-16T09:34:09.371Z
+date: 2024-12-30T16:20:51.204Z
+updated: 2025-01-03T17:41:28.621Z
 categories:
   - BestProducts
 description: "This Article Describes The Omnicharge Omni E-Book: In-Depth Analysis of a Multi-Purpose Portable Power Bank with Cutting-Edge Qi Wireless Charge"
@@ -40,15 +40,9 @@ Lifewire / Jeremy Laukkonen
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Omni 20+ Wireless Power Bank
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/_EV0MTLRfFPHdqFJ2gKyMJff5YY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-HERO-SQ-e459d44e1a2c432f80fec058b858ccfe.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -76,12 +70,16 @@ Lifewire / Jeremy Laukkonen
  Always on the lookout for ways to simplify my road kit, I recently slipped an Omni 20+ into my messenger bag to see how well it can stand-in for the assortment of chargers I normally pack. Through about a week of use and testing, I was able to get a pretty good feel for how well the Omni 20+ performs, how well it charges a variety of devices, and whether or not it’s worth the fairly stiff asking price.
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/lFGiT6009F_OKGOJ-sLcNKNylt0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-2-9a3217b3ee154a3ebcb38e61aac3be52.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Slick all-black appearance that’s dulled a bit by soft-touch rubber**
 
@@ -96,8 +94,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  For a premium device with a premium price like the Omni 20+, I’d like to see a different material used for the case.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Initial Setup: Frustrating due to a lack of documentation**
 
  While it’s clear that a lot of thought and care went into designing the Omni 20+, it’s just as clear that almost no thought was given over to the packaging and documentation. When you open the box, you’re greeted with the battery itself, a USB-A to C cable, a[USB-C](https://www.lifewire.com/usb-c-4149490) to C cable, and a couple of brochures. One of those brochures is marked as a quick start guide, but it really isn’t.
@@ -113,9 +112,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Once you’ve fully charged the Omni 20+, you need to discharge and then charge it again to completely calibrate the battery. The USB-C port is plug and play, meaning you can plug any USB-C device in and power it up without changing any settings, but you do have to use the somewhat confusing LCD display if you want to charge using the power outlet, barrel connector, or the USB-A ports. None of this is terribly complicated, but I did need to download an instructions PDF from the official Omnicharge site.
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/QOfV3Sc5THi3Z0gKZq0e-ciPUEE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-5-000854ae3c4347b7adc13130dcb9d1b9.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -126,8 +122,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  I’ve already covered the issue with the manual in the previous section, so suffice it to say I recommend avoiding frustration and just downloading the manual from the Omnicharge website rather than trying to figure out the display and controls on your own.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Sockets and Ports: Excellent array, including wireless**
 
  The Omni 20+ includes a nice array of sockets and ports, managing to cover all of the important bases with ease. On one side, you’ll find a USB-C port and a barrel connector port, which are both capable of charging the Omni 20+ or providing power to other devices.
@@ -174,12 +171,13 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  The built-in Qi charger is capable of putting out 10 watts, and I found it to work just as well as other 10 watt Qi chargers I’ve used. It is a bit touchy in terms of positioning, but I was able to get the hang of it pretty fast.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: High end**
 
  With an MSRP of $200, Omni 20+ is a high-end battery bank with a high-end price. You get a whole lot of functionality for that price, but the device does lag behind in terms of both battery capacity and included accessories. The glaring issue is that you can find more powerful battery banks for less money, even if you won’t find one with the exact same functionality.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Omni 20+ vs. Pilot Pro 2**
 
@@ -197,6 +195,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  The Omnicharge Omni 20+ is one of the best power banks out there, and it had better be for the price they’re asking. This is the power bank you need if you count a high wattage USB-C port, barrel connector input and output, wireless charging, and a standard power outlet among your needs. You can find cheaper power banks that provide more juice, but you won’t find one with this same feature set.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  20+ Wireless Power Bank
@@ -208,14 +210,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * Output  100W (outlet), 60W (USB-C), 10W (wireless)
 * Warranty  One year
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -224,4 +223,17 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-boost-your-channel-game-essential-video-editing-advice/"><u>2024 Approved Boost Your Channel Game Essential Video Editing Advice</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-inshot-cut-mastery-creating-fluid-movements/"><u>2024 Approved Inshot Cut Mastery Creating Fluid Movements</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-most-reliable-and-efficient-ups-units-the-best-picks/"><u>2024'S Most Reliable and Efficient UPS Units - The Best Picks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/all-you-need-to-know-about-the-adaptable-hp-chromebook-11-your-go-to-gadget-for-classroom-success-career-advancement-and-recreation/"><u>All You Need to Know About the Adaptable HP Chromebook 11 - Your Go-To Gadget for Classroom Success, Career Advancement & Recreation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ambient-weather-ws-1002-wifi-device-evaluation-superior-accuracy-meets-high-investment-price-tag/"><u>Ambient Weather WS-1002 WiFi Device Evaluation: Superior Accuracy Meets High Investment Price Tag</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722677167859-escape-boredom-with-these-10-must-play-games-ranked/"><u>Escape Boredom with These 10 Must-Play Games, Ranked</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-15-pro-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone 15 Pro With an Apple Watch & What to Do if It Doesnt Work | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-top-10-best-free-facetime-for-android-alternatives/"><u>In 2024, Top 10 Best Free FaceTime for Android Alternatives</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reimagining-picture-presentation-nixplays-innovative-x15d-reviewed/"><u>Reimagining Picture Presentation: Nixplay's Innovative X15D Reviewed</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/spotlighting-new-and-popular-lgbtq-series-on-netflix-for-summer-july-2024/"><u>Spotlighting New and Popular LGBTQ Series on Netflix for Summer (July 2024)</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Nostalgic Camera for Modern Travelers – PowerShot G9 X Mark II Reviewed
-date: 2024-08-15T09:34:26.481Z
-updated: 2024-08-16T09:34:26.481Z
+date: 2024-12-31T20:29:03.160Z
+updated: 2025-01-04T03:03:37.153Z
 categories:
   - BestProducts
 description: This Article Describes Nostalgic Camera for Modern Travelers – PowerShot G9 X Mark II Reviewed
@@ -13,9 +13,17 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
 
 4.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/OIHJ0F8VMR0yFUpC8veJBJ39E6A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -39,14 +47,12 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
@@ -72,9 +78,6 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: A lot of power packed into a small frame**
 
  The Beatit Jump Starter D11’s main unit's effectively a small black brick with red accents. Roughly the size of a small paperback book, the unit's constructed out of durable plastic and features a flashlight at one end. Along one of the long sides there's a small display that shows battery status, the on/off switch, two USB power outputs, and the device’s charging port. On the opposing side a rubber flap covers the jumper cable port; a unique port that the jumper cable accessory plugs in to.
@@ -85,9 +88,6 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
 
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process: It can’t realistically be much simpler**
 
  Should you find yourself in a situation where you need to use the jump start functionality of the Beatit Jump Starter D11, you'll find it quite easy to use. On our Elantra test vehicle we simply had to pop the hood, bring the unit over, and plug the jumper cable accessory into its port. Once in place getting a proper connection is a simple matter of attaching the red clamp to the positive battery terminal and then the black clamp to the negative terminal. With a firm connection in place we simply had to set the unit down someplace where the vibration of the engine wouldn’t make it slide and then start the car. With the unit in place the car immediately started with zero hesitation, at which point we could disconnect the unit and get back on the road.
@@ -96,9 +96,6 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ## **Performance: Plenty of power for all your needs**
 
  Time and again, the Beatit Jump Starter D11 was able to get a car with a very[depleted battery](https://www.lifewire.com/car-batteries-are-made-to-die-534765) started. Even after repeated testing the unit’s own battery only dropped down to 85% capacity.
@@ -106,6 +103,10 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
  Charging a phone with a jump starter seems like overkill, and the unit’s ability to charge at 1,200mAh confirms that impression. At such an elevated level of charging your phone or other device will likely get its battery topped off in very little time. With 18,000mAh of capacity you can fully charge a modern phone at least twice, and still leave the unit with the juice it needs in order to start a car.
 
  Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
@@ -115,9 +116,6 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: A ton of value for a tiny cost**
 
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
@@ -139,6 +137,10 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
 **For the price, it's perfect.**
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -162,8 +164,6 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -171,4 +171,22 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-motion-text-artisan/"><u>[Updated] Motion Text Artisan</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-blueprint-for-captivating-instagram-unboxing-vids/"><u>2024 Approved The Blueprint for Captivating Instagram Unboxing Vids</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-elite-selection-of-wireless-charger-packs-for-mobile-gadgets-comparisons-and-ratings/"><u>2024'S Elite Selection of Wireless Charger Packs for Mobile Gadgets – Comparisons & Ratings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-assessment-of-the-vive-cosmos-in-todays-intense-vr-headset-arena/"><u>A Comprehensive Assessment of the Vive Cosmos in Today's Intense VR Headset Arena</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-practical-guide-to-using-your-blink-outdoor-multi-functional-lighting-cam/"><u>A Practical Guide to Using Your Blink Outdoor Multi-Functional Lighting Cam</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/aeeusy-solar-power-solution-reviewed-the-ultimate-pure-sine-wave-inverter-for-fragile-medical-equipment-needs/"><u>AEEUSY Solar Power Solution Reviewed: The Ultimate Pure Sine Wave Inverter for Fragile Medical Equipment Needs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/after-each-explanation-of-a-technical-process-eg-how-chemotherapy-works-include-an-analogy-that-relates-to-everyday-life/"><u>After Each Explanation of a Technical Process (E.g., How Chemotherapy Works), Include an Analogy that Relates to Everyday Life.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazons-exclusive-2024-prime-day-promotions-for-electronics-and-gadgets/"><u>Amazon's Exclusive 2024 Prime Day Promotions for Electronics and Gadgets</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/comparing-processor-durability-puget-systems-shows-intel-cpus-outlast-ryzen-newly-published-failure-statistics/"><u>Comparing Processor Durability: Puget Systems Shows Intel CPUs Outlast Ryzen – Newly Published Failure Statistics</u></a></li>
+<li><a href="https://win-docs.techidaily.com/elevate-your-career-with-these-six-proven-methods-guided-by-massmail/"><u>Elevate Your Career with These Six Proven Methods (Guided by Massmail)</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-samsung-galaxy-s24-ultra-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-android-tips-flipping-video-images/"><u>In 2024, Android Tips Flipping Video Images</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/step-by-step-guide-repairing-damaged-applications-in-linux-systems/"><u>Step-by-Step Guide: Repairing Damaged Applications in Linux Systems</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-realme-gt-5-pro-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Realme GT 5 Pro Users</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Swagtron Swagger Electric Scooter - The Chic Way to Commute in Style
-date: 2024-08-15T09:33:02.182Z
-updated: 2024-08-16T09:33:02.182Z
+date: 2024-12-29T16:43:19.306Z
+updated: 2025-01-03T22:15:46.184Z
 categories:
   - BestProducts
 description: This Article Describes The Swagtron Swagger Electric Scooter - The Chic Way to Commute in Style
@@ -41,9 +41,9 @@ Lifewire / Nick Jaynes
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/kUpys0K04ePH0SuEfAENz--MXSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
@@ -68,8 +68,9 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: All-plastic, but sturdy and subtle**
 
  The Anker PowerDrive 2 might not be the sharpest or most cutting-edge looking in-car USB charger, but what it lacks in visual pizazz, it more than makes up for in sturdiness.
@@ -82,9 +83,6 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Fast charging for demanding devices**
 
  The best part of the Anker PowerDrive 2 is its charging. It has the ability to charge iPads simultaneously without getting overheated thanks to its PowerIQ and VoltageBoost technology. Each USB port can output a maximum 5V/2.4A, for a total of 24W. That’s in line with other car[chargers](https://www.lifewire.com/best-wireless-phone-chargers-4138571) we tested, but the PowerIQ technology can help identify device and deliver the fastest possible charge. This also gives you some overvoltage protection to make sure something like a smartwatch doesn’t fry when you plug it in.
@@ -96,8 +94,9 @@ Lifewire / Nick Jaynes
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Middle of the pack**
 
  The list price of $14.99 is positioned in the mid-range of the USB charger market, which ranges from just a few dollars to upwards of $50 for some fancier chargers. However, Anker PowerDrive 2 can be had for a discounted price on some websites. Considering the fact that the Anker PowerDrive 2 includes both the fast-charger and a 3-foot micro USB cable, it is well priced for the marketplace.
@@ -105,8 +104,9 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Competition: A handful of rivals**
 
  The RAVPower 24W charger is one of Anker’s main rivals. It has a metal exterior, a lower price tag, and theoretically identical power output. However, its construction is far less robust. In fact, its metal outside easily separates from the internal components easily making Anker a better pick for longevity.
@@ -122,8 +122,9 @@ Lifewire / Nick Jaynes
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  PowerDrive 2 24W Dual USB Car Charger
@@ -141,8 +142,6 @@ Lifewire / Nick Jaynes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -150,4 +149,22 @@ Lifewire / Nick Jaynes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-help.techidaily.com/new-maximize-watch-time-minimize-leaving-6-key-tactics-to-retain-more-audience/"><u>[New] Maximize Watch Time, Minimize Leaving 6 Key Tactics to Retain More Audience</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-free-and-paid-drawing-tools-for-windows-enthusiasts/"><u>[Updated] 2024 Approved Free and Paid Drawing Tools for Windows Enthusiasts</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-accelerate-your-editing-with-these-10-pro-plugins/"><u>[Updated] Accelerate Your Editing with These 10 Pro Plugins</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-hidden-treasures-in-yokus-island-express-a-review-of-its-innovative-gameplay/"><u>Discovering Hidden Treasures in Yoku's Island Express: A Review of Its Innovative Gameplay</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-honor-magic-6-pro-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Honor Magic 6 Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-testing-the-latest-apple-iphone-15-pro-a-comprehensive-review/"><u>Experience Testing the Latest Apple iPhone 15 Pro: A Comprehensive Review</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/expert-tips-for-repairing-launchdll-not-found-bugs-in-windows-systems/"><u>Expert Tips for Repairing 'Launch.dll Not Found' Bugs in Windows Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-next-level-virtual-skies-with-exceptional-clarity-an-in-depth-look-at-x-plane-11s-aviation-graphics/"><u>Exploring Next-Level Virtual Skies with Exceptional Clarity: An In-Depth Look at X-Plane 11'S Aviation Graphics</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-seamless-multi-screen-browsing-in-chrome-using-pip/"><u>In 2024, Seamless Multi-Screen Browsing in Chrome Using PIP</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-eero-pro-router-ideal-for-uninterrupted-home-network-coverage-and-performance/"><u>In-Depth Look at the Eero Pro Router: Ideal for Uninterrupted Home Network Coverage and Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/introducing-the-imac-with-apples-innovative-m1-chip-comprehensive-performance-analysis/"><u>Introducing the iMac with Apple's Innovative M1 Chip – Comprehensive Performance Analysis</u></a></li>
+<li><a href="https://games-able.techidaily.com/mastering-the-art-of-resolving-4-frequent-gpu-issues/"><u>Mastering the Art of Resolving 4 Frequent GPU Issues</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/revolutionizing-your-routine-chatgpt-for-total-improvement/"><u>Revolutionizing Your Routine: ChatGPT for Total Improvement</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/score-exclusive-deals-acer-products-at-record-prices-this-prime-day-2024-style/"><u>Score Exclusive Deals: Acer Products at Record Prices This Prime Day, 2024 Style</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-evolution-of-samsungs-smartphones-s10plus-and-s2e-unveiled/"><u>The Evolution of Samsung's Smartphones: S10+ and S2e Unveiled!</u></a></li>
+</ul></div>
 

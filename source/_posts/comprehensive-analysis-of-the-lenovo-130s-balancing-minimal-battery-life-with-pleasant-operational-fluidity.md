@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Analysis of the Lenovo 130S: Balancing Minimal Battery Life with Pleasant Operational Fluidity"
-date: 2024-12-21T19:34:46.833Z
-updated: 2024-12-25T17:24:27.754Z
+date: 2024-12-28T22:03:04.117Z
+updated: 2025-01-03T23:01:51.057Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Analysis of the Lenovo 130S: Balancing Minimal Battery Life with Pleasant Operational Fluidity"
@@ -44,7 +44,7 @@ Lifewire / Rebecca Isaacs
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Sabrent Mini Travel USB Optical Mouse
@@ -73,7 +73,7 @@ Lifewire / Rebecca Isaacs
  Working on the go can prove difficult on a laptop, especially when you need to work on heavy-hitting projects requiring precision. Travel mice, or portable computer mice that can be packed and unpacked on the go, can alleviate much of the proverbial headache of working on PC-heavy tasks. For those who prefer their mouse have a cable, the Sabrent fits the bill. Using high definition precision technology, the tiny, three-year-old mouse is designed for those who want convenience and extreme precision in their work.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Basic**
@@ -90,17 +90,21 @@ Lifewire / Rebecca Isaacs
 
  The cable’s addition increases the size of the mouse, bringing the total measurements to 6.44 x 1.5x 2.44 inches (LWH). The Sabrent also comes with a mesh carrying bag, making it easy to pack up and take on the go without scratching it. One more perk: this mouse is adaptable to most[Windows](https://www.lifewire.com/windows-4781566) ,[Mac](https://www.lifewire.com/mac-backup-software-hardware-and-guides-2260931) , and[Linux](https://www.lifewire.com/software-and-apps-4781541) systems, so you can insert it into USB ports across multiple machines for fast use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Plug and play**
 
  Setting up the Sabrent proved simple and convenient. Expanding the cable and plugging it into the PC’s USB port allows the Sabrent to self-install. In under less than a minute, the plug and play features kick in. If you need to alter it to suit ambidextrous needs, you’ll need to head into the control panel of your PC to make the swap. Those requiring left-handed features will need to alter it. Once the software quickly installs, and you’re able to begin scrolling in no time.
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/mM3uSf3Y2pyayDyWJzP8_5uUya4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_05-04e025144b514674b109e77f79129d74.jpg)
 
- Lifewire / Rebecca Isaacs
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Rebecca Isaacs
 
 ## **Performance: Precise, but mildly problematic**
 
@@ -130,10 +134,6 @@ Lifewire / Rebecca Isaacs
 
  At around $7, this is a great budget mouse. Essentially, the cost is for basic mouse features, and not for anything heavier or more taxing on a PC. If you’re looking for a travel mouse with more features, then expect to spend more. However, if accomplishing work tasks is solely your task then this is the perfect price point.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Sabrent Mini Travel Mouse vs. VicTsing Wireless Mouse**
 
  Because the mouse is so tiny, we also tested the[VicTsing Wireless Mouse](https://www.lifewire.com/victsing-wireless-mouse-review-4799129) (view on[Amazon](https://www.amazon.com/VicTsing-Wireless-Portable-Receiver-Adjustable/dp/B013WC0P2A/?tag=lifewire-onsite-prod-20&ascsubtag=4799034%7Cn6493c6f4bf4b471ba05fab7dd162554120%7C) ) to get a feel as to which mouse is the better option for a portable, travel mouse. The answer turned out to be more complicated: whereas the Sabrent was more ideal for ambidextrous travel, the VicTsing Wireless Mouse was geared more for right-handed users who prefer adjustable and wireless features.
@@ -149,7 +149,7 @@ Lifewire / Rebecca Isaacs
  While we constantly had to shift our grip on the tiny Sabrent mouse, we really liked its portability and fast, accurate movements. The cable proved to be difficult for desktop use, however, laptop users will enjoy the speeds that accompany the wired cable.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -179,16 +179,22 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/updated-adaptability-and-agility-key-attributes-for-thriving-in-a-changing-market-landscape/"><u>[Updated] Adaptability & Agility Key Attributes for Thriving in a Changing Market Landscape</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/1-serene-meditation-image-collection-professional-desktop-and-screen-saver-graphics-by-yl-software/"><u>1. Serene Meditation Image Collection - Professional Desktop & Screen Saver Graphics by YL Software</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-comprehvew-of-the-newly-released-samsung-galaxy-s21-a-step-back-for-more-efficiency/"><u>A Comprehvew of the Newly Released Samsung Galaxy S21 - A Step Back for More Efficiency?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-detailed-look-at-godfall-for-playstation-5-when-a-promising-start-fails-to-deliver/"><u>A Detailed Look at Godfall for PlayStation 5: When a Promising Start Fails to Deliver</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/accurate-sensors-that-measure-temperature-humidity-rainfall-wind-speed-barometric-pressure-and-uv-index/"><u>Accurate Sensors that Measure Temperature, Humidity, Rainfall, Wind Speed, Barometric Pressure, and UV Index.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/alienware-aurora-r7-assessment-high-price-for-exceptional-power/"><u>Alienware Aurora R7 Assessment: High Price for Exceptional Power</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/an-expert-evaluation-of-cyberpunk-2077-imperfect-but-promisingly-ambitious/"><u>An Expert Evaluation of Cyberpunk 2077: Imperfect but Promisingly Ambitious</u></a></li>
-<li><a href="https://article-helps.techidaily.com/discovering-why-filmora-captivates-your-heart-for-2024/"><u>Discovering Why Filmora Captivates Your Heart for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-poco-x6-pro-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Poco X6 Pro FRP Bypass Instantly</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-flashlight-from-apple-iphone-12-pro-max-lock-screen-by-drfone-ios/"><u>In 2024, How To Remove Flashlight From Apple iPhone 12 Pro Max Lock Screen</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-honor-magic5-ultimate-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Honor Magic5 Ultimate FRP Without Computer</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ffortless-techniques-crafting-youtube-shorts-images-on-the-fly/"><u>[New] Effortless Techniques Crafting YouTube Shorts Images on the Fly</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-crafting-professional-content-on-youtube-via-enhancements/"><u>[New] In 2024, Crafting Professional Content on YouTube via Enhancements</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-streamline-your-iphone-jpegpng-to-pdf-file-processing/"><u>[New] Streamline Your iPhone JPEG/PNG to PDF File Processing</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-essential-guide-to-selecting-top-displays-for-your-xbox-series-x-games/"><u>[Updated] 2024 Approved Essential Guide to Selecting Top Displays for Your Xbox Series X Games</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-quintessential-scripting-spectrum-8-cinematic-classes/"><u>[Updated] Quintessential Scripting Spectrum 8 Cinematic Classes</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-ultimate-instructions-for-prolonged-iphone-shots/"><u>2024 Approved The Ultimate Instructions for Prolonged iPhone Shots</u></a></li>
+<li><a href="https://techtrends.techidaily.com/breakdown-of-benefits-how-hulu-stands-out-against-hulu-plus-for-viewers/"><u>Breakdown of Benefits: How Hulu Stands Out Against Hulu + for Viewers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/easy-on-the-wallet-excellent-in-quality-canon-elph-190/"><u>Easy on the Wallet, Excellent in Quality – Canon ELPH 190</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-imagery-manual-control-and-savings-with-the-yn560iv/"><u>Elevate Your Imagery - Manual Control & Savings with the YN560IV</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/m1-revolution-unveiled-in-apples-2020-macbook-pro-13-inch-laptop-review/"><u>M1 Revolution Unveiled in Apple's 2020 MacBook Pro 13-Inch Laptop Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nintendos-switch-lite-a-budget-conscious-portable-console-alternative-examined-in-our-review/"><u>Nintendo's Switch Lite – A Budget-Conscious, Portable Console Alternative Examined in Our Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reinvented-classic-experience-in-fallout-wasteland-2-critical-review-by-the-directors-cut/"><u>Reinvented Classic Experience in Fallout: Wasteland 2 - Critical Review by the Director’s Cut</u></a></li>
+<li><a href="https://win11.techidaily.com/surpassing-100-top-5-apps-to-enhance-volume-on-windows/"><u>Surpassing 100%: Top 5 Apps to Enhance Volume on Windows</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/taking-a-deep-dive-into-the-features-of-creatives-2013-premium-sound-blaster-zxr/"><u>Taking a Deep Dive Into the Features of Creative's 2013 Premium Sound Blaster ZxR!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-using-your-netgear-c3700-exploring-its-strengths-as-a-reliable-cable-modem/"><u>The Ultimate Guide to Using Your Netgear C3700 - Exploring Its Strengths as a Reliable Cable Modem</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-5-features-and-performance-of-the-ring-wireless-doorbell-batteries-included/"><u>Top 5 Features and Performance of the Ring Wireless Doorbell (Batteries Included)</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unveiling-the-masterpiece-in-depth-analysis-and-thoughts-on-the-samsung-galaxy-s10-elite-model/"><u>Unveiling the Masterpiece: In-Depth Analysis and Thoughts on the Samsung Galaxy S10 Elite Model</u></a></li>
 </ul></div>
 

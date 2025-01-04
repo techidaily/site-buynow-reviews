@@ -1,7 +1,7 @@
 ---
 title: "Elevate Your JRPG Collection with Yakuza: Like a Dragon – It's an Absolute Game Changer"
-date: 2024-08-10T23:55:22.320Z
-updated: 2024-08-11T23:55:22.320Z
+date: 2024-12-29T23:30:56.227Z
+updated: 2025-01-03T18:45:35.365Z
 categories:
   - BestProducts
 description: "This Article Describes Elevate Your JRPG Collection with Yakuza: Like a Dragon – It's an Absolute Game Changer"
@@ -13,9 +13,17 @@ thumbnail: https://thmb.techidaily.com/2387718b8db3694a51e607975c051578189e680f7
 
 4
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## SEGA Yakuza: Like a Dragon
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/a-p7jLzGh5XDa5UjESh5w8kXrPk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_HeroSquare-ea84381e359846e6951c77b6f7e7c5a0.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -40,13 +48,11 @@ Lifewire / Erika Rawes
 4
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## SEGA Yakuza: Like a Dragon
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/2HQ40tAW6PvhutMT0JyWvwFpbdI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_HeroSquare-ea84381e359846e6951c77b6f7e7c5a0.jpg)
 
 Lifewire / Erika Rawes
@@ -69,13 +75,14 @@ Lifewire / Erika Rawes
 
  The[best PC games](https://www.lifewire.com/best-pc-games-4147292) offer something unique that keeps you coming back for more. Yakuza: Like a Dragon takes the standard Yakuza formula and stands it on its head, moving the fighting system from real-time to turn-based and making this entry to the series feel like a true JRPG. I played Yakuza: Like a Dragon[on PC](https://www.lifewire.com/best-pc-games-4147292) to find out if these changes make this game better or worse. Should you play the new Yakuza or skip it? Read on to check out my full review of Yakuza: Like a Dragon.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Setting and Plot: A very long intro
 
  Yakuza: Like a Dragon places you in the shoes of Ichiban Kasuga, a young Yakuza upstart who was raised as an orphan in a Soap House by the owner and the women who worked there. Kasuga gets into a bit of trouble with a Yakuza family but is saved by Masumi Arakawa, the patriarch of the Arakawa family. Because of this, Kasuga pledges his life to Arakawa, promising to repay the debt.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/Mo4mMH944CddmYJTyCxtMRxK9-k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_05-e59c99ba9bd249e7a2241f532dd742dc.jpg)
 
 Lifewire / Erika Rawes
@@ -84,9 +91,6 @@ Lifewire / Erika Rawes
 
  All of the aforementioned story takes place in what could be called the introductory stages of the game. The intro was incredibly slow and took around five to six hours. Finally, after the long intro, it felt like I was getting into the real meat where the world opens up. Even after the long preamble, I was still introduced to new items, concepts, and parts of the game. It felt like a lot of handholding, which was frustrating at times.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/_ksFqEWrm3B3MbfrBujuNtLpcXw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_03-37ca82f2a4cd42c4ad65f34e2ca63b68.jpg)
 
 Lifewire / Erika Rawes
@@ -98,6 +102,10 @@ Lifewire / Erika Rawes
  Yakuza: Like a Dragon is clearly inspired by games like Dragon Quest. So much so that eventually, and in a truly hilarious fashion, Kasuga begins having delusions of being a hero, and makes it his life's mission to become a hero who can save everyone around him. These delusions play out in a physical change that takes place over enemies during combat. Their eyes turn red, and their bodies change, but Kasuga is the only one who can see these changes.
 
  Overall, the story is interesting and engaging, with excellent voice acting and deep and interesting characters. There are plenty of opportunities to get to know the people who travel with you, and you come to care about the characters and their motivations. Yakuza: Like a Dragon is story-rich, and you won’t be disappointed at the amount of content to explore.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Gameplay: Fun, yet slow-paced at times
 
@@ -121,9 +129,6 @@ Lifewire / Erika Rawes
 
  This[PC game](https://www.lifewire.com/pc-gaming-reviews-4689600) plays just like it should, and the controls are top-notch. Everything just works, which is a rare feat these days. You should be able to finish the main story in around 45 to 55 hours, depending on how fast you run through it, but I highly recommend taking your time and enjoying all the wonderful diversions available.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Graphics: Excellent visuals
 
  The graphics and visuals are impressive. Details are accurate and in the right places. Food looks so realistic (and delicious), and there were some moments where I could even see the pores on a person's skin during cinematics.
@@ -138,18 +143,12 @@ Lifewire / Erika Rawes
 
 Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Price: The typical $60
 
  The base version of Yakuza: Like a Dragon comes in at $60 like most new titles. The price is reasonable for the amount of gameplay. However, you have two other purchase options as well. The Hero Edition, which costs $70, includes the Job Set and the Management Mode set and features two extra jobs and three sets of Management mode employees.
 
  The Legendary Hero edition costs $90, and it includes both previously listed sets, as well as the Crafting Mat, Stat Boost, Karaoke, and Ultimate Costume sets. These are all nice bonuses and can certainly add to the experience, but you will also find more than enough gameplay in the base game.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Yakuza: Like a Dragon vs. Dragon Quest Series
 
  It’s clear Yakuza: Like a Dragon draws some inspiration from the recent Dragon Quest, Dragon Quest XI. Both games feature turn-based combat, jobs working as roles, and a large sweeping and epic tale. Yakuza: Like a Dragon diverges in one major way, and that is not being afraid to innovate and push the limits of what a JRPG can be. Where Dragon Quest is the basic formula, Yakuza: Like a Dragon is what happens when a mad scientist gets a hold of that formula and creates something both crazy and brilliant.
@@ -185,8 +184,6 @@ Lifewire / Erika Rawes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -194,4 +191,26 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-reviews.techidaily.com/audiophiles-choice-excellent-earmuffs-for-shows/"><u>Audiophile's Choice: Excellent Earmuffs for Shows</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/best-free-registry-optimization-tools-for-your-computer/"><u>Best Free Registry Optimization Tools for Your Computer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/editing-raw-photos-made-easy-discover-free-darktable-software-for-os-x-and-linux-users/"><u>Editing RAW Photos Made Easy - Discover Free Darktable Software for OS X and Linux Users</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/electric-vehicle-advancements-drive-auto-sectors-shift-towards-digital-innovation-insights-from-zdnet/"><u>Electric Vehicle Advancements Drive Auto Sector's Shift Towards Digital Innovation: Insights From ZDNet</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/excellent-storage-upgrade-for-sony-a7s-ii-cameras/"><u>Excellent Storage Upgrade for Sony A7S II Cameras</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insight-on-linksys-wrt3200acm-why-it-stands-out-amongst-open-source-router-options/"><u>Expert Insight on Linksys WRT3200ACM: Why It Stands Out Amongst Open Source Router Options</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fongo-review-canada-voip-service/"><u>Fongo Review: Canada VoIP Service</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-xiaomi-redmi-12-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Xiaomi Redmi 12 FRP Locks</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/guia-completa-para-eliminar-adware-y-anuncios-emergentes-en-windows-11-con-soluciones-de-malwarefox/"><u>Guía Completa Para Eliminar Adware Y Anuncios Emergentes en Windows 11 Con Soluciones De MalwareFox</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-realme-c67-5g-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Realme C67 5G Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-htc-u23-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring HTC U23 PC | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-sony-blu-ray-player-s3700-analysis-updated/"><u>In 2024, Sony Blu-Ray Player S3700 Analysis (Updated)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-the-economical-lenovo-chromebook-duet-the-dual-function-device-breakdown/"><u>In-Depth Review of the Economical Lenovo Chromebook Duet: The Dual-Function Device Breakdown</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/kindle-a-new-era-in-reading-habits/"><u>Kindle: A New Era in Reading Habits</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-the-wilds-of-gnawbone-insights-and-reviews-from-monster-hunter-world/"><u>Mastering the Wilds of Gnawbone: Insights & Reviews From 'Monster Hunter: World'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-enlightens-a-journey-of-seven-glory-years/"><u>Mondly Enlightens - A Journey of Seven Glory Years</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/punctualizing-playtime-a-comprehensive-guide-to-the-mirari-childrens-alarm-clock/"><u>Punctualizing Playtime: A Comprehensive Guide to the Mirari Children’s Alarm Clock</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/syma-x5c-rc-quadcopter-evaluation-a-cost-effective-starter-drone/"><u>SYMA X5C R/C Quadcopter Evaluation: A Cost-Effective Starter Drone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-and-fixing-stuttering-playback-in-forza-horizon-5/"><u>Troubleshooting and Fixing Stuttering Playback in Forza Horizon 5</u></a></li>
+</ul></div>
 

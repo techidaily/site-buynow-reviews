@@ -1,7 +1,7 @@
 ---
 title: Top Rated Video Doorbell From RemoBell for Less Than a Hundred Bucks!
-date: 2024-12-13T00:42:36.653Z
-updated: 2024-12-16T20:43:23.007Z
+date: 2025-01-03T02:33:55.839Z
+updated: 2025-01-04T01:54:53.098Z
 categories:
   - BestProducts
 description: This Article Describes Top Rated Video Doorbell From RemoBell for Less Than a Hundred Bucks!
@@ -17,10 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/mZDUOsPvbQNLswTVKscdAIhd7sk=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
@@ -46,10 +42,6 @@ thumbnail: https://www.lifewire.com/thmb/mZDUOsPvbQNLswTVKscdAIhd7sk=/400x300/fi
 [View On Amazon $185](https://www.amazon.com/dp/B07T89YZWD?tag=lifewire-onsite-prod-20&ascsubtag=4846125%7Cn35b11b2c61b54fa1a2d951691d1a61ed04%7CB07T89YZWD) [View On Walmart $379](https://www.walmart.com/ip/NETGEAR-Nighthawk-AX6000-Dual-Band-WiFi-Wireless-6-Mesh-Range-Extender-EAX80-100NAS/122370265) [View On Best Buy $197](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-nighthawk-ax6000-ax8-dual-band-wi-fi-6-range-extender-black%2F6359409.p%3FskuId%3D6359409)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
@@ -79,6 +71,10 @@ thumbnail: https://www.lifewire.com/thmb/mZDUOsPvbQNLswTVKscdAIhd7sk=/400x300/fi
 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -86,10 +82,6 @@ thumbnail: https://www.lifewire.com/thmb/mZDUOsPvbQNLswTVKscdAIhd7sk=/400x300/fi
  With very large sides, the front is really just a small panel with light-up LED indicators showing connectivity details and which Ethernet ports are in use. There’s also a small WPS button beneath the LED panel for easy connectivity with a router. On the wider back panel are the four wired[Ethernet ports](https://www.lifewire.com/what-is-an-ethernet-port-817546) for plugging in devices such as game consoles and computers, as well as a USB 3.0 port, DC power port, and the power button itself.
 
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Avoid the app**
 
@@ -103,7 +95,15 @@ thumbnail: https://www.lifewire.com/thmb/mZDUOsPvbQNLswTVKscdAIhd7sk=/400x300/fi
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Connectivity: Smooth sailing**
 
@@ -121,10 +121,6 @@ thumbnail: https://www.lifewire.com/thmb/mZDUOsPvbQNLswTVKscdAIhd7sk=/400x300/fi
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -132,6 +128,10 @@ thumbnail: https://www.lifewire.com/thmb/mZDUOsPvbQNLswTVKscdAIhd7sk=/400x300/fi
  It’s billed as an “8-stream” device, so it should be able to handle several simultaneous media streams at once, with a billed max speed of 4.8Gbps on the 5GHz band and 1.2Gbps on the 2.4GHz band. It has[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) (multiple users, multi-in multi-out) and beamforming capabilities, promising expanded range of up to 2,500 square feet and support for 30+ simultaneous devices.
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: More than most**
 
@@ -150,7 +150,7 @@ thumbnail: https://www.lifewire.com/thmb/mZDUOsPvbQNLswTVKscdAIhd7sk=/400x300/fi
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -179,24 +179,18 @@ thumbnail: https://www.lifewire.com/thmb/mZDUOsPvbQNLswTVKscdAIhd7sk=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-how-to-gauge-if-an-mcn-is-right-for-your-youtube-journey-for-2024/"><u>[New] How to Gauge if an MCN Is Right for Your YouTube Journey for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/trategic-thinking-keywords-that-lead-to-online-victory-for-2024/"><u>[New] Strategic Thinking Keywords that Lead to Online Victory for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-user-engagement-through-strategic-tags-for-2024/"><u>[Updated] Unlocking User Engagement Through Strategic Tags for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/a-stellar-google-play-pass-with-a-tiny-hitch/"><u>A Stellar Google Play Pass with a Tiny Hitch</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/be-wary-of-phishing-attempts-always-verify-sources-before-providing-any-information-or-transferring-assets/"><u>Be Wary of Phishing Attempts; Always Verify Sources Before Providing Any Information or Transferring Assets</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-vive-cosmos-evaluation-top-notch-vr-experience-amid-strong-rivals/"><u>Comprehensive Vive Cosmos Evaluation: Top-Notch VR Experience Amid Strong Rivals</u></a></li>
-<li><a href="https://extra-information.techidaily.com/engage-fully-with-podcasts-15-essential-tasks/"><u>Engage Fully with Podcasts 15 Essential Tasks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-amazon-primes-value-in-depth/"><u>Exploring Amazon Prime's Value in Depth</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-best-features-of-maistos-rc-rock-crawler-perfect-for-family-fun/"><u>Exploring the Best Features of Maisto's RC Rock Crawler - Perfect for Family Fun</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-change-your-itel-p55t-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Itel P55T Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/o-get-paid-on-youtube-from-adsense-to-your-bank-account/"><u>How To Get Paid on YouTube - From AdSense to Your Bank Account</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-the-thermopro-tp67-worth-it-an-affordable-choice-with-reliability-concerns/"><u>Is the ThermoPro TP67 Worth It? An Affordable Choice with Reliability Concerns</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-long-distance-wifi-solutions-a-comprehensive-guide-to-the-years-top-picks/"><u>Leading Long-Distance WiFi Solutions: A Comprehensive Guide to the Year's Top Picks</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>Life360 Learn How Everything Works On Apple iPhone 15 Plus | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/razer-portal-unveiled-is-it-revolutionizing-wireless-connectivity-for-gamers/"><u>Razer Portal Unveiled – Is It Revolutionizing Wireless Connectivity for Gamers?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-future-of-remote-controlled-entertainment-a-comprehensive-review-of-the-dji-robomaster-s1-tank-drone/"><u>The Future of Remote-Controlled Entertainment: A Comprehensive Review of the DJI RoboMaster S1 Tank Drone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-testing-in-depth-analysis-of-the-amazonbasics-high-security-shredder-with-12-sheet-capacity/"><u>Unboxing and Testing: In-Depth Analysis of the AmazonBasics High-Security Shredder with 12 Sheet Capacity</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/unlocking-virtual-video-talks-via-whatsapp-browser-on-your-pc-for-2024/"><u>Unlocking Virtual Video Talks via WhatsApp Browser on Your PC for 2024</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/updated-frame-your-moments-the-best-vignette-editing-apps-for-mobile-free-and-paid-for-2024/"><u>Updated Frame Your Moments The Best Vignette Editing Apps for Mobile Free & Paid for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-low-budget-camera-buys-roundup-for-2024/"><u>[New] Low-Budget Camera Buys Roundup for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-transform-your-social-media-image-best-tools-for-professional-fb-cover-photos/"><u>[Updated] Transform Your Social Media Image Best Tools for Professional FB Cover Photos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-fantasy-villas-with-oriental-elegance-mc-edition/"><u>2024 Approved Fantasy Villas with Oriental Elegance, MC Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/beyond-the-hype-an-objective-look-at-bose-quiet-control-30/"><u>Beyond the Hype: An Objective Look at Bose Quiet Control 30</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/creative-labs-2013-sound-blaster-zxr-in-depth-analysis-and-expert-evaluation/"><u>Creative Labs' 2013 Sound Blaster ZXR - In-Depth Analysis and Expert Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/family-friendly-durable-cams-for-splashing-and-snapping/"><u>Family-Friendly Durable Cams for Splashing and Snapping</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-create-a-digital-signature-online-for-docx-document-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Create a Digital Signature Online for .docx document</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-oneplus-12r-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track OnePlus 12R Location by Number | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-vivo-y100a-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Vivo Y100A to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/master-cortana-archive-windows-based-steps/"><u>Master Cortana Archive: Windows-Based Steps</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/speedy-methods-moving-audio-files-from-iphoneipad-onto-usb-drive/"><u>Speedy Methods: Moving Audio Files From iPhone/iPad Onto USB Drive</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-clearstream-eclipse-antenna-top-notch-functionality-in-an-easy-package/"><u>The ClearStream Eclipse Antenna: Top-Notch Functionality in an Easy Package</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-mobile-reception-amplifiers/"><u>Top-Rated Mobile Reception Amplifiers</u></a></li>
 </ul></div>
 

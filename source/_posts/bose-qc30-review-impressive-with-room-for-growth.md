@@ -1,7 +1,7 @@
 ---
 title: "Bose QC30 Review: Impressive with Room for Growth"
-date: 2024-12-15T23:46:13.731Z
-updated: 2024-12-17T01:00:59.320Z
+date: 2024-12-31T18:42:45.059Z
+updated: 2025-01-03T18:07:53.984Z
 categories:
   - BestProducts
 description: "This Article Describes Bose QC30 Review: Impressive with Room for Growth"
@@ -48,10 +48,6 @@ Lifewire / Andy Zahn
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Andy Zahn
 
 [View On Walmart $562](https://www.walmart.com/ip/Canon-PowerShot-SX70-HS-20-3MP-65x-Optical-Zoom-Digital-Point-Shoot-Camera/773178799?slfpid=3) [View On Adorama.com $699](https://www.adorama.com/icasx70.html) [View On B&H Photo Video $599](https://www.bhphotovideo.com/c/product/1435399-REG/canon%5F3071c001%5Fpowershot%5Fsx70%5Fhs%5Fdigital.html)
@@ -85,7 +81,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Built to last, great to use**
@@ -101,7 +97,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process** :**Get charged up and you’re ready to go**
@@ -114,6 +110,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Display and Viewfinder: Saturated and clear**
 
  The three-inch, 920,000-dot screen on the SX70 HS looks amazing—perhaps_too_ amazing, as your photos will look better on it than on your phone or computer. The screen is fully articulating and solidly built. Our one complaint would be how easily it picks up smudges, and how difficult those smudges are to remove. An advantage of the articulating screen is that it can be turned face-in to avoid dirt and damage and to save on battery life.
@@ -123,7 +123,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Autofocus: Blazing fast**
@@ -133,10 +133,6 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -198,6 +194,10 @@ Lifewire / Andy Zahn
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Competition: Dominating from the middle ground**
 
  Canon hasn’t tried to push any boundaries with the SX70 HS. Instead, it plays it safe and just does everything very well. Two of its main competitors in the superzoom arena, Panasonic and Nikon, offer intriguing alternatives by either cutting costs or offering groundbreaking technological advances.
@@ -214,15 +214,15 @@ Lifewire / Andy Zahn
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Panasonic Lumix DC-FZ80](https://www.lifewire.com/panasonic-lumix-dc-fz80-review-4691071)
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -258,24 +258,22 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-quick-start-guide-utilizing-aiseesoft-for-effortless-screen-recordings-for-2024/"><u>[Updated] Quick Start Guide Utilizing Aiseesoft for Effortless Screen Recordings for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-art-of-podcast-logo-design-for-maximum-impact/"><u>[Updated] The Art of Podcast Logo Design for Maximum Impact</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-online-facebook-video-to-mp3-converters-how-to-convert-fb-to-mp3/"><u>2024 Approved Online Facebook Video to MP3 Converters | How to Convert FB to MP3?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/another-world-awaits-on-your-switch-uncovering-the-magic-of-skyrims-rpg-excellence/"><u>Another World Awaits on Your Switch - Uncovering the Magic of Skyrim's RPG Excellence</u></a></li>
-<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-oppo-reno-10-5g-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Oppo Reno 10 5G? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-take-on-garmin-vivomove-hr-a-chic-timepiece-for-active-enthusiasts/"><u>Expert Take on Garmin Vivomove HR: A Chic Timepiece for Active Enthusiasts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expertly-chosen-best-wireless-mice-available/"><u>Expertly Chosen Best Wireless Mice Available</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/headphone-speaker-mix-up-steps-for-redirecting-audio-correctly/"><u>Headphone-Speaker Mix-Up: Steps for Redirecting Audio Correctly</u></a></li>
-<li><a href="https://win-web.techidaily.com/how-to-adjust-your-pcs-energy-settings-using-the-windows-control-panel-tips-from-yl-computing/"><u>How to Adjust Your PC's Energy Settings Using the Windows Control Panel - Tips From YL Computing</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/keeping-the-past-archive-your-chatgpt-conversations/"><u>Keeping the Past: Archive Your ChatGPT Conversations</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-open-source-alternatives-to-microsoft-office-revealed-2024-rankings/"><u>Leading Open Source Alternatives to Microsoft Office Revealed: 2024 Rankings</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/migration-et-telechargement-gratuit-des-documents-alaw-en-ligne-avec-movavi/"><u>Migration Et Téléchargement Gratuit Des Documents ALAW en Ligne Avec Movavi</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/navigating-through-toms-electronic-equipment-breakdown/"><u>Navigating Through Tom’s Electronic Equipment Breakdown</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/nikon-coolpix-p1000-review/"><u>Nikon COOLPIX P1000 Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-newest-samsung-galaxy-chromebook-2-the-ultimate-companion-for-mobile-professionals/"><u>Reviewing the Newest Samsung Galaxy Chromebook 2: The Ultimate Companion for Mobile Professionals</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/syma-s111g-rc-helicopter-review-low-cost-indoor-fun/"><u>Syma S111G RC Helicopter Review: Low-Cost Indoor Fun</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-6-online-stores-for-buying-televisions/"><u>Top 6 Online Stores for Buying Televisions</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-performance-hitches-in-forza-horizon-5-solutions-included/"><u>Troubleshooting Performance Hitches in Forza Horizon 5 - Solutions Included</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/value-meets-innovation-in-the-arcshell-ar-5-a-full-performance-breakdown/"><u>Value Meets Innovation in the ArcShell AR-5: A Full Performance Breakdown</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-essential-vr-game-guide-top-8-on-oculus/"><u>[New] In 2024, Essential VR Game Guide Top 8 on Oculus</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-exploring-biggest-fifa-footage-trends-in-graphics/"><u>[Updated] 2024 Approved Exploring Biggest FIFA Footage Trends in Graphics</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-is-it-allowable-to-distribute-videos-via-social-networks/"><u>[Updated] In 2024, Is It Allowable to Distribute Videos via Social Networks?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-screenshotsweeperpro-next-gen-bg-removal-tool/"><u>2024 Approved ScreenshotSweeperPro Next-Gen BG Removal Tool</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-watch-series-6-a-refined-version-maintains-market-leadership/"><u>Apple Watch Series 6: A Refined Version Maintains Market Leadership</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/complete-user-guide-to-unleashing-full-potential-of-ring-doorbell-proplus-review/"><u>Complete User Guide to Unleashing Full Potential of Ring Doorbell Pro+ Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-standing-desk-experience-the-insiders-guide-to-the-cumuluspro-desk-mat-review/"><u>Elevate Your Standing Desk Experience: The Insider's Guide to the CumulusPRO Desk Mat Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-seamless-entertainment-on-a-budget-with-lenovo-tab-m10-hd-2020-an-in-depth-review/"><u>Experience Seamless Entertainment on a Budget with Lenovo Tab M10 HD (2020): An In-Depth Review</u></a></li>
+<li><a href="https://techtrends.techidaily.com/expert-advice-on-correcting-the-lost-or-absent-d3dx939dll-errors/"><u>Expert Advice on Correcting the Lost or Absent d3dx9_39.dll Errors</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-oppo-a58-4g-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Oppo A58 4G to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-streamlit-success-top-5-tools-for-stellar-visuals/"><u>In 2024, Streamlit Success Top 5 Tools for Stellar Visuals</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ion-tailgater-plus-assessed-uninterrupted-sound-and-powerful-bass-at-a-touch-for-outdoor-entertainment/"><u>ION Tailgater Plus Assessed: Uninterrupted Sound & Powerful Bass at a Touch for Outdoor Entertainment.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lightzone-pro-complimentary-darkroom-suite-perfect-for-pcs-macbooks-and-linux-systems/"><u>LightZone Pro: Complimentary Darkroom Suite Perfect for PCs, MacBooks and Linux Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-selection-of-superior-network-server-racks-and-cabinets-for-2/"><u>The Definitive Selection of Superior Network Server Racks & Cabinets for 2</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ourney-to-exceptional-educational-content-creating-impactful-vids-on-youtube/"><u>The Journey to Exceptional Educational Content Creating Impactful Vids on YouTube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-mlb-the-show-2019-when-sporting-graphics-meet-role-playing-surprises-revealed/"><u>Unveiling MLB The Show 2019: When Sporting Graphics Meet Role-Playing Surprises Revealed</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1726026905445-windows-11/"><u>ゲームバーのトラブルシューティング：Windows 11で始まった新しい不具合</u></a></li>
 </ul></div>
 

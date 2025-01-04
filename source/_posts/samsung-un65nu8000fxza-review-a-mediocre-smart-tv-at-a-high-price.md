@@ -1,7 +1,7 @@
 ---
 title: "Samsung UN65NU8000FXZA Review: A Mediocre Smart TV at a High Price"
-date: 2024-08-10T23:53:03.578Z
-updated: 2024-08-11T23:53:03.578Z
+date: 2024-12-31T23:06:01.766Z
+updated: 2025-01-04T03:31:06.420Z
 categories:
   - BestProducts
 description: "This Article Describes Samsung UN65NU8000FXZA Review: A Mediocre Smart TV at a High Price"
@@ -15,10 +15,6 @@ thumbnail: https://thmb.techidaily.com/5d3b16b34799fd4027e4ade17484dcb7de0969abd
 
 ## Microsoft Surface Studio 2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/w3_fclKJrwWKMdjNp4uFWrKqJLs=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4045927-1-64302c6de74c465d96dcc32ed60ef388.jpg)
 
 Lifewire / Gannon Burgett
@@ -42,9 +38,6 @@ Lifewire / Gannon Burgett
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Microsoft Surface Studio 2
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/NDm3E4PyU6ziij20SUPJFRRc6pY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4045927-1-64302c6de74c465d96dcc32ed60ef388.jpg)
@@ -73,10 +66,11 @@ Lifewire / Gannon Burgett
 
  The Microsoft Surface Studio 2 looks like a work of art. Fittingly, it’s clearly geared towards artists and graphic designer. From its[beautiful 28-inch PixelSense display](https://www.lifewire.com/best-desktop-pcs-4045927) , to its efficient hinge that makes it easy to maneuver from its desktop position to drawing mode, the entire device looks and feels like the premium machine it is. However, the Microsoft Surface Studio 2 with the Intel Core i7, 16GB RAM, and 1TB SSD will cost a pretty penny. Read on to see where the computer shines and where it doesn’t.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/qqvEiRPOz2etUltaB7qksjgtD6M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-5-62b14c26664249e3aaad156acf787b34.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -94,25 +88,23 @@ Lifewire / Gannon Burgett
 
  Moving onto the included accessories, the Surface Keyboard, Surface Mouse, and Surface Pen all felt well-built and thoughtfully designed. They didn’t blow us away, but they feel substantial and should easily last the life of the computer without issue. We would’ve liked to see a Surface Dial tossed in there as well, considering how much the Surface Studio 2 costs and artists and graphic designers being the clear target market.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Quick and simple**
 
  Setting up the Microsoft Surface Studio 2 was rather straightforward. The box it comes in is securely packaged, and designed to handle a bit of abuse on the way to your house. After unpacking, all we had to do was plug in the computer and remove the plastic battery tabs on the Surface Keyboard and Surface Mouse. The Surface Pen should work just fine out of the box.
 
  The software side of setup wasn’t nearly as quick as we had hoped. Despite having a fast internet connection, the setup time took approximately ten minutes, not including an additional system update, which added another five minutes. Microsoft’s Cortana walked us through the setup with audible and on-screen directions, and even tossed in a few snarky comments here and there along the way. Setup also included the process of adding your face for the facial recognition log-in option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/2YGEvu4_h4VAgUiecjNAvd56F9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-7-0e52038c30364530a5a9bd0ac7011cb7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Display: A treat for your eyes**
 
@@ -124,16 +116,18 @@ No advertising on the website.
 
  The Zero Gravity hinge allows it for easy adjustment, letting us use it at almost, ranging from nearly flat to fully upright. If you have the Surface Dial you can also unlock a lot of functionality when it comes to photo and video editing. Its omission despite the high price of the Studio feels like a big downside.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/WBpMM3f4iH20J7-9H_NzD1zeBl4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-8-22d53ea12b7c48988b4840af9fb744c4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Leaving much to be desired**
 
  The Microsoft Surface Studio 2 model we tested was the Intel Core i7 version with a discrete Nvidia Geforce GTX 1060 GPU, 16GB of RAM, and a 1TB SSD.
@@ -150,31 +144,24 @@ No advertising on the website.
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Network: Quick wireless connection with hardwired backup**
 
  The Microsoft Surface Studio 2 features both hardwired and wireless networking options. On the rear of the computer is a Gigabit Ethernet (RJ-45) port for the hardwired connection while an internal Wi-Fi antenna supports 802.11ac connectivity with a/b/g/n compatibility as well.
 
  With both wireless and wired connections, the Surface Studio 2 excelled at every test we threw at it. It didn’t matter whether it was next to the router or a few rooms over, transfer speeds were on target every time with solid ping times to boot.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/rkvuGygIghO9k9Je4rikzH5HvaE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-4-1b719f36dcb3448c9da40160faa18954-a32c44e2f9ca4ed3b4d670458dc6d5f0.jpg)
 
 Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Camera: Decent and usable**
 
  The only camera on the Surface Studio 2 is a 5-megapixel front-facing camera. In addition to capturing stills and Windows Hello facial authentication, it also records 1080p video with dual microphones for audio. The camera proved impressive for an integrated camera and is more than good enough to use for conference calls and even streaming if you have a decent light source on hand.
@@ -199,10 +186,6 @@ Lifewire / Gannon Burgett
 
  At $3,499 MSRP, the Surface Studio 2 is incredibly expensive for the specs it offers. It’s twice as costly as the 21.5-inch 4K iMac ($1,299) and the base model of the 27-inch iMac ($1,799). The Surface Studio 2 is clearly trying to compete with the $4,999 iMac Pro, but with its older hardware and sometimes clunky software, it’s simply not as good of an experience for professionals and creatives, most of whom can get by with the more affordable iMac models anyway.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## **Competition: More affordable rivals, but lacking effective touchscreens**
 
  The Surface Studio 2 Lenovo IdeaCentre AIO 730S features a 24-inch screen compared to the 28-inch screen on the Surface Studio Pro 2\. On the processor side of things, it uses an 8th generation Intel Core i7-8559U CPU, with an integrated Intel UHD Graphics 620 GPU.
@@ -247,8 +230,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -256,4 +237,26 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-beginners-blueprint-for-ipad-time-lapse-videos/"><u>[New] In 2024, Beginner's Blueprint for iPad Time-Lapse Videos</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-leading-marketplaces-for-bespoke-wrapping-marvels/"><u>[Updated] Leading Marketplaces for Bespoke Wrapping Marvels</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-art-of-producing-attention-grabbing-podcast-openers/"><u>2024 Approved The Art of Producing Attention-Grabbing Podcast Openers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-top-rated-lightzone-photo-editor-cross-platform-windowsmaclinux-free/"><u>Comprehensive Guide: Top-Rated LightZone Photo Editor - Cross-Platform (Windows/Mac/Linux) - Free!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-plants-vs-zombies-battle-for-neighborville-perfect-gameplay-with-a-side-of-silliness/"><u>Comprehensive Review: 'Plants Vs. Zombies: Battle for Neighborville' - Perfect Gameplay with a Side of Silliness</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-elite-lineup-of-2024-gaming-consoles/"><u>Discover the Elite Lineup of 2024 Gaming Consoles</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-about-vivo-y100a-frp-bypass-by-drfone-android/"><u>In 2024, About Vivo Y100A FRP Bypass</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-features-and-performance-on-samsung-galaxy-note20-ultra-with-5g-connectivity/"><u>In-Depth Analysis of the Features and Performance on Samsung Galaxy Note20 Ultra with 5G Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-comparison-and-evaluation-dji-air-2s-vs-competitors-drones/"><u>In-Depth Comparison & Evaluation: DJI Air 2S vs Competitors' Drones</u></a></li>
+<li><a href="https://win-answers.techidaily.com/mastering-low-cpu-play-in-phasmophobia-a-step-by-step-guide/"><u>Mastering Low-CPU Play in Phasmophobia: A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-through-tech-enhancements-an-in-depth-look-at-the-linksys-ea9500s-intelligent-network-solutions/"><u>Navigating Through Tech Enhancements: An In-Depth Look at the Linksys EA9500's Intelligent Network Solutions</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/pace-your-panorama-learning-time-lapses-on-samsung-phones-for-2024/"><u>Pace Your Panorama Learning Time-Lapses on Samsung Phones for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/pixelated-panoramas-instaslideshow/"><u>Pixelated Panoramas InstaSlideShow</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/preserve-your-data-efficiently-top-5-folder-backup-techniques-for-windows-11-users/"><u>Preserve Your Data Efficiently: Top 5 Folder Backup Techniques for Windows 11 Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-e-reader-guide-how-the-impressive-features-of-the-kobo-forma-change-your-reading-habits/"><u>The Ultimate E-Reader Guide: How the Impressive Features of the Kobo Forma Change Your Reading Habits</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-ultimate-source-for-authentic-lenovo-thinkpad-driver-updates-and-download-100-safe/"><u>The Ultimate Source for Authentic Lenovo ThinkPad Driver Updates & Download [100% Safe]</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unbeatable-speed-meets-savings-in-depth-review-of-the-tp-link-archer-a9-under/"><u>Unbeatable Speed Meets Savings: In-Depth Review of the TP-Link Archer A9 Under $</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/unlocking-fast-track-on-friend-finding-in-facebook-land-for-2024/"><u>Unlocking Fast Track on Friend-Finding in Facebook Land for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-flight-simulator-x-gold-continues-to-dominate-the-skies-in-player-reviews/"><u>Why Flight Simulator X Gold Continues to Dominate the Skies in Player Reviews</u></a></li>
+</ul></div>
 
