@@ -1,7 +1,7 @@
 ---
 title: Introductory Lighting Kit for Amateur Studios
-date: 2024-12-29T21:47:42.371Z
-updated: 2025-01-03T16:21:01.346Z
+date: 2025-01-09T20:00:38.022Z
+updated: 2025-01-10T22:02:11.457Z
 categories:
   - BestProducts
 description: This Article Describes Introductory Lighting Kit for Amateur Studios
@@ -44,13 +44,13 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
 
 4.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -86,7 +86,7 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: It can’t realistically be much simpler**
@@ -97,6 +97,10 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Plenty of power for all your needs**
 
  Time and again, the Beatit Jump Starter D11 was able to get a car with a very[depleted battery](https://www.lifewire.com/car-batteries-are-made-to-die-534765) started. Even after repeated testing the unit’s own battery only dropped down to 85% capacity.
@@ -104,10 +108,6 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
  Charging a phone with a jump starter seems like overkill, and the unit’s ability to charge at 1,200mAh confirms that impression. At such an elevated level of charging your phone or other device will likely get its battery topped off in very little time. With 18,000mAh of capacity you can fully charge a modern phone at least twice, and still leave the unit with the juice it needs in order to start a car.
 
  Lifewire / Tony Mitera
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
@@ -117,15 +117,15 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A ton of value for a tiny cost**
 
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
@@ -144,7 +144,7 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -178,20 +178,17 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ed-essential-illumination-strategies-for-filming-for-2024/"><u>[Updated] Essential Illumination Strategies for Filming for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-decoding-youtubes-mystery-a-sequential-exploration-guide/"><u>[Updated] In 2024, Decoding YouTube's Mystery A Sequential Exploration Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-premium-video-boosts-the-9-finest-webcam-effects/"><u>[Updated] In 2024, Premium Video Boosts The 9 Finest Webcam Effects</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-standout-reddit-content-an-exclusive-look-at-top-10-threads/"><u>[Updated] Standout Reddit Content An Exclusive Look at Top 10 Threads</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/convertissez-votre-fichier-au-format-ogg-online-sans-frais-movavi/"><u>Convertissez Votre Fichier Au Format Ogg Online Sans Frais - Movavi</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-why-fitbit-versa-is-rated-high-for-its-cost-effective-style-and-functions/"><u>Discover Why Fitbit Versa Is Rated High for Its Cost-Effective Style & Functions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fashion-meets-functionality-the-ultimate-swagtron-electric-scooter-analysis/"><u>Fashion Meets Functionality: The Ultimate Swagtron Electric Scooter Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/furbo-takes-the-cake-an-expert-breakdown-of-the-best-overall-dog-camera-on-the-market/"><u>Furbo Takes the Cake – An Expert Breakdown of The Best Overall Dog Camera on the Market</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-nubia-z50s-pro-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Nubia Z50S Pro Location by Number | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-sculpting-stories-with-specialty-fonts-in-after-effects/"><u>In 2024, Sculpting Stories with Specialty Fonts in After Effects</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-usb-wi-fi-connectivity-devices-reviewed/"><u>Leading USB Wi-Fi Connectivity Devices Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/netgear-orbi-rbs50y-review-backyard-wi-fi/"><u>Netgear Orbi RBS50Y Review: Backyard Wi-Fi</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-lenovo-tab-4-critique-an-inexpensive-choice-with-notable-limitations/"><u>The Lenovo Tab 4 Critique: An Inexpensive Choice with Notable Limitations</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tiny-tech-with-a-twist-sonys-lx310bt-bluetooth-player/"><u>Tiny Tech with a Twist: Sony's LX310BT Bluetooth Player</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unpacking-the-basics-an-introductive-guide-to-starting-your-own-tech-review-vlog-for-2024/"><u>Unpacking the Basics An Introductive Guide to Starting Your Own Tech Review Vlog for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-earnings-expertise-for-youtube-creators-fb-insights-and-tactics-for-2024/"><u>[Updated] Earnings Expertise for YouTube Creators FB Insights and Tactics for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-from-action-to-archive-top-screenshot-tools-reviewed-for-2024/"><u>[Updated] From Action to Archive Top Screenshot Tools Reviewed for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-navigating-netflixs-video-playback-controls/"><u>[Updated] Navigating Netflix's Video Playback Controls</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choose-research-methods-and-tools/"><u>Choose Research Methods and Tools</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-nintendo-switch-analysis-a-top-contender-in-handheld-gaming/"><u>Comprehensive Nintendo Switch Analysis: A Top Contender in Handheld Gaming</u></a></li>
+<li><a href="https://win11.techidaily.com/eliminating-erratic-screens-on-win-1011/"><u>Eliminating Erratic Screens on WIN 10/11</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hunt-down-amazing-price-cuts-on-acer-tech-dont-miss-the-best-of-prime-day-2024/"><u>Hunt Down Amazing Price Cuts on Acer Tech - Don't Miss the Best of Prime Day 2024</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/losung-fur-das-problem-reset-funktion-von-windows-10-diesen-pc-zurucksetzen-funktioniert-nicht/"><u>Lösung Für Das Problem: Reset-Funktion Von Windows 10 'Diesen PC Zurücksetzen' Funktioniert Nicht</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/premium-tablet-face-off-can-you-afford-to-compromise-on-your-apple-ipad-air-4-or-samsung-galaxy-tab-s7plus/"><u>Premium Tablet Face-Off: Can You Afford to Compromise on Your Apple iPad Air 4 or Samsung Galaxy Tab S7+?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-hidden-delights-in-yokus-island-express-an-in-depth-review/"><u>Unveiling the Hidden Delights in Yoku's Island Express: An In-Depth Review</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-bring-your-photos-to-life-with-music-and-video-editing/"><u>Updated In 2024, Bring Your Photos to Life with Music and Video Editing</u></a></li>
 </ul></div>
 

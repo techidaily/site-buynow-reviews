@@ -1,7 +1,7 @@
 ---
 title: Review - Is This What It Was Designed For?
-date: 2024-08-10T23:50:14.587Z
-updated: 2024-08-11T23:50:14.587Z
+date: 2025-01-08T22:18:21.910Z
+updated: 2025-01-10T18:15:03.557Z
 categories:
   - BestProducts
 description: This Article Describes Review - Is This What It Was Designed For?
@@ -13,15 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/C2I7VkzMdnWdV2KUQl8yjy7q8Zk=/400x300/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Fitbit Charge 3
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Fitbit Charge 3](https://www.lifewire.com/thmb/w5fEVOtROHKLaj5H2TIVZwhJb7I=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Fitbit-Charge-3-Fitness-Tracker-1-74249021fe3e48f5b976abb5db6b1e9a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire: Erika Rawes
 
@@ -45,12 +43,13 @@ Lifewire: Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Fitbit Charge 3
 
 ![Fitbit Charge 3](https://www.lifewire.com/thmb/siHMCWig3n5gEd3WdRW5mz322YE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Fitbit-Charge-3-Fitness-Tracker-1-74249021fe3e48f5b976abb5db6b1e9a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire: Erika Rawes
 
@@ -74,6 +73,10 @@ Lifewire: Erika Rawes
 
  The Fitbit Charge 3 hit the market in 2018, and now that its successor is available, the Charge 4, you can easily find the Charge 3 on sale. But, how does the Charge 3 stack up against the Charge 4 and other fitness trackers currently on the market? I tested the Fitbit Charge 3 alongside a few other fitness trackers to find how it compares.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Small and large bands included**
 
  The Charge 3 isn’t the slimmest tracker out there. It’s thick and bulky, with a silicone removable band that’s around 0.9 inches wide. On the plus side, you get both a large and small band in the package, so you don’t have to worry about finding the right fit. The Fitbit Charge 3 is one size fits all. Overall, Charge 3 is simple and fashionable, and you can wear it with anything. This is especially true when you purchase replacement bands, which sell on Amazon for less than $10\.
@@ -86,9 +89,6 @@ Lifewire: Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## **Comfort: The classic band is uncomfortable**
 
  While Charge 3 may be comfortable for some, I found it uncomfortable after long periods of wear. I tested the black classic band, and it feels stiff, hot, and rigid. The sides aren’t rounded enough, and I couldn’t tolerate the band well enough to sleep in it, shower in it, or wear it while doing exercises like push-ups or pull-ups.
@@ -97,9 +97,6 @@ I found it uncomfortable after long periods of wear.
 
  I found other Fitbit replacement bands more comfortable, like the cloth band and sport band. Even with the replacement bands, the Fitbit Charge 3 isn’t as comfortable as a slimmer fitness tracker like the Garmin Vivosmart 4.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Performance: Reliable sleep and activity tracking**
 
  The Fitbit Charge 3 is solid and reliable, with relatively accurate metrics and an array of useful data and helpful applications. As is the case with other Fitbit units and many other brands of fitness trackers, the step counter tends to overestimate the number of steps taken. It would even occasionally count steps when I would make slight hand movements (typing, washing my hands, etc.) The heart rate monitor is more accurate than other trackers I’ve tested in this price range. It’s typically accurate within five beats per minute when compared to a chest strap.
@@ -110,12 +107,13 @@ I found it uncomfortable after long periods of wear.
 
  You can receive notifications for calls, texts, calendar events, and emails to your Charge 3 fitness tracker. The text is clear and easy to read, and Charge 3 even displays emojis. You can also receive notifications from most apps, and you can customize quick replies and vibration settings.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Fitbit Charge 3](https://www.lifewire.com/thmb/jCBVKPtyt6DTpbYQSF3hj2f5ix4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-3-Fitness-Tracker-3-407bd71e2294485eb89a9b1e5d581f8f.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: The Fitbit App**
 
@@ -127,6 +125,10 @@ I found it uncomfortable after long periods of wear.
 
 ![Fitbit Charge 3](https://www.lifewire.com/thmb/_FFXCAFqtWdWmw-hFNP3Lk697Jk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-3-Fitness-Tracker-2-744122acdf4f48438a7877a3f9440ee7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Battery: Lasts up to a week**
@@ -135,16 +137,14 @@ I found it uncomfortable after long periods of wear.
 
  To charge the battery, you clip on a clamp charger and connect it to a USB plug or a computer. It charges quickly and reaches a full charge in about an hour.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![Fitbit Charge 3](https://www.lifewire.com/thmb/U9Pj2yl-0tWIHYWG_6xWl8ZxX6g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-3-Fitness-Tracker-4-39a78f63143d4f46860f31cad17c841a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Around $100**
 
  Charge 3 typically sells for $100, which is $50 down from its original retail price of $150\. This is a reasonable price for the device, which offers relatively accurate tracking, durability, and good build quality.
@@ -177,14 +177,11 @@ I found it uncomfortable after long periods of wear.
 * Maximum operating altitude  8,535 m
 * Syncing range  Up to 6 m
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -193,4 +190,24 @@ I found it uncomfortable after long periods of wear.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-revolutionize-your-gaming-recordings-a-guide-to-fbx-tech/"><u>[New] 2024 Approved Revolutionize Your Gaming Recordings A Guide to FBX Tech</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-dividing-opinions-is-mirrorless-better-than-dslr-for-vids-in-2024/"><u>[New] Dividing Opinions Is Mirrorless Better than DSLR for Vids, In 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-snapshot-savior-eight-ways-to-amplify-your-color-game-in-photoshop/"><u>2024 Approved Snapshot Savior Eight Ways to Amplify Your Color Game in Photoshop</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/4-ways-to-remove-a-saved-wi-fi-network-from-windows-11/"><u>4 Ways to Remove a Saved Wi-Fi Network From Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/compact-power-on-display-the-ultimate-acer-predator-triton-300se-review-quality-meets-portability/"><u>Compact Power on Display - The Ultimate Acer Predator Triton 300SE Review: Quality Meets Portability</u></a></li>
+<li><a href="https://win11.techidaily.com/conquering-the-installation-hurdle-java-development-kit-in-windows-11/"><u>Conquering the Installation Hurdle: Java Development Kit in Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-latest-in-home-security-the-google-nest-hello-with-facial-recognition-and-package-tracking/"><u>Exploring the Latest in Home Security - The Google Nest Hello with Facial Recognition and Package Tracking</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-oppo-reno-11-5g-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Oppo Reno 11 5G Safely | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-motorola-edge-40-neo-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Motorola Edge 40 Neo Contacts An Easy Method Explained.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-the-be600m1-from-apc-an-expert-look-at-its-battery-backup-capabilities-and-convenient-usb-charging-feature/"><u>In-Depth Analysis: The BE600M1 From APC - An Expert Look at Its Battery Backup Capabilities & Convenient USB Charging Feature</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-zmi-powerpack-20000-your-go-to-compact-power-provider-reviewed/"><u>In-Depth Look at the ZMI PowerPack 20000 - Your Go-To Compact Power Provider Reviewed!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mobvoi-ticwatch-e2-analysis-affordable-watch-with-hidden-drawbacks/"><u>Mobvoi TicWatch E2 Analysis: Affordable Watch with Hidden Drawbacks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/oneplus-9-evaluation-calculations-fall-short-of-perfection/"><u>OnePlus 9 Evaluation: Calculations Fall Short of Perfection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-understanding-and-testing-your-netgear-c3700-more-than-just-a-modem/"><u>The Ultimate Guide to Understanding and Testing Your Netgear C3700: More than Just a Modem</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/ultimate-trick-how-to-easily-enable-flashlight-functionality-on-android-phones/"><u>Ultimate Trick: How to Easily Enable Flashlight Functionality on Android Phones</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/shing-potential-growth-in-youtube-traffic/"><u>Unleashing Potential Growth in YouTube Traffic</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-crown-jewel-of-doorbells-a-detailed-review-of-ring-video-doorbell-2/"><u>Unveiling the Crown Jewel of Doorbells - A Detailed Review of Ring Video Doorbell 지2.</u></a></li>
+</ul></div>
 

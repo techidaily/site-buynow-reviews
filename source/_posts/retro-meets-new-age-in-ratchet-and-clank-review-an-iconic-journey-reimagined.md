@@ -1,7 +1,7 @@
 ---
 title: "Retro Meets New Age in Ratchet & Clank Review: An Iconic Journey Reimagined"
-date: 2024-12-28T18:44:23.218Z
-updated: 2025-01-03T16:51:16.327Z
+date: 2025-01-03T19:42:27.252Z
+updated: 2025-01-10T17:56:47.053Z
 categories:
   - BestProducts
 description: "This Article Describes Retro Meets New Age in Ratchet & Clank Review: An Iconic Journey Reimagined"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/c0270bb78c702f180d69e641fb9f373f4cd07e8ef
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/JA3JlwOuidCKxo4M92FWCfYUoI4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -46,12 +42,16 @@ Lifewire / Kelsey Simon
 3.8
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/8XGs9qzQ6hLIBySEKXEvBMfEkq4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -81,10 +81,14 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/uXDVHaBrdIlv5tI-qRgiPK0Iig4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460721-e6a53664e7eb4e65a75bf5cceb928e28.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Plot: A huge world with loads to explore**
@@ -105,15 +109,7 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/1fxH7ty_kqxpugJDk2tIQndKvI0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546078-6bdc67e56311473f9c1edeab00d2caa5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Gameplay: Not as smooth as on other platforms**
 
@@ -151,17 +147,21 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/Iik6f_7RIRMWo5R6zGYxgGeL4n0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546076-8fb741faa7144fa6bafe386d2b7d8296.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: A tad expensive**
 
  The Elder Scrolls V: Skyrim costs roughly $60 dollars for the Switch (MSRP). You might be able to find it on sale on Amazon for less, but it’s still on the more expensive side like other popular Switch games. This is disappointing since you can find Skyrim on other platforms for a fraction of the cost, even snatching it up for sale on Steam for $25 or less on PC. Considering the cost difference, the PC version of the game is the better deal, especially since the gameplay is better looking. But if you’re looking to take Skyrim on the go, or a Switch is your preferred gaming system, the price isn’t unreasonable.
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -203,19 +203,20 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-az-capture-tool-full-app-testing-and-options-guide/"><u>[New] 2024 Approved AZ Capture Tool Full App Testing & Options Guide</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-quick-lenovo-screen-capture-tips/"><u>[New] 2024 Approved Quick Lenovo Screen Capture Tips</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-horizon-capture-setup-vr/"><u>[New] Horizon Capture Setup VR</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-efficient-techniques-for-moving-snapshot-to-photo-library/"><u>[Updated] Efficient Techniques for Moving SnapShot to Photo Library</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-top-approaches-to-non-audio-recording-for-2024/"><u>[Updated] Top Approaches to Non-Audio Recording for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-poco-c65-drfone-by-drfone-android/"><u>How to Screen Mirroring Poco C65? | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-screensnap-it-all-high-quality-netflix-on-mac/"><u>In 2024, ScreenSnap It All High-Quality Netflix on Mac</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-the-compact-gamesir-x2s-type-c-gaming-pad-comfortable-for-everyone/"><u>In-Depth Review of the Compact GameSir X2s Type-C Gaming Pad: Comfortable for Everyone!</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/mts/"><u>MTSファイルの編集手順：フリーソフトウェアを使ってダウングレードなし</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-game-genres-metroidvania-vs-actionsearch-hybrids-unveiling-the-classics/"><u>Navigating Game Genres: Metroidvania Vs. Action/Search Hybrids - Unveiling the Classics</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/optimizing-gameplay-at-30fps-across-gaming-consoles-and-personal-computers/"><u>Optimizing Gameplay at 30FPS Across Gaming Consoles and Personal Computers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/reviving-microsofts-metro-design-a-game-changer-for-portable-gaming-devices/"><u>Reviving Microsoft's Metro Design: A Game Changer for Portable Gaming Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/solving-the-issue-of-sticky-thumbsticks-a-step-by-step-guide-for-your-dualsense-controller/"><u>Solving the Issue of Sticky Thumbsticks: A Step-by-Step Guide for Your DualSense Controller</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/step-by-step-guide-streaming-twitch-channels-via-your-roku-device/"><u>Step-by-Step Guide: Streaming Twitch Channels via Your Roku Device</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-seamless-srt-to-text-transformation-a-modern-technique/"><u>[Updated] 2024 Approved Seamless SRT-to-Text Transformation A Modern Technique</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-image-integrity-keeping-quality-high-during-iphone-crops/"><u>[Updated] In 2024, Image Integrity Keeping Quality High During iPhone Crops</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-are-there-restrictions-in-saving-youtube-videos/"><u>2024 Approved Are There Restrictions in Saving YouTube Videos?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-logitech-c615-camcorder-appraisal-balancing-quality-with-cost-efficiency/"><u>Comprehensive Logitech C615 Camcorder Appraisal - Balancing Quality with Cost-Efficiency</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cost-effective-tp-link-re200-wifi-range-amplifier-assessment-the-balance-of-quality-and-price/"><u>Cost-Effective TP-Link RE200 WiFi Range Amplifier Assessment - The Balance of Quality and Price</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/drone-vfx-experience-try-no-cost-luts-on-mini-and-air-drones/"><u>Drone VFX Experience – Try No-Cost LUTS on Mini & Air Drones</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/drones-in-a-rivalry-dji-inspire-one-vs-gopro-karma-x-for-2024/"><u>Drones in a Rivalry DJI Inspire One Vs GoPro Karma X for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/effective-methods-for-downloading-and-implementing-asus-atk0100-acpi-drivers/"><u>Effective Methods for Downloading and Implementing ASUS ATK0100 ACPI Drivers</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-smart-picks-user-friendly-bd-software-for-pc-and-mac/"><u>In 2024, Smart Picks User-Friendly BD Software for PC and Mac</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/introducing-amazon-halo-a-revolutionary-and-intimately-insightful-health-monitor/"><u>Introducing Amazon Halo: A Revolutionary and Intimately-Insightful Health Monitor</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/master-the-art-of-game-trading-among-friends-on-your-xbox-one-console/"><u>Master the Art of Game Trading Among Friends on Your Xbox One Console</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-honor-x9b-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Honor X9b Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sonys-cat-s42-toughphone-unveiled-robust-construction-yet-limited-in-velocity/"><u>Sony's CAT S42 Toughphone Unveiled: Robust Construction, Yet Limited in Velocity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-understanding-the-new-iphone-13-specifications/"><u>The Ultimate Guide to Understanding the New iPhone 13 Specifications</u></a></li>
+<li><a href="https://media-tips.techidaily.com/transform-your-wmv-media-the-ultimate-guide-to-creating-stunning-mov-format-videos/"><u>Transform Your WMV Media: The Ultimate Guide to Creating Stunning MOV Format Videos</u></a></li>
 </ul></div>
 

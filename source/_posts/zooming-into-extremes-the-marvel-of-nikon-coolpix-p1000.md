@@ -1,7 +1,7 @@
 ---
 title: "Zooming Into Extremes: The Marvel of Nikon COOLPIX P1000"
-date: 2025-01-02T00:14:52.201Z
-updated: 2025-01-03T20:30:36.794Z
+date: 2025-01-04T19:56:20.935Z
+updated: 2025-01-10T17:35:31.655Z
 categories:
   - BestProducts
 description: "This Article Describes Zooming Into Extremes: The Marvel of Nikon COOLPIX P1000"
@@ -44,13 +44,13 @@ Lifewire / Andy Zahn
 
 4.3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -84,6 +84,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -101,7 +105,7 @@ Lifewire / Andy Zahn
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Battery life: No worries**
@@ -111,7 +115,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
@@ -122,6 +126,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Autofocus: Blazing fast**
 
  We were shocked by how fast and consistent the autofocus is in the SX70 HS, even in low-light situations. It rarely fails to lock on to your intended subject, and focus tracking works flawlessly.
@@ -129,10 +137,6 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -150,6 +154,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -163,10 +171,6 @@ Lifewire / Andy Zahn
  A problem with all these automated modes and scene settings is that the images they produce are exclusively JPEG, with RAW being unavailable. Fortunately, Program mode is essentially the same as Auto, and you can enable RAW image recording there.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
 
@@ -220,10 +224,6 @@ Lifewire / Andy Zahn
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  PowerShot SX70
@@ -258,22 +258,22 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-restore-true-identity-on-fb-messages/"><u>[New] 2024 Approved Restore True Identity on FB Messages</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-imovie-sound-design-made-simple/"><u>[New] IMovie Sound Design Made Simple</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/est-jamboree-the-most-entertaining-youtubers-to-watch-for-2024/"><u>[New] Jest Jamboree The Most Entertaining YouTubers to Watch for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-webcam-mastery-choosing-the-best-video-tools/"><u>2024 Approved Webcam Mastery Choosing the Best Video Tools</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/adding-your-companys-logo-as-a-background-image-in-flipbook-with-flipbuilder-guide/"><u>Adding Your Company's Logo As A Background Image In FlipBook With FlipBuilder Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/can-the-fitbit-charge-3-measure-up-in-todays-market/"><u>Can the Fitbit Charge 3 Measure Up in Today's Market?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comparing-smart-doorbells-ring-and-nest-which-one-wins/"><u>Comparing Smart Doorbells: Ring and Nest - Which One Wins?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/critical-factors-assessing-a-used-ipad-before-you-buy/"><u>Critical Factors: Assessing a Used iPad Before You Buy</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/fix-fixed-no-more-obs-camera-issues-for-2024/"><u>Fix Fixed No More OBS Camera Issues for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/important-considerations-for-prospective-unlocked-smartphone-owners/"><u>Important Considerations for Prospective Unlocked Smartphone Owners</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Tecno Spark 10 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/innovative-portable-power-sources-for-cars/"><u>Innovative Portable Power Sources for Cars</u></a></li>
-<li><a href="https://extra-support.techidaily.com/plot-puns-on-pop-culture-for-2024/"><u>Plot Puns on Pop Culture for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-definitive-verdict-on-samsungs-best-big-screen-marvel-galaxy-note-9-reviewed/"><u>The Definitive Verdict on Samsung's Best Big-Screen Marvel: Galaxy Note 9 Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-key-factors-to-evaluate-before-investing-in-health-trackers/"><u>The Ultimate Guide: Key Factors to Evaluate Before Investing in Health Trackers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-the-gorgeous-and-adaptable-dell-xps-13-7390-2-in-1-laptop-experience/"><u>The Ultimate Review of the Gorgeous and Adaptable Dell XPS 13 7390 2-in-1 Laptop Experience</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/what-lies-unseen-in-instagram-story-watching-for-2024/"><u>What Lies Unseen in Instagram Story Watching for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-ultimate-roundup-no-fee-videocalling-plus-live-desktop-share/"><u>[New] In 2024, Ultimate Roundup No-Fee Videocalling + Live Desktop Share</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-kid-safe-car-challenges-galore-for-2024/"><u>[New] Kid-Safe Car Challenges Galore for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-quick-steps-to-record-movies-on-your-tech-devices/"><u>[Updated] 2024 Approved Quick Steps to Record Movies on Your Tech Devices</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-nokia-g42-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Nokia G42 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-ultimate-netgear-routers-of-2024-on-our-list/"><u>Discover the Ultimate Netgear Routers of 2024 on Our List</u></a></li>
+<li><a href="https://video-capture.techidaily.com/download-tamil-high-definition-movies-for-free-on-various-devices-pc-iphone-ipad-and-smart-tv/"><u>Download Tamil High Definition Movies for Free on Various Devices: PC, iPhone, iPad & Smart TV</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-ultra-fast-5g-with-the-motorola-one-5g-ace-exceptional-performance-and-long-lasting-battery/"><u>Experience Ultra-Fast 5G with the Motorola One 5G Ace - Exceptional Performance and Long-Lasting Battery</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-netgear-orbi-why-its-a-cut-above-other-mesh-routers/"><u>Expert Analysis of Netgear Orbi: Why It's a Cut Above Other Mesh Routers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experts-take-on-the-urban-armor-blackrainbow-sequin-protective-gear-for-your-macbook-sturdy-meets-chic/"><u>Experts' Take on the Urban Armor Black/Rainbow Sequin Protective Gear for Your MacBook: Sturdy Meets Chic</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/headlight-revolution-top-five-performance-boosters/"><u>Headlight Revolution: Top Five Performance Boosters</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-lock-apps-on-realme-12-5g-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Realme 12 5G to Protect Your Individual Information</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-facebooks-best-eight-free-link-collector-tools/"><u>In 2024, Facebook's Best Eight FREE Link Collector Tools</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-assessment-the-best-google-wireless-nest-doorbell-on-batteries/"><u>In-Depth Assessment: The Best Google Wireless Nest Doorbell on Batteries</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/portable-ultimate-battery-revival-kits-for-cars-2024/"><u>Portable, Ultimate Battery Revival Kits for Cars, 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-laptop-computing-an-in-depth-look-at-the-2020-apple-macbook-pro-with-m1-chip/"><u>Revolutionizing Laptop Computing: An In-Depth Look at the 2020 Apple MacBook Pro with M1 Chip</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-tab-s6-explored-delving-into-its-signature-attributes-such-as-s-pen-compatibility-and-dex-mode/"><u>Samsung Galaxy Tab S6 Explored: Delving Into Its Signature Attributes Such as S Pen Compatibility and DeX Mode</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-the-kobo-libra-h2o-your-go-to-guide-for-waterproof-ereaders/"><u>The Ultimate Review of the Kobo Libra H2O – Your Go-To Guide for Waterproof Ereaders</u></a></li>
 </ul></div>
 

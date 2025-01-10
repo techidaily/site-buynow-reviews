@@ -1,7 +1,7 @@
 ---
 title: "Top Picks: Sturdy & Portable Kensun Air Compressor – The Ultimate Roadside Companion"
-date: 2024-12-29T17:20:31.131Z
-updated: 2025-01-04T00:53:13.076Z
+date: 2025-01-06T16:14:08.222Z
+updated: 2025-01-10T18:00:27.435Z
 categories:
   - BestProducts
 description: "This Article Describes Top Picks: Sturdy & Portable Kensun Air Compressor – The Ultimate Roadside Companion"
@@ -19,16 +19,12 @@ thumbnail: https://thmb.techidaily.com/770723973e178e7a8930f29e3f500f2a61aa4b3cc
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/NWhMBmuK3pkL9EGvdNCEAF8sWEo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -51,7 +47,7 @@ Lifewire / Jeffrey Daniel Chadwick
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Kensun AC/DC Portable Air Pump Tire Inflator
@@ -80,6 +76,10 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -102,6 +102,10 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: T-minus one minute**
 
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
@@ -109,7 +113,7 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
@@ -150,10 +154,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  AC/DC Portable Air Pump Tire Inflator
@@ -179,20 +179,21 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-your-photo-archives-new-eden-mix-no-fee-infinite-with-paid-cloud-spaces-for-2024/"><u>[New] Your Photo Archive's New Eden Mix No-Fee Infinite with Paid Cloud Spaces for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-spectacular-imagery-narrative-engine/"><u>[Updated] 2024 Approved Spectacular Imagery Narrative Engine</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-leading-edge-in-game-capture-moving-past-fbx-methods/"><u>[Updated] In 2024, Leading Edge in Game Capture Moving Past FBX Methods</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2023s-finest-mechanical-and-wireless-keyboards-reviewed/"><u>2023'S Finest Mechanical and Wireless Keyboards Reviewed</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-clear-conferencing-backdrops-blurring-for-better-presence/"><u>2024 Approved Clear Conferencing Backdrops Blurring for Better Presence</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expertly-organized-discover-the-ideal-vertical-gpu-holders/"><u>Expertly Organized? Discover the Ideal Vertical GPU Holders!</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-step-by-step-shooting-slow-motion-videos-on-iphone/"><u>In 2024, Step by Step Shooting Slow Motion Videos on iPhone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-pick-premium-laptop-stand-selections/"><u>Leading Pick: Premium Laptop Stand Selections</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/premier-power-supply-units-reviewed-choosing-the-ideal-psu-for-your-system/"><u>Premier Power Supply Units Reviewed: Choosing the Ideal PSU for Your System</u></a></li>
-<li><a href="https://win-docs.techidaily.com/step-by-step-solution-changing-partition-scheme-on-your-usb-flash-failed-attempts/"><u>Step-by-Step Solution: Changing Partition Scheme on Your USB Flash Failed Attempts</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-guide-solving-issues-with-your-left-click-mouse/"><u>Troubleshooting Guide: Solving Issues with Your Left-Click Mouse</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/ultra-rich-viewable-ventures-for-2024/"><u>Ultra-Rich Viewable Ventures for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/weekly-tech-highlights-unveiling-the-latest-windows-laptop-line-up-and-exclusive-insights-into-spotifys-upcoming-strategies/"><u>Weekly Tech Highlights: Unveiling the Latest Windows Laptop Line-Up & Exclusive Insights Into Spotify's Upcoming Strategies</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-nintendos-decision-against-integrating-generative-ai-into-their-games-is-beneficial/"><u>Why Nintendo's Decision Against Integrating Generative AI Into Their Games Is Beneficial</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723015755755-windows-10-speaker-problems-heres-how-you-can-fix-them-easily/"><u>Windows 10 Speaker Problems? Here's How You Can Fix Them Easily</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/xpert-tips-for-fixing-non-displaying-shorts-thumbnails/"><u>[New] Expert Tips for Fixing Non-Displaying Shorts Thumbnails</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-mastering-the-art-of-snapchat-sponsored-content-for-2024/"><u>[New] Mastering the Art of Snapchat Sponsored Content for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solved-adb-device-not-found-error-on-windows/"><u>[Solved] ADB Device Not Found Error on Windows</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-revealed-secrets-top-15-stabilizers-and-holders-for-gopro/"><u>[Updated] Revealed Secrets Top 15 Stabilizers & Holders for GoPro</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/4-ways-to-unlock-apple-iphone-15-pro-max-to-use-usb-accessories-without-passcode-drfone-by-drfone-ios/"><u>4 Ways to Unlock Apple iPhone 15 Pro Max to Use USB Accessories Without Passcode | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/benefits-and-limitations-of-using-webex-for-virtual-meetings/"><u>Benefits and Limitations of Using WebEx for Virtual Meetings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bestselling-usb-sticks-of-2024-find-the-right-one-for-you/"><u>Bestselling USB Sticks of 2024: Find the Right One for You</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/can-you-increase-my-laptops-processor-capacity/"><u>Can You Increase My Laptop's Processor Capacity?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-between-roku-and-chromecast-a-detailed-comparison-for-enthusiasts/"><u>Choosing Between Roku and Chromecast: A Detailed Comparison for Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/competition-heats-up-a-deep-dive-into-chromecasts-new-feature-google-tv-review/"><u>Competition Heats Up: A Deep Dive Into Chromecast's New Feature - Google TV Review</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-accept-a-shared-album-invite-on-iphone/"><u>How to Accept a Shared Album Invite on iPhone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-top-notch-solutions-for-disabled-apple-id-on-iphone-xr-making-it-possible-by-drfone-ios/"><u>In 2024, Top-Notch Solutions for Disabled Apple ID On iPhone XR Making It Possible</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/journey-into-excellence-evaluating-gopro-hero7-blacks-impact-on-filmmaking/"><u>Journey Into Excellence: Evaluating GoPro HERO7 Black's Impact on Filmmaking!</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-future-of-google-events-breaking-down-buzz-and-upcoming-announcements/"><u>The Future of Google Events: Breaking Down Buzz and Upcoming Announcements</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-picking-an-apple-watch-gps-versus-cellular-connectivity/"><u>The Ultimate Guide to Picking an Apple Watch: GPS Versus Cellular Connectivity</u></a></li>
+<li><a href="https://win-trending.techidaily.com/unable-to-locate-the-ultimate-guide-on-handling-page-cannot-be-displayed-errors/"><u>Unable To Locate: The Ultimate Guide on Handling 'Page Cannot Be Displayed' Errors</u></a></li>
 </ul></div>
 

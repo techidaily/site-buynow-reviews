@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Look at Razer's Book Nano 13: Tiny Tech, Enormous Efficiency"
-date: 2024-12-31T17:47:48.412Z
-updated: 2025-01-03T23:57:33.605Z
+date: 2025-01-09T19:18:45.224Z
+updated: 2025-01-10T19:16:49.212Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Look at Razer's Book Nano 13: Tiny Tech, Enormous Efficiency"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/f567dab373423469fdd9df8f70e7990588879bfed
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## AmazonBasics 7 Port USB 3.0
 
@@ -42,16 +46,12 @@ Lifewire / Jonno Hill
 3.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## AmazonBasics 7 Port USB 3.0
 
 ![AmazonBasics 7 Port USB 3.0](https://www.lifewire.com/thmb/lDufXTneOT2NDnXEOTNXauWZKtU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_HeroSquare-b4652c2651b5474f84409577b3760479.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -80,6 +80,10 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: A clean look, with some awkward ports**
 
  Measuring 5.7 x 2.6 x 1.1 inches (HWD), the AmazonBasics 7 Port USB 3.0 Hub is not a particularly petite or compact device, but it does do itself some favors in the design department. The slanted body contains two connections on its left, one for the power and one for the USB-B port. On the back, you’ll find five standard USB 3.0 Type-A ports. The right side contains two fast-charge ports capable of supplying more than the standard power, so long as you’ve connected the hub to an outlet using the power cable. Finally, the top contains a simple blue LED, which lit up as soon as we connected the USB cable to the computer.
@@ -103,7 +107,7 @@ Lifewire / Jonno Hill
  The AmazonBasics 7 Port USB 3.0 Hub is an otherwise capable device that is unfortunately marred by quality control issues and cheap construction.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Connectivity: A sufficient number of options**
@@ -115,7 +119,7 @@ Lifewire / Jonno Hill
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/Ep4bZmgChjDyFofASwezrrPrDYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_04-e00baf7ec07a4762bf437cde18e2b4de.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
@@ -125,10 +129,6 @@ Lifewire / Jonno Hill
  The AmazonBasics 7 Port USB 3.0 Hub performed as expected in our tests, providing USB 3.0 Gen 1 speeds. The five ports in the back supply the standard 0.9A of power, whereas the ports on the side, designed for fast charging, can supply up to 1.5A. If you neglect to connect the hub to a power source, the entire device will have to share the 0.9A of power supplied by your computer’s[USB 3.0 port](https://www.lifewire.com/what-is-usb-3-0-2626038) .
 
  The five ports in the back supply the standard 0.9A of power, whereas the ports on the side, designed for fast charging, can supply up to 1.5A.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: You get what you pay for**
 
@@ -179,18 +179,16 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-starting-from-scratch-motion-graphics-essentials/"><u>[New] 2024 Approved Starting From Scratch Motion Graphics Essentials</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-snap-happy-with-hero5-black-tips-for-stunning-visuals/"><u>2024 Approved Snap-Happy with Hero5 Black Tips for Stunning Visuals</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/50-cent-mobile-hacking-secrets-ransomware-decryption-techniques-and-chatgpt-collaboration-revealed-on-podcast/"><u>50-Cent Mobile Hacking Secrets: Ransomware Decryption Techniques and ChatGPT Collaboration Revealed on Podcast</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-gaming-in-360-degrees-with-pro-x/"><u>Experience Gaming in 360 Degrees with Pro X</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/horizon-hours-exploring-auto-advancements-through-reading-book-five-of-fourth-series/"><u>Horizon Hours - Exploring Auto Advancements Through Reading, Book Five of Fourth Series</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-premier-online-entrepreneurs/"><u>In 2024, Premier Online Entrepreneurs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-swagtron-swaggers-sophisticated-e-scooter-revolutionizing-urban-transportation/"><u>In-Depth Review: Swagtron Swagger's Sophisticated E-Scooter Revolutionizing Urban Transportation</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/innovation-hub-for-youtube-gurus-for-2024/"><u>Innovation Hub for YouTube Gurus for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/innovative-gallery-wall-carving-out-your-moments-in-frames/"><u>Innovative Gallery Wall: Carving Out Your Moments in Frames</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-ranked-virtual-programming-classes/"><u>Top-Ranked Virtual Programming Classes</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/tutorial-fresh-driver-installation-on-your-epson-wf-7620-printer-running-windows-os/"><u>Tutorial: Fresh Driver Installation on Your Epson WF-#7620 Printer Running Windows OS</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/upgrade-your-editing-game-merging-windows-11-and-storyremix-for-video-magic/"><u>Upgrade Your Editing Game Merging Windows 11 & StoryRemix for Video Magic</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/mp4-caf-movavi/"><u>오피니 MP4 파일을 무료 지원이 있는 CAF 형식으로 바꾸기 - MOVAVI</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-compelling-beginnings-scriptwriting-tips-for-intros/"><u>[Updated] 2024 Approved Compelling Beginnings Scriptwriting Tips for Intros</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/captivating-images-mastering-the-art-of-motion-blur-in-ps-for-2024/"><u>Captivating Images Mastering the Art of Motion Blur in PS for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-dell-inspiron-groopidnulous-review-exploring-an-affordable-average-pc/"><u>Comprehensive Guide to the Dell Inspiron Groop_idnulous Review - Exploring an Affordable, Average PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhancing-your-viewing-experience-with-the-stylish-and-reliable-antitower-at-127/"><u>Enhancing Your Viewing Experience with the Stylish and Reliable Antitower AT-127</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-motorola-moto-g24-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Motorola Moto G24 to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-pixels-of-peaceful-bedtime-narratives/"><u>In 2024, Pixels of Peaceful Bedtime Narratives</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-on-vivo-x100-pro-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Vivo X100 Pro FRP Bypass</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/investing-in-reading-are-kindles-worth-it/"><u>Investing in Reading: Are Kindles Worth It?</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-capturing-and-sharing-ps4-screenshots-the-ultimate-guide/"><u>New 2024 Approved Capturing and Sharing PS4 Screenshots The Ultimate Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-art-of-reading-reinvented-through-the-advanced-features-of-kobo-forma-e-reader/"><u>The Art of Reading Reinvented Through the Advanced Features of Kobo Forma E-Reader</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-complete-guide-to-the-asus-vg245h-a-top-contender-for-gamers-screens/"><u>The Complete Guide to the Asus VG245H – A Top Contender for Gamers' Screens</u></a></li>
 </ul></div>
 

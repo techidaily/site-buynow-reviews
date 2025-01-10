@@ -1,7 +1,7 @@
 ---
 title: "Small but Mighty: In-Depth Look at the New Echo Dot (Gen 3) Showcasing Full Alexa Functionality"
-date: 2024-12-30T02:54:00.663Z
-updated: 2025-01-03T21:49:56.465Z
+date: 2025-01-06T18:23:01.066Z
+updated: 2025-01-10T18:09:49.202Z
 categories:
   - BestProducts
 description: "This Article Describes Small but Mighty: In-Depth Look at the New Echo Dot (Gen 3) Showcasing Full Alexa Functionality"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Beantech Bitwatch S1 Plus
 
@@ -42,13 +46,13 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
 
 4
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Beantech Bitwatch S1 Plus
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/RIxQYWLMnyHkO9IcguCoRX11EbY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -75,10 +79,6 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design and Software: A surprising amount of features in this chunky watch**
 
  The most outstanding feature of the Bitwatch’s design is its chunkiness. For those with small wrists, this smartwatch looks ridiculous. Furthermore, the included bands are too small in comparison to the watch, giving the overall design a cheap feel. When you wear this watch, you will notice it weighing your wrists down, taunting you to take it off. But as ugly as the Bitwatch is, it is a functional little watch. It has a power button and volume buttons, as well as a strong vibration motor. Its touchscreen works without a problem, and the app layout is intuitive to understand.
@@ -89,6 +89,10 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
 
  While it doesn’t have[NFC](https://www.lifewire.com/what-is-nfc-832715) or GPS, it does have a speaker, and you can send basic messages with the watch. The Bitwatch S1 is surprisingly robust for those who want to dip their toes into the smartwatch experience, with many of the features that mid-tier smartwatches possess.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Easy, but unexplained**
 
  Setting up the Bitwatch works as you’d expect. Pair it via the Bluetooth on your phone and download the Beantech app. It works with both Android and iOS, so you should have no difficulty. Alerts will show up in the remote notifier app, and apps such as the calendar are not synced with your phone’s calendar apps, so keep that in mind if you’d like to add any events, notifications, or alarms to your watch.
@@ -96,14 +100,10 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/O7xHfA9sKsBdC0nmqNXbFky-Dm4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-2-3b838f1124184bbd9452b79bb8449c2b.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: You get what you pay for**
 
@@ -123,10 +123,6 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
 
  The battery life on the Bitwatch is excellent. With regular usage (GPS, heart rate, Bluetooth all on), we got between two and three days of use before we had to recharge. Charging is a little annoying, though, since it uses a snapping charger base that’s difficult to remove.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Reasonable, but worth paying more**
 
  The Bitwatch costs about $50, which is reasonable for its features and performance. You get reliable notifications and a passable heart rate monitor, as well as some basic functions like alarms and a speaker. If you want a cheap smartwatch, then the Bitwatch isn’t a bad pick, but $30 more can get you GPS and smarter notifications. If you are after a solid fitness tracker, both Garmin and[Fitbit](https://www.lifewire.com/what-is-fitbit-4176010) have[fantastic wearables](https://www.lifewire.com/phone-accessory-reviews-4102587) for under $100.
@@ -144,6 +140,10 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
  **An ultra-budget smartwatch that covers the basics.**
 
  The Beantech Bitwatch is not a groundbreaking smartwatch, but it provides a lot of essential features for $50\. If you’re looking to try out smartwatches, the Bitwatch will give you a solid battery life, music storage, passive notifications, phone call management, and a very large touchscreen.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -174,21 +174,20 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-discover-why-these-games-are-virtual-gold/"><u>[New] 2024 Approved Discover Why These Games Are Virtual Gold</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-evade-robotic-ratings-for-real-time-traffic-surge/"><u>[Updated] 2024 Approved Evade Robotic Ratings for Real-Time Traffic Surge</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-leveraging-obs-features-to-boost-zoom-performance/"><u>[Updated] In 2024, Leveraging OBS' Features to Boost Zoom Performance</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-artisanfusion-8k-montage-magic-toolkit/"><u>2024 Approved ArtisanFusion 8K Montage Magic Toolkit</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-elevate-your-zoom-experience-syncing-speakers-and-microphones/"><u>2024 Approved Elevate Your Zoom Experience Syncing Speakers & Microphones</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/2024s-elite-selection-the-premier-wireless-mice-reviewed/"><u>2024'S Elite Selection: The Premier Wireless Mice Reviewed</u></a></li>
-<li><a href="https://win-answers.techidaily.com/effective-solutions-repairing-the-improper-setup-of-amds-ryzen-master-software/"><u>Effective Solutions: Repairing the Improper Setup of AMD's Ryzen Master Software</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/losungen-fur-den-fehler-planungsfunktion-in-windows-10-nicht-aktiv-schritte-zur-problemlosung/"><u>Lösungen Für Den Fehler 'Planungsfunktion in Windows 10 Nicht Aktiv': Schritte Zur Problemlösung</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/step-by-step-guide-using-dism-command-line-to-fix-windows-11-issues/"><u>Step-by-Step Guide: Using DISM Command Line to Fix Windows 11 Issues</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-affordable-monitors-the-ultimate-buyers-guide/"><u>Top Rated Affordable Monitors : The Ultimate Buyer's Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-compact-smartphones/"><u>Top Rated Compact Smartphones</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-ranked-cfexpress-memory-cards-buyers-guide/"><u>Top-Ranked CFexpress Memory Cards : Buyer's Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-ranking-4k-television-models-a-comprehensive-guide/"><u>Top-Ranking 4K Television Models - A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-ranking-infant-surveillance-systems/"><u>Top-Ranking Infant Surveillance Systems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-ranking-pc-screens-a-comprehensive-review/"><u>Top-Ranking PC Screens : A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-automobile-mobile-holder-selections/"><u>Top-Rated Automobile Mobile Holder Selections</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-obs-or-streamlabs-determining-the-superior-livestream-software/"><u>[New] In 2024, OBS or Streamlabs? Determining the Superior Livestream Software</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-full-inspection-gopro-silver-hero4-detailed-review/"><u>[Updated] 2024 Approved Full Inspection GoPro Silver Hero4 Detailed Review</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/windows-aikadk/"><u>「WINDOWS AIK/ADK」利用のためのステップバイステップダウンロードガイド</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/capture-oceanic-vistas-with-the-versatile-insta360-one-x2/"><u>Capture Oceanic Vistas with the Versatile Insta360 One X2</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-lamicall-tablet-support-reviews-prioritizing-practicality-and-convenience/"><u>Comprehensive Lamicall Tablet Support Reviews: Prioritizing Practicality and Convenience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/crucial-aspects-to-weigh-when-investing-in-a-dash-camera/"><u>Crucial Aspects to Weigh When Investing in a Dash Camera</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-perfect-travel-companion-for-readers-in-depth-review-of-the-kobo-clara-hd/"><u>Discover the Perfect Travel Companion for Readers: In-Depth Review of the Kobo Clara HD</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/easy-integration-of-ai-tools-using-agentgpt-on-any-browser-platform/"><u>Easy Integration of AI Tools Using AgentGPT on Any Browser Platform</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-benefits-and-drawbacks-a-comprehensive-look-at-the-samsung-galaxy-s21-ultra-as-the-prime-choice-for-android-users/"><u>Exploring the Benefits and Drawbacks: A Comprehensive Look at the Samsung Galaxy S21 Ultra as the Prime Choice for Android Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-anker-powercoreplus-26800-charge-station-kit-a-modern-marvel-in-portability/"><u>In-Depth Analysis of the Anker PowerCore+ 26800 Charge Station Kit - A Modern Marvel in Portability</u></a></li>
+<li><a href="https://extra-information.techidaily.com/magix-photo-manager-review/"><u>MAGIX Photo Manager Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximize-your-safety-on-the-road-a-detailed-review-of-the-escort-max-360-radar-detector-complete-with-gps-and-more/"><u>Maximize Your Safety on the Road: A Detailed Review of the Escort Max 360 Radar Detector - Complete With GPS and More!</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/quick-shift-video-techniques-mastering-transitions/"><u>Quick-Shift Video Techniques Mastering Transitions</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/transforming-the-future-of-web-development-the-impact-of-artificial-intelligence-on-search-algorithms/"><u>Transforming the Future of Web Development: The Impact of Artificial Intelligence on Search Algorithms</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/understanding-the-real-value-of-subscribing-to-spotify/"><u>Understanding the Real Value of Subscribing to Spotify</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Comprehensive TP-Link Archer C80 Analysis - Top Under $100 Routers
-date: 2024-12-29T19:17:11.037Z
-updated: 2025-01-03T19:51:45.765Z
+date: 2025-01-03T17:56:37.531Z
+updated: 2025-01-10T21:27:34.502Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive TP-Link Archer C80 Analysis - Top Under $100 Routers
@@ -22,10 +22,6 @@ thumbnail: https://www.lifewire.com/thmb/hnfn1HKm08TJxpBixlaHeqOfiug=/400x300/fi
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/6eJwPC0xPwMxCh4aQhG73X9dkzU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Erika Rawes
 
  What We Like
@@ -45,10 +41,6 @@ Lifewire / Erika Rawes
 [View On Walmart $29](https://www.walmart.com/ip/612208092)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Antop AT-127
 
@@ -85,7 +77,15 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup: Easier than most**
 
@@ -114,7 +114,7 @@ Lifewire / Erika Rawes
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Mid-range**
@@ -124,13 +124,13 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
@@ -174,17 +174,19 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-reel-in-real-time-the-top-5-innovative-recorder-apps-for-browsers/"><u>[New] Reel in Real-Time The Top 5 Innovative Recorder Apps for Browsers</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-finding-non-inshot-video-software-for-pcs/"><u>[Updated] Finding Non-Inshot Video Software for PCs</u></a></li>
-<li><a href="https://win-answers.techidaily.com/expert-guide-to-resolving-apex-legends-game-engine-problems-fixed/"><u>Expert Guide to Resolving Apex Legends Game Engine Problems [FIXED]</u></a></li>
-<li><a href="https://games-able.techidaily.com/pinnacle-office-matt-selection-for-future-workspaces/"><u>Pinnacle Office Matt Selection for Future Workspaces</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-audiovisual-experience-elevated-mastering-audio-blending-in-audacity-for-2024/"><u>The Audiovisual Experience Elevated Mastering Audio Blending in Audacity for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-oneplus-12-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on OnePlus 12 Device</u></a></li>
-<li><a href="https://games-able.techidaily.com/trailblazing-through-the-offline-maze-with-series-console/"><u>Trailblazing Through the Offline Maze with Series Console</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-watching-netflix-live-through-discord/"><u>Ultimate Guide: Watching Netflix Live Through Discord</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/upcoming-end-date-xbox-360-content-library-discontinues-service-for-the-month/"><u>Upcoming End Date: Xbox 360 Content Library Discontinues Service for the Month</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/watching-music-unfold-spotifys-latest-addition-of-official-song-videos/"><u>Watching Music Unfold: Spotify's Latest Addition of Official Song Videos</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/weekly-update-changes-coming-to-netflixs-basic-plan-and-enhanced-techniques-in-iphone-restoration/"><u>Weekly Update: Changes Coming to Netflix's Basic Plan & Enhanced Techniques in iPhone Restoration</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-you-need-to-hit-the-pause-button-on-apple-music-listening-records-for-better-security/"><u>Why You Need to Hit the Pause Button on Apple Music Listening Records for Better Security</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-design-mastery-in-motion-crafting-intriguing-podcast-covers/"><u>[Updated] 2024 Approved Design Mastery in Motion Crafting Intriguing Podcast Covers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-vg2n803-series-the-ultimate-choice-for-console-gamers/"><u>Asus VG2n803 Series: The Ultimate Choice for Console Gamers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/breakdown-of-samsung-qn55q60rafxza-the-ultimate-4k-hdr10plus-smart-television-review/"><u>Breakdown of Samsung QN55Q60RAFXZA: The Ultimate 4K HDR10+ Smart Television Review</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/can-chatgpt-challenge-the-supremacy-of-traditional-search-engines/"><u>Can ChatGPT Challenge the Supremacy of Traditional Search Engines?</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/expertly-curated-selection-best-chatgpt-queries-from-github-repositories/"><u>Expertly Curated Selection: Best ChatGPT Queries From GitHub Repositories</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-advanced-features-in-microsoft-onenote-with-onetastic-plugin-review/"><u>Exploring Advanced Features in Microsoft OneNote with Onetastic Plugin Review</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-tecno-spark-20-proplus-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Tecno Spark 20 Pro+ Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-netgear-nighthawk-x4-superior-wi-fi-mesh-capabilities/"><u>In-Depth Analysis of the Netgear Nighthawk X4 - Superior Wi-Fi Mesh Capabilities</u></a></li>
+<li><a href="https://change-location.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Vivo T2 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-drm-removal-from-ebooks-starting-on-page-1/"><u>Step-by-Step Guide: DRM Removal From eBooks - Starting on Page 1</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-ultimate-selection-of-voice-transcription-tools-224/"><u>The Ultimate Selection of Voice Transcription Tools - 2#24</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-free-video-clippers-for-windows-11-8-and-7-and-macos-ergatiere-le-riprese-video-non-necessarie/"><u>Top Free Video Clippers for Windows 11, 8 & 7 and macOS - Ergatiere Le Riprese Video Non Necessarie</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transitioning-from-rigidity-discover-how-the-lenovo-thinkpad-x1-titanium-yoga-wins-over-core-thinkpad-loyalists/"><u>Transitioning From Rigidity: Discover How the Lenovo ThinkPad X1 Titanium Yoga Wins Over Core ThinkPad Loyalists</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-test-drive-report-the-toy-sized-marvel-galaxy-ford-f-1-remote-control-vehicle/"><u>Unboxing and Test Drive Report: The Toy-Sized Marvel, Galaxy Ford F-1# Remote Control Vehicle</u></a></li>
 </ul></div>
 

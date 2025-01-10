@@ -1,7 +1,7 @@
 ---
 title: "The Mighty Compact Powerhouse: In-Depth Look at the Samsung Galaxy S10e"
-date: 2024-12-29T21:43:50.511Z
-updated: 2025-01-03T22:50:32.338Z
+date: 2025-01-05T18:07:12.619Z
+updated: 2025-01-10T20:40:06.046Z
 categories:
   - BestProducts
 description: "This Article Describes The Mighty Compact Powerhouse: In-Depth Look at the Samsung Galaxy S10e"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/ea46c2c3bcce8249fe3c90a83e87a709d2898868b
 ## ZMI PowerPack 20000
 
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/A__IgeAPd2C0e_2iExqDqXJAGB8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-HeroSquare-492efa01c9e54737bfa9d16223ff9d82.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -46,9 +42,17 @@ thumbnail: https://thmb.techidaily.com/ea46c2c3bcce8249fe3c90a83e87a709d2898868b
 
 4.9
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ZMI PowerPack 20000
 
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/FttxoftMtHF3B2ZGmP2QubmOp3I=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-HeroSquare-492efa01c9e54737bfa9d16223ff9d82.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -74,10 +78,6 @@ thumbnail: https://thmb.techidaily.com/ea46c2c3bcce8249fe3c90a83e87a709d2898868b
 
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Small but powerful**
 
  The ZMI PowerPack 20000’s size is easily one of its biggest selling points. While it is a little heavy at 14.3 ounces, this power bank is the approximate width and height of a large smartphone, measuring up very closely to the size of my Apple iPhone 11 Pro at 6.3 x 3.2 inches (HWD). Of course, the 0.8-inch thickness is quite a bit larger than any phone today, but unlike most laptop-friendly charging banks, ZMI’s can still fit into a pocket or handbag with ease.
@@ -94,16 +94,12 @@ thumbnail: https://thmb.techidaily.com/ea46c2c3bcce8249fe3c90a83e87a709d2898868b
 
 Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Easy does it**
 
  There’s not much to the setup process here. Using the included USB-C to USB-C cable, simply plug one end into the power bank and the other into an AC adapter that you have handy—like one for a laptop, tablet, or[smartphone](https://www.lifewire.com/best-smartphones-4043781) . Once the four lights on the side are fully illuminated, then the battery pack is fully charged. Simply plug in devices using their respective cables to charge them using the power within the ZMI PowerPack 20000.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Charging Speed and Battery: It keeps going**
@@ -125,7 +121,7 @@ Lifewire / Andrew Hayward
  With larger laptop-friendly battery packs sometimes selling for well north of $100, the $70 price point of the ZMI PowerPack 20000 is an incredibly attractive deal.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **ZMI PowerPack 20000 vs Mophie Powerstation AC**
@@ -137,6 +133,10 @@ Lifewire / Andrew Hayward
  **A fantastic portable laptop battery charger for nearly everyone.**
 
  It’s honestly difficult to find anything to complain about with the ZMI PowerPack 20000\. It’s powerful and does a great job of charging laptops and phones, it has enough capacity to handle those tasks with ease, it’s compact and well-designed, and the price is fantastic. It’s half the size of the giant Anker power brick that I’ve brought on my last two international trips and can handle all of the same tasks. In other words,_this_ is the power brick I’m bringing on my next trip.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -164,19 +164,24 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-active-presenter-8-review/"><u>[New] In 2024, Active Presenter 8 Review</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-building-your-dream-4k-video-editing-studio-a-diy-blueprint/"><u>[Updated] Building Your Dream 4K Video Editing Studio A DIY Blueprint</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-excellent-backdrops-setting-the-stage-for-streaming/"><u>[Updated] Excellent Backdrops Setting the Stage for Streaming</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-easy-dance-routines-to-follow-with-these-20-country-songs-tiktok/"><u>2024 Approved Easy Dance Routines to Follow with These 20 Country Songs (TikTok)</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-shape-your-story-5-proven-techniques-for-cutting-and-condensing-vimeo-videos-online/"><u>2024 Approved Shape Your Story 5 Proven Techniques for Cutting & Condensing Vimeo Videos Online</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-ringsong-blueprint-guide-for-turning-tamil-tracks-into-notifications/"><u>In 2024, RingSong Blueprint Guide for Turning Tamil Tracks Into Notifications</u></a></li>
-<li><a href="https://win-special.techidaily.com/is-microsofts-future-bright-despite-setbacks-in-surface-sales/"><u>Is Microsoft's Future Bright Despite Setbacks in Surface Sales?</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolved-no-typing-from-keyboard-issue/"><u>Resolved: No Typing From Keyboard Issue</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-mobile-network-deals-a-comprehensive-guide/"><u>Top Rated Mobile Network Deals : A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-printer-models-dominating-the-market/"><u>Top Rated Printer Models Dominating the Market</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-resistance-bands-ultimate-buyers-guide/"><u>Top Rated Resistance Bands - Ultimate Buyer's Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-smart-lighting-solutions/"><u>Top Rated Smart Lighting Solutions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-qled-televisions-a-comprehensive-guide/"><u>Top-Rated QLED Televisions : A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-choosing-the-perfect-laptop-for-academic-success/"><u>Ultimate Guide: Choosing the Perfect Laptop for Academic Success</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-dive-into-the-world-of-superior-no-cost-webm-viewers/"><u>[New] Dive Into the World of Superior No-Cost WebM Viewers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/chart-your-course-to-dominance-comprehensive-insights-into-space-empire-strategy-with-stellaris/"><u>Chart Your Course to Dominance: Comprehensive Insights Into Space Empire Strategy with Stellaris</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-and-the-future-of-work-which-positions-are-threatened-by-advanced-ai/"><u>ChatGPT and the Future of Work: Which Positions Are Threatened by Advanced AI?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-leading-extended-desktop-mouseskins/"><u>Comprehensive Review: Leading Extended Desktop Mouseskins</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/connect-and-conquer-metagames-top-friendly-games-for-2024/"><u>Connect and Conquer Metagame's Top Friendly Games for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dying-light-tested-an-intense-cooperative-1st-person-battle-for-survival-with-thrilling-parkour-elements/"><u>Dying Light Tested: An Intense Cooperative, 1St Person Battle for Survival with Thrilling Parkour Elements</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-performance-of-apples-latest-m1-chip-in-the-2020-macbook-air-an-in-depth-review/"><u>Exploring the Performance of Apple's Latest M1 Chip in the 2020 MacBook Air - An In-Depth Review</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-nvidia-geforce-rtx-1080-drivers-for-windows-11-users-download-guide/"><u>Get the Latest Nvidia GeForce RTX 1080 Drivers for Windows 11 Users – Download Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-honor-magic5-ultimate-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Honor Magic5 Ultimate by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-listenleaders-vision-beyond-dacast/"><u>In 2024, ListenLeaders Vision Beyond DaCast</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-transcoding-made-simple-from-xmlssattml-to-professional-srt/"><u>In 2024, Transcoding Made Simple From XML/SSA/TTML to Professional SRT</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lg-stylo-6-phone-assessment-impressive-design-and-precision-stylus/"><u>LG Stylo 6 Phone Assessment: Impressive Design & Precision Stylus</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-through-imo-chat-a-detailed-appraisal-for-users/"><u>Navigating Through Imo Chat: A Detailed Appraisal for Users</u></a></li>
+<li><a href="https://driver-error.techidaily.com/overcoming-bluetooth-hurdles-repairing-the-qualcomm-atheros-driver-for-optimal-performance-on-windows-10/"><u>Overcoming Bluetooth Hurdles: Repairing the Qualcomm Atheros Driver for Optimal Performance on Windows 10</u></a></li>
+<li><a href="https://media-tips.techidaily.com/pc-gaming-essentials-mastering-sky-children-of-the-light-with-a-comprehensive-tutorial/"><u>PC Gaming Essentials: Mastering 'Sky - Children of the Light' With a Comprehensive Tutorial</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/select-the-finest-karaoke-instruments-of-2024-a-buyers-guide-to-acoustic-bliss/"><u>Select the Finest Karaoke Instruments of 2024: A Buyer's Guide to Acoustic Bliss</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-nintendo-game-and-watch-unraveling-the-magic-of-super-mario-bros-an-in-depth-review/"><u>The Ultimate Guide to the Nintendo Game & Watch - Unraveling the Magic of Super Mario Bros: An In-Depth Review</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-vivo-x100-pro-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Vivo X100 Pro Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-most-innovative-drawing-tablets/"><u>Ultimate Guide to the Most Innovative Drawing Tablets</u></a></li>
 </ul></div>
 
