@@ -1,7 +1,7 @@
 ---
 title: "Adding More Fun: Tips & Tricks for Extending Your NES Classic Collection"
-date: 2024-08-10T23:44:40.206Z
-updated: 2024-08-11T23:44:40.206Z
+date: 2025-01-11T16:20:30.815Z
+updated: 2025-01-16T05:06:42.054Z
 categories:
   - BestProducts
 description: "This Article Describes Adding More Fun: Tips & Tricks for Extending Your NES Classic Collection"
@@ -10,9 +10,6 @@ thumbnail: https://thmb.techidaily.com/08c3aa17e0d4eaa82a6912035c2625c6aeb814a3c
 ---
 
 ## Unlock New Gaming Adventures for Your NES Classic Console
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### What to Know
 
 * With the NES Classic connected to a Windows PC, download**Hakchi 2** . Extract the file, if needed, and open hakchi.exe.
@@ -21,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/08c3aa17e0d4eaa82a6912035c2625c6aeb814a3c
 
  This article explains how to add games to an NEC Classic using NES game ROMs you own and a Windows PC.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Add Games to NES Classic
 
  While the re-release of Nintendo's original home console comes with just 30 of the best classic games built in, a new program makes it extremely easy to add more games to your NES Classic edition using a Windows PC. That said, you'll need your own NES game ROMs.
@@ -38,34 +32,36 @@ thumbnail: https://thmb.techidaily.com/08c3aa17e0d4eaa82a6912035c2625c6aeb814a3c
  If you're prompted to download additional resources and[restart your device](https://www.lifewire.com/why-does-restarting-seem-to-fix-most-computer-problems-2624569) , go ahead and open hakchi.exe again after you restart.  
 ![Open hakchi.exe](https://www.lifewire.com/thmb/3sEWApEsJlQ3WfD3dwm44L9fV20=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/001-add-more-games-to-the-nes-classic-7f6bf93f026a42bd95f6d179aca086a1.jpg)
 4. Select**NES (USA/Europe)** .  
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![Choose NES (USA/Europe)](https://www.lifewire.com/thmb/K0_MIzgjkgi5Do_SG9rO9OU-b-4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/002-add-more-games-to-the-nes-classic-2077915796d24b319622974016b4c322.jpg)
 5. Select**Add more games** to upload the ROMs you want to add to your NES Classic. Only files with the extension .NES will work, although you can also upload ZIP folders containing them.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 !['Add more games' selection to upload ROMs to NES Classic](https://www.lifewire.com/thmb/7vHf5faB-1mVibSy9cF1KVJ8qfY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/003-add-more-games-to-the-nes-classic-089a7d2332bb4059b63d6de31fea424a.jpg)
 6. Under the Custom Games list, select the title you want to add cover art to. Select**Google** to retrieve images directly from Google.  
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ![Add cover art by clicking the titles under Custom Games](https://www.lifewire.com/thmb/neOlwOfUiIZx5S1tEn80GL82VMc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/004-add-more-games-to-the-nes-classic-c2bdeef7eff64d139156d138e2c6e7a7.jpg)
 7. On the Hakchi2 toolbar, select**Kernel** \>**Install/Repair,** then select**Yes** when asked if you want to flash the custom kernel.  
+
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Select Kernel > Install/Repair, then click Yes](https://www.lifewire.com/thmb/N_5Vp8fvKlu15K8g8IneRPpgamA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/005-add-more-games-to-the-nes-classic-cf58f3c816484e8e899c26bd4f7adf5e.jpg)
 8. Follow the instructions that appear. You might be required to install some drivers if they didn't automatically install when you connected the console.  
+
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Flash the custom kernel](https://www.lifewire.com/thmb/obxjQ5w6R-YGlPa1SqmQbuWoxcU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Screenshot153-5c5a42ee46e0fb000152fca2.png)
 9. When the process is complete, select**Synchronize selected games with NES/SNES Mini** and confirm you flashed the custom kernel.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Select Synchronize selected games with NES/SNES Mini](https://www.lifewire.com/thmb/OQNrcOP_nKxq5Z51RZCf26tzUJ4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/006-add-more-games-to-the-nes-classic-601953ec9f1947eca4af89041d99caba.jpg)
 10. After your ROMs finish uploading, turn off the console and disconnect it from your PC.
 11. Plug in the power source to your NES Classic and turn it on. Your new games will be inside a folder named "New Games" alongside the preloaded titles.
@@ -75,6 +71,10 @@ thumbnail: https://thmb.techidaily.com/08c3aa17e0d4eaa82a6912035c2625c6aeb814a3c
  Making modifications to your NES Classic will void its warranty, and you could potentially damage the console. Add new games at your own risk.
 
 ![Nintendo Entertainment System Classic Controller](https://www.lifewire.com/thmb/FtuZUihm95iCMHAm4i5_PRSocb0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Entertainment-System-NES-Controller-FR-5c5a494bc9e77c0001d00e2b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  <https://commons.wikimedia.org/wiki/File:Nintendo-Entertainment-System-NES-Controller-FR.jpg>
 
@@ -108,8 +108,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -117,4 +115,21 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/reakdown-fundamental-aspects-of-asmr-videos-for-2024/"><u>[New] Breakdown Fundamental Aspects of ASMR Videos for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-choosing-the-best-iphone-video-editor-filmorago-or-cameo/"><u>[Updated] In 2024, Choosing the Best iPhone Video Editor FilmoRaGo or Cameo?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-high-revenue-video-visionaries/"><u>[Updated] In 2024, High-Revenue Video Visionaries</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/another-world-awaits-on-your-switch-uncovering-the-magic-of-skyrims-rpg-excellence/"><u>Another World Awaits on Your Switch - Uncovering the Magic of Skyrim's RPG Excellence</u></a></li>
+<li><a href="https://some-tips.techidaily.com/cloud-security-essentials-how-to-fortify-your-digital-perimeter-and-outsmart-hackers-expert-advice-from-zdnet/"><u>Cloud Security Essentials: How to Fortify Your Digital Perimeter and Outsmart Hackers | Expert Advice From ZDNET</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-fix-call-of-duty-vanguard-freezing/"><u>How to Fix Call of Duty: Vanguard Freezing</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Vivo Y78t? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-meizu-21-profrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Meizu 21 ProFRP Lock</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-open-source-alternatives-to-microsoft-office-revealed-2024-rankings/"><u>Leading Open Source Alternatives to Microsoft Office Revealed: 2024 Rankings</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/no-watermark-guide-quick-conversion-of-mkv-files-to-avi-using-vlc/"><u>No-Watermark Guide: Quick Conversion of MKV Files to AVI Using VLC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-newest-samsung-galaxy-chromebook-2-the-ultimate-companion-for-mobile-professionals/"><u>Reviewing the Newest Samsung Galaxy Chromebook 2: The Ultimate Companion for Mobile Professionals</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/syma-s111g-rc-helicopter-review-low-cost-indoor-fun/"><u>Syma S111G RC Helicopter Review: Low-Cost Indoor Fun</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-6-online-stores-for-buying-televisions/"><u>Top 6 Online Stores for Buying Televisions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/value-meets-innovation-in-the-arcshell-ar-5-a-full-performance-breakdown/"><u>Value Meets Innovation in the ArcShell AR-5: A Full Performance Breakdown</u></a></li>
+</ul></div>
 

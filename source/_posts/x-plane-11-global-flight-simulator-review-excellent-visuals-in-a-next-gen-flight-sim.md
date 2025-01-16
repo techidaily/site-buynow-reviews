@@ -1,7 +1,7 @@
 ---
 title: "X-Plane 11 Global Flight Simulator Review: Excellent Visuals in a Next-Gen Flight Sim"
-date: 2025-01-07T17:42:02.953Z
-updated: 2025-01-10T19:05:41.524Z
+date: 2025-01-14T19:02:57.045Z
+updated: 2025-01-16T05:04:17.272Z
 categories:
   - BestProducts
 description: "This Article Describes X-Plane 11 Global Flight Simulator Review: Excellent Visuals in a Next-Gen Flight Sim"
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/e85743b34dfe1708fd7baeaabbf4be530a9d0acc9
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/rS-RQyeAxU8gdzYheTg1qi5PFEY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -45,10 +45,6 @@ Lifewire / Erika Rawes
 [View On Amazon](https://www.amazon.com/dp/B075ZQXB26/?tag=lifewire-onsite-prod-20&ascsubtag=4845569%7Cn4bcb8b1996c24cd3b14f62e195599b0615%7CB075ZQXB26)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## AmazonBasics Ultra-Thin Antenna
 
@@ -75,6 +71,10 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -82,10 +82,6 @@ Lifewire / Erika Rawes
  It doesn’t come with a stand, but it does include 3M double-sided adhesives you can use to attach the antenna to walls or other surfaces. It also comes with a 10-foot long coax cable, which is removable. The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup: Relatively easy**
 
@@ -99,6 +95,10 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Almost two dozen channels (in a rural area)**
 
  So many things[affect an antenna’s performance](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) —location, household electronics, tree cover, tower location, and more. The antenna displays channels of high quality. However, sometimes the channels would take a few seconds to load, and other times, I’d see a pixelated effect when I first changed the channel that would clear up after a few seconds. Once the picture was fully loaded, it was in clear high definition. The antenna is capable of displaying a clear HD picture, so I couldn’t tell the difference between the antenna’s picture and the picture from streaming services like Hulu or Netflix.
@@ -108,7 +108,7 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Range: 35 miles**
@@ -120,7 +120,7 @@ Lifewire / Erika Rawes
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Super affordable**
@@ -172,20 +172,21 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-dial-up-your-mobile-experience-vr-and-panoramic-videos-on-android/"><u>[New] In 2024, Dial Up Your Mobile Experience VR & Panoramic Videos on Android</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-integrating-effective-annotations-for-dynamic-storytelling-for-2024/"><u>[New] Integrating Effective Annotations for Dynamic Storytelling for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-top-editor-secrets-unlocked-in-canva-photo-editing/"><u>[New] Top Editor Secrets Unlocked in Canva Photo Editing</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-mobile-recorder-iphones-future-call-log/"><u>[Updated] 2024 Approved Mobile Recorder IPhone's Future Call Log</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-final-touch-youtube-outro-essentials-plus-premier-creator-list-for-2024/"><u>[Updated] The Final Touch YouTube Outro Essentials + Premier Creator List for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-warmth-in-visuals-ideal-winter-backgrounds-for-youtube/"><u>[Updated] Warmth in Visuals Ideal Winter Backgrounds for YouTube</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/assessing-webexs-reliability-a-balanced-look-at-the-pros-and-cons-for-virtual-meetings/"><u>Assessing Webex's Reliability: A Balanced Look at the Pros and Cons for Virtual Meetings</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/benchmarking-the-best-the-ultimate-review-of-the-superfast-netgear-nighthawk-rax120-router/"><u>Benchmarking the Best: The Ultimate Review of the Superfast Netgear Nighthawk RAX120 Router</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-netgears-powerline-extender-with-1200mbps-balancing-size-and-performance/"><u>Comprehensive Analysis of Netgear's Powerline Extender with 1200Mbps - Balancing Size and Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-anker-superspeed-usb-30-hub-for-maximum-connectivity/"><u>Comprehensive Review of the Anker SuperSpeed USB 3.0 Hub for Maximum Connectivity</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211010393-9780968676295-dying-to-live-learn-to-live-a-full-life-from-your-lived-experiences-learn-to-live-a-full-life-from-your-lived-experiences-learn-to-live-a-full-life-from-your-li/"><u>Dying to Live: Learn to Live a Full Life From Your Lived Experiences: Learn to Live A Full Life From Your Lived Experiences: Learn to Live a Full Life From Your Lived Experiences | Free Book</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/examining-the-moto-g-play-stellar-battery-performance-meets-adequate-processing-capabilities/"><u>Examining the Moto G Play: Stellar Battery Performance Meets Adequate Processing Capabilities</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-razer-blade-pro-17-a-compact-dynamo-for-on-the-go-users/"><u>Exploring the Razer Blade Pro 17 - A Compact Dynamo for On-the-Go Users</u></a></li>
-<li><a href="https://some-tips.techidaily.com/free-online-converter-avi-to-mjpeg-movavi/"><u>Free Online Converter: AVI to MJPEG - Movavi</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/guia-paso-a-paso-para-usar-libdvdcss-con-handbrake-hacer-copias-de-dvd-sin-restricciones-en-macos-y-windows-10/"><u>Guía Paso a Paso Para Usar Libdvdcss Con HandBrake: Hacer Copias De DVD Sin Restricciones en macOS Y Windows 10</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-capture-curiosity-with-these-6-video-categories-for-2024/"><u>[New] Capture Curiosity with These 6 Video Categories for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-real-time-screen-replay-on-chrome-pcs/"><u>[Updated] Real-Time Screen Replay on Chrome PCs</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-simplified-design-guide-add-your-own-style-to-your-video-shorts/"><u>2024 Approved Simplified Design Guide Add Your Own Style to Your Video Shorts</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/harnessing-battery-power-and-3d-printing-technology-for-the-flying-lotus-revolutionary-aio-workstation-designed-from-a-customized-laptop-chassis/"><u>Harnessing Battery Power and 3D Printing Technology for the Flying Lotus' Revolutionary AIO Workstation Designed From a Customized Laptop Chassis</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-poco-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Poco</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-xiaomi-14-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Xiaomi 14 FRP Without Computer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/set-a-competitive-price/"><u>Set a Competitive Price</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smart-buying-guide-key-aspects-to-verify-in-a-pre-owned-ipad/"><u>Smart Buying Guide: Key Aspects to Verify in a Pre-Owned iPad</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sonys-hdrcx405-improved-stability-and-dual-record/"><u>Sony's HDRCX405: Improved Stability & Dual Record</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/tailored-content-personalizing-facebook-ad-videos-effectively-for-2024/"><u>Tailored Content Personalizing Facebook Ad Videos Effectively for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-ergonomic-keyboards-of-2024/"><u>The Best Ergonomic Keyboards of 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-nubia-red-magic-8s-proplus-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Nubia Red Magic 8S Pro+ Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-zmi-powerpack-20000-examined-the-perfect-compact-power-device-reviewed/"><u>Top-Rated ZMI PowerPack 20000 Examined: The Perfect Compact Power Device Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-apples-latest-offering-the-apple-watch-series/"><u>Unveiling Apple's Latest Offering: The Apple Watch Series</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-b550-xt-features-command-quietude/"><u>Unveiling the B550-XT Features: Command, Quietude</u></a></li>
 </ul></div>
 

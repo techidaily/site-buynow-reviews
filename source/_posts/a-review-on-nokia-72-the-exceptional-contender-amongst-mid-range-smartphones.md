@@ -1,7 +1,7 @@
 ---
 title: A Review on Nokia 7.2 – The Exceptional Contender Amongst Mid-Range Smartphones
-date: 2024-08-10T23:44:41.180Z
-updated: 2024-08-11T23:44:41.180Z
+date: 2025-01-13T02:55:10.930Z
+updated: 2025-01-15T17:39:51.289Z
 categories:
   - BestProducts
 description: This Article Describes A Review on Nokia 7.2 – The Exceptional Contender Amongst Mid-Range Smartphones
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/gejPGhm2a697zbsz_cG0nBoauZY=/400x300/fi
 ## 'Godfall' Review - Sony's PS5 Exclusive Loses the Battle Against Monotony and Incoherence Amid High Anticipation
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Godfall
 
@@ -41,6 +45,10 @@ Rebecca Isaacs / Lifewire
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Godfall
 
 ![Godfall](https://www.lifewire.com/thmb/0NLDB5xBHlyMz4ZXPM-uk0dzS7Y=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Godfall-PC-Game-1-d3b0021c9f1f4c90a844bf0e8f8fcb25.jpg)
@@ -66,16 +74,14 @@ Rebecca Isaacs / Lifewire
 
  With the[PlayStation 5](https://www.lifewire.com/sony-playstation-5-review-5088394) releasing late last year, Godfall was the first of the[PS5 exclusives](https://www.lifewire.com/ps5-games-list-5076154) , with its launch in early November. As a looter-shooter lover (especially of the Borderlands series), I was intrigued by the prospect of using swords and shields instead of guns. At first, it was a fun, enthralling experience due to the compelling graphics. Unfortunately, after eleven hours of gameplay, I’ve already shelved it and moved on to the next game in my library due to its repetitive nature and poor plotline. Read on for how I evaluated the gameplay, plot, and graphics.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Godfall](https://www.lifewire.com/thmb/H6t9YHOQhs7GMJ8lP75_d2mnMVU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-4-cd60ab2e603a4efaa0031f8aa5743fb4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Rebecca Isaacs / Lifewire
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Plot: What’s that?
 
  “It was all a lie,” the narrator says, signaling the beginning of the game. What follows is an elaborate cut scene depicting everything I’d want in an adventure game: betrayal, battle, and of course, a desire for bloodthirsty vengeance.
@@ -86,9 +92,6 @@ Rebecca Isaacs / Lifewire
 
  If the devil is in the details, then Counterplay sold its soul to ensure that every leaf had ridges and grooves.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ## Graphics: Gorgeous
 
  For a bland plot, Godfall really brings its A-game with the graphics. Some of the scenes as I ran across streams and trails brought out vivid hues and beautiful environments. If the devil is in the details, then Counterplay Games sold its soul to ensure that every leaf had ridges and grooves. In that aspect, the game shines, and I felt transported into the world as I ran around destroying my enemies with a greatsword.
@@ -121,12 +124,13 @@ Rebecca Isaacs / Lifewire
 
  Not all the gameplay features are gripe worthy though. With up close combat, dying is inevitable, and Godfall makes sure to address the risk of constant death in three ways: a practice arena in between missions, where you can test out your latest combos; easy, fast leveling; and no death penalty. While some players will most likely balk at no death penalty, casual gamers will enjoy not having to worry about the loss of experience or equipment durability.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Godfall](https://www.lifewire.com/thmb/xztzESfeykd-1UUo9xAOFt8EPNE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-7-4a134c4dc6304645aaeb4ff4a0badefa.jpg)
 
 Rebecca Isaacs / Lifewire
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Platform: PS5 or PC
 
@@ -137,17 +141,15 @@ Rebecca Isaacs / Lifewire
 Rebecca Isaacs / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Price: Overpriced for the amount of content available
 
  If Godfall was priced around $30, I would have been more sympathetic to its cause. However, the base game itself will cost around $60 before any kind of sale. If you want to upgrade to a higher edition, such as Deluxe or its top edition, Ascended, that will run you up to $90\. That much money for a game that seems half-finished and still requires 50GB of SSD memory is, quite frankly, way too much for anyone to pay. This is also not including the option of pre-order and Ascended content, each of which will cost another $10.
 
  I’ll be brutally honest here: if it’s between Godfall and Warframe, Warframe is easily a better game.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Godfall vs. Warframe
 
  The only game that can remotely come close to Godfall is Warframe. Both offer missions you can complete repetitively, and both require multiple hours of gameplay in order to progress in the game.
@@ -165,17 +167,15 @@ Rebecca Isaacs / Lifewire
  If you’re looking for a mindless hack and slash game to play, this might be a go-to game for you, especially if you like Warframe. But as much as I loved the graphics, I can’t recommend Godfall based on the landscapes alone. If you feel obligated to try out a melee looter slasher, wait for a sale, but for most people you can find better games to play.
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Assassin's Creed: Valhalla](https://www.lifewire.com/assassin-s-creed-valhalla-review-an-epic-viking-adventure-across-the-medieval-world-5086782)
 * [Watch Dogs: Legion](https://www.lifewire.com/watch-dogs-legion-review-a-new-setting-for-the-series-5085469)
 * [Marvel’s Avengers](https://www.lifewire.com/marvel-s-avengers-review-5088311)
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Godfall
@@ -193,14 +193,11 @@ Rebecca Isaacs / Lifewire
 * Graphics  Nvidia GeForce GTX 1060, 6 GB | AMD Radeon RX 580, 8 GB
 * Network  Internet connection required
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -209,4 +206,19 @@ Rebecca Isaacs / Lifewire
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-top-iphones-and-android-premium-coverage-for-your-ig-highlights/"><u>[New] In 2024, Top iPhones & Android Premium Coverage for Your IG Highlights</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-leading-microphones-selection-for-uncompromised-4k-clarity/"><u>[Updated] Leading Microphones Selection for Uncompromised 4K Clarity</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/a-comprehensive-tutorial-for-switching-languages-on-amazons-kindle-ereader-device/"><u>A Comprehensive Tutorial for Switching Languages on Amazon's Kindle eReader Device</u></a></li>
+<li><a href="https://extra-information.techidaily.com/expert-methods-for-flipping-image-colors/"><u>Expert Methods for Flipping Image Colors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expertly-chosen-best-wireless-mice-available/"><u>Expertly Chosen Best Wireless Mice Available</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-samsung-galaxy-m54-5gwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Samsung Galaxy M54 5Gwith/without a PC</u></a></li>
+<li><a href="https://windows11.techidaily.com/leading-the-pack-best-windows-11-for-fps-tracking/"><u>Leading the Pack: Best Windows 11 for FPS Tracking</u></a></li>
+<li><a href="https://win11.techidaily.com/mellowing-down-post-high-life-hectic-windows-routine/"><u>Mellowing Down Post-High Life Hectic Windows Routine</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nikon-coolpix-p1000-review/"><u>Nikon COOLPIX P1000 Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/retro-meets-new-age-in-ratchet-and-clank-review-an-iconic-journey-reimagined/"><u>Retro Meets New Age in Ratchet & Clank Review: An Iconic Journey Reimagined</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-shakers-the-ultimate-audio-rippers-list-for-2024/"><u>Sonic Shakers The Ultimate Audio Rippers List for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/track-every-heartbeat-in-style-unveiling-the-benefits-of-the-garmin-vivomove-hr-smartwatch-for-active-wearers/"><u>Track Every Heartbeat in Style: Unveiling the Benefits of the Garmin Vivomove HR Smartwatch for Active Wearers</u></a></li>
+</ul></div>
 

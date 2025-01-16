@@ -1,7 +1,7 @@
 ---
 title: An In-Depth Look at Sony Xperia 5 - Quality Meets High Expense in a Compact Package
-date: 2024-08-10T23:44:13.145Z
-updated: 2024-08-11T23:44:13.145Z
+date: 2025-01-09T12:35:45.078Z
+updated: 2025-01-16T07:20:46.886Z
 categories:
   - BestProducts
 description: This Article Describes An In-Depth Look at Sony Xperia 5 - Quality Meets High Expense in a Compact Package
@@ -15,9 +15,6 @@ thumbnail: https://www.lifewire.com/thmb/G9eXk3XIQC2TKR2WDGaWzRt8dy8=/400x300/fi
 
 ## Ubisoft Rayman Legends
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Rayman Legends](https://www.lifewire.com/thmb/3cugvPa-w5uei8fX1IKDgss6NTA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_HERO_RaymanLegends_20190118184305-5c8ff9e046e0fb00016ee128.jpg)
 
 Lifewire / Kelsey Simon
@@ -42,9 +39,6 @@ Lifewire / Kelsey Simon
 
 ## Ubisoft Rayman Legends
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Rayman Legends](https://www.lifewire.com/thmb/BWfy9xiaiEgYE-OIFR3VbBg-LW8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_HERO_RaymanLegends_20190118184305-5c8ff9e046e0fb00016ee128.jpg)
 
 Lifewire / Kelsey Simon
@@ -67,6 +61,10 @@ Lifewire / Kelsey Simon
 
  Rayman Legends is a 2D platformer from Ubisoft that has the option for cooperative gameplay. It comes from a long series of Rayman games but brings an upgrade in graphics and gameplay, creating a game that not only longtime fans will be happy with, but first-time players, too. We played this game on the PS4 to further explore the game’s plot, gameplay, graphics, and sound design―and we were not disappointed.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Easy as it should be**
 
  Setup for Rayman Legends is what you would expect. You’ll open up the[PlayStation 4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) case (or if you buy the game electronically through your PS4, you’ll begin the download process after purchase), pop in the disk, and you’ll be ready to play. Be aware, though, that certain features of the game will not be accessible if your PS4 is not connected to the internet. Specifically, you won’t be able to access the Challenges mode, where you can play weekly challenges against other Rayman Legends players.
@@ -81,12 +79,17 @@ Lifewire / Kelsey Simon
 
  You’ll chase after him, jumping from platform to platform, slaying the occasional enemy as you go. That's about it when it comes to the plot of Rayman Legends. Sometimes the Magician will give you a specific enemy to dodge, like a giant red dragon, and at the end of certain maps, you’ll get an opportunity to catch him. But really, Rayman Legends isn’t focused on plot; it’s more interested in providing outstanding gameplay.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Rayman Legends](https://www.lifewire.com/thmb/-Un250xgOCxgaGgFeykC6pihaaU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/RaymanLegends_20190118212347-5c8ffe8d46e0fb0001f8d0cc.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Gameplay: What this is really about**
 
@@ -100,10 +103,11 @@ Lifewire / Kelsey Simon
 
  In the game, there are six levels, each with roughly ten maps. You’ll have to work your way through the first level to unlock the second, and so forth. Unlocks are achieved when you reach a certain number of Teensies saved―which the Magician has locked up and hidden in various places throughout each map. There is also a type of in-game currency called "Lums" that you collect as you run through each map (they look like pink or gold fireflies).
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Rayman Legends](https://www.lifewire.com/thmb/oJz1vIp26cdVH1115RCHTapRpTE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/RaymanLegends_20190118215643-5c8ffe7346e0fb000146adbb.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -119,10 +123,6 @@ Lifewire / Kelsey Simon
 
  Rayman Legends has a unique look, which is represented fairly well by its bright and eye-catching cover. It doesn’t attempt to be realistic but embraces cartoon-like graphics, with goofy characters and villains mildly reminiscent of real-life creatures. In the level titled Toad Story, you’ll come across screaming toad monsters carrying swords and shields.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Rayman Legends](https://www.lifewire.com/thmb/ccE0U5KQNuFzIwrnVe2EtwkrG_g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/RaymanLegends_20190118211106-5c90015f46e0fb000146adbe.jpg)
 
  Lifewire / Kelsey Simon
@@ -130,22 +130,24 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  In the Fiesta De Los Muertos level, be prepared to smash brightly colored mariachi skeletons. No matter which level, though, the art style is consistent, and while not traditionally beautiful, it’s enjoyable and fun―a perfect fit for the game.
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Audio: A hidden treasure**
 
  Generally speaking, the sound and music in Rayman Legends is well designed and fits with the feel of the rest of the game. But there is one thing worth mentioning when it comes to the sound and music of the game―and in our opinion, it’s the coolest thing about Rayman Legends.
 
  At the end of each level, a special map is unlocked. This map is themed to fit with the level’s design, and each features a specific song. You’ll load in, be told to prepare yourself to run at full speed while jumping and smashing enemies, and then, as you set off, the first notes of the song begin.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Rayman Legends](https://www.lifewire.com/thmb/JIMvxIzHzgo1AXBmpTp3LxpzmTQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/RaymanLegends_20190118210656-5c9001cd46e0fb000172f0b1.jpg)
 
  Lifewire / Kelsey Simon
 
  The beauty of these maps is how well the gameplay is designed to match the beats of the song, from how each jump will strike with the strum of a guitar, or how the smash of a drum will be timed with the slaying of an enemy. The levels might take you a few tries to finish, as they’re timed and require precision, but they’re fun enough you won’t mind doing them again.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Very reasonable for the content**
 
@@ -169,9 +171,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Between the co-op option, the extra levels, the ability to replay Rayman Origins, and all the other things you can unlock from special heroes to scratchers, this game has a lot to offer for gamers of all ages.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [LEGO Worlds](https://www.lifewire.com/lego-dimensions-review-4686589)
@@ -191,14 +190,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * Recommended Age  10+
 * Available Platforms  Microsoft Windows (Origin), Nintendo Switch, PlayStation 3, PlayStation 4, PlayStation Vita, Wii U, Xbox 360, Xbox One
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -207,4 +203,20 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/eizing-youtubes-algorithm-advantage-with-smart-seo-tactics-for-2024/"><u>[New] Seizing YouTube's Algorithm Advantage with Smart SEO Tactics for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-mastering-social-media-key-apps-for-professional-ig-videographers/"><u>[Updated] 2024 Approved Mastering Social Media Key Apps for Professional IG Videographers</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-snapshot-success-the-photographers-tale/"><u>[Updated] Snapshot Success The Photographer's Tale</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/addressing-screen-projection-not-working-window-glitch/"><u>Addressing Screen Projection Not Working Window Glitch</u></a></li>
+<li><a href="https://win-blog.techidaily.com/chrome-troubleshooting-resolving-page-loading-problems/"><u>Chrome Troubleshooting: Resolving Page Loading Problems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-iphone-15-pro-max-and-samsung-galaxy-s24-ultra-key-distinctions-revealed/"><u>Comparing iPhone 15 Pro Max and Samsung Galaxy S24 Ultra: Key Distinctions Revealed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-the-powerful-m-mock-1000a-jump-starter-a-18000mah-auto-lifesaver/"><u>Comprehensive Evaluation of the Powerful M Mock 1000A Jump Starter - A 18000mAh Auto Lifesaver</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/dealing-with-constant-100-cpu-use-fixes-unveiled/"><u>Dealing with Constant 100% CPU Use - Fixes Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/engage-in-epic-battles-with-the-ultimate-gamers-choice-phillips-49-curved-oled-monitor/"><u>Engage in Epic Battles with the Ultimate Gamers' Choice: Phillips 49 Curved OLED Monitor</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/scrubbers-use-a-liquid-medium-to-remove-pollutants-from-gas-streams-by-absorption-or-chemical-reaction/"><u>Scrubbers Use a Liquid Medium to Remove Pollutants From Gas Streams by Absorption or Chemical Reaction.</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Vivo X Fold 2 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleash-creativity-an-in-depth-look-at-the-makeblock-mbot-engineering-toy-for-kids/"><u>Unleash Creativity: An In-Depth Look at the Makeblock mBot Engineering Toy for Kids</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-the-best-of-the-rest-10-adobe-premiere-elements-alternatives-for-video-production/"><u>Updated In 2024, The Best of the Rest 10 Adobe Premiere Elements Alternatives for Video Production</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Top Reviews for 'Like A Dragon' From the Yakuza Series - Play This JRPG Masterpiece!
-date: 2024-08-10T23:43:19.606Z
-updated: 2024-08-11T23:43:19.606Z
+date: 2025-01-14T18:11:34.952Z
+updated: 2025-01-15T22:47:28.153Z
 categories:
   - BestProducts
 description: This Article Describes Top Reviews for 'Like A Dragon' From the Yakuza Series - Play This JRPG Masterpiece!
@@ -15,9 +15,6 @@ thumbnail: https://www.lifewire.com/thmb/LzlwNQ6YezN9oLWNbWqOdVEEVAo=/400x300/fi
 
 ## SEGA Yakuza: Like a Dragon
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/a-p7jLzGh5XDa5UjESh5w8kXrPk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_HeroSquare-ea84381e359846e6951c77b6f7e7c5a0.jpg)
 
 Lifewire / Erika Rawes
@@ -42,13 +39,17 @@ Lifewire / Erika Rawes
 
 4
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## SEGA Yakuza: Like a Dragon
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/2HQ40tAW6PvhutMT0JyWvwFpbdI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_HeroSquare-ea84381e359846e6951c77b6f7e7c5a0.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -74,9 +75,6 @@ Lifewire / Erika Rawes
 
  Yakuza: Like a Dragon places you in the shoes of Ichiban Kasuga, a young Yakuza upstart who was raised as an orphan in a Soap House by the owner and the women who worked there. Kasuga gets into a bit of trouble with a Yakuza family but is saved by Masumi Arakawa, the patriarch of the Arakawa family. Because of this, Kasuga pledges his life to Arakawa, promising to repay the debt.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/Mo4mMH944CddmYJTyCxtMRxK9-k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_05-e59c99ba9bd249e7a2241f532dd742dc.jpg)
 
 Lifewire / Erika Rawes
@@ -86,6 +84,10 @@ Lifewire / Erika Rawes
  All of the aforementioned story takes place in what could be called the introductory stages of the game. The intro was incredibly slow and took around five to six hours. Finally, after the long intro, it felt like I was getting into the real meat where the world opens up. Even after the long preamble, I was still introduced to new items, concepts, and parts of the game. It felt like a lot of handholding, which was frustrating at times.
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/_ksFqEWrm3B3MbfrBujuNtLpcXw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_03-37ca82f2a4cd42c4ad65f34e2ca63b68.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -109,6 +111,10 @@ Lifewire / Erika Rawes
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/ZvcwNcecc79umImvw53CUJlLvIc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_02-6396bcd8866c4a479331a02e160eb890.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
  The moves are creative and fun to use. After selecting the attack, timed button presses may increase the attack’s effectiveness or provide you with bonus damage. When you need a true power attack, you can use your phone to call PoundMates, which is a special “Summoning” move that calls in an ally to do massive damage. There are tons of PoundMates in the game, from a diaper-wearing adult man to a poisonous lobster named Nancy, and calling these special attacks is part of what makes Yakuza fun to play.
@@ -119,9 +125,6 @@ Lifewire / Erika Rawes
 
  This[PC game](https://www.lifewire.com/pc-gaming-reviews-4689600) plays just like it should, and the controls are top-notch. Everything just works, which is a rare feat these days. You should be able to finish the main story in around 45 to 55 hours, depending on how fast you run through it, but I highly recommend taking your time and enjoying all the wonderful diversions available.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Graphics: Excellent visuals
 
  The graphics and visuals are impressive. Details are accurate and in the right places. Food looks so realistic (and delicious), and there were some moments where I could even see the pores on a person's skin during cinematics.
@@ -132,25 +135,16 @@ Lifewire / Erika Rawes
 
  The game ran at a smooth 60fps (I played at[1080p resolution](https://www.lifewire.com/what-the-term-1080p-means-1846837) ), and rarely did I come across any graphical issues or bugs. The whole game has a very modern feel but also has so many nods to its JRPG roots. Things are both rooted in reality while also being completely over the top at times.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/zrV5S3jL3_76G0PVgT1K_Ty6WWI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_04-e33b82262b344fecae27d668b3c92ba9-55ba8acb6d324eed81fbf5453e770db8.jpg)
 
 Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Price: The typical $60
 
  The base version of Yakuza: Like a Dragon comes in at $60 like most new titles. The price is reasonable for the amount of gameplay. However, you have two other purchase options as well. The Hero Edition, which costs $70, includes the Job Set and the Management Mode set and features two extra jobs and three sets of Management mode employees.
 
  The Legendary Hero edition costs $90, and it includes both previously listed sets, as well as the Crafting Mat, Stat Boost, Karaoke, and Ultimate Costume sets. These are all nice bonuses and can certainly add to the experience, but you will also find more than enough gameplay in the base game.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Yakuza: Like a Dragon vs. Dragon Quest Series
 
  It’s clear Yakuza: Like a Dragon draws some inspiration from the recent Dragon Quest, Dragon Quest XI. Both games feature turn-based combat, jobs working as roles, and a large sweeping and epic tale. Yakuza: Like a Dragon diverges in one major way, and that is not being afraid to innovate and push the limits of what a JRPG can be. Where Dragon Quest is the basic formula, Yakuza: Like a Dragon is what happens when a mad scientist gets a hold of that formula and creates something both crazy and brilliant.
@@ -160,6 +154,10 @@ Lifewire / Erika Rawes
 **An entertaining and addictive JRPG.**
 
  A well-crafted masterpiece. Yakuza: Like a Dragon falls into the must-play category for anyone who loves a good story, JRPGs, or a wild game that will make you laugh. It’s definitely a departure from the rest of the series, but that contributes to a lot of the fun and uniqueness of the game.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -186,8 +184,6 @@ Lifewire / Erika Rawes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -195,4 +191,20 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/approved-yt-outro-guidelines-keeping-viewers-hooked/"><u>2024 Approved YT Outro Guidelines Keeping Viewers Hooked</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-poco-x6-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Poco X6 Pro without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/accelerated-installation-process-get-your-download-validity-fingerprint-scanner-driver-ready/"><u>Accelerated Installation Process: Get Your [DOWNLOAD] Validity Fingerprint Scanner Driver Ready</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/guide-complet-pour-dupliquer-et-installer-windows-7-across-several-computers/"><u>Guide Complet Pour Dupliquer Et Installer Windows 지원 앱 7 Across Several Computers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-playstation-4-pro-and-its-impact-on-4k-graphics-performance/"><u>In-Depth Evaluation of PlayStation 4 Pro and Its Impact on 4K Graphics Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/initial-thoughts-on-the-samsung-galaxy-s24-ultra-a-comprehensive-review/"><u>Initial Thoughts on the Samsung Galaxy S24 Ultra: A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ipad-vs-kindle-vs-nook-showdown-which-e-reader-wins-for-you/"><u>IPad Vs. Kindle Vs. Nook Showdown: Which E-Reader Wins for You?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/low-cost-recorders-guide-to-webcasting-wisdom/"><u>Low-Cost Recorder's Guide to Webcasting Wisdom</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-havit-nvana-5-in-one-portable-cooler-for-gaming-pcs-stay-chilled-with-adjustable-quad-fan-design/"><u>Review of HAVIT nVana 5-In-One Portable Cooler for Gaming PCs: Stay Chilled with Adjustable Quad Fan Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/save-big-with-limited-time-acer-specials-your-guide-to-amazon-prime-day-savings/"><u>Save Big with Limited-Time Acer Specials: Your Guide to Amazon Prime Day Savings</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solving-non-responsive-iphone-screens-with-easy-diy-methods/"><u>Solving Non-Responsive iPhone Screens with Easy DIY Methods</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-review-of-the-eero-pro-router-system-full-residence-connectivity-unleashed/"><u>The Definitive Review of the Eero Pro Router System: Full Residence Connectivity Unleashed</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlinking-your-instagram-from-facebook-a-step-by-step-guide/"><u>Unlinking Your Instagram From Facebook: A Step-by-Step Guide</u></a></li>
+</ul></div>
 

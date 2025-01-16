@@ -1,7 +1,7 @@
 ---
 title: Affordable HP Stream 14 Analysis - Balancing Cost and Performance
-date: 2024-08-10T23:41:14.572Z
-updated: 2024-08-11T23:41:14.572Z
+date: 2025-01-08T21:22:05.906Z
+updated: 2025-01-16T07:47:50.924Z
 categories:
   - BestProducts
 description: This Article Describes Affordable HP Stream 14 Analysis - Balancing Cost and Performance
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/MJUtcJnDDjXphDunDxnSuj02RO8=/400x300/fi
 ## Mohu Leaf 30 TV Antenna - The Ideal Balance Between Cost and Superior Performance Revealed
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Mohu Leaf 30
 
@@ -38,14 +42,16 @@ Lifewire / Jonno Hill
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Mohu Leaf 30
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -70,21 +76,19 @@ Lifewire / Jonno Hill
 
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
 
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup: Dead simple**
 
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Acceptable but not incredible**
 
@@ -92,12 +96,13 @@ Lifewire / Jonno Hill
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Range: Fairly limited**
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Excellent for the performance**
 
@@ -114,9 +119,6 @@ Lifewire / Jonno Hill
 **No fuss, good value.**
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Leaf 30
@@ -129,14 +131,11 @@ Lifewire / Jonno Hill
 * Range  30 miles
 * Warranty  One year
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,4 +144,22 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-elevate-facebook-videos-with-synchronized-musical-charm/"><u>[New] Elevate Facebook Videos with Synchronized Musical Charm</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-unlocked-design-potential-100-free-pp-templates/"><u>[Updated] In 2024, Unlocked Design Potential 100% Free PP Templates</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-optimizing-final-viewers-interactions-on-yt/"><u>[Updated] Optimizing Final Viewers' Interactions on YT</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/blades-blh41-120r-ready-to-fly-rc-helicopter-evaluated-for-outdoor-adventures/"><u>Blade's BLH41# 120R Ready-to-Fly RC Helicopter Evaluated for Outdoor Adventures</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-garmin-venu-sq-analysis-elevate-your-daily-fitness-experience/"><u>Comprehensive Garmin Venu Sq Analysis: Elevate Your Daily Fitness Experience</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/disk-cleanup-vs-diskpart-full-scan-which-one-should-you-choose-for-optimal-system-performance-in-japanese/"><u>Disk Cleanup Vs. DiskPart Full Scan: Which One Should You Choose for Optimal System Performance in Japanese</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/effortless-transformation-of-records-unveiling-the-at-lp120xusb-turntable/"><u>Effortless Transformation of Records: Unveiling the AT-LP120XUSB Turntable</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/family-fun-unleashed-with-the-holy-stone-cartoon-racer-an-expert-product-overview-and-insightful-reviews/"><u>Family Fun Unleashed with the Holy Stone Cartoon Racer: An Expert Product Overview and Insightful Reviews</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-the-art-of-virtual-visuals-zooms-step-by-step-filters-guide/"><u>In 2024, Mastering the Art of Virtual Visuals Zoom's Step-By Step Filters Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-galactic-territories-an-experts-guide-to-playing-stellaris/"><u>Navigating Galactic Territories: An Expert's Guide to Playing Stellaris</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/step-by-step-tutorial-on-capturing-screenshots-with-word-docs/"><u>Step-by-Step Tutorial on Capturing Screenshots with Word Docs</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/the-art-of-lenovos-video-screen-capture/"><u>The Art of Lenovo's Video Screen Capture</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/transparent-trials-user-produced-praise-videos/"><u>Transparent Trials: User-Produced Praise Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-excellence-comprehensive-evaluation-of-the-high-performance-samsung-galaxy-tab-s7plus/"><u>Unpacking Excellence: Comprehensive Evaluation of the High-Performance Samsung Galaxy Tab S^7+</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Retained Earnings (RE) = Net Earnings Kept Within the Company to Reinvest in Operations or to Pay Debt, Which Is Not Distributed as Dividends to Shareholde
-date: 2024-08-10T23:43:52.491Z
-updated: 2024-08-11T23:43:52.491Z
+date: 2025-01-14T03:40:49.300Z
+updated: 2025-01-15T16:42:22.832Z
 categories:
   - BestProducts
 description: This Article Describes Retained Earnings (RE) = Net Earnings Kept Within the Company to Reinvest in Operations or to Pay Debt, Which Is Not Distributed as Dividends to Shareholde
@@ -39,12 +39,17 @@ thumbnail: https://thmb.techidaily.com/122b9bb2737079496d6a2d69ef766a3b3b8a091bd
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2K NBA 2K19 (PlayStation 4)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ![NBA 2K19](https://www.lifewire.com/thmb/F87icpH4iTJJpiVp_cNJbOlHFPQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4042353-HeroSquare-3b0318500db84677b58649cacfa1d321.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Eric Watson
 
@@ -77,16 +82,10 @@ thumbnail: https://thmb.techidaily.com/122b9bb2737079496d6a2d69ef766a3b3b8a091bd
 
  Getting things ready is just a matter of putting in the disc and waiting for updates to install or doing a digital download. Nothing more to it.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![NBA 2K19](https://www.lifewire.com/thmb/M0pJx3LQWfKzQz2c6Cn61WEoZGc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4042353_07-bbd2e90a40b241c097157fea5b64a6f7.jpg)
 
  Lifewire / Eric Watson
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## **Gameplay: Easy to Learn, Difficult to master**
 
  Basketball is a relatively simple sport to grasp, and the same can be applied to the video game adaptation. Shooting can either be done by holding a button or holding the right stick while a shot meter begins to fill up. The goal is to let go the second the meter is full, which is surprisingly challenging. The speed of the bar can change depending on where on the court you’re shooting from, and how good your shooting stats are.
@@ -97,10 +96,11 @@ thumbnail: https://thmb.techidaily.com/122b9bb2737079496d6a2d69ef766a3b3b8a091bd
 
  Defense feels especially rewarding, with high-speed steals and ever-present blocks forcing nearly every offensive engagement into a tactical matchup. The controls are easy to learn but tricky to master, resulting in a satisfying balance if you have the patience. Completely new players may be in for a bit of a hill to climb, however, as the practice mode tutorial is a hot mess of laborious tooltips.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![NBA 2K19](https://www.lifewire.com/thmb/Sy1Ow0C2SYcU7a6suicNTH7_juQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4042353_03-328b17a765df4296b364ba758a1cb996.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Eric Watson
 
@@ -130,32 +130,28 @@ thumbnail: https://thmb.techidaily.com/122b9bb2737079496d6a2d69ef766a3b3b8a091bd
 
  By completing games we can earn virtual currency, in order to boost our stats. It’s a major shame that VC is at all tied to a single player story campaign, as boosting A.I.’s stats by purchasing VC is a quick way to get ahead. We would have vastly preferred a normal XP system that was separated from the more competitive modes.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![NBA 2K19](https://www.lifewire.com/thmb/i0CH0_5PrBA7hMefnDah7sN9tL0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4042353_06-5d9dbed07cd6485ab0ffa086aa6159c8.jpg)
 
  Lifewire / Eric Watson
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Graphics: Impressive player models**
 
  With a small number of on-screen players and little in the way of padding or helmets, an NBA sports game demands some of the best and most realistic player models and physics. Fortunately, NBA 2K19 delivers. Animations are fluid, with exciting dunks and realistic player collisions. Players are modeled well, even in close-ups. The only cringey moments occur when players are interviewed.
 
  On the flip side, the story campaign in MyPlayer looks like it includes actual motion captured actors and proper facial animations. It wouldn’t fare well against actual RPGs or cinematic action-adventure games, but it’s more than good enough to immerse us into the silly, but enjoyable, sports drama story.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![NBA 2K19](https://www.lifewire.com/thmb/GQqDajx1FiwtAGoQNa9kvOdWSm8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4042353_02-ec4a0e03284c40609e12cab38f96f030.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Eric Watson
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Audio: Excellent commentary and soundtrack**
 
  Kevin Harlan and Greg Anthony continue to be fantastic commentators for NBA 2K19\. In NBA 2K19 they’re also joined by Bill Simmons, Kobe Bryant, and Kevin Garnett. NBA 2K19 features some of the best commentaries for any sports game, with insightful breakdowns, fun player anecdotes, and up tempo play-by-plays. The on-action commentary lags a bit behind when playing online, however, as Harlan shouts excitedly about a dunk after the other team is already at half court.
@@ -163,6 +159,10 @@ thumbnail: https://thmb.techidaily.com/122b9bb2737079496d6a2d69ef766a3b3b8a091bd
  NBA 2K19 features some of the best commentaries for any sports game, with insightful breakdowns, fun player anecdotes, and up tempo play-by-plays.
 
 [The soundtrack](https://www.liveabout.com/gaming-4842275) is also solid, featuring over 50 hip-hop and rock-pop tracks mixed and curated by rapper Travis Scott (who also provides five of the tracks). Other artists include Alison Wonderland, Migos, Bruno Mars, Brockhampton, and Angel the God.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Pricey anniversary edition**
 
@@ -181,8 +181,9 @@ thumbnail: https://thmb.techidaily.com/122b9bb2737079496d6a2d69ef766a3b3b8a091bd
  Given the large number of dunks, passes, throws, and technical maneuvers you can perform, all while facing a shot clock, a stingy defense, and a boringly lame tutorial, NBA 2K19 may be one of the most difficult sports games to jump into. Your patience will be rewarded, however, as it’s a tight, deeply strategic and satisfying basketball simulator, with some fun extra modes and a surprisingly enjoyable career story. That said, we wish 2K would ease up on the virtual currency.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  NBA 2K19 (PlayStation 4)
@@ -193,14 +194,11 @@ thumbnail: https://thmb.techidaily.com/122b9bb2737079496d6a2d69ef766a3b3b8a091bd
 * Multiplayer  Online, Local
 * Platforms  PC, PlayStation 4, Switch, Xbox One
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -209,4 +207,18 @@ thumbnail: https://thmb.techidaily.com/122b9bb2737079496d6a2d69ef766a3b3b8a091bd
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-exploring-screen-capture-with-apowersoft-no-cost-involved-for-2024/"><u>[New] Exploring Screen Capture with Apowersoft, No Cost Involved for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-from-facebook-to-hd-how-to-convert-videos-to-premium-mp4-format-free/"><u>[New] From Facebook to HD How To Convert Videos to Premium MP4 Format (Free)</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-your-mobile-game-with-samsung-galaxy-note-9-the-ultimate-big-screen-handset-review/"><u>Elevate Your Mobile Game with Samsung Galaxy Note 9 – The Ultimate Big Screen Handset Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-on-the-budget-champion-tp-link-archer-c80-below-100-wireless-review/"><u>Expert Analysis on the Budget Champion: TP-Link Archer C80 Below $100 Wireless Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-vive-cosmos-exceptional-virtual-reality-gear-facing-intense-market-challenges/"><u>Exploring the Vive Cosmos: Exceptional Virtual Reality Gear Facing Intense Market Challenges</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-password-cracking-tools-for-tecno-pova-6-pro-5g-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Tecno Pova 6 Pro 5G</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-improved-apple-watch-series-4-excellence-reimagined/"><u>In-Depth Analysis of the Improved Apple Watch Series 4: Excellence Reimagined</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcome-technical-hurdles-effective-ways-to-fix-the-directx-error-in-modern-warfare-2/"><u>Overcome Technical Hurdles: Effective Ways to Fix the DirectX Error in Modern Warfare 2</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/step-by-step-process-to-determine-your-iphones-next-level/"><u>Step-by-Step Process to Determine Your iPhone's Next Level</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rankings-justify-it-why-the-philips-somneo-is-a-must-have-wake-up-call-solution/"><u>Top Rankings Justify It: Why the Philips Somneo Is a Must-Have Wake-Up Call Solution</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Explore the World with Canon's Retro-Chic G9X Mark II
-date: 2025-01-05T18:06:09.850Z
-updated: 2025-01-10T16:41:11.759Z
+date: 2025-01-08T20:13:57.400Z
+updated: 2025-01-15T22:58:27.626Z
 categories:
   - BestProducts
 description: This Article Describes Explore the World with Canon's Retro-Chic G9X Mark II
@@ -18,16 +18,12 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Lenovo Tab M10 HD (2nd Gen)
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/06yy-B-ZCvWfOzJ-tXX1fyPjkUE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_HeroSquare-00489478f3e74cb9b38444e2d94ab257.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -88,10 +84,6 @@ Lifewire / Jeremy Laukkonen
 
  I recently unpacked a second-gen Tab M10 HD and used it for about a week for everything from email and web browsing to video conferencing and streaming movies from[apps like Netflix](https://www.lifewire.com/overview-of-the-netflix-streaming-service-1847831) and[HBO Max](https://www.lifewire.com/what-is-hbo-max-how-to-watch-it-4782926) . During my time with the tablet, I tested overall performance, video and audio quality, wireless speeds, and a variety of other factors to see if this budget friendly Android tablet is worth the asking price.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What’s New: Better price, better specs, lower resolution
 
  The first-generation Lenovo Tab M10 hit shelves back in 2019\. It shipped with Android 8.1 and an MSRP just shy of $200\. Right off the top you can see that Lenovo decided to chase a more budget-friendly market segment with the second generation of the hardware.
@@ -108,6 +100,10 @@ Lifewire / Jeremy Laukkonen
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/pPNbzMq7aB9LY-_koMR-oHoTUHA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_02-1cb2ef47999844eaacd3c03a777faea8-f2d25c46eb184b4c8b7a8667735f2ea9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
  On the left side, you’ll find Lenovo’s docking port connector. Unfortunately, there’s no way to make use of this connector if you don’t buy the version of the tablet that includes a dock. Lenovo doesn’t provide the dock as an optional accessory to purchase later. This is a bit of a questionable decision on Lenovo’s part, and it’s likely to lead to some consumer disappointment.
@@ -116,6 +112,10 @@ Lifewire / Jeremy Laukkonen
 
  The rear of the tablet is mostly featureless, aside from the aforementioned cut-outs. The single rear-facing camera is located in the upper left corner, and that’s about it. Due to the metal construction, it does look and feel more premium than you’d expect from the price.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Display: Looks good, but the resolution could be higher
 
  The 10-inch display is surrounded by fairly slim bezels for a budget Android tablet, offering a screen to body ratio of about 82 percent. The aspect ratio is 16:10, which is pretty close to the standard widescreen ratio of 16:9\. It’s a good compromise between being great for media and usable for email and surfing the web.
@@ -123,10 +123,6 @@ Lifewire / Jeremy Laukkonen
  While the display is bright and clear, and the colors are nice and vivid, the resolution is a bit on the low side for a screen this big. The first generation of the Tab M10 hardware had a full HD display, while this one gives you only a resolution of 800 x 1280 for an abysmal pixel density of about 149 ppi on the big 10-inch IPS LCD screen. It looks fine when held at arm's length, but move it any closer and you can make out the individual pixels like you’re looking at the tablet through a screen door.
 
  While the display is bright and clear, and the colors are nice and vivid, the resolution is a bit on the low side for a screen this big.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Performance: Depends on the configuration you get
 
@@ -148,6 +144,10 @@ Lifewire / Jeremy Laukkonen
 
  These results aren’t very surprising, but they do indicate that you’re unlikely to have that great experience playing complex games on this tablet. If you’re looking for a tablet to run in Google Kids Space, it will run most of those games pretty well. If you’re looking to play anything that’s demanding on a graphics level, keep looking. Even Lenovo’s similarly-equipped Tab M10 FHD Plus performs significantly better in this department.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Productivity: Best suited to basic tasks
 
  There are two versions of this tablet: the Tab M10 HD, and the Smart Tab M10 HD. They are identical in terms of both internal hardware and external design. The difference is that the Smart Tab M10 HD comes with a dock, and the Tab M10 HD doesn’t. With its dock and integrated[Google Assistant](https://www.lifewire.com/what-is-google-assistant-4120911) voice controls, the Smart Tab M10 HD gets higher marks in terms of productivity than the Tab M10 HD.
@@ -156,15 +156,7 @@ Lifewire / Jeremy Laukkonen
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/jC-nIsNjG_LVHXw3eP-5D_jO_fY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_03-dad5bfce705b4e0c891a4088b2b77b10.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Jeremy Laukkonen
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Audio: Decent stereo sound with support for Dolby Atmos
 
@@ -173,6 +165,10 @@ Lifewire / Jeremy Laukkonen
  The sound lacks bass and sounds a bit tinny, but that’s to be expected. It’s more than loud enough to fill a room, although I preferred to lower it quite a bit for a more pleasant listening experience. I was actually able to watch movies on Netflix before bed without plugging headphones into the audio jack, as I had no trouble making out dialog, and there wasn’t ever any unpleasant distortion.
 
  On the subject of audio and headphones, the Tab M10 HD includes a[built-in FM radio](https://www.lifewire.com/use-fm-radio-on-smartphone-4176272) using your headphones as the antenna. I plugged in my favorite earbuds, loaded up an FM radio app, and I was able to pull down dozens of local FM radio stations with pretty decent reception. This is a feature that isn’t always enabled even when the hardware technically supports it, so it’s a nice little extra you’ll be able to rely on even if your internet goes down.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Network: Good Wi-Fi speeds and an LTE option
 
@@ -187,6 +183,10 @@ Lifewire / Jeremy Laukkonen
  After establishing that baseline, I took the Tab M10 HD around the corner into a hallway about 10 feet from the router. At that distance, the connection speed dropped just a bit to 230 Mbps. Next up, I took the tablet into another room, about 60 feet from the router, with walls and other obstructions in the way. It held pretty strong, with a download speed of 230 Mbps.
 
  Finally, I took it out into my garage, about 100 feet from the modem, and the speed dropped to 76.4 Mbps. That’s pretty solid performance, and lines up with my experience of being able to stream media wherever I tried anywhere in my house.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Camera: Decent enough for a budget tablet
 
@@ -209,7 +209,7 @@ Lifewire / Jeremy Laukkonen
  While this isn’t an all-day battery, and you’ll probably have to stick it on the charger every day, six hours is long enough to catch up on your favorite show in bed at night, or keep the kids entertained in the car during a long drive.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Software: Stock Android 10 and Google Kids Space
@@ -218,6 +218,10 @@ Lifewire / Jeremy Laukkonen
 
  The biggest news here is that the second gen Tab M10 HD comes with Google Kids Space, which is a great app if you have kids, as it allows you to transform the tablet into a kid-friendly spigot of entertainment. It includes tons of pre-approved apps, books, and videos so you don’t have to worry about curating age-appropriate content. It also integrates with the Google Family Link app, providing you with remote control over screen time limits, bed times, and more.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Price: Hits the right price point for what you get
 
  With an MSRP of $129.99 for the 2GB version and $169.99 for the 4GB version, the Lenovo Tab HD (2020) hits the sweet spot for a mid-range Android tablet like this. While I strongly recommend the 4GB version, the 2GB version is a great deal at just $129.99, especially as a childrens’ tablet. If you’re looking for a family tablet that your kids can use, this version is a great option that’s definitely priced right. The 4GB version is a bit pricey, but the extra RAM helps enough that I have trouble saying it’s actually overpriced.
@@ -225,10 +229,6 @@ Lifewire / Jeremy Laukkonen
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/tEVLeulE6MYWbsBkYCv9cDXD3CM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_05-ffe07c01135a491abdafbdc41ef6eca6.jpg)
 
 Lifewire / Jeremy Laukkonen
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Lenovo Tab M10 HD (2020) vs. Lenovo Tab M10 FHD Plus (2020)
 
@@ -287,14 +287,24 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-blog.techidaily.com/fixed-dead-by-daylight-error-code-8014/"><u>[FIXED] Dead by Daylight Error Code 8014</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-unbeatable-ways-to-archive-lol-battles/"><u>[New] In 2024, Unbeatable Ways to Archive LOL Battles</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-art-of-visual-storytelling-in-your-instagram-highlight-images/"><u>[Updated] 2024 Approved The Art of Visual Storytelling in Your Instagram Highlight Images</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-watermark-wisdom-the-10-best-apps-reviewed/"><u>2024 Approved Watermark Wisdom The 10 Best Apps Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/does-tp-links-av1300-fail-to-deliver-on-promised-wifi-range-enhancement-expert-analysis-inside/"><u>Does TP-Link's AV1300 Fail to Deliver on Promised WiFi Range Enhancement? Expert Analysis Inside</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/future-ready-an-in-depth-review-of-the-netgear-nighthawk-ax8-wireless-extender/"><u>Future-Ready: An In-Depth Review of the Netgear Nighthawk AX8 Wireless Extender</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tested-and-reviewed-the-urban-armor-resilient-laptop-bag-perfect-for-macbook-professionals/"><u>Tested & Reviewed: The Urban Armor Resilient Laptop Bag Perfect for MacBook Professionals</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-honor-80-pro-straight-screen-edition-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Honor 80 Pro Straight Screen Edition Location | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/zte-blade-a3y-review-delivering-quality-in-a-budget-handset-range/"><u>ZTE Blade A3Y Review – Delivering Quality in a Budget Handset Range</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-ace-discord-conversations-with-effective-pinning-tips/"><u>[New] 2024 Approved Ace Discord Conversations with Effective Pinning Tips</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-optimize-content-delivery-top-12-html5-video-platforms/"><u>[New] Optimize Content Delivery Top 12 HTML5 Video Platforms</u></a></li>
+<li><a href="https://driver-error.techidaily.com/titled-system-recovery-after-software-installation-hurdles/"><u>[TITLED] System Recovery After Software Installation Hurdles</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-motorola-razr-40-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Motorola Razr 40 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/adata-delivers-ultimate-gaming-potential-with-its-1600w-psu-supporting-a-trio-of-high-end-nvidia-geforce-rtx-4090-gpus/"><u>Adata Delivers Ultimate Gaming Potential with Its 1600W PSU, Supporting a Trio of High-End NVIDIA GeForce RTX 4090 GPUs</u></a></li>
+<li><a href="https://win-dash.techidaily.com/comprehve-guide-easy-download-and-updating-of-microsoft-device-drivers-for-windows-os-versions-10-8-and-7/"><u>Comprehve Guide: Easy Download and Updating of Microsoft Device Drivers for Windows OS Versions 10, 8, and 7</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-gaming-experience-with-the-best-in-class-flight-simulator-microsoft-fsx-gold-edition/"><u>Elevate Your Gaming Experience with the Best-in-Class Flight Simulator: Microsoft FSX Gold Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ergohead-cushioned-mat-analysis-sustaining-ease-during-continuous-desk-use/"><u>Ergohead Cushioned Mat Analysis: Sustaining Ease During Continuous Desk Use</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-clever-design-a-comprehensive-review-of-twelve-south-bookbook-v2-case/"><u>Evaluating the Clever Design: A Comprehensive Review of Twelve South BookBook V2 Case</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-next-level-convenience-amazon-echo-show-10-gen-3-review-with-dynamic-room-navigation-capability/"><u>Experience Next-Level Convenience: Amazon Echo Show 10 Gen 3 Review with Dynamic Room Navigation Capability</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-the-ultimate-guide-to-twelve-souths-bookbook-v2-case-for-your-macbook/"><u>Expert Review: The Ultimate Guide to Twelve South's BookBook V2 Case for Your MacBook</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/free-tango-app-unlimited-texting-calling-and-messaging/"><u>Free Tango App: Unlimited Texting, Calling & Messaging</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/holy-stones-race-cars-for-kids-a-thorough-review-of-the-ultimate-family-racer-experience/"><u>Holy Stone's Race Cars for Kids - A Thorough Review of the Ultimate Family Racer Experience</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-16-from-motorola-moto-g73-5g-to-other-android-devices-data-transfer-apps-to-switch-phone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 16 from Motorola Moto G73 5G to Other Android Devices Data Transfer Apps to Switch Phone Easily | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-fujitsu-scansnap-ix140eb-review-ideal-for-efficiently-managing-home-office-and-smb-documentation/"><u>In-Depth Fujitsu ScanSnap iX140eb Review: Ideal for Efficiently Managing Home Office & SMB Documentation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-romers-durable-and-renewable-energy-flashlight-your-trusty-nighttime-companer/"><u>In-Depth Look at Romer's Durable and Renewable Energy Flashlight: Your Trusty Nighttime Companer</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/iphone-photo-management-guide-for-albums-and-cloud-storage/"><u>IPhone Photo Management Guide for Albums & Cloud Storage</u></a></li>
+<li><a href="https://fox-info.techidaily.com/premium-aquatic-filters-boosting-gopro-cinematography-for-2024/"><u>Premium Aquatic Filters Boosting GoPro Cinematography for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-rotate-a-video-in-final-cut-pro-a-4-step-guide-for-2024/"><u>Updated Rotate a Video in Final Cut Pro A 4-Step Guide for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Additional Paid-In Capital (APIC) = The Amount Paid by Investors Above the Par Value for Shares when They Are Issued.
-date: 2024-08-10T23:46:43.337Z
-updated: 2024-08-11T23:46:43.337Z
+date: 2025-01-08T20:33:25.011Z
+updated: 2025-01-16T00:56:22.932Z
 categories:
   - BestProducts
 description: This Article Describes Additional Paid-In Capital (APIC) = The Amount Paid by Investors Above the Par Value for Shares when They Are Issued.
@@ -15,9 +15,6 @@ thumbnail: https://www.lifewire.com/thmb/nRScZfZVQWaoiNcc0W9_9SRRzv8=/400x300/fi
 
 ## 2K NBA 2K19 (PlayStation 4)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![NBA 2K19](https://www.lifewire.com/thmb/_uesF1Rk1gzjvzZAGzjTXOSkWPM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4042353-HeroSquare-3b0318500db84677b58649cacfa1d321.jpg)
 
  Lifewire / Eric Watson
@@ -43,14 +40,16 @@ thumbnail: https://www.lifewire.com/thmb/nRScZfZVQWaoiNcc0W9_9SRRzv8=/400x300/fi
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2K NBA 2K19 (PlayStation 4)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![NBA 2K19](https://www.lifewire.com/thmb/F87icpH4iTJJpiVp_cNJbOlHFPQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4042353-HeroSquare-3b0318500db84677b58649cacfa1d321.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Eric Watson
 
@@ -77,15 +76,16 @@ thumbnail: https://www.lifewire.com/thmb/nRScZfZVQWaoiNcc0W9_9SRRzv8=/400x300/fi
 
 ![NBA 2K19](https://www.lifewire.com/thmb/YMXeWIxicIbj-86epw-TmdCR6Tg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4042353_04-8c4928a895a842cfa8abf52e0e1beb01.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Eric Watson
 
 ## **Setup Process: Just install**
 
  Getting things ready is just a matter of putting in the disc and waiting for updates to install or doing a digital download. Nothing more to it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ![NBA 2K19](https://www.lifewire.com/thmb/M0pJx3LQWfKzQz2c6Cn61WEoZGc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4042353_07-bbd2e90a40b241c097157fea5b64a6f7.jpg)
 
  Lifewire / Eric Watson
@@ -100,9 +100,6 @@ thumbnail: https://www.lifewire.com/thmb/nRScZfZVQWaoiNcc0W9_9SRRzv8=/400x300/fi
 
  Defense feels especially rewarding, with high-speed steals and ever-present blocks forcing nearly every offensive engagement into a tactical matchup. The controls are easy to learn but tricky to master, resulting in a satisfying balance if you have the patience. Completely new players may be in for a bit of a hill to climb, however, as the practice mode tutorial is a hot mess of laborious tooltips.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ![NBA 2K19](https://www.lifewire.com/thmb/Sy1Ow0C2SYcU7a6suicNTH7_juQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4042353_03-328b17a765df4296b364ba758a1cb996.jpg)
 
  Lifewire / Eric Watson
@@ -117,12 +114,13 @@ thumbnail: https://www.lifewire.com/thmb/nRScZfZVQWaoiNcc0W9_9SRRzv8=/400x300/fi
 
  The MyTeam mode is all about earning (or purchasing) random booster packs filled with players, jerseys, coaches, arenas, and contracts. How much you enjoy this mode relies heavily on how feel about getting everything you need through random card packs. Packs can be earned by winning games, while Virtual Currency, 2K’s much maligned money system, can be earned through completing challenges. It’s fun to unlock star players but when it comes to microtransactions and the prevalent cost of using VC and cards, 2K ranks among the worst of mobile game offenders—and this for a $60 console game.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![NBA 2K19](https://www.lifewire.com/thmb/fQL8t4zVGC3TbDs-So90d2zQRUI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4042353_05-f274e7c4b78f4b329eb75f1baf368922.jpg)
 
  Lifewire / Eric Watson
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **The Way Back: Go mad Ants!**
 
@@ -140,10 +138,6 @@ thumbnail: https://www.lifewire.com/thmb/nRScZfZVQWaoiNcc0W9_9SRRzv8=/400x300/fi
 
  Lifewire / Eric Watson
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Graphics: Impressive player models**
 
  With a small number of on-screen players and little in the way of padding or helmets, an NBA sports game demands some of the best and most realistic player models and physics. Fortunately, NBA 2K19 delivers. Animations are fluid, with exciting dunks and realistic player collisions. Players are modeled well, even in close-ups. The only cringey moments occur when players are interviewed.
@@ -155,8 +149,9 @@ thumbnail: https://www.lifewire.com/thmb/nRScZfZVQWaoiNcc0W9_9SRRzv8=/400x300/fi
  Lifewire / Eric Watson
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Audio: Excellent commentary and soundtrack**
 
  Kevin Harlan and Greg Anthony continue to be fantastic commentators for NBA 2K19\. In NBA 2K19 they’re also joined by Bill Simmons, Kobe Bryant, and Kevin Garnett. NBA 2K19 features some of the best commentaries for any sports game, with insightful breakdowns, fun player anecdotes, and up tempo play-by-plays. The on-action commentary lags a bit behind when playing online, however, as Harlan shouts excitedly about a dunk after the other team is already at half court.
@@ -165,14 +160,15 @@ thumbnail: https://www.lifewire.com/thmb/nRScZfZVQWaoiNcc0W9_9SRRzv8=/400x300/fi
 
 [The soundtrack](https://www.liveabout.com/gaming-4842275) is also solid, featuring over 50 hip-hop and rock-pop tracks mixed and curated by rapper Travis Scott (who also provides five of the tracks). Other artists include Alison Wonderland, Migos, Bruno Mars, Brockhampton, and Angel the God.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ## **Price: Pricey anniversary edition**
 
  Like all major sports game franchises, NBA 2K19 always launches with a full $60 price tag, and like most games, that price will drop and get discounted throughout the year. NBA 2K19 enjoys deeper discounts and sale prices than most sports games, however, often at prices of $20 or less depending on how long you’re willing to wait. Even at full price NBA 2K19 is an easy recommendation for sports fans.
 
  NBA 2K19 20th Anniversary Edition is a much steeper asking price of $99, including a substantial head start with 100,000 Virtual Currency, 50,000 MyTeam points, 30 MyTeam card packs and more. If you have money to burn and want to catch up with friends and other players online, the 20th anniversary edition can provide a big boost, and like the standard edition, is also heavily discounted throughout the year.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Close match between NBA Live and 2K**
 
@@ -184,6 +180,10 @@ thumbnail: https://www.lifewire.com/thmb/nRScZfZVQWaoiNcc0W9_9SRRzv8=/400x300/fi
 
  Given the large number of dunks, passes, throws, and technical maneuvers you can perform, all while facing a shot clock, a stingy defense, and a boringly lame tutorial, NBA 2K19 may be one of the most difficult sports games to jump into. Your patience will be rewarded, however, as it’s a tight, deeply strategic and satisfying basketball simulator, with some fun extra modes and a surprisingly enjoyable career story. That said, we wish 2K would ease up on the virtual currency.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  NBA 2K19 (PlayStation 4)
@@ -194,14 +194,11 @@ thumbnail: https://www.lifewire.com/thmb/nRScZfZVQWaoiNcc0W9_9SRRzv8=/400x300/fi
 * Multiplayer  Online, Local
 * Platforms  PC, PlayStation 4, Switch, Xbox One
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -210,4 +207,21 @@ thumbnail: https://www.lifewire.com/thmb/nRScZfZVQWaoiNcc0W9_9SRRzv8=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-boosting-your-gameplay-tips-for-increased-zoom-range/"><u>[New] Boosting Your Gameplay Tips for Increased Zoom Range</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-perfecting-tiktok-media-with-zoom-techniques/"><u>[Updated] 2024 Approved Perfecting TikTok Media with Zoom Techniques</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-music-files-from-oppo-a2-by-fonelab-android-recover-music/"><u>How To Restore Missing Music Files from Oppo A2</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-analyzing-the-need-for-verified-instagramselfies/"><u>In 2024, Analyzing the Need for Verified Instagramselfies</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-tecno-spark-20-proplus-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Tecno Spark 20 Pro+ Location Settings | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-samsung-galaxy-f34-5g-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Samsung Galaxy F34 5G IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maintenance-requirements-may-be-higher-due-to-mechanical-wear-in-some-displacement-pump-types/"><u>Maintenance Requirements May Be Higher Due to Mechanical Wear in some Displacement Pump Types</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-your-mobile-battery-life-with-halo-bolt-the-top-portable-charger-and-jump-starter/"><u>Maximize Your Mobile Battery Life with Halo Bolt - The Top Portable Charger and Jump Starter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nintendo-switch-breakdown-a-cut-above-portable-gaming-experience/"><u>Nintendo Switch Breakdown: A Cut-Above Portable Gaming Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/paving-pathways-in-pixels-the-leading-vr-treadmills-reviewed-for-2024/"><u>Paving Pathways in Pixels The Leading VR Treadmills Reviewed for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/precision-and-durability-sabrents-compact-travel-mouse-with-optimized-cord-set/"><u>Precision & Durability: Sabrent's Compact Travel Mouse with Optimized Cord Set</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-motorola-one-5g-ace-unmatched-5g-connectivity-and-long-lasting-battery-performance/"><u>Review of Motorola One 5G Ace: Unmatched 5G Connectivity and Long-Lasting Battery Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/titans-guiding-facebook-presently/"><u>Titans Guiding Facebook Presently</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/youtube-tv-vs-hulu-live-streaming-services-a-comprehensive-guide-to-making-the-right-pick/"><u>YouTube TV Vs. Hulu Live Streaming Services - A Comprehensive Guide to Making the Right Pick</u></a></li>
+</ul></div>
 

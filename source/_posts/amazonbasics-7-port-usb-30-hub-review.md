@@ -1,7 +1,7 @@
 ---
 title: AmazonBasics 7 Port USB 3.0 Hub Review
-date: 2024-08-10T23:44:35.674Z
-updated: 2024-08-11T23:44:35.674Z
+date: 2025-01-09T06:52:51.032Z
+updated: 2025-01-16T08:02:18.240Z
 categories:
   - BestProducts
 description: This Article Describes AmazonBasics 7 Port USB 3.0 Hub Review
@@ -14,8 +14,9 @@ thumbnail: https://www.lifewire.com/thmb/taRpz8Y7_DzugyI6M_IiKcfkcis=/400x300/fi
 3.2
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## AmazonBasics 7 Port USB 3.0
 
 ![AmazonBasics 7 Port USB 3.0](https://www.lifewire.com/thmb/61zrtwf2XnDfg9oA0igeVIB2E3M=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_HeroSquare-b4652c2651b5474f84409577b3760479.jpg)
@@ -66,12 +67,13 @@ Lifewire / Jonno Hill
 
  The AmazonBasics 7 Port USB 3.0 Hub definitely offers a lot of bang for your buck, but we have some quality control qualms that prevent this from being an instant recommendation. If you're on a budget and you need a lot of[USB ports](https://www.lifewire.com/what-is-a-usb-port-818166) , you might still want to consider this option, but let’s dig into the details before you make your purchase.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/wXgyw4YH3MYx3AO1YEPSdvla-IQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_02-d9ec8728693e42e9b7ca7d3108d37ba6.jpg)
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: A clean look, with some awkward ports**
 
@@ -85,9 +87,6 @@ Lifewire / Jonno Hill
 
  There were two quality control mishaps on the particular unit we tested. First, the internal ports were somewhat misaligned with the outer casing, making it difficult to plug in some devices. Second, the labels that should be printed around the ports didn’t make it onto this particular unit, despite all the product page images showing this feature. Not a huge deal, but also not a ringing endorsement for the device’s quality.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/-6zArDEXr2_gqDvtkeqZAbTQKiQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_05-c3e5d946a7e84b6cb1b395cff1103e42.jpg)
 
  Lifewire / Jonno Hill
@@ -98,9 +97,6 @@ Lifewire / Jonno Hill
 
  The AmazonBasics 7 Port USB 3.0 Hub is an otherwise capable device that is unfortunately marred by quality control issues and cheap construction.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Connectivity: A sufficient number of options**
 
  The AmazonBasics 7 Port USB 3.0 Hub comes with a three-foot USB (A-to\_B) cable to connect to your computer. This should be sufficient for most users, and worked well in our setup. An AC power adapter is included as well, and it comes with a fairly substantial power brick.
@@ -109,30 +105,31 @@ Lifewire / Jonno Hill
 
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/Ep4bZmgChjDyFofASwezrrPrDYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_04-e00baf7ec07a4762bf437cde18e2b4de.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Just what you’d expect**
 
  The AmazonBasics 7 Port USB 3.0 Hub performed as expected in our tests, providing USB 3.0 Gen 1 speeds. The five ports in the back supply the standard 0.9A of power, whereas the ports on the side, designed for fast charging, can supply up to 1.5A. If you neglect to connect the hub to a power source, the entire device will have to share the 0.9A of power supplied by your computer’s[USB 3.0 port](https://www.lifewire.com/what-is-usb-3-0-2626038) .
 
  The five ports in the back supply the standard 0.9A of power, whereas the ports on the side, designed for fast charging, can supply up to 1.5A.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## **Price: You get what you pay for**
 
  At a list price of $33.44, the AmazonBasics 7 Port USB 3.0 Hub isn’t a terrible deal, but given the materials used and the quality control issues, it’s definitely not an amazing deal. Buyers looking for a bit more might consider AUKEY’s 10-port powered hub or Amazon’s own AmazonBasics 10 Ports USB 3.0 Charging Hub Docking Station. Both these hubs offer more connections and dedicated power.
 
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/AnTpc7CmLFfbEILGIFkFiA9Ur2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_03-063f9486bd7045c18c0643276029f85e.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
@@ -148,9 +145,6 @@ Lifewire / Jonno Hill
 
  The AmazonBasics 7 Port USB 3.0 Hub is an otherwise capable device that is unfortunately marred by quality control issues and cheap construction. That said, if you don’t care as much about design and construction quality, it might still be a good affordable option.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  7 Port USB 3.0
@@ -165,14 +159,11 @@ Lifewire / Jonno Hill
 * Compatibility  Windows 2000/Win XP/Vista/Windows 7 & Mac 10.1 up
 * Warranty  30 days
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -181,4 +172,22 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/igital-dreams-unite-conference-for-2024/"><u>[New] Digital Dreams Unite Conference for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-free-endings-that-wow-ranked-for-you-top-6/"><u>[New] In 2024, Free Endings That Wow - Ranked for You (Top 6)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unleash-potential-with-these-essential-editing-tips-for-beginners/"><u>[New] In 2024, Unleash Potential with These Essential Editing Tips for Beginners</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-discover-the-potential-detailed-look-at-showmore-as-your-recording-companion-for-2024/"><u>[Updated] Discover the Potential Detailed Look at ShowMore as Your Recording Companion for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-how-to-make-youtube-videos-on-your-smartphone/"><u>[Updated] In 2024, How To Make YouTube Videos on Your Smartphone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-rog-zephyrus-g14-the-ultimate-fusion-of-portability-and-power-comprehensive-analysis/"><u>Asus ROG Zephyrus G14: The Ultimate Fusion of Portability and Power - Comprehensive Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-wireless-router-review-unpacking-the-capabilities-of-the-tp-link-archer-a6-ac1200/"><u>Budget-Friendly Wireless Router Review: Unpacking the Capabilities of the TP-Link Archer A6 AC1200</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-strategies-for-troubleshooting-and-fixing-haldll-problems-in-all-generations-of-windows-os/"><u>Comprehensive Strategies for Troubleshooting and Fixing Hal.dll Problems in All Generations of Windows OS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-the-unbeatable-combination-of-cost-efficiency-and-power-in-ibuypower-custom-pcs/"><u>Expert Insights on the Unbeatable Combination of Cost-Efficiency and Power in IBuypower Custom PCs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-elgoog-inside-the-worlds-funniest-search-engine/"><u>Exploring elgooG: Inside The World's Funniest Search Engine</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/small-but-mighty-in-depth-look-at-the-new-echo-dot-gen-3-showcasing-full-alexa-functionality/"><u>Small but Mighty: In-Depth Look at the New Echo Dot (Gen 3) Showcasing Full Alexa Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-mighty-compact-powerhouse-in-depth-look-at-the-samsung-galaxy-s10e/"><u>The Mighty Compact Powerhouse: In-Depth Look at the Samsung Galaxy S10e</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-most-innovative-and-comfortable-wireless-mice-launched/"><u>The Most Innovative and Comfortable Wireless Mice Launched</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-google-pixel-8-pro-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Google Pixel 8 Pro Screen | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/unraveling-why-steam-cant-synch-files-in-pc-settings/"><u>Unraveling Why Steam Can't Synch Files in PC Settings</u></a></li>
+</ul></div>
 

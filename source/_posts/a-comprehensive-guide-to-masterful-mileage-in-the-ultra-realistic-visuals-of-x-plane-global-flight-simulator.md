@@ -1,7 +1,7 @@
 ---
 title: A Comprehensive Guide to Masterful Mileage in the Ultra-Realistic Visuals of X-Plane Global Flight Simulator
-date: 2024-08-10T23:44:26.420Z
-updated: 2024-08-11T23:44:26.420Z
+date: 2025-01-10T11:52:31.669Z
+updated: 2025-01-16T10:02:35.493Z
 categories:
   - BestProducts
 description: This Article Describes A Comprehensive Guide to Masterful Mileage in the Ultra-Realistic Visuals of X-Plane Global Flight Simulator
@@ -13,9 +13,6 @@ thumbnail: https://www.lifewire.com/thmb/MBcm7iL0UxUxBoeT9Kt0_tihqzQ=/400x300/fi
 
 4.4
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Clearstream ECLIPSE
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/C1hoQetKMx7bAHqwsQ9gt0Fz_S0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
@@ -64,23 +61,18 @@ Lifewire / Jonno Hill
 
  The ClearStream Eclipse is a very simple HDTV antenna suitable for use indoors and mostly in metropolitan areas. There are a dizzying amount of options to choose from in this[best TV antenna](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) space, but this antenna caught my attention by managing to acquire more channels in our signal test despite not requiring an external power source.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/AbdriPZwiRfd8iHxT9N5E6Ae2hk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_03-d434cf7b4c5f4f73b08c8c220fd0d43e.jpg)
 
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Inoffensive but unexceptional**
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup: Simple and easy**
 
  The ClearStream Eclipse Antenna has the simplest setup of all the HDTV antennas I’ve tested. There is no mounting hardware, no power adapter, and nothing else to worry about. The antenna comes with a strip of adhesive that can be used to affix it directly to a wall or other preferred surface.
@@ -89,9 +81,17 @@ Lifewire / Jonno Hill
 
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Above average**
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Range: Fair to middling**
 
@@ -99,15 +99,20 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
  If my testing is any indication of broader performance, there is really no reason to get the Winegard FL5500A FlatWave Antenna instead of the ClearStream Eclipse. The Eclipse is over $10 cheaper ($40 vs $52), and managed to support 8 more channels on average. To add insult to injury, the Winegard FL5500A FlatWave Antenna is amplified using a USB power adapter, which adds a bit of clutter and complication to the overall setup.
@@ -118,9 +123,6 @@ Lifewire / Jonno Hill
 
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  ECLIPSE
@@ -133,14 +135,11 @@ Lifewire / Jonno Hill
 * Range  35 miles
 * Warranty  Lifetime parts
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -149,4 +148,20 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-clips.techidaily.com/new-a-viral-phenomenon-in-micro-bites-for-2024/"><u>[New] A Viral Phenomenon in Micro-Bites for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-ace-your-editing-skills-video-enhancer-v22-masterclass-for-2024/"><u>[New] Ace Your Editing Skills Video Enhancer v2.2 Masterclass for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-efficient-way-to-broadcast-tiktok-videos-via-facebook-for-2024/"><u>[New] Efficient Way to Broadcast TikTok Videos via Facebook for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-silent-recorders-revealed-6-undiscovered-android-and-ios-apps/"><u>[Updated] 2024 Approved Silent Recorders Revealed 6 Undiscovered Android & iOS Apps</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/contemplating-upgrade-will-windows-11-be-better-for-me/"><u>Contemplating Upgrade: Will Windows 11 Be Better For Me?</u></a></li>
+<li><a href="https://win-blog.techidaily.com/dragon-age-inquisition-fix-how-to-resolve-the-game-not-starting-issue/"><u>Dragon Age Inquisition Fix: How to Resolve the Game Not Starting Issue</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-pc-game-with-an-apc-ups-comprehensive-review-guide-for-gamers/"><u>Elevate Your PC Game with an APC UPS - Comprehensive Review Guide for Gamers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-reliability-of-bose-sportwireless-hp-audio/"><u>Exploring the Reliability of Bose SportWireless HP Audio</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mastering-corporate-communication-with-gpt/"><u>Mastering Corporate Communication with GPT</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/spotty-results-a-look-at-the-latest-sea-tech-external-usb-blu-ray-burner/"><u>Spotty Results? A Look at the Latest Sea Tech External USB Blu-Ray Burner</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/streamlined-performance-meets-style-with-the-netgear-nighthawk-rax80-the-ultimate-wi-fi-6-experience-reviewed/"><u>Streamlined Performance Meets Style with the Netgear Nighthawk RAX80: The Ultimate Wi-Fi 6 Experience Reviewed</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1723862735891-unleash-productivity-with-new-microsoft-copilot-powered-pcs-featuring-top-snapdragon-elite-x-options-today/"><u>Unleash Productivity with New Microsoft Copilot-Powered PCs, Featuring Top Snapdragon Elite X Options Today</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/yokus-island-adventure-reviewed-how-a-simple-concept-transformed-into-epic-quests/"><u>Yoku's Island Adventure Reviewed: How a Simple Concept Transformed Into Epic Quests</u></a></li>
+</ul></div>
 

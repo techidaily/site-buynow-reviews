@@ -1,7 +1,7 @@
 ---
 title: Affordable Video Surveillance on a Budget? Discover the ISeeBell Doorbell Reviewed!
-date: 2024-08-10T23:44:01.531Z
-updated: 2024-08-11T23:44:01.531Z
+date: 2025-01-13T02:29:16.680Z
+updated: 2025-01-16T02:04:55.694Z
 categories:
   - BestProducts
 description: This Article Describes Affordable Video Surveillance on a Budget? Discover the ISeeBell Doorbell Reviewed!
@@ -15,9 +15,6 @@ thumbnail: https://www.lifewire.com/thmb/UmvwfXVg6pfJ00snUQwZkCl81os=/400x300/fi
 
 ## Mohu Leaf 30
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/AyUAqIhKcHESYKlEswC1pUtS1Po=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
 
 Lifewire / Jonno Hill
@@ -40,12 +37,13 @@ Lifewire / Jonno Hill
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -70,9 +68,6 @@ Lifewire / Jonno Hill
 
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
@@ -80,8 +75,9 @@ Lifewire / Jonno Hill
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup: Dead simple**
 
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
@@ -93,25 +89,26 @@ Lifewire / Jonno Hill
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Range: Fairly limited**
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Excellent for the performance**
 
  The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
 
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
 
@@ -134,14 +131,11 @@ No advertising on the website.
 * Range  30 miles
 * Warranty  One year
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -150,4 +144,22 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-final-cut-pro-for-beginners-the-definitive-starter-pack/"><u>[New] Final Cut Pro for Beginners The Definitive Starter Pack</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-a-deep-dive-into-exceptional-screen-recording-using-adobe-captivity/"><u>[Updated] 2024 Approved A Deep Dive Into Exceptional Screen Recording Using Adobe Captivity</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-how-to-add-filters-effects-and-masks-in-google-meet-for-2024/"><u>[Updated] How to Add Filters, Effects, and Masks in Google Meet for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-best-20-free-public-license-pubg-gallery-mixes/"><u>[Updated] In 2024, Best 20 Free Public License PUBG Gallery Mixes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-top-14-youtube-gaming-video-ideas-to-boost-gaming-channels/"><u>2024 Approved Top 14 YouTube Gaming Video Ideas to Boost Gaming Channels</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/comment-resoudre-le-probleme-de-non-initialisation-du-tpm-sous-windows-11-avec-six-facons-efficaces/"><u>Comment Résoudre Le Problème De Non-Initialisation Du TPM Sous Windows 11 Avec Six Façons Efficaces</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-imo-chat-app-evaluation-features-and-performance/"><u>Comprehensive Imo Chat App Evaluation: Features and Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-elite-wireless-mouse-options-for-enhanced-productivity/"><u>Explore Elite Wireless Mouse Options for Enhanced Productivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/glion-dolly-e-scooter-reviewed-elite-features-for-those-willing-to-pay-extra-for-expediency-and-style/"><u>Glion Dolly E-Scooter Reviewed: Elite Features for Those Willing to Pay Extra for Expediency and Style</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/gotrax-gxl-v2-e-scooter-analysis-perfecting-city-travel-with-speed-and-style/"><u>Gotrax GXL V2 E-Scooter Analysis: Perfecting City Travel with Speed and Style</u></a></li>
+<li><a href="https://article-files.techidaily.com/heartfelt-goodbyes-free-or-subscribed-video-endings/"><u>Heartfelt Goodbyes Free or Subscribed Video Endings</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-masterful-descriptions-for-youtube-success/"><u>In 2024, Masterful Descriptions for YouTube Success</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-apple-books-app-showdown-pros-cons-and-insights/"><u>The Apple Books App Showdown: Pros, Cons & Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-complete-breakdown-of-ankers-superspeed-usb-30-hub-a-user-must-have/"><u>The Complete Breakdown of Anker's SuperSpeed USB 3.0 Hub – A User Must-Have</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Affordable Mobvoi TicWatch E2 Analysis: Bargain Price vs Quality Concerns"
-date: 2024-08-10T23:39:54.701Z
-updated: 2024-08-11T23:39:54.701Z
+date: 2025-01-13T21:20:38.994Z
+updated: 2025-01-15T18:42:43.223Z
 categories:
   - BestProducts
 description: "This Article Describes Affordable Mobvoi TicWatch E2 Analysis: Bargain Price vs Quality Concerns"
@@ -13,17 +13,13 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Fitbit Versa Lite
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ![Fitbit Versa Lite](https://www.lifewire.com/thmb/cLfckr_Y6BZxrI48GvfteHPwShs=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4057119-HeroSquare-771afa6a985240f0ab5fe71246b3d502.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -45,14 +41,8 @@ Lifewire / Todd Braylor
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Fitbit Versa Lite
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Fitbit Versa Lite](https://www.lifewire.com/thmb/O7QnNkdge4zffV7BYmgcQZadk2I=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4057119-HeroSquare-771afa6a985240f0ab5fe71246b3d502.jpg)
 
 Lifewire / Todd Braylor
@@ -98,7 +88,15 @@ Lifewire / Todd Braylor
 
 ![Fitbit Versa Lite](https://www.lifewire.com/thmb/ehQeP3qIsRUrUZp6p58PkmyfjZs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4057119-02-cbb859573ea64d6bbd3cb967820dbdec.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Todd Braylor
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Quick-tips and syncing**
 
@@ -108,11 +106,12 @@ Lifewire / Todd Braylor
 
 ![Fitbit Versa Lite](https://www.lifewire.com/thmb/BD_8kRJ7n6qQdf5LY9rLKiYigTQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4057119-05-fac178f5e6b240c29ff8d1e1e4fcb96f.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Comfort: Attractive and confident wearability**
 
  The Fitbit Versa Lite feels nice in your hands and on your wrist. The device is relatively lightweight at 1.41 ounces and the screen unit sits naturally on the back of your wrist. The Versa Lite comes with two wristbands, one small and one large, measuring four and 5.25 inches long. Both are a little less than an inch wide and are made of a smooth, soft polymer material which is very comfortable for extended periods of wear.
@@ -122,8 +121,9 @@ Lifewire / Todd Braylor
  Aesthetically, the Versa Lite's screen and wrist band are attractive and look sleek. You can confidently wear the Versa Lite in any professional setting—it's good-looking but not overly flashy. Size-wise, it’s not the most ideal fitness tracker for sleep monitoring. It really feels like you are wearing a watch to bed and you might find yourself wanting to leave it on the bedside table instead.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Lean and effective**
 
  The Versa Lite uses an optical heart rate monitor which applies photoplethysmography (PPG) technology to measure your pulse and gauge your heart rate. This feature shines a rapidly-pulsating LED into your skin and measures how your blood flow affects the dispersion of light, producing a constant stream of heart rate data.
@@ -142,16 +142,10 @@ Lifewire / Todd Braylor
 
  It is unclear how many users are affected by this glitch (it seems other users are unaffected) but we experienced it with the Versa Lite Edition we tested. The only way for us to exit the swim exercise app was to hold down the side button for about 10 seconds in order to escape with the factory power cycle feature. This was one of the only significant flaws we found with the Versa Lite, but it did mean that all data for the swim workout was lost after restarting the Fitbit. This essentially rendered the swim mode unusable on our unit.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Fitbit Versa Lite](https://www.lifewire.com/thmb/97XADSG__Ti-9y6W9YfT6A-sRLg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4057119-04-a5baf62c5de749cb93986be2eab3ad2d.jpg)
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ## **Battery Life: Days of activity**
 
  Fitbit promised four or more days of battery life for the Versa Lite, and they weren’t lying. The Versa Lite we tested lasted almost four and a half days before draining all the way down to zero. This made so many days of daily wear and daily runs seem hassle-free.
@@ -169,6 +163,10 @@ Lifewire / Todd Braylor
  The Fitbit basics have their own section on the Versa Lite, separate from the other apps, and they show you what you've accomplished for the day. These stats include daily step count, total distance covered for the day, daily calorie consumption, active minutes for each day, and a Saturday through Friday graph of your average daily steps.
 
  A host of other smartwatch apps come standard with the Versa Lite, including alarms, a weather app, a stopwatch, a relaxation app that guides you through short mindfulness exercises, and the specific exercise apps mentioned above. As far as additional apps for the Versa Lite, this is it—the Lite Edition does not have the ability to add extra apps.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: A deal for under $200**
 
@@ -192,16 +190,16 @@ Lifewire / Todd Braylor
 
  Though we can’t recommend this watch to swimmers (pending a potential software solution for that glitch), the Fitbit Versa Lite is a great way to chart your progress throughout a training program or competitive season. The combination of the Fitbit Basics and dedicated exercise apps makes this watch both an insightful wellness monitor for everyday activity and a great tool for tracking your fitness progress.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Garmin Forerunner 945](https://www.lifewire.com/garmin-forerunner-945-review-4768586)
 * [Fitbit Inspire HR](https://www.lifewire.com/fitbit-inspire-hr-review-4768656)
 * [Samsung Galaxy Watch Active](https://www.lifewire.com/samsung-galaxy-watch-active-review-4766873)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Versa Lite
@@ -221,14 +219,11 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 * Memory Capacity  7 days of activity data, 30 days of daily totals
 * What's included  Fitbit Versa Lite Edition watch, small wrist band, large wrist band, USB charging cradle
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -237,4 +232,26 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-from-concept-to-screen-writing-a-winning-docu-script/"><u>[Updated] 2024 Approved From Concept to Screen Writing a Winning Docu-Script</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-decorate-your-windows-11-photos-app-add-aesthetic-filters-plus-audio-streams-for-2024/"><u>[Updated] Decorate Your Windows 11 Photos App Add Aesthetic Filters + Audio Streams for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-photo-zoom-pro-7-the-image-resizer-for-2024/"><u>[Updated] Photo Zoom Pro 7- the Image Resizer for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-prime-editor-shortlist-top-10-for-instagram-reel-brilliance/"><u>2024 Approved The Prime Editor Shortlist Top 10 for Instagram Reel Brilliance</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-top-tamil-ringtone-downloads-essential-websites-and-tricks/"><u>2024 Approved Top Tamil Ringtone Downloads Essential Websites and Tricks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/boost-and-expand-wireless-signal-using-the-advanced-features-of-netgear-nighthawk-x6s-wi-fi-booster/"><u>Boost and Expand Wireless Signal Using the Advanced Features of Netgear Nighthawk X6S Wi-Fi Booster</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-xiaomi-13-ultra-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Xiaomi 13 Ultra To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-laughters-playground-top-15-youtube-hits-for-fun/"><u>In 2024, Laughter's Playground Top 15 YouTube Hits for Fun</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-seamless-integration-of-fb-video-on-tv-screens/"><u>In 2024, Seamless Integration of Fb Video on TV Screens</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-rcas-smart-video-surveillance-doorbell-features/"><u>In-Depth Look at RCA's Smart Video Surveillance Doorbell Features</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/leading-titles-for-3d-visuals-and-lustrous-text-online/"><u>Leading Titles for 3D Visuals & Lustrous Text Online</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-the-oneplus-9-pro-an-insight-into-its-superior-design-performance-and-camera/"><u>Mastering the OnePlus 9 Pro - An Insight Into Its Superior Design, Performance & Camera</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/meet-the-new-contender-a-closer-look-at-the-ipad-air-vs-ipad-pro/"><u>Meet the New Contender: A Closer Look at the iPad Air Ⅳ Vs. IPad Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-revolutionary-samsung-galaxy-buds-pro-experience/"><u>The Revolutionary Samsung Galaxy Buds Pro Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-nighttime-companion-discover-the-wonders-of-barnes-and-noble-nook-glowlight-3-in-our-thorough-review/"><u>The Ultimate Nighttime Companion? Discover the Wonders of Barnes & Noble Nook GlowLight 3 in Our Thorough Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-test-reviewing-performance-and-capacity-of-halo-bolt-chargerstarter-combo/"><u>The Ultimate Test: Reviewing Performance and Capacity of Halo Bolt Charger/Starter Combo.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-apple-ipad-pro-2018-reviews-unmatched-performance-in-an-11-inch-device/"><u>Top Apple iPad Pro 2018 Reviews: Unmatched Performance in an 11-Inch Device</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-the-art-of-unifying-diverse-sound-files-in-final-projects/"><u>Updated In 2024, The Art of Unifying Diverse Sound Files in Final Projects</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/viber-out-evaluation-an-insiders-look-at-international-calling-app/"><u>Viber Out Evaluation: An Insider's Look at International Calling App</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Mighty Compact Gaming Machine - A Detailed Look at Xbox Series S Specs and Packaging
-date: 2025-01-08T19:15:20.216Z
-updated: 2025-01-10T22:24:59.845Z
+date: 2025-01-11T03:42:14.852Z
+updated: 2025-01-16T09:00:48.304Z
 categories:
   - BestProducts
 description: This Article Describes The Mighty Compact Gaming Machine - A Detailed Look at Xbox Series S Specs and Packaging
@@ -18,12 +18,16 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Beantech Bitwatch S1 Plus
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/JogmBSjTGQl_gqbjuX8prgeJJPA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -50,10 +54,6 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/RIxQYWLMnyHkO9IcguCoRX11EbY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
 
 [View On Amazon](https://www.amazon.com/Bit-Android-phones-Storage-leather/dp/B071VZMBH9/?tag=lifewire-onsite-prod-20&ascsubtag=4773105%7Cn9405fb50cb804e70a7f30ec502e40d9b21%7CB071VZMBH9)
@@ -79,6 +79,10 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
  Lifewire / Emily Ramirez
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design and Software: A surprising amount of features in this chunky watch**
 
  The most outstanding feature of the Bitwatch’s design is its chunkiness. For those with small wrists, this smartwatch looks ridiculous. Furthermore, the included bands are too small in comparison to the watch, giving the overall design a cheap feel. When you wear this watch, you will notice it weighing your wrists down, taunting you to take it off. But as ugly as the Bitwatch is, it is a functional little watch. It has a power button and volume buttons, as well as a strong vibration motor. Its touchscreen works without a problem, and the app layout is intuitive to understand.
@@ -90,7 +94,7 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
  While it doesn’t have[NFC](https://www.lifewire.com/what-is-nfc-832715) or GPS, it does have a speaker, and you can send basic messages with the watch. The Bitwatch S1 is surprisingly robust for those who want to dip their toes into the smartwatch experience, with many of the features that mid-tier smartwatches possess.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easy, but unexplained**
@@ -98,10 +102,6 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
  Setting up the Bitwatch works as you’d expect. Pair it via the Bluetooth on your phone and download the Beantech app. It works with both Android and iOS, so you should have no difficulty. Alerts will show up in the remote notifier app, and apps such as the calendar are not synced with your phone’s calendar apps, so keep that in mind if you’d like to add any events, notifications, or alarms to your watch.
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/O7xHfA9sKsBdC0nmqNXbFky-Dm4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-2-3b838f1124184bbd9452b79bb8449c2b.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -118,7 +118,7 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/7GtX2IU-w4sJA-BTqQtHQThxaJo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-3-ade31135cd9d4fe0b6b01286941d2652.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -174,24 +174,20 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-help.techidaily.com/new-professional-rapid-thumbnail-artistry-for-valorant-games/"><u>[New] Professional Rapid Thumbnail Artistry for Valorant Games</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-snappy-and-straightforward-win11-screening/"><u>[New] Snappy & Straightforward Win11 Screening</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-comprehensive-instructional-series-adding-time-tracks-to-live-shows/"><u>[Updated] Comprehensive Instructional Series Adding Time Tracks to Live Shows</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-expanding-your-audience-on-youtube-step-by-step/"><u>2024 Approved Expanding Your Audience on Youtube Step by Step</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-role-of-rhythm-and-pitch-in-trailer-tunes/"><u>2024 Approved The Role of Rhythm and Pitch in Trailer Tunes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/are-you-still-using-an-out-of-date-ipad-device/"><u>Are You Still Using an Out-of-Date iPad Device?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-apple-phones-for-gaming-performance/"><u>Best Apple Phones for Gaming Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-assessment-of-the-google-pixel-6-camera-performance-in-focus/"><u>Comprehensive Assessment of the Google Pixel 6 – Camera Performance in Focus</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/easy-guide-sharing-your-xbox-gaming-experience-with-friends/"><u>Easy Guide: Sharing Your Xbox Gaming Experience with Friends</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/embracing-change-the-windows-10-11-transition-playbook/"><u>Embracing Change: The Windows 10-11 Transition Playbook</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/essential-vr-adventures-on-oculus-devices/"><u>Essential VR Adventures on Oculus Devices</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-nokia-130-music-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Nokia 130 Music?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/incorporate-rhetorical-questions-to-engage-the-reader/"><u>Incorporate Rhetorical Questions to Engage the Reader.</u></a></li>
-<li><a href="https://techtrends.techidaily.com/parental-control-setup-limiting-access-to-online-videos-on-ipads/"><u>Parental Control Setup: Limiting Access to Online Videos on iPads</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-gaming-tech-corsair-one-pros-review-on-efficiency-and-artistry/"><u>Revolutionizing Gaming Tech: Corsair One Pro's Review on Efficiency and Artistry</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-key-tracking-devices-your-ultimate-guide/"><u>Top Rated Key Tracking Devices : Your Ultimate Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/transform-yourfb-watchlist-with-easy-youtube-video-autoplay-configuration-for-2024/"><u>Transform YourFB Watchlist with Easy Youtube Video Autoplay Configuration for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-features-of-the-extollo-lansocket-1500-high-speed-connectivity-and-power-efficiency-in-action/"><u>Unveiling the Features of the Extollo LANSocket 1500 - High-Speed Connectivity and Power Efficiency in Action</u></a></li>
-<li><a href="https://techtrends.techidaily.com/why-your-imessages-were-undelivered-recently-a-breakdown-of-yesterdays-issues-insights-from-zdnet/"><u>Why Your iMessages Were Undelivered Recently: A Breakdown of Yesterday's Issues - Insights From ZDNet</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-behind-stock-image-memes-stories-that-stood-the-test/"><u>[Updated] In 2024, Behind Stock Image Memes Stories That Stood the Test</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-image-jokes-how-to-create-memetic-gold/"><u>[Updated] In 2024, Image Jokes How to Create Memetic Gold</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-vivo-y77t-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Vivo Y77t Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/guide-accessing-and-navigating-snapchat-via-your-desktop-computer/"><u>Guide: Accessing and Navigating Snapchat via Your Desktop Computer</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-elevate-your-gaming-experience-4-techniques-for-gameplay-snaps/"><u>In 2024, Elevate Your Gaming Experience 4 Techniques for Gameplay Snaps</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-oppo-reno-10-5g-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Oppo Reno 10 5G to Protect Your Individual Information</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/optimize-your-pc-for-smooth-cs2-gameplay-eliminate-lag-and-frames-per-second-dips/"><u>Optimize Your PC for Smooth CS2 Gameplay – Eliminate Lag & Frames Per Second Dips</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/review-of-escort-ix-radar-detector-an-intelligent-companion-that-evolves-with-your-journey/"><u>Review of Escort iX Radar Detector: An Intelligent Companion that Evolves with Your Journey</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-lowdown-on-the-samsung-galaxy-a20-an-in-depth-budget-phone-review-for-tech-enthusiasts/"><u>The Lowdown on the Samsung Galaxy A20: An In-Depth Budget Phone Review for Tech Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-anker-roav-dashcam-c1-in-depth-camera-evaluation/"><u>The Ultimate Guide to the Anker Roav DashCam C1: In-Depth Camera Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-unveiling-the-true-potential-of-android-on-the-google-pixel-3/"><u>The Ultimate Guide: Unveiling the True Potential of Android on the Google Pixel 3</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-xbox-one-elite-series-2-gaming-controller-analysis-why-its-a-legendary-device/"><u>Top Xbox One Elite Series 2 Gaming Controller Analysis: Why It's a Legendary Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-notch-beesound-earbuds-affordable/"><u>Top-Notch BeeSound Earbuds, Affordable</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-fitness-monitors-a-comprehensive-review/"><u>Top-Rated Fitness Monitors : A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-lenovo-thinkpad-x1-titanium-yoga-the-ideal-choice-for-diehard-thinkpad-lovers/"><u>Ultimate Guide: Lenovo ThinkPad X1 Titanium Yoga – The Ideal Choice for Diehard ThinkPad Lovers</u></a></li>
 </ul></div>
 

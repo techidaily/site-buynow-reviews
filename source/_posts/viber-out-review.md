@@ -1,7 +1,7 @@
 ---
 title: Viber Out Review
-date: 2025-01-09T19:18:38.282Z
-updated: 2025-01-10T16:18:02.310Z
+date: 2025-01-10T12:07:56.880Z
+updated: 2025-01-16T00:14:47.871Z
 categories:
   - BestProducts
 description: This Article Describes Viber Out Review
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/srDXNKZKWXkXRf0d1TbCWQ-jKUA=/400x300/fi
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/5SQBxSHXey906sYtaz8fIiCXm7k=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -50,12 +46,16 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/o0LkMzwRLq9UDT8tBDJerDIsp8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -84,6 +84,10 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/Ep4Dk2l5q44AgM0S3cs9My3AE3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_03-a367c45b39474785856cb986e82c88dc.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
  Overall, the C80 feels pretty sturdy. There are four antennas, and they don’t feel flimsy or easily breakable. The antennas are exceptionally long—disproportionately so when compared to the router’s body—but the length of the antennas is advantageous for performance. You can move the antennas 90 degrees up and down and roughly 180 degrees side to side, which lets you appropriately adjust them for placement on a wall or table. The Gigabit Ethernet ports (one WAN, four LAN) and power adapter port are located on the back of the device, which is ideal for placement on a flat surface, but not as great for mounting on a wall because the cables come out of the top of the router, and they’re difficult to hide or organize.
@@ -98,11 +102,11 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/tXeiVJNqjtwMg97as87xxtsMwhc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_04-375b5f92ce9d44f4af109c8f6bfada16.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Network Performance: Fast speeds, No USB port**
 
@@ -111,10 +115,6 @@ Lifewire / Erika Rawes
  When I loaded up the network with several of the devices in my home—more than 30 smart home products, gaming PCs, laptops, consoles, streaming devices, smart TVs, and phones—I started to experience a noticeable slowdown. This is not the best router for gaming or for those who use multiple connected devices simultaneously. The C80 would be ideal for homes with light to moderate networking demands.
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -140,6 +140,10 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **TP-Link Archer C80 vs. TP-Link Archer A9**
 
  The Archer A9 is another affordable offering from TP-Link, with a price tag of under $100\. However, the A9 has a USB port and is compatible with Alexa and[IFTTT](https://www.lifewire.com/what-is-ifttt-4172417) —features the C80 lacks. I recently tested the A9 as well. The A9 offers more in the way of features, but I was able to get faster speeds and better coverage out of the C80\. If you want a router that offers a more comprehensive experience, go with the A9\. If you just want an affordable, speedy router that will maintain a signal at long range, you’ll probably be happy with the C80.
@@ -149,10 +153,6 @@ Lifewire / Erika Rawes
 **Fast speeds and an exceptionally long range.**
 
  Even though it lacks a USB port, the Archer C80 puts out impressive speeds over a long range in homes with light to medium networking capacity. For homes that have several people streaming, gaming, and working on cloud applications, they’ll want something more high octane.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -189,17 +189,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-elevate-design-top-tier-tips-from-canva-experts/"><u>[New] 2024 Approved Elevate Design Top-Tier Tips From Canva Experts</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-zero-to-viral-video-top-10-user-friendly-youtube-concepts/"><u>[Updated] 2024 Approved From Zero to Viral Video Top 10 User-Friendly YouTube Concepts</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-balancing-work-and-leisure-enhancing-podcast-listening/"><u>2024 Approved Balancing Work and Leisure Enhancing Podcast Listening</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-maximizing-screen-space-the-art-of-close-up-views/"><u>2024 Approved Maximizing Screen Space The Art of Close Up Views</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-tablet-showdown-analyzing-pros-and-cons-of-amazon-fire-vs-samsung/"><u>Best Tablet Showdown: Analyzing Pros and Cons of Amazon Fire Vs. Samsung</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dont-miss-out-on-amazing-discounts-oneplus-dream-offers-today-only/"><u>Don't Miss Out on Amazing Discounts - OnePlus' Dream Offers Today Only!</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-nubia-red-magic-9-pro-device-sim-by-drfone-android/"><u>Easily Unlock Your Nubia Red Magic 9 Pro Device SIM</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-buyselladscom-can-elevate-your-blogging-business-to-new-heights/"><u>How BuySellAds.com Can Elevate Your Blogging Business to New Heights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lenovo-tab-4-analysis-is-this-low-cost-tablet-worth-it-features-and-downfalls-uncovered/"><u>Lenovo Tab 4 Analysis: Is This Low-Cost Tablet Worth It? - Features & Downfalls Uncovered</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/seamless-new-york-times-video-extractor-software-compatible-with-windowsmac-os-save-clips-as-high-quality-mp4-avi-files/"><u>Seamless New York Times Video Extractor Software Compatible with Windows/Mac OS - Save Clips as High-Quality MP4, AVI Files</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/step-by-step-remediation-of-the-could-not-load-propstsydll-problem-in-windows/"><u>Step-by-Step Remediation of the 'Could Not Load Propstsy.dll' Problem in Windows</u></a></li>
-<li><a href="https://win-top.techidaily.com/1728466501667-windows-10/"><u>Windows 10上發生白屏故障？即時修復方法</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-graphicgenius-suite/"><u>[New] In 2024, GraphicGenius Suite</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-mastering-the-skies-a-guide-to-using-syma-x8c/"><u>[Updated] Mastering the Skies A Guide to Using Syma X8C</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-non-networked-game-haven-top-screen-free-android-titles/"><u>[Updated] Non-Networked Game Haven Top Screen-Free Android Titles</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-low-cost-pc-monitoring-solutions-reviewed-and-compared/"><u>2024 Approved Low-Cost PC Monitoring Solutions Reviewed & Compared</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-targeted-ads-spreading-awareness-in-the-medical-sphere/"><u>2024 Approved Targeted Ads Spreading Awareness in the Medical Sphere</u></a></li>
+<li><a href="https://fox-links.techidaily.com/exploring-the-refinements-of-sonys-s6500-bdp-model/"><u>Exploring the Refinements of Sony's S6500 BDP Model</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-honor-magic5-ultimate-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Honor Magic5 Ultimate</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-viewing-pleasure-on-a-budget-a-thorough-review-of-caixuns-stunning-4k-75-inch-android-television/"><u>Maximizing Viewing Pleasure on a Budget: A Thorough Review of Caixun's Stunning 4K 75 Inch Android Television</u></a></li>
+<li><a href="https://win-forum.techidaily.com/navigating-the-giants-of-social-networking-from-facebook-to-youtube/"><u>Navigating the Giants of Social Networking: From Facebook to YouTube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nickwatch-launches-in-the-us-a-highlight-of-the-kids-choice-awards-night/"><u>NickWatch Launches in the U.S.: A Highlight of the Kids' Choice Awards Night</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/noble-nineties-for-pocket-pet-vids/"><u>Noble Nineties for Pocket Pet Vids</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/razer-blade-stealth-13-review/"><u>Razer Blade Stealth 13 Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-uncovering-knacks-freshness-in-an-often-recycled-video-game-world/"><u>Review: Uncovering Knack's Freshness in an Often-Recycled Video Game World</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smart-networking-on-a-budget-the-ultimate-tp-link-archer-a6-ac1200-router-review-with-performance-breakdown/"><u>Smart Networking on a Budget: The Ultimate TP-Link Archer A6 AC1200 Router Review with Performance Breakdown</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smartpacking-for-the-modern-wanderer/"><u>Smartpacking for the Modern Wanderer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/step-by-step-installation-tips-boosting-the-performance-of-your-intel-imac/"><u>Step-by-Step Installation Tips: Boosting the Performance of Your Intel iMac</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stream-smart-a-detailed-comparison-of-chromecast-vs-roku/"><u>Stream Smart: A Detailed Comparison of Chromecast Vs. Roku</u></a></li>
+<li><a href="https://driver-install.techidaily.com/streamline-windows-interactions-with-updated-astro-device-drivers/"><u>Streamline Windows Interactions with Updated Astro Device Drivers</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-operations-and-applications-of-claude-2/"><u>The Operations and Applications of Claude 2</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Amazfit GTS Assessment: A Marriage of Trendiness & Training, Succeeding and Struggling"
-date: 2024-08-10T23:42:47.365Z
-updated: 2024-08-11T23:42:47.365Z
+date: 2025-01-12T22:51:59.259Z
+updated: 2025-01-15T19:00:11.922Z
 categories:
   - BestProducts
 description: "This Article Describes Amazfit GTS Assessment: A Marriage of Trendiness & Training, Succeeding and Struggling"
@@ -38,12 +38,13 @@ Lifewire / Scott Gercken
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Pioneer BDR-XD05B Blu-ray Burner
 
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/nC_G9Nr8iQMb-lVdoUhQTXWP5lo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_HeroSquare-7488fe2dd07248ca99020859f82cefaf.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Scott Gercken
 
@@ -70,9 +71,6 @@ Lifewire / Scott Gercken
 
  Check out our buyers guide for more information on what you should look for in an optical drive.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Feels a little flimsy**
 
  The Pioneer BDR-XD05B[Blu-ray Burner](https://www.lifewire.com/best-desktop-blu-ray-drives-832423) is a sleek, small black drive. It’s a tiny 5.12” square by .5” tall with a black cover and a metal bottom. The clamshell case opens to 65 degrees, so it’s easy to slide a disc onto the spindle. The button to open the clamshell is on the front left of the drive, and there’s a blue LED indicator that lights up when the drive is plugged into a power source. The drive comes with an unusually shaped USB cord, with a male micro-B USB 3.0 on one side and two USB A male ends on the other. One is designed to power the drive and one is for data transfer. The back of the drive has both a micro-B USB 3.0 port and a DC power port as a second option for powering it. The Pioneer BDR-XD05B Blu-ray Burner’s look is minimalist, black with just a small gray Blu-ray logo on the top.
@@ -83,9 +81,6 @@ Lifewire / Scott Gercken
 
  One of the benefits of a typical clamshell, top-loading drive is that there’s a physical button to press that opens the drive, a simple mechanism that will pop the top even when it’s unplugged. That feature alone might make the wobbly top worth it, but it doesn’t work that way on this drive—the top won’t open unless you plug the drive into a computer.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/fUaHdcy3m2p6xK0x76rqvkRIi1s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_03-c61c4933818c4874b8edcadfca341ca9.jpg)
 
  Lifewire / Scott Gercken
@@ -98,16 +93,10 @@ Lifewire / Scott Gercken
 
  After 25 minutes of installation, there was a dialog indicating installation was complete. Yet, there were still two instances of the installer program running, and each showed an alert that said it was installing one program or another without any indication of progress.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/xaXRYsi71hFhblhSiQT18pmQ2Mw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_02-5138fb74431a40c1b0cbb76c30bc6350.jpg)
 
  Lifewire / Scott Gercken
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## **Performance: Good for an inexpensive Blu-ray burner**
 
  We did two tests to see check the burner’s performance. First, we ripped a 37GB Blu-ray copy of_Die Hard_ to check the burner’s read speed for a commercial Blu-ray. Using the program MakeMKV, it took 70 minutes to make a copy.
@@ -116,9 +105,6 @@ Lifewire / Scott Gercken
 
  Noise was never a problem with this drive. Auto Quiet mode adjusts media discs to a slower speed so it’s quieter, and with both data and movie discs we didn’t notice any noise loud enough to be a bother.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Image Quality: Don’t watch Blu-rays on this drive**
 
  We tested watching Blu-rays on the Pioneer BDR-XD05B on a Macbook Pro(it’s not designed to work with a TV). The image quality was ok, but it wasn’t close to what you’d get on a[HD TV](https://www.lifewire.com/best-tvs-to-buy-4061107) with a dedicated[Blu-ray player](https://www.lifewire.com/best-blu-ray-players-1846400) .
@@ -129,18 +115,27 @@ Lifewire / Scott Gercken
 
  We think that the best reason to watch a Blu-ray isn’t the sharp[HD image](https://www.lifewire.com/what-you-need-to-see-hd-1847338) but the depth of sound this format can produce. But you don’t get any of that when you watch a Blu-ray using the Pioneer BDR-XD05B, because you have to watch it on a computer with computer speakers. It didn’t get any better when we connected the computer to the TV via HDMI—the sound remained flat and muddy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: Basic useful software**
 
  Like we wrote above, the included software was a mess to install, with windows popping up all over the place. The included software is called “CyberLink Media Suite 10.” It includes PowerDVD 14, Power2Go 8, and PowerDirector 14 LE. PowerDVD 14 is an app for playing Blu-rays and DVD’s on your[optical drive](https://www.lifewire.com/what-is-an-optical-disc-drive-2618157) . Power2Go 8 is a burning tool, and it has some system recovery tools, too. Powerdirector 14 LE is a movie editing app. All-in-all, this is a pretty useful, basic suite of software without anything that especially stands out. It gets the job done, and that’s what matters.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Good budget Blu-ray burner**
 
  With an MSRP of $100, the Pioneer BDR-XD05B is one of the least expensive Blu-ray burners on the market. You get what you pay for, though—that low price comes with slower read/write speeds and a flimsy design. Still, if you’re looking for a budget Blu-ray burner, this is a good one. If you’re a heavy user, look for something faster.
 
  With an MSRP of $100, The Pioneer BDR-XD05B is one of the least expensive Blu-ray burners on the market.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Performs well in this price range**
 
@@ -160,6 +155,10 @@ Lifewire / Scott Gercken
 
  On one hand, the Pioneer BDR-XD05B is a light, portable Blu-ray burner with decent performance at a low cost. On the other hand, it also feels flimsy and has a smudge-magnet finish. It’s a solid performer in its price range, but there are other portable Blu-ray burners without these faults (albeit generally for more cash).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  BDR-XD05B Blu-ray Burner
@@ -176,14 +175,11 @@ Lifewire / Scott Gercken
 * Warranty  1 year
 * Boxed dimensions  8.75 x 6.6 x 3.5 in.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -192,4 +188,17 @@ Lifewire / Scott Gercken
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-embark-on-a-textual-adventure-14-spectacular-examples/"><u>[New] 2024 Approved Embark on a Textual Adventure 14 Spectacular Examples</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unveiling-the-top-20-youtube-music-spaces-for-your-favorite-tunes/"><u>[New] Unveiling the Top 20 YouTube Music Spaces for Your Favorite Tunes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-streamlined-editing-best-apps-compatible-with-macos-big-sur-for-2024/"><u>[Updated] Streamlined Editing Best Apps Compatible with macOS Big Sur for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-linksys-velop-a-game-changing-approach-to-wireless-coverage/"><u>Expert Analysis of the Linksys Velop: A Game-Changing Approach to Wireless Coverage</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-enable-disable-and-change-safari-location-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Enable, Disable, and Change Safari Location on Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/permanent-video-preservation-units-for-2024/"><u>Permanent Video Preservation Units for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-2023-amazon-echo-show-10-gen-3-your-handy-mobile-assistant/"><u>The Ultimate Guide to the 2023 Amazon Echo Show 10 (Gen 3): Your Handy Mobile Assistant</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/transcodificar-archivos-de-video-de-formato-avi-al-formato-wav-sin-coste-guia-simple/"><u>Transcodificar Archivos De Vídeo De Formato AVI Al Formato WAV Sin Coste: Guía Simple</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unbeatable-prime-day-discounts-on-apple-products/"><u>Unbeatable Prime Day Discounts on Apple Products</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-capabilities-of-jackerys-powerbar-with-built-in-ac-outlet-our-full-insightful-review/"><u>Unveiling the Capabilities of Jackery's PowerBar with Built-In AC Outlet – Our Full Insightful Review</u></a></li>
+</ul></div>
 

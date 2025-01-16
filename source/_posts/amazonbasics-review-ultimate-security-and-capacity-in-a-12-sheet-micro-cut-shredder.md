@@ -1,7 +1,7 @@
 ---
 title: AmazonBasics Review - Ultimate Security & Capacity in a 12-Sheet Micro-Cut Shredder
-date: 2024-08-10T23:44:57.692Z
-updated: 2024-08-11T23:44:57.692Z
+date: 2025-01-14T11:23:56.107Z
+updated: 2025-01-16T04:45:24.125Z
 categories:
   - BestProducts
 description: This Article Describes AmazonBasics Review - Ultimate Security & Capacity in a 12-Sheet Micro-Cut Shredder
@@ -13,12 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/tXinHRNgxsgiEXL28vzOj4OgVls=/400x300/fi
 
 3.2
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## AmazonBasics 7 Port USB 3.0
 
 ![AmazonBasics 7 Port USB 3.0](https://www.lifewire.com/thmb/61zrtwf2XnDfg9oA0igeVIB2E3M=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_HeroSquare-b4652c2651b5474f84409577b3760479.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -39,9 +40,6 @@ Lifewire / Jonno Hill
 
 3.2
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## AmazonBasics 7 Port USB 3.0
 
 ![AmazonBasics 7 Port USB 3.0](https://www.lifewire.com/thmb/lDufXTneOT2NDnXEOTNXauWZKtU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_HeroSquare-b4652c2651b5474f84409577b3760479.jpg)
@@ -69,16 +67,10 @@ Lifewire / Jonno Hill
 
  The AmazonBasics 7 Port USB 3.0 Hub definitely offers a lot of bang for your buck, but we have some quality control qualms that prevent this from being an instant recommendation. If you're on a budget and you need a lot of[USB ports](https://www.lifewire.com/what-is-a-usb-port-818166) , you might still want to consider this option, but let’s dig into the details before you make your purchase.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/wXgyw4YH3MYx3AO1YEPSdvla-IQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_02-d9ec8728693e42e9b7ca7d3108d37ba6.jpg)
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: A clean look, with some awkward ports**
 
  Measuring 5.7 x 2.6 x 1.1 inches (HWD), the AmazonBasics 7 Port USB 3.0 Hub is not a particularly petite or compact device, but it does do itself some favors in the design department. The slanted body contains two connections on its left, one for the power and one for the USB-B port. On the back, you’ll find five standard USB 3.0 Type-A ports. The right side contains two fast-charge ports capable of supplying more than the standard power, so long as you’ve connected the hub to an outlet using the power cable. Finally, the top contains a simple blue LED, which lit up as soon as we connected the USB cable to the computer.
@@ -93,6 +85,10 @@ Lifewire / Jonno Hill
 
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/-6zArDEXr2_gqDvtkeqZAbTQKiQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_05-c3e5d946a7e84b6cb1b395cff1103e42.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 ## **Setup Process: No trouble at all**
@@ -101,9 +97,6 @@ Lifewire / Jonno Hill
 
  The AmazonBasics 7 Port USB 3.0 Hub is an otherwise capable device that is unfortunately marred by quality control issues and cheap construction.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## **Connectivity: A sufficient number of options**
 
  The AmazonBasics 7 Port USB 3.0 Hub comes with a three-foot USB (A-to\_B) cable to connect to your computer. This should be sufficient for most users, and worked well in our setup. An AC power adapter is included as well, and it comes with a fairly substantial power brick.
@@ -112,11 +105,12 @@ Lifewire / Jonno Hill
 
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/Ep4bZmgChjDyFofASwezrrPrDYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_04-e00baf7ec07a4762bf437cde18e2b4de.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Just what you’d expect**
 
  The AmazonBasics 7 Port USB 3.0 Hub performed as expected in our tests, providing USB 3.0 Gen 1 speeds. The five ports in the back supply the standard 0.9A of power, whereas the ports on the side, designed for fast charging, can supply up to 1.5A. If you neglect to connect the hub to a power source, the entire device will have to share the 0.9A of power supplied by your computer’s[USB 3.0 port](https://www.lifewire.com/what-is-usb-3-0-2626038) .
@@ -124,8 +118,9 @@ Lifewire / Jonno Hill
  The five ports in the back supply the standard 0.9A of power, whereas the ports on the side, designed for fast charging, can supply up to 1.5A.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: You get what you pay for**
 
  At a list price of $33.44, the AmazonBasics 7 Port USB 3.0 Hub isn’t a terrible deal, but given the materials used and the quality control issues, it’s definitely not an amazing deal. Buyers looking for a bit more might consider AUKEY’s 10-port powered hub or Amazon’s own AmazonBasics 10 Ports USB 3.0 Charging Hub Docking Station. Both these hubs offer more connections and dedicated power.
@@ -133,6 +128,10 @@ Lifewire / Jonno Hill
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/AnTpc7CmLFfbEILGIFkFiA9Ur2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_03-063f9486bd7045c18c0643276029f85e.jpg)
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **AmazonBasics 7 Port USB 3.0 Hub vs. Aukey USB Hub 3.0**
 
@@ -160,14 +159,11 @@ Lifewire / Jonno Hill
 * Compatibility  Windows 2000/Win XP/Vista/Windows 7 & Mac 10.1 up
 * Warranty  30 days
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -176,4 +172,20 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-reviews.techidaily.com/7-days-to-die-reborn-how-the-developers-facelifted-zombies-for-an-exciting-sandbox-adventure/"><u>'7 Days to Die' Reborn: How the Developers Facelifted Zombies for an Exciting Sandbox Adventure!</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-effortlessly-connect-camera-roll-to-snapchat-sharing-platforms/"><u>[Updated] 2024 Approved Effortlessly Connect Camera Roll to Snapchat Sharing Platforms</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-beyond-the-dance-understanding-copyright-pre-upload/"><u>2024 Approved Beyond the Dance Understanding Copyright Pre-Upload</u></a></li>
+<li><a href="https://some-tips.techidaily.com/affordable-tablet-picks-for-2eby/"><u>Affordable Tablet Picks for 2Eby/</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/could-apples-latest-macbook-air-indicate-a-waning-interest-in-new-iphones-according-to-zdnet-analysis/"><u>Could Apple's Latest MacBook Air Indicate a Waning Interest in New iPhones, According to ZDNet Analysis</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-corsair-keyboard-drivers-for-windows-get-your-free-secure-update-now/"><u>Download CORSAIR Keyboard Drivers for Windows - Get Your Free, Secure Update Now</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Samsung Galaxy A23 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unveiling-the-youtube-creator-hub-a-guide/"><u>In 2024, Unveiling the YouTube Creator Hub A Guide</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-stopping-unknown-numbers-from-contacting-your-iphone/"><u>Step-by-Step Guide: Stopping Unknown Numbers From Contacting Your iPhone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tp-link-archer-a9-assessment-high-quality-internet-gateway-for-less-than-hundred-dollars/"><u>TP-Link Archer A9 Assessment: High-Quality Internet Gateway for Less Than Hundred Dollars</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/user-review-and-price-breakdown-for-amazonbasics-budget-cross-cut-shredder-6-sheets/"><u>User Review and Price Breakdown for AmazonBasics' Budget Cross-Cut Shredder (6 Sheets)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-pay-for-amazon-prime-discover-3-key-advantages/"><u>Why Pay for Amazon Prime: Discover 3 Key Advantages</u></a></li>
+<li><a href="https://some-tips.techidaily.com/zdnets-expert-assessment-of-the-new-microsoft-surface-pro-8-is-it-ideal-for-enterprise-use/"><u>ZDNet's Expert Assessment of the New Microsoft Surface Pro 8 - Is It Ideal for Enterprise Use?</u></a></li>
+</ul></div>
 

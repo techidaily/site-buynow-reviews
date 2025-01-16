@@ -1,7 +1,7 @@
 ---
 title: "Value Meets Innovation in the ArcShell AR-5: A Full Performance Breakdown"
-date: 2025-01-07T19:04:23.689Z
-updated: 2025-01-10T19:06:53.744Z
+date: 2025-01-09T17:03:28.029Z
+updated: 2025-01-16T07:46:25.804Z
 categories:
   - BestProducts
 description: "This Article Describes Value Meets Innovation in the ArcShell AR-5: A Full Performance Breakdown"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/6d8730f2a77f7bacc79151a55ebc1a6b3c6364485
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Apple iPad Pro 11-Inch (2018)
 
@@ -45,10 +49,6 @@ Lifewire / Jordan Provost
 ## Apple iPad Pro 11-Inch (2018)
 
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/SgNIbLZ961-p9WD7at7-M5m8Tuk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_HeroSquare-b5f2405776244188aa59f67503531baf.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jordan Provost
 
@@ -80,6 +80,10 @@ Lifewire / Jordan Provost
 
 ![IPad Pro 11-Inch](https://www.lifewire.com/thmb/jYGLTeSXEAGonvbdFrussmvvPDU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_2-74153fdc1da44cbba893312f82da0547.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
 
 ## **Design and Features: Cutting edge**
@@ -94,10 +98,6 @@ Lifewire / Jordan Provost
 
  Lifewire / Jordan Provost
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Accessories: Useful for productivity**
 
  The two main attachments everyone should consider when purchasing an iPad Pro are the Apple Pencil and the Smart Keyboard Folio. The Apple Pencil is a powerful tool for artists and note takers, and the revised model includes a double-tap feature so you can quickly switch between brush styles and utilize functions usually locked off to the more PC-focused professional drawing tablets. Previous Apple Pencil users will be glad to know that it charges with a magnetic pad on the side of the device, and not awkwardly through the port at the bottom like previous models.
@@ -109,10 +109,6 @@ Lifewire / Jordan Provost
  We wouldn’t call the iPad Pro child-friendly unless you wrap it in a rugged case and apply a decent screen protector, and even then it's a stretch. Due to all of the productivity features, we believe the best use case for the tablet is in the hands of professionals rather than families. It's for those who are looking for a premium tablet experience.
 
  Top 3 Tablets On the Market
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Fast and easy**
 
@@ -149,7 +145,7 @@ Lifewire / Jordan Provost
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/KXfYew06x6vujxu5asiFMPptK_k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_1-a6ce9e62649048d7a20596066576c2c5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
@@ -170,6 +166,10 @@ Lifewire / Jordan Provost
 
  One of the major upgrades to the Pro is the stereo effect audio playback with four powerful speakers, two on either side of the device. The iPad Pro has truly stunning audio, and if you crank it up it could easily act as a party speaker. There is absolutely no need for anything external when watching video content. Amazingly, the fidelity of the audio never seems to suffer, even at full volume. Apple ditching the headphone jack poses an interesting problem in that you’re going to need a pair of Bluetooth headphones or buy an adapter to receive audio on the go.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Network: Reasonable connectivity**
 
  In terms of signal strength, we struggled to get the WiFi to break by walking outside and away from our router. In the garden and the garage ( a usual drop-out spot for other devices) it held true in very reasonable fashion.
@@ -177,6 +177,10 @@ Lifewire / Jordan Provost
  We received 72Mbps download speed and 6Mbps upload on our 100Mbps plan, a very respectable result. Downloading apps was quick and painless, and thanks to the incredible processor, there was very limited buffering time when booting up YouTube videos, Twitch streams and streaming video content on Netflix.
 
 ![IPad- Pro 11 Inch](https://www.lifewire.com/thmb/D-1-WC_wIDqzRZLb8mDOgpjal6c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_3-e425a67865fc461fb805e648294dadf8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
@@ -190,6 +194,10 @@ Lifewire / Jordan Provost
 
  Take a peek at some of the[best camera apps](https://www.lifewire.com/best-iphone-camera-apps-4176231) you can download.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery: All-day usage**
 
  This is an all-day device, and should last you roughly around 10 hours of regular use, as per our testing. We spent almost a full working day pushing it using Split View to draft articles, with some Procreate drawing and Netflix streaming in between, and the iPad Pro clocked out at around 9 hours. However, we found some apps like Google Docs drain the battery more than most, so it varies depending on your workflow. Much like the Apple Watch, if you’re not a power user this tablet could last you a number of days before needing a fresh charge.
@@ -199,7 +207,7 @@ Lifewire / Jordan Provost
  Lifewire / Jordan Provost
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: The best yet**
@@ -210,15 +218,15 @@ Lifewire / Jordan Provost
 
  iOS 12 is by far and away the best version of the operating system yet, but there are still some blatant compromises that eat away at the possibility of the iPad Pro being a laptop replacement.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Well worth the money if you can justify it**
 
  As far as tablets go, one of the main reasons many people are put off by the iPad Pro is the existence of far cheaper options. Our review model (11-inch, 64GB) retails for $799, and you may well be inclined to upgrade both the size and the capacity to suit your needs. This doesn’t factor in some of the more essential accessories with jaw-dropping prices like the Apple Pencil, Smart Keyboard, and the Bluetooth headphones necessary to navigate the lack of a headphone jack. That can lead to a very expensive purchase, and with Apple products, it can be hard to tell whether they are worth it case by case.
 
  Luckily, the 11-inch iPad Pro is such a revolutionary upgrade on most tablets that you do truly get what you pay for here. The A12X Bionic puts it leagues ahead of the competition, making it the most powerful productivity machine for professional creatives on the market. There is nothing really competing at this price range beyond.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Hard to beat**
 
@@ -232,19 +240,11 @@ Lifewire / Jordan Provost
 
  With utterly seamless navigation and playback, fantastic speakers and world-class accessories and performance, this is a beautifully designed piece of hardware. Unfortunately, whilst the power is there, it is held back by its own operating system, forcing you into busywork or compromising missteps. It cannot replace your laptop just yet, but it may well make it redundant based on your use case.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Apple iPad 10.2-inch (7th Generation)](https://www.lifewire.com/apple-ipad-10-2-inch-7th-generation-review-4772313)
 * [Microsoft Surface Go](https://www.lifewire.com/microsoft-surface-go-review-4690827)
 * [Apple iPad Mini (2019)](https://www.lifewire.com/apple-ipad-mini-2019-review-4688991)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -274,16 +274,14 @@ Lifewire / Jordan Provost
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/2024-approved-inverting-film-tracks-in-mobile-devices/"><u>2024 Approved Inverting Film Tracks in Mobile Devices</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-the-art-of-engaging-with-the-online-gaming-community/"><u>2024 Approved The Art of Engaging with the Online Gaming Community</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/achieve-seamless-user-targeting-using-cookiebot-solutions/"><u>Achieve Seamless User Targeting Using Cookiebot Solutions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-why-the-sony-xbrt65x850f-is-a-game-changer-for-ultra-hd-television-shoppers/"><u>Discover Why the Sony XBRT65X850F Is a Game-Changer for Ultra HD Television Shoppers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-joy-in-the-skies-the-ultimate-review-of-symas-affordable-src-chopper/"><u>Discovering Joy in the Skies: The Ultimate Review of Syma's Affordable S#RC Chopper</u></a></li>
-<li><a href="https://discover-able.techidaily.com/elevate-your-career-with-cutting-edge-technology-training-and-expert-tips/"><u>Elevate Your Career with Cutting-Edge Technology Training and Expert Tips!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-performance-and-heft-in-depth-look-at-the-radpower-radcity-5-plus/"><u>Evaluating Performance & Heft: In-Depth Look at the RadPower RadCity 5 Plus</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-crafting-engaging-visuals-after-effects-best-10-text-plans/"><u>In 2024, Crafting Engaging Visuals After Effect's Best 10 Text Plans</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-guide-to-convert-youtube-twitter-videos-to-mp3-songs/"><u>In 2024, Guide to Convert YouTube Twitter Videos to MP3 Songs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-smart-buyers-guide-getting-an-iphone-aura-with-the-budget-friendly-motorola-one/"><u>The Smart Buyer's Guide: Getting an iPhone Aura with the Budget-Friendly Motorola One</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-features-in-depth-analysis-of-the-powerful-space-saving-jaco-smartpro-portable-tire-filler/"><u>Unpacking the Features: In-Depth Analysis of the Powerful, Space-Saving Jaco SmartPro Portable Tire Filler</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-cutting-edge-approaches-for-secure-and-precise-call-logging-for-2024/"><u>[New] Cutting-Edge Approaches for Secure and Precise Call Logging for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-ultimate-guide-to-youtube-app-on-iphones-and-androids/"><u>[Updated] 2024 Approved Ultimate Guide to YouTube App on iPhones and Androids</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-outshine-others-expert-tips-on-making-youtube-shorts-pop/"><u>[Updated] In 2024, Outshine Others Expert Tips on Making YouTube Shorts Pop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/seamless-protection-with-arlos-video-doorbell-alarm-solution/"><u>Seamless Protection with Arlo's Video Doorbell Alarm Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sonys-nw-ws623-critical-eye-on-style-choices/"><u>Sony's NW-WS623: Critical Eye on Style Choices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/syma-x5c-rc-quadcopter-analysis-value-for-money-in-consumer-drones/"><u>SYMA X5C R/C Quadcopter Analysis: Value for Money in Consumer Drones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-art-of-worldbuilding-in-gaming-a-detailed-review-of-the-sci-fi-rpg-torment-tides-of-numenera/"><u>The Art of Worldbuilding in Gaming: A Detailed Review of the Sci-Fi RPG 'Torment: Tides of Numenera'</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-steps-resolving-issues-with-microsoft-edge/"><u>Troubleshooting Steps: Resolving Issues with Microsoft Edge</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/unveiling-google-pixel-n6-capturing-quality-or-clickbait/"><u>Unveiling Google Pixel N6: Capturing Quality or Clickbait?</u></a></li>
 </ul></div>
 

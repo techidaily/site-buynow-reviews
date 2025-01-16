@@ -1,7 +1,7 @@
 ---
 title: "AcuRite Pro Weather Station 01036M Review: Simple Setup, Robust Design"
-date: 2024-08-10T23:39:46.965Z
-updated: 2024-08-11T23:39:46.965Z
+date: 2025-01-13T03:33:17.261Z
+updated: 2025-01-16T12:34:26.503Z
 categories:
   - BestProducts
 description: "This Article Describes AcuRite Pro Weather Station 01036M Review: Simple Setup, Robust Design"
@@ -13,15 +13,13 @@ thumbnail: https://thmb.techidaily.com/934c09a684ad314c00e00ed21a2e7539ae4858551
 
 4.4
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ## Clearstream ECLIPSE
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/C1hoQetKMx7bAHqwsQ9gt0Fz_S0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -43,8 +41,9 @@ Lifewire / Jonno Hill
 4.4
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Clearstream ECLIPSE
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/0gXsFyigpZzsnNAEj3tIrKImB8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
@@ -74,6 +73,10 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Inoffensive but unexceptional**
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
@@ -86,9 +89,6 @@ Lifewire / Jonno Hill
 
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Above average**
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
@@ -99,15 +99,20 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
  If my testing is any indication of broader performance, there is really no reason to get the Winegard FL5500A FlatWave Antenna instead of the ClearStream Eclipse. The Eclipse is over $10 cheaper ($40 vs $52), and managed to support 8 more channels on average. To add insult to injury, the Winegard FL5500A FlatWave Antenna is amplified using a USB power adapter, which adds a bit of clutter and complication to the overall setup.
@@ -118,9 +123,6 @@ Lifewire / Jonno Hill
 
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  ECLIPSE
@@ -133,14 +135,11 @@ Lifewire / Jonno Hill
 * Range  35 miles
 * Warranty  Lifetime parts
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -149,4 +148,23 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-boosting-your-youtube-presence-key-tips-for-popularity/"><u>[New] In 2024, Boosting Your YouTube Presence Key Tips for Popularity</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-unveiling-the-secrets-of-gopro-timelapse-photography/"><u>[New] In 2024, Unveiling the Secrets of GoPro Timelapse Photography</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-creating-striking-channel-imagery-best-practices-for-success/"><u>[Updated] 2024 Approved Creating Striking Channel Imagery Best Practices for Success</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-channel-alchemy-turning-viewers-into-believers/"><u>[Updated] Channel Alchemy Turning Viewers Into Believers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/canons-rebel-t7-improvements-a-photographers-dream/"><u>Canon's Rebel T7 Improvements - A Photographer's Dream</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dive-into-the-world-of-high-end-gaming-with-our-in-depth-review-of-the-stylish-and-powerful-dell-alienware-aurora-r9-pc/"><u>Dive Into the World of High-End Gaming with Our In-Depth Review of the Stylish and Powerful Dell Alienware Aurora R9 PC</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/ensuring-accessibility-and-seo-with-responsive-design/"><u>Ensuring Accessibility and SEO with Responsive Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fellowes-microban-wired-keyboard-unveiled-top-value-pick-for-budget-buyers/"><u>Fellowes Microban Wired Keyboard Unveiled - Top Value Pick for Budget Buyers!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hands-on-with-the-arlo-home-security-system/"><u>Hands-On With the Arlo Home Security System</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-thriving-in-the-youtube-ecosystem-backlink-building-essentials/"><u>In 2024, Thriving in the YouTube Ecosystem Backlink Building Essentials</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-outstanding-realism-and-global-capabilities-of-x-plane-11-flight-software/"><u>In-Depth Look at the Outstanding Realism and Global Capabilities of X-Plane 11 Flight Software</u></a></li>
+<li><a href="https://network-issues.techidaily.com/overcome-failed-gdx-configuration-fix-available/"><u>Overcome Failed GDX Configuration, Fix Available</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/real-vs-counterfeit-deciphering-authentic-youtube-supports-for-2024/"><u>Real Vs. Counterfeit Deciphering Authentic YouTube Supports for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-thermopro-tp67-an-inexpensive-choice-marred-by-trust-issues/"><u>The ThermoPro TP67: An Inexpensive Choice Marred by Trust Issues</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-19-solutions-for-resolving-netflix-malfunctions-on-lg-smart-tvs/"><u>Top 19 Solutions for Resolving Netflix Malfunctions on LG Smart TVs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-the-dji-robomasters-an-in-depth-look-at-fun-educational-combat-drones/"><u>Unleashing the DJI Robomasters: An In-Depth Look at Fun, Educational Combat Drones</u></a></li>
+</ul></div>
 

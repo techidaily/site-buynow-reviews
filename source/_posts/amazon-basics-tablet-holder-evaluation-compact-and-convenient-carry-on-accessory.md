@@ -1,7 +1,7 @@
 ---
 title: "Amazon Basics Tablet Holder Evaluation: Compact & Convenient Carry-On Accessory"
-date: 2024-08-10T23:44:11.105Z
-updated: 2024-08-11T23:44:11.105Z
+date: 2025-01-15T03:55:26.950Z
+updated: 2025-01-16T04:51:43.598Z
 categories:
   - BestProducts
 description: "This Article Describes Amazon Basics Tablet Holder Evaluation: Compact & Convenient Carry-On Accessory"
@@ -13,10 +13,6 @@ thumbnail: https://thmb.techidaily.com/482b831c6b34c789ab00f688124bfef762b7175ea
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## 1byone Amplified Digital HDTV Antenna
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/pWXHOnFpWCs9EltKF9bRUP_y5aU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
@@ -41,15 +37,13 @@ Lifewire / Jonno Hill
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ## 1byone Amplified Digital HDTV Antenna
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/y6y0rP_H9I7oHwldUMIq-18GrFw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -84,9 +78,6 @@ Lifewire / Jonno Hill
 
  Being a powered antenna, the 1byone uses an external amplifier to boost the signal. This box contains a coaxial input attached via the included 16.5ft cable, and has a power input, which can be supplied by the TV itself if it can support USB power. Otherwise, 1byone includes a USB power adapter.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup: Fairly intuitive**
 
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas. Simply attach the 16.5ft coaxial cable to the external amplifier, connect the power to a USB power source, and then attach the coaxial cable from the amplifier to your TV.
@@ -99,14 +90,19 @@ Lifewire / Jonno Hill
 
  This should be more than suitable for most people living within a city in relatively close proximity to the source of the TV signal. As for those living further, your mileage may vary.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Range: Middle of the road**
 
  1byone makes no specific promises about the range of their antenna, although they do cite users having positive experiences from as far as 48 miles away in their customer testimonials. Given how many factors impact the effective range, I think it is somewhat wise not to make any promises. Nonetheless, this is clearly a device that will be best suited for people living in or near major metropolitan areas.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/6y-ITpY8n7xf8BteMqdJjYm-paU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_05-178a02351af040cc89c86169b88a6de2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
@@ -115,8 +111,9 @@ Lifewire / Jonno Hill
  The 1byone Digital Amplified Indoor Antenna costs just $25, making it the least expensive option out of the antennas I tested. It picked up all the major channels that I would actually watch, and didn’t have any issues with the signal. So from my perspective, why would I pay more? I think buyers would probably be best served by seeing if an antenna like this works for them. If you discover you need something more substantial, feel free to move on to a pricier option.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **1byone Digital Amplified Indoor HD TV Antenna vs Mohu Leaf 30 TV Antenna**
 
  Another popular manufacturer is Mohu, and the Mohu Leaf 30 TV Antenna offers a simpler, non-amplified solution that only loses out on a hair of performance versus the 1byone. I preferred the build quality of the Mohu Leaf, if only marginally, and like the simplicity of not needing additional wires and boxes hanging out of my TV.
@@ -128,6 +125,10 @@ Lifewire / Jonno Hill
 **The overall best value.**
 
  The 1byone Digital Amplified Indoor Antenna offers the best value out of all the indoor antennas that we tested. If you can get the performance you need from the 1byone, it’s the antenna to buy. I wouldn’t consider other options unless you’ve already ruled out this one.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -142,14 +143,11 @@ Lifewire / Jonno Hill
 * Indoor/Outdoor  Indoor
 * Warranty  One year limited
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,4 +156,24 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-top-rated-free-tools-to-extract-youtube-text-tracks/"><u>[New] In 2024, Top-Rated Free Tools to Extract YouTube Text Tracks</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-lessons-on-screen-essential-classroom-videography-tips/"><u>[New] Lessons on Screen Essential Classroom Videography Tips</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-high-fidelity-streaming-archiving-a-practical-approach/"><u>[Updated] In 2024, High-Fidelity Streaming Archiving A Practical Approach</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-beast-exploring-the-features-and-capabilities-of-the-dell-g5-5090-gaming-desktop/"><u>Budget-Friendly Beast - Exploring the Features and Capabilities of the Dell G5 5090 Gaming Desktop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-amazon-lunas-game-streaming-capabilities-a-pleasant-surprise/"><u>Comprehensive Evaluation of Amazon Luna's Game Streaming Capabilities - A Pleasant Surprise</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-ideal-enhancements-to-maximize-your-iphone-experience/"><u>Discover the Ideal Enhancements to Maximize Your iPhone Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-bright-side-an-honest-review-of-the-kobo-clara-colour-features/"><u>Exploring the Bright Side: An Honest Review of the Kobo Clara Colour Features</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/from-paid-to-free-embracing-the-world-of-fcp-for-2024/"><u>From Paid to Free Embracing the World of FCP for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-and-feedback-on-ambient-weather-ws-1002-wifi-smart-thermometer-premium-performance-meets-hefty-cost/"><u>In-Depth Analysis & Feedback on Ambient Weather WS-1002 WiFi Smart Thermometer - Premium Performance Meets Hefty Cost</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-apple-watch-series-9-analysis-features-and-performance/"><u>In-Depth Apple Watch Series 9 Analysis: Features & Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-oneplus-8t-speed-vs-photography-is-it-a-tradeoff/"><u>In-Depth Look at the OnePlus 8T: Speed Vs. Photography - Is It a Tradeoff?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lg-smart-tv-compatibility-now-available-in-kodi-version-210-omega/"><u>LG Smart TV Compatibility Now Available in Kodi Version 21.0 Omega</u></a></li>
+<li><a href="https://blog-min.techidaily.com/m4a-vsmp3ac3wma/"><u>M4A vs.他の音声フォーマット:MP3やAC3、WMAと異なる点を学ぶ</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-tips-for-when-your-nvidia-sharing-tool-wont-work-properly/"><u>Resolved! Tips for When Your NVIDIA Sharing Tool Won't Work Properly</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-cable-modemrouter-combos-of-2024/"><u>The Best Cable Modem/Router Combos of 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-10-christmas-chromebook-bargains-find-the-best-offers/"><u>Top 10 Christmas Chromebook Bargains: Find the Best Offers</u></a></li>
+<li><a href="https://media-tips.techidaily.com/watching-media-content-enabling-kindle-fire-apps-on-macos-devices/"><u>Watching Media Content: Enabling Kindle Fire Apps on macOS Devices</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Rationality Meets Excellence: Apple's iPhone SE (2020) Reviewed Thoroughly"
-date: 2024-08-10T23:48:30.987Z
-updated: 2024-08-11T23:48:30.987Z
+date: 2025-01-14T13:14:55.662Z
+updated: 2025-01-16T02:44:28.952Z
 categories:
   - BestProducts
 description: "This Article Describes Rationality Meets Excellence: Apple's iPhone SE (2020) Reviewed Thoroughly"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/c74303d4c07843e34b64af558ccf2dd47acf27f12
 ## Alienware Aurora R7
 
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/mgtquLrY-jPbXryeiPiK4PShYo4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_2LW4045927-1-7ee01493034d4631894328a424e3ac52.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -38,14 +42,16 @@ Lifewire / Gannon Burgett
 4
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Alienware Aurora R7
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/emzd7Km2ZWo2iwJHim7f3cQirPc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_2LW4045927-1-7ee01493034d4631894328a424e3ac52.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -91,13 +97,13 @@ Lifewire / Gannon Burgett
 
 Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process: Complex settings, simplified**
 
  Setting up the Alienware Aurora R7 was fairly straightforward. In the box was the tower, a mouse, a keyboard, and the power cable. After connecting the Aurora R7 to power, plugging in the mouse and keyboard, and attaching a monitor, it was just a matter of going through Window 10’s setup process to get the ball rolling.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: It’ll take nearly anything you throw at it**
 
@@ -113,9 +119,6 @@ Lifewire / Gannon Burgett
 
  Overall, the Aurora R7 tested on-par or ahead of other PCs with similar specs. As is to be expected, it excelled in the graphics department, but it certainly didn’t struggle with multitasking and everyday tasks.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/tHYfoI6_7SBEzzlShmeBOabqaNw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4045927-5-05e1d507405c4e0288fa00242bf06396.jpg)
 
  Lifewire / Gannon Burgett
@@ -131,8 +134,9 @@ Lifewire / Gannon Burgett
  Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Software: Baked in goodies to simplify a few pain points of gaming**
 
  As is to be expected for a gaming PC, the Alienware Aurora R7 runs on Windows 10 64-bit. It’s a typical install in every sense of the word, but it does come with a few extra bits of software specifically designed for Alienware, including Alienware Command Center, AlienFusion, and OC Controls.
@@ -145,22 +149,20 @@ Lifewire / Gannon Burgett
 
  OC Controls is a dedicated program for controlling overclocking levels of the memory and CPU. The program not only makes it easy to control the overclocking settings, but also helps you keep an eye on temperatures while you game.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Pricey compared to DIY, but otherwise a solid value**
 
  The Alienware Aurora R7 with the aforementioned specifications retails for $1,699 (MSRP). Compared to other pre-built computers, it’s a bit high as we’ll see below. It’s also a good bit more expensive than other DIY gaming builds. Convenience isn’t cheap and the Aurora R7 is no exception.
 
  You could you easily build a PC with better specs for less money, but you also have to take into account the amount of time it takes to shop around for various components and build the computer. If building gaming PCs is something you’re interested in, then skip the Aurora R7 and start your own build. However, if you want to get started with gaming or VR without worrying about compatibility and the building process, the Aurora R7 has plenty of configurations that can suit your needs.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/dyYHBipuM2zl9fR3GmILkVHlxVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4045927-2-dbdd27635b4a47e6bb7ccdd54bb7d952.jpg)
 
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ## **Competition: Convenience rules above all else**
 
  Judging competitors of the Alienware Aurora R7 can get incredibly tricky considering all the different configurations available, not to mention the option of building your own computer. That said, one pre-built gaming PC stands out alongside the Aurora R7 in terms of specs and value—the MSI Infinite X.
@@ -177,18 +179,12 @@ Lifewire / Gannon Burgett
 
  The Alienware Aurora R7 is a wonderful option if you’re looking for a pre-built gaming PC that requires little to no hands-on time to get up and running. Out of the box, it’s ready to take on nearly any game you throw at it, usually at the highest settings. Sure, it’s a bit pricier than a DIY PC, but its compact case, tool-less access, and upgradability makes it a solid option for someone who wants a plug-and-play gaming rig.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Lenovo ThinkCentre M720 Tower](https://www.lifewire.com/lenovo-thinkcentre-m720-tower-review-4776238)
 * [HP Flagship Pro Desktop](https://www.lifewire.com/hp-flagship-pro-desktop-review-4776228)
 * [Acer Aspire TC-885-ACCFLi3O Desktop PC](https://www.lifewire.com/acer-aspire-tc-885-accfli3o-desktop-pc-review-4776155)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Aurora R7
@@ -209,8 +205,6 @@ Lifewire / Gannon Burgett
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -218,4 +212,17 @@ Lifewire / Gannon Burgett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-windows-11-redefined-a-features-breakdown/"><u>[New] In 2024, Windows 11 Redefined A Features Breakdown</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-breezy-setup-for-podcast-broadcasts/"><u>2024 Approved Breezy Setup for Podcast Broadcasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/barnes-and-noble-revolutionizes-reading-with-nook-glowlight-plus-the-e-reader-featuring-the-largest-display/"><u>Barnes & Noble Revolutionizes Reading with Nook GlowLight Plus - The E-Reader Featuring the Largest Display</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-streamlined-intelligence-with-the-2019-tcl-32s325-roku-smart-led-reviewed-the-ultimate-guide/"><u>Experience Streamlined Intelligence with the 2019 TCL 32S325 Roku Smart LED Reviewed – The Ultimate Guide</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-vivo-v27-pro-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Tecno Spark 20 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-lava-yuva-3-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Lava Yuva 3 Pro to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/pc-gamers-rejoice-star-wars-jedi-fallen-order-stability-fixes-implemented/"><u>PC Gamers Rejoice: Star Wars Jedi: Fallen Order Stability Fixes Implemented</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ready-for-takeoff-discover-why-the-blade-e-flite-mcx2-is-leading-the-rc-helicopter-market/"><u>Ready for Takeoff? Discover Why the Blade E-Flite mCX2 Is Leading the RC Helicopter Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-features-a-detailed-analysis-of-the-oculus-quest-2-elite-accessory-set-with-power-bank-and-travel-bag/"><u>Unveiling the Features: A Detailed Analysis of the Oculus Quest 2 Elite Accessory Set with Power Bank and Travel Bag</u></a></li>
+</ul></div>
 

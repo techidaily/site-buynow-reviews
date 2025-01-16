@@ -1,7 +1,7 @@
 ---
 title: "Syma S111G RC Helicopter Review: Low-Cost Indoor Fun"
-date: 2025-01-09T21:18:28.177Z
-updated: 2025-01-10T18:07:48.899Z
+date: 2025-01-13T04:35:04.750Z
+updated: 2025-01-15T22:42:19.663Z
 categories:
   - BestProducts
 description: "This Article Describes Syma S111G RC Helicopter Review: Low-Cost Indoor Fun"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/9841b29c6cea5f5f780b6eadf9d0ee4bcbe0f046f
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/F035WaL3U8Q-n4fK2WBE6844lMo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -55,7 +51,7 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
@@ -84,6 +80,10 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  One unique feature of the Sculpt we loved was the function switch. Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key. Options include refreshing the active page, navigating to the home page in web, opening up the computer’s settings, a play/pause button, switching between active windows, and increasing or decreasing volume.
@@ -98,17 +98,9 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
@@ -118,6 +110,10 @@ Lifewire / Emily Isaacs
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
@@ -125,10 +121,14 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
@@ -184,24 +184,19 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-help.techidaily.com/new-how-to-loop-youtube-videos-on-tv/"><u>[New] How to Loop YouTube Videos on TV</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-integrated-dynamic-movement-analysis-for-2024/"><u>[New] Integrated Dynamic Movement Analysis for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-memorable-youtube-names/"><u>[Updated] The Ultimate Guide to Memorable YouTube Names</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-understanding-color-spaces-srgb-vs-rgb/"><u>2024 Approved Understanding Color Spaces Srgb vs Rgb</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/bose-qc35-ii-showcase-audiophiles-silence-seeker/"><u>Bose QC35 II Showcase: Audiophile's Silence Seeker</u></a></li>
-<li><a href="https://techtrends.techidaily.com/choosing-the-right-iphone-for-optimal-game-performance-our-expert-advice/"><u>Choosing the Right iPhone for Optimal Game Performance: Our Expert Advice</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/elite-selection-of-gym-trackers-and-wearables/"><u>Elite Selection of Gym Trackers and Wearables</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/evaluating-screencast-software-the-bandicamcamtasia-comparison/"><u>Evaluating Screencast Software The Bandicam/Camtasia Comparison</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/examining-the-essence-of-w15a-photo-frames/"><u>Examining the Essence of W15A Photo Frames</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-the-finest-big-screen-laptops-of-2024-17-inches/"><u>Expert Review: The Finest Big-Screen Laptops of 2024 (17 Inches)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-unveiling-the-intelligent-capabilities-of-the-linksys-ea9500-router/"><u>Expert Review: Unveiling the Intelligent Capabilities of the Linksys EA9500 Router</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-stop-your-new-world-game-from-continuously-crashing-on-pc/"><u>How to Stop Your 'New World' Game From Continuously Crashing on PC</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-voice-recognition-tools-reviewed/"><u>Leading Voice Recognition Tools Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/pet-cubes-innovation-for-busy-pet-parents/"><u>Pet Cube’s Innovation for Busy Pet Parents</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/seamless-gameplay-awaits-fetch-your-steelseries-driver-here/"><u>Seamless Gameplay Awaits! Fetch Your SteelSeries Driver Here</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/soccer-simulation-mastery-in-depth-review-of-fifa-19-sports-gaming-champion/"><u>Soccer Simulation Mastery: In-Depth Review of FIFA 19, Sports Gaming Champion</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/troubleshooting-how-to-fix-a-non-playable-mov-file-between-macos-and-windows/"><u>Troubleshooting: How to Fix a Non-Playable .MOV File Between macOS and Windows</u></a></li>
-<li><a href="https://win-able.techidaily.com/ultimate-guide-resolving-alan-wake-ii-game-crashes/"><u>Ultimate Guide: Resolving Alan Wake II Game Crashes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-of-premium-usb-wi-fi-controllers-for-the-year-2024/"><u>Ultimate Selection of Premium USB Wi-Fi Controllers for the Year 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-basics-of-online-videos-the-easiest-10-ideas-for-beginners-on-youtube/"><u>[New] 2024 Approved Basics of Online Videos The Easiest 10 Ideas for Beginners on YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-mastering-photomontages-a-comprehensive-guide/"><u>[New] In 2024, Mastering PhotoMontages A Comprehensive Guide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-youcamsimplified-quickguidetorecordings/"><u>2024 Approved YouCamSimplified QuickGuideToRecordings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-high-tech-the-ultimate-guide-to-monoprice-graphic-tablet-for-creative-savings/"><u>Budget-Friendly High Tech: The Ultimate Guide to Monoprice Graphic Tablet for Creative Savings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-your-ideal-iphone-for-gaming-performance/"><u>Choosing Your Ideal iPhone for Gaming Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-highly-acclaimed-linksys-wrt1900acs-open-source-wi-fi-router/"><u>Comprehensive Review of the Highly Acclaimed Linksys WRT1900ACS Open Source Wi-Fi Router</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/crafting-a-unique-experience-with-chatgpts-directive-capabilities/"><u>Crafting a Unique Experience with ChatGPT's Directive Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/decoding-googles-wifi-an-in-depth-look-at-this-universal-mesh-router-solution/"><u>Decoding Google's Wifi: An In-Depth Look at This Universal Mesh Router Solution</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/decoding-technology-toms-guide/"><u>Decoding Technology: Tom's Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-leading-smart-glasses-innovations-for-2hren-2024-edition/"><u>Discover the Leading Smart Glasses Innovations for 2Hren, 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/do-the-benefits-of-applecareplus-outweigh-its-costs/"><u>Do the Benefits of AppleCare+ Outweigh Its Costs?</u></a></li>
+<li><a href="https://some-tips.techidaily.com/october-launch-scope-for-apples-innovative-smart-features-as-revealed-insights/"><u>October Launch Scope for Apple's Innovative Smart Features, as Revealed Insights</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-the-dxgkrnl-critical-failure-in-videos-on-your-pc/"><u>Solving the Dxgkrnl Critical Failure in Videos on Your PC</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unleash-professional-quality-with-our-top-18-hd-webcams-list/"><u>Unleash Professional Quality with Our Top 18 HD Webcams List</u></a></li>
 </ul></div>
 

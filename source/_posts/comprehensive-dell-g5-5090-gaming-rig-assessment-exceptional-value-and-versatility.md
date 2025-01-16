@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Dell G5 5090 Gaming Rig Assessment - Exceptional Value and Versatility
-date: 2025-01-06T17:24:40.273Z
-updated: 2025-01-10T16:30:53.975Z
+date: 2025-01-09T17:20:38.796Z
+updated: 2025-01-15T18:31:38.262Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Dell G5 5090 Gaming Rig Assessment - Exceptional Value and Versatility
@@ -47,7 +47,7 @@ Lifewire / Erika Rawes
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -72,7 +72,7 @@ Lifewire / Erika Rawes
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Reversible faux wood finish**
@@ -87,10 +87,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup: Easier than most**
 
  Setting up the antenna is relatively intuitive. You just connect the antenna to the coaxial/antenna-in connection on your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) . The antenna has an easy-push connector, instead of a connector you have to twist onto the threading. This makes for easier setup because you don’t have to struggle behind your TV with trying to screw on the[coaxial cable](https://www.lifewire.com/coaxial-vs-optical-digital-cable-3134605) .
@@ -98,6 +94,10 @@ Lifewire / Erika Rawes
  Once you connect the antenna’s cable to your TV, you’ll need to find the best placement. This is perhaps the most difficult part of the setup process. My test home is in a wooded area, and I found the best placement was near or directly on the window. However,[to improve your antenna’s reception](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) , it’s usually a good idea to place the antenna high up in a room close to the home’s exterior (and nearest to the transmitter towers) and to avoid obstacles like walls and tree cover.
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels**
 
@@ -107,15 +107,7 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Range: Could be better**
 
@@ -131,6 +123,10 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
@@ -142,6 +138,10 @@ Lifewire / Erika Rawes
 **Works great & looks even better.**
 
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -174,17 +174,21 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-quench-your-relaxation-aspertronics-guide/"><u>[New] 2024 Approved Quench Your Relaxation Aspertronics Guide</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-hits-and-tags-mastering-the-language-of-virality-in-youtube-shorts/"><u>[New] In 2024, Hits & Tags Mastering the Language of Virality in YouTube Shorts</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-never-a-cap-on-saved-instagram-stories/"><u>[Updated] Never a Cap on Saved Instagram Stories</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-pros-and-cons-for-monoprice-designer-canvas-pen-display/"><u>Budget-Friendly Pros and Cons for Monoprice Designer Canvas Pen Display</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Sony Xperia 5 V | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-linksys-velops-superior-wireless-coverage-and-speed/"><u>Comprehensive Guide to Linksys Velop's Superior Wireless Coverage and Speed</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/free-download-updated-nvidia-graphics-drivers-for-gaming-on-windows/"><u>Free Download - Updated Nvidia Graphics Drivers for Gaming on Windows</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-speed-up-your-pcs-shutdown-process-on-windows-11/"><u>How to Speed Up Your PC's Shutdown Process on Windows 11</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-14-pro-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>How to Unlock iPhone 14 Pro without Passcode or Face ID | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/portable-prodigy-showdown-a-close-look-at-the-razer-book-13/"><u>Portable Prodigy Showdown: A Close Look at the Razer Book 13</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-greatness-of-yakuza-like-a-dragon-your-next-essential-jrgp-reviewed/"><u>Unveiling the Greatness of 'Yakuza: Like A Dragon' - Your Next Essential JRGP Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/urban-armor-gear-macbook-case-assessment-combining-robustness-with-everyday-use/"><u>Urban Armor Gear MacBook Case Assessment: Combining Robustness with Everyday Use</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-elevating-entertainment-find-youtubes-best-narrators-of-23/"><u>[New] 2024 Approved Elevating Entertainment Find YouTube's Best Narrators of '23</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-assemble-and-build-your-own-google-vr-viewing-device/"><u>[Updated] 2024 Approved Assemble and Build Your Own Google VR Viewing Device</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-expert-setup-for-high-quality-video-transmission/"><u>[Updated] Expert Setup for High-Quality Video Transmission</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-celebrating-love-with-the-perfect-countdown-timer-mobile-app/"><u>[Updated] In 2024, Celebrating Love with the Perfect Countdown Timer Mobile App</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-depth-app-examination-azs-recording-and-alternatives-for-2024/"><u>[Updated] In-Depth App Examination - AZ's Recording & Alternatives for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-detailed-review-of-doctorsim-unlock-service-for-iphone-se-2020-by-drfone-ios/"><u>In 2024, Detailed Review of doctorSIM Unlock Service For iPhone SE (2020)</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-transforming-photographs-into-stunning-collaborative-art/"><u>In 2024, Transforming Photographs Into Stunning Collaborative Art</u></a></li>
+<li><a href="https://driver-install.techidaily.com/keep-it-running-the-quick-driver-update-guide-for-w11/"><u>Keep It Running: The Quick Driver Update Guide for W11</u></a></li>
+<li><a href="https://win-best.techidaily.com/planvoll-vorbereitete-datenwiederherstellungstechniken/"><u>Planvoll Vorbereitete Datenwiederherstellungstechniken</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-s10e-unveiled-budget-friendly-with-a-punch-of-quality/"><u>Samsung Galaxy S10e Unveiled: Budget-Friendly with a Punch of Quality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/secrets-to-picking-perfect-gaming-tech/"><u>Secrets to Picking Perfect Gaming Tech</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/spyros-rebirth-triumph-assessing-worth-and-enchantment-in-the-new-classics/"><u>Spyro's Rebirth Triumph: Assessing Worth and Enchantment in the New Classics</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-mini-desktops-tailored-for-gamers/"><u>The Best Mini Desktops Tailored for Gamers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-midland-lxt500vp3-in-detail-an-exploration-of-a-capable-radio-that-struggles-to-meet-expectations/"><u>The Midland LXT500VP3 in Detail: An Exploration of a Capable Radio that Struggles to Meet Expectations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-most-efficient-and-portable-wi-fi-routers-for-globetrotters/"><u>The Most Efficient and Portable Wi-Fi Routers for Globetrotters</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-dell-xps-13-2-in-1-notebook-analysis-top-performing-laptop-unleashed/"><u>Ultimate Guide: Dell XPS 13 2-in-1 Notebook Analysis – Top Performing Laptop Unleashed</u></a></li>
 </ul></div>
 

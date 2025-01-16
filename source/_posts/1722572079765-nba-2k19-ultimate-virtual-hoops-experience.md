@@ -1,7 +1,7 @@
 ---
 title: "NBA 2K19: Ultimate Virtual Hoops Experience"
-date: 2024-08-10T23:40:42.838Z
-updated: 2024-08-11T23:40:42.838Z
+date: 2025-01-09T09:48:37.027Z
+updated: 2025-01-15T19:02:50.013Z
 categories:
   - BestProducts
 description: "This Article Describes NBA 2K19: Ultimate Virtual Hoops Experience"
@@ -13,11 +13,12 @@ thumbnail: https://thmb.techidaily.com/4286d1d9e7f9f222d6b24d7259e18b93ce578dc75
 
 4
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## SEGA Yakuza: Like a Dragon
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/a-p7jLzGh5XDa5UjESh5w8kXrPk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_HeroSquare-ea84381e359846e6951c77b6f7e7c5a0.jpg)
 
 Lifewire / Erika Rawes
@@ -80,6 +81,10 @@ Lifewire / Erika Rawes
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/_ksFqEWrm3B3MbfrBujuNtLpcXw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_03-37ca82f2a4cd42c4ad65f34e2ca63b68.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
  Once things open up, the story gets going in what can only be described as a true modern-day JRPG. It has many of the common tropes of a JRPG, like a party system that allows you to manage those who fight with you, turn-based combat, and a long sweeping epic filled with plenty of side quests.
@@ -90,9 +95,6 @@ Lifewire / Erika Rawes
 
  Overall, the story is interesting and engaging, with excellent voice acting and deep and interesting characters. There are plenty of opportunities to get to know the people who travel with you, and you come to care about the characters and their motivations. Yakuza: Like a Dragon is story-rich, and you won’t be disappointed at the amount of content to explore.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Gameplay: Fun, yet slow-paced at times
 
  Gameplay in Yakuza: Like a Dragon feels incredibly polished. World exploration feels intuitive—you can run from point to point, stopping for distractions along the way, and sometimes engage in a conversation with your party during travel. Yokohama feels alive and real. There are billboards, stores, and people everywhere. You have to be careful when crossing the street, as you can suddenly get hit by a car, which seems to happen more than it should.
@@ -103,9 +105,6 @@ Lifewire / Erika Rawes
 
  Combat is handled with a turn-based system. During the fight, you have a menu of different selections, from regular attacks and items to defending and special attacks. This is where Yakuza: Like a Dragon really shines. The game provides you with a ton of options in the fight, and many of the moves are both over the top and quite funny. For instance, you can have a homeless teammate attack with a flock of pigeons, or maybe have your bartender attack with moves from her boxing fitness class.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/ZvcwNcecc79umImvw53CUJlLvIc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_02-6396bcd8866c4a479331a02e160eb890.jpg)
 
 Lifewire / Erika Rawes
@@ -119,8 +118,9 @@ Lifewire / Erika Rawes
  This[PC game](https://www.lifewire.com/pc-gaming-reviews-4689600) plays just like it should, and the controls are top-notch. Everything just works, which is a rare feat these days. You should be able to finish the main story in around 45 to 55 hours, depending on how fast you run through it, but I highly recommend taking your time and enjoying all the wonderful diversions available.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Graphics: Excellent visuals
 
  The graphics and visuals are impressive. Details are accurate and in the right places. Food looks so realistic (and delicious), and there were some moments where I could even see the pores on a person's skin during cinematics.
@@ -131,10 +131,11 @@ Lifewire / Erika Rawes
 
  The game ran at a smooth 60fps (I played at[1080p resolution](https://www.lifewire.com/what-the-term-1080p-means-1846837) ), and rarely did I come across any graphical issues or bugs. The whole game has a very modern feel but also has so many nods to its JRPG roots. Things are both rooted in reality while also being completely over the top at times.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/zrV5S3jL3_76G0PVgT1K_Ty6WWI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_04-e33b82262b344fecae27d668b3c92ba9-55ba8acb6d324eed81fbf5453e770db8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -143,6 +144,10 @@ Lifewire / Erika Rawes
  The base version of Yakuza: Like a Dragon comes in at $60 like most new titles. The price is reasonable for the amount of gameplay. However, you have two other purchase options as well. The Hero Edition, which costs $70, includes the Job Set and the Management Mode set and features two extra jobs and three sets of Management mode employees.
 
  The Legendary Hero edition costs $90, and it includes both previously listed sets, as well as the Crafting Mat, Stat Boost, Karaoke, and Ultimate Costume sets. These are all nice bonuses and can certainly add to the experience, but you will also find more than enough gameplay in the base game.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Yakuza: Like a Dragon vs. Dragon Quest Series
 
@@ -154,18 +159,12 @@ Lifewire / Erika Rawes
 
  A well-crafted masterpiece. Yakuza: Like a Dragon falls into the must-play category for anyone who loves a good story, JRPGs, or a wild game that will make you laugh. It’s definitely a departure from the rest of the series, but that contributes to a lot of the fun and uniqueness of the game.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Cyberpunk 2077](https://www.lifewire.com/cyberpunk-2077-review-5113844)
 * [Godfall](https://www.lifewire.com/godfall-review-5095668)
 * [Torment: Tides of Numenera](https://www.lifewire.com/torment-tides-of-numenera-review-5077302)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Yakuza: Like a Dragon
@@ -185,8 +184,6 @@ Lifewire / Erika Rawes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -194,4 +191,26 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-audio-adaptation-innovations-for-youtubers-videos/"><u>[Updated] 2024 Approved Audio Adaptation Innovations for YouTubers' Videos</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-laptop-and-mobile-embarking-on-the-google-meet-experience/"><u>[Updated] Laptop & Mobile Embarking on the Google Meet Experience</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-ultimate-high-performance-desktop-pcs/"><u>2024 Approved Ultimate High-Performance Desktop PCs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-echo-pop-and-echo-dot-key-features-and-distinctions/"><u>Comparing Echo Pop and Echo Dot: Key Features & Distinctions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-netgear-orbi-why-it-stands-out-in-mesh-router-technology/"><u>Comprehensive Analysis of Netgear Orbi - Why It Stands Out in Mesh Router Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-test-of-kooteks-multi-functional-portable-laptop-ventilation-system/"><u>Comprehensive Test of Kootek's Multi-Functional Portable Laptop Ventilation System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-future-of-reading-with-amazons-kindle-unlimited-top-4-benefits-explained/"><u>Discover the Future of Reading with Amazon’s Kindle Unlimited – Top 4 Benefits Explained</u></a></li>
+<li><a href="https://article-helps.techidaily.com/from-basic-to-spectaculr-the-best-cams-gear-guide/"><u>From Basic to Spectaculr The Best Cams' Gear Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/guide-to-enabling-siris-text-to-speech-functionality-on-iphones-and-mac-computers/"><u>Guide to Enabling Siri’s Text-to-Speech Functionality on iPhones & Mac Computers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hands-on-with-samsung-galaxy-budsplus-a-detailed-product-review/"><u>Hands-On with Samsung Galaxy Buds+ - A Detailed Product Review</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/high-quality-sky-images-leading-sites-listed/"><u>High-Quality Sky Images Leading Sites Listed</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-motorola-g54-5g-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Motorola G54 5G FRP In 3 Different Ways</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-microsoft-office-substitutes-your-guide-to-2024/"><u>Leading Microsoft Office Substitutes: Your Guide to 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/oneplus-9-pro-analysis-exquisite-design-performance-and-imaging-capabilities/"><u>OnePlus 9 Pro Analysis: Exquisite Design, Performance & Imaging Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-fitbit-versa-the-budget-friendly-smartwatch-with-impressive-features/"><u>Review of the Fitbit Versa: The Budget-Friendly Smartwatch with Impressive Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-voip-services-of-the-year-where-does-vonage-stand-now/"><u>The Best VoIP Services of the Year: Where Does Vonage Stand Now?</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-rated-iphone-12-and-12-pro-protectors-2023s-ultimate-guide-by-zdnet/"><u>Top-Rated iPhone 12 & 12 Pro Protectors: 2023'S Ultimate Guide by ZDNET</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/why-question-your-complete-faith-in-ai-systems/"><u>Why Question Your Complete Faith in AI Systems</u></a></li>
+<li><a href="https://driver-error.techidaily.com/win11-touchpad-glitches-resolved-quickly/"><u>Win11 Touchpad Glitches: Resolved Quickly</u></a></li>
+</ul></div>
 

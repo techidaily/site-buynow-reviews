@@ -1,7 +1,7 @@
 ---
 title: A Critical Appraisal of the Distinguished, High-End Samsung Galaxy S1
-date: 2024-08-10T23:41:28.116Z
-updated: 2024-08-11T23:41:28.116Z
+date: 2025-01-12T02:51:51.077Z
+updated: 2025-01-16T14:19:08.132Z
 categories:
   - BestProducts
 description: This Article Describes A Critical Appraisal of the Distinguished, High-End Samsung Galaxy S1
@@ -13,9 +13,6 @@ thumbnail: https://www.lifewire.com/thmb/bxfsf6a13bTDW7I6_ZJ4WyZ7rkw=/400x300/fi
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## Samsung Galaxy Fit
 
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/UbU9fom8autjrPBW79fdJpbGiu8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_04LW4161013-1-760c721cdfb74062a7b7a34dffa00d9e.jpg)
@@ -39,6 +36,10 @@ thumbnail: https://www.lifewire.com/thmb/bxfsf6a13bTDW7I6_ZJ4WyZ7rkw=/400x300/fi
 [View On Amazon $120](https://www.amazon.com/dp/B07RB2NWDN/?tag=lifewire-onsite-prod-20&ascsubtag=4766867%7Cnd9ea231691e349f9a36c8fb0b9d3dc9e12%7CB07RB2NWDN) [View On Walmart $104](https://www.walmart.com/ip/SAMSUNG-Galaxy-Fit-Activity-Tracker-Heart-Rate-Black-SM-R370NZKAXAR/657883661)
 
 4.5
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Samsung Galaxy Fit
 
@@ -71,16 +72,18 @@ thumbnail: https://www.lifewire.com/thmb/bxfsf6a13bTDW7I6_ZJ4WyZ7rkw=/400x300/fi
 
  We tested the Samsung Galaxy Fit on its ability to track workouts and how comfortable it is as a 24/7 accessory.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/Tf5FJJb3h1iBWaZIkx-ZF7NeOTg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-6-b9990e3655e34e2ca712150225748ab6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Functional and slightly elevated**
 
  The Samsung Galaxy Fit is a fitness-oriented device, and the design reflects this. It’s clean, minimal, and straightforward. Not only is this wearable extremely lightweight at only 0.81 ounces, but it’s also quite slim, which gives it a bracelet-like appearance.
@@ -93,10 +96,6 @@ thumbnail: https://www.lifewire.com/thmb/bxfsf6a13bTDW7I6_ZJ4WyZ7rkw=/400x300/fi
 
  While this watch is diminutive in size, it can withstand the wear and tear that comes with biking, swimming, and other activities. The device as a whole is rugged and heavy-duty enough to withstand 50 meters of water as well as a drop or two, according to the MIL-STD-810G durability rating.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/uFwssrqnoTWtrPSlF6y16TFjA5A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-2-2e9d9cba7ec342918320509e630b0f09.jpg)
 
  Lifewire / Yoona Wagener
@@ -111,9 +110,6 @@ thumbnail: https://www.lifewire.com/thmb/bxfsf6a13bTDW7I6_ZJ4WyZ7rkw=/400x300/fi
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Comfort: Almost undetectable**
 
  Like the[Samsung Galaxy Watch Active](https://www.lifewire.com/samsung-galaxy-watch-4174640) , this device also features a tucked-in strap. The difference is that there’s a little pin with a round head instead of the straight pin that most watch buckles have. This detail makes for an extremely close fit that verges on almost too close.
@@ -130,7 +126,15 @@ thumbnail: https://www.lifewire.com/thmb/bxfsf6a13bTDW7I6_ZJ4WyZ7rkw=/400x300/fi
 
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/SRdpyMKwwNLE2m_Dnn2o9thnpQ8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-3-40a8d98ca4a04e7c9b5b18531df43e6f.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: High marks for accuracy**
 
@@ -146,26 +150,20 @@ thumbnail: https://www.lifewire.com/thmb/bxfsf6a13bTDW7I6_ZJ4WyZ7rkw=/400x300/fi
 
  All activity data, including information on sleep quality and patterns, is laid out clearly in the supplementary Samsung Health app, which is particularly useful for viewing a week’s worth of activity data. It’s really the only way to see beyond the most recent activity or two, which is all the watch will show you.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/APk5ikkGQieSTN39gBAQ6rf6H9E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-5-5ff5a7cfa0c34594b8d74bbb224e9800.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ## **Battery: Good for a full week of use**
 
  Samsung says this watch is good for up to seven to eight days with regular activity and use, and up to eleven days with minimal use. We found that this watch lasted on the initial charge for a full[eight days](https://www.lifewire.com/fitness-trackers-with-the-best-battery-life-4077272) , which lined up with the manufacturer claims. It’s hard to say how the battery life would stack up to multiple workouts in a day—we typically only did one a day over the course of a week, but our experience with the device supports the strong battery life claims.
 
  When we did have to charge the device again, we found that process to be speedy: it took only two hours to recharge in full.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## **Software: Dial up your fitness with the Samsung Health app**
 
  Unlike other Samsung smartwatches, the Samsung Galaxy Fit is built on a FreeRTOS (real time operation software) platform. This OS relies heavily on the companion smartphone app and the Samsung Health app for a well-rounded experience.
@@ -201,17 +199,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * [Apple Watch Series 4](https://www.lifewire.com/apple-watch-series-4-review-4769752)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Galaxy Fit
@@ -227,14 +217,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Connectivity  Bluetooth 5.0 (LE only)
 * Warranty  1 year
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -243,4 +230,22 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/emystifying-the-world-of-youtube-and-its-keywords-for-2024/"><u>[New] Demystifying the World of YouTube and Its Keywords for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-paint-your-vision-top-8-best-drawing-apps-for-iphone-enthusiasts-for-2024/"><u>[New] Paint Your Vision Top 8 Best Drawing Apps for iPhone Enthusiasts for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-a-beginners-guide-to-music-in-online-video-footage-fb-for-2024/"><u>[Updated] A Beginner's Guide to Music in Online Video Footage (FB) for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-from-favorites-to-featured-the-journey-to-a-unique-youtube-list-for-2024/"><u>[Updated] From Favorites to Featured The Journey to a Unique YouTube List for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/boost-engagement-on-youtube-by-adding-emojis-for-2024/"><u>Boost Engagement on YouTube by Adding Emojis for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/chatai-breakdown-enhancing-crypto-exchanges-with-gpt/"><u>ChatAI Breakdown: Enhancing Crypto Exchanges with GPT</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-oneplus-9-pro-stylish-build-fast-functioning-and-elite-photography-capabilities/"><u>Expert Insights on OnePlus 9 Pro: Stylish Build, Fast Functioning & Elite Photography Capabilities</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-time-saving-guide-seconds-to-clear-background-bg/"><u>In 2024, Time-Saving Guide Seconds to Clear Background Bg</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-samsungs-advanced-galaxy-watch-active-2-superior-connectivity-mastery-control-and-insightful-upgrades/"><u>In-Depth Analysis of Samsung's Advanced Galaxy Watch Active 2: Superior Connectivity, Mastery Control, and Insightful Upgrades</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-the-aeeusy-mobile-solar-generator-with-pure-sine-wave-output-ensuring-safety-in-healthcare-settings/"><u>In-Depth Review of the AEEUSY Mobile Solar Generator with Pure Sine Wave Output, Ensuring Safety in Healthcare Settings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-the-chip-how-tablet-processors-influence-performance-rankings/"><u>Inside the Chip: How Tablet Processors Influence Performance Rankings</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/mastering-your-soundtrack-a-methodical-approach-to-choosing-a-digital-audio-recorder-beyond-apowersoft/"><u>Mastering Your Soundtrack A Methodical Approach to Choosing a Digital Audio Recorder Beyond Apowersoft</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/optimized-for-efficiency-integrating-the-latest-dell-screen-tech-premier-sound-isolation-headset-and-ultrasharp-camera-equipment/"><u>Optimized for Efficiency: Integrating the Latest Dell Screen Tech, Premier Sound Isolation Headset, and UltraSharp Camera Equipment</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/photo-refinement-essentials-expert-tips-for-efficient-background-clearance-for-2024/"><u>Photo Refinement Essentials Expert Tips for Efficient Background Clearance for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-lenovo-flex-5-a8400m-laptop-assessment-and-analysis/"><u>The Ultimate Guide: Lenovo Flex 5 (A8400M) Laptop Assessment & Analysis</u></a></li>
+</ul></div>
 

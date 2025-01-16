@@ -1,7 +1,7 @@
 ---
 title: "430EX III-RT: Where Power Meets Reliability Reviewed"
-date: 2024-08-10T23:42:54.896Z
-updated: 2024-08-11T23:42:54.896Z
+date: 2025-01-13T14:59:47.851Z
+updated: 2025-01-16T01:36:42.524Z
 categories:
   - BestProducts
 description: "This Article Describes 430EX III-RT: Where Power Meets Reliability Reviewed"
@@ -37,9 +37,6 @@ Lifewire / Scott Gercken
 
 4.4
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner
 
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/0KtwvTBY-2P8KkZ_aO3Di4x-41c=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_HeroSquare-191df3b949f947dc9398373d6f610c19.jpg)
@@ -80,17 +77,14 @@ Lifewire / Scott Gercken
 
  It’s a slot loading drive, which works exactly the way you’d expect. It may be personal preference, but slot loading systems seem cleaner and less fussy than clamshell or tray systems. The back side has two ports, a[USB 3.0](https://www.lifewire.com/what-is-usb-3-0-2626038) micro-B and a port for a DC power input (not included with the drive). The drive also comes with a micro-B to USB-A cord, making it easy to connect the Pioneer BDR-XS06 to your computer.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/LB5BA5cM1cVQB_sK6BgcOEl3l9k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_02-60d78cf22bf04b52979d5f65437a35e8.jpg)
 
  Lifewire / Scott Gercken
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup Process: So easy**
 
  The Pioneer BDR-XS06[Blu-ray Burner](https://www.lifewire.com/best-desktop-blu-ray-drives-832423) is very easy to set up. We just plugged the USB cord into the Blu-ray burner and the computer and it was ready to go. Macs have native software for reading and burning using a Blu-ray drive, so it was a breeze to get started.
@@ -101,6 +95,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Even without the software, the BDR-XS06 worked right away. This model works right out of the box with both Windows and MacOS with little to no additional fuss. It’s one of the most plug-and-play burners we’ve tested.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: As advertised**
 
  Like most Blu-ray burners, the BDR-XS06 slows down its read speed when you put in a movie or audio disc. That keeps the noise level low for those media. When it reads data discs, however, the speed picks up, which means more noise. The noise while installing Roxio Toast Lite got to an annoyingly loud level. It might not be too much in a busy office, but it was surprising in the quiet room where we tested it.
@@ -109,27 +107,34 @@ It’s one of the most plug-and-play burners we’ve tested.
 
  To test read/write speeds, we ripped a copy of_Die Hard,_ a 37GB file, using a program called_MakeMKV._ The whole process took an hour and 13 minutes, and the drive hit speeds between 5.2x and 6x. To test the write speeds, we made a backup copy of a 14GB photo library. It took just under 42 minutes, though the same task took 32 minutes on Roxio Toast. While these speeds aren’t the fastest on the market, they live up to Pioneer’s advertising. While using Roxio Toast, the software measured an average write speed of 3x while using a BD-R, though its max speed is 6x for that format.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/hYWwVcK8E-FSog7TpOTOgE-hYnY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_03-df0bfb492ead4e86a35df19618bcd5d4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Scott Gercken
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Image Quality: Decent quality for an optical drive**
 
  While Blu-ray burners and[optical drives](https://www.lifewire.com/what-is-an-optical-disc-drive-2618157) aren’t exactly designed to play movies, we tried it anyway. We used a free Blu-ray player for Mac, and the picture was pretty good. On the Mac, it was sharp, almost as good as a[Blu-ray player](https://www.lifewire.com/best-blu-ray-players-1846400) designed for the TV. Next, we connected an HDMI cable to the Mac to see what it would look like on an[HDTV](https://www.lifewire.com/best-tvs-to-buy-4061107) . It wasn’t as good as on the computer, but it wasn’t bad either. The TV reported that the resolution was 768p at 60hz, not as good as a Blu-ray player built for that purpose, but better than SD.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Sound Quality: Blu-ray quality sound**
 
  While many people rave about[HD](https://www.lifewire.com/what-you-need-to-see-hd-1847338) image quality, we think that the depth of sound is the most exciting feature of the Blu-ray format. When you get all the high-end and low-end sound, it feels more immersive, and the Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner delivered the audio quality you’d expect from a Blu-ray. If you don’t mind the reduction in image quality vs. a dedicated player, the BDR-XS06 could double as a Blu-ray player for your PC or TV.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Software: Quirky but useful**
 
  The drive comes with Roxio Toast Lite v11 for creating or copying data discs. You need to upgrade to the full version to create an audio disc, video disc, or to convert files to another format.
@@ -140,9 +145,6 @@ It’s one of the most plug-and-play burners we’ve tested.
 
  That extra durability is worth the slightly higher cost than this drive’s competitors.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ## **Price: Good value for the speed and portability**
 
  For the price, it delivers strong performance and portability. At an MSRP of $120, the BDR-XS06 is a little more expensive than some of its competition, but it feels more solid than even Pioneer’s own models in this price range. That extra durability is worth the slightly higher cost than this drive’s competitors.
@@ -165,9 +167,6 @@ It’s one of the most plug-and-play burners we’ve tested.
 
  The Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner is a solid, portable Blu-ray burner. It’s small enough to pack up to take on a trip, and it’s solid enough to give us confidence that it can endure some jostling on the way. It costs a little more than its competitors, but we think the solid construction is worth it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [OWC Mercury Pro External USB 3.1 Gen 1 Optical Drive](https://www.lifewire.com/owc-mercury-pro-review-4774690)
@@ -191,14 +190,11 @@ It’s one of the most plug-and-play burners we’ve tested.
 * Warranty  1 year
 * Color options  Silver
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -207,4 +203,18 @@ It’s one of the most plug-and-play burners we’ve tested.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-create-captivating-videos-with-free-intros/"><u>[New] Create Captivating Videos with Free Intros</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-enhance-phantom-flying-top-11-add-on-gear/"><u>[Updated] Enhance Phantom Flying Top 11 Add-On Gear</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-transform-your-farm-with-stardews-most-innovative-mods-7-best/"><u>[Updated] In 2024, Transform Your Farm with Stardew's Most Innovative Mods (7 Best)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-newbies-manual-to-vector-art-grasping-different-kinds-and-software-for-2024/"><u>[Updated] Newbie’s Manual to Vector Art Grasping Different Kinds & Software for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/beginners-blueprint-for-yourwebcamrecord-for-2024/"><u>Beginner's Blueprint for YourWebcamRecord for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-pioneering-strategies-for-success-in-the-spotify-ad-arena/"><u>In 2024, Pioneering Strategies for Success in the Spotify Ad Arena</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/moving-from-32-bit-windows-11-to-the-enhanced-64-bit-version/"><u>Moving From 32-Bit Windows 11 to the Enhanced 64-Bit Version</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/t7-kit-unveiled-next-gen-in-canon-dslr-technology/"><u>T7 Kit Unveiled: Next Gen in Canon DSLR Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-how-to-for-printers-and-photoshop-users/"><u>The Ultimate How-To for Printers and Photoshop Users</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unbeatable-summer-2024-laptop-offers-top-picks-from-zdnet/"><u>Unbeatable Summer 2024 Laptop Offers: Top Picks From ZDNet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-savings-with-these-top-senior-mobile-plans/"><u>Unlock Savings with These Top Senior Mobile Plans</u></a></li>
+</ul></div>
 

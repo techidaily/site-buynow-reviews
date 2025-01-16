@@ -1,7 +1,7 @@
 ---
 title: Affordable RemoBell Doorbells Under $100 - Detailed Product Analysis
-date: 2024-08-10T23:43:41.004Z
-updated: 2024-08-11T23:43:41.004Z
+date: 2025-01-15T12:29:29.818Z
+updated: 2025-01-15T22:14:52.062Z
 categories:
   - BestProducts
 description: This Article Describes Affordable RemoBell Doorbells Under $100 - Detailed Product Analysis
@@ -15,9 +15,6 @@ thumbnail: https://www.lifewire.com/thmb/mZDUOsPvbQNLswTVKscdAIhd7sk=/400x300/fi
 
 ## AmazonBasics Ultra-Thin Antenna
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/rS-RQyeAxU8gdzYheTg1qi5PFEY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
 
 Lifewire / Erika Rawes
@@ -41,14 +38,16 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## AmazonBasics Ultra-Thin Antenna
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -71,9 +70,6 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -95,8 +91,9 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Almost two dozen channels (in a rural area)**
 
  So many things[affect an antenna’s performance](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) —location, household electronics, tree cover, tower location, and more. The antenna displays channels of high quality. However, sometimes the channels would take a few seconds to load, and other times, I’d see a pixelated effect when I first changed the channel that would clear up after a few seconds. Once the picture was fully loaded, it was in clear high definition. The antenna is capable of displaying a clear HD picture, so I couldn’t tell the difference between the antenna’s picture and the picture from streaming services like Hulu or Netflix.
@@ -105,9 +102,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Range: 35 miles**
 
  The AmazonBasics antenna has a 35-mile range, which isn’t very far considering 50 plus miles is becoming more common. It is omnidirectional, however, so you don’t need to point it in a specific direction. It supports UHF/VHF, so I was able to get a decent selection of channels.
@@ -120,12 +114,17 @@ Lifewire / Erika Rawes
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
@@ -153,14 +152,11 @@ Lifewire / Erika Rawes
 * Ports  Coax
 * Cable length  10-foot Coax Cable
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -169,4 +165,26 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-essential-tips-for-youtube-short-fixes/"><u>[New] In 2024, Essential Tips for YouTube Short Fixes</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-masterclass-in-visual-enhancement-from-muted-sdr-to-stunning-hdri/"><u>[New] Masterclass in Visual Enhancement From Muted SDR to Stunning HDRI</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-enhancing-engagement-share-tiktoks-on-twitter/"><u>[Updated] 2024 Approved Enhancing Engagement Share TikToks on Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-twitter-connect-optimizing-your-tiktok-content/"><u>[Updated] 2024 Approved Twitter Connect Optimizing Your TikTok Content</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-visionedit-ace/"><u>[Updated] VisionEdit Ace</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-high-performance-wifi-signal-extenders-of-the-year-2024/"><u>Best High-Performance WiFi Signal Extenders of the Year 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bose-qc30-review-impressive-with-room-for-growth/"><u>Bose QC30 Review: Impressive with Room for Growth</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-conscious-shoppers-rejoice-with-the-lg-24lh4830-a-trustworthy-smart-tv-choice/"><u>Budget-Conscious Shoppers Rejoice with the LG 24LH4830 - A Trustworthy Smart TV Choice</u></a></li>
+<li><a href="https://fox-links.techidaily.com/decoding-the-clues-in-your-facebooks-unseen-activity-trail/"><u>Decoding the Clues in Your Facebook's Unseen Activity Trail</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/low-cost-high-fun-the-ultimate-review-of-the-syma-s111g-indoor-rc-helicopter/"><u>Low-Cost, High-Fun: The Ultimate Review of the Syma S111G Indoor RC Helicopter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-world-of-premium-game-computers/"><u>Navigating the World of Premium Game Computers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/perfect-harmony-between-macs-and-software-an-expert-take-on-the-benefits-of-freestyle2-blue/"><u>Perfect Harmony Between Macs and Software: An Expert Take on the Benefits of Freestyle2 Blue</u></a></li>
+<li><a href="https://windows11.techidaily.com/preventing-in-use-errors-a-guide-for-windows-users-153-chars/"><u>Preventing In Use Errors: A Guide for Windows Users (153 Chars)</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/resolve-camera-error-code-0xa00f4244-tips-for-a-smooth-operation-in-windows-11-systems/"><u>Resolve Camera Error Code 0xA00F4244: Tips for a Smooth Operation in Windows 11 Systems</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723125180330-save-big-with-our-top-pick-the-amazing-eleegoo-neptune-4-pro-now-just-240-at-newegg/"><u>Save Big with Our Top Pick - The Amazing Eleegoo Neptune 4 Pro, Now Just $240 at Newegg</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/step-by-step-tutorial-enhancing-your-photos-using-apples-integrated-image-editor-preview/"><u>Step-by-Step Tutorial: Enhancing Your Photos Using Apple's Integrated Image Editor, Preview</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/stepwise-approach-to-update-meet-username-laptopmobile/"><u>Stepwise Approach to Update Meet Username (Laptop/Mobile)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-gamers-guide-in-depth-nvidia-shield-tv-pro-review/"><u>Ultimate Gamer's Guide: In-Depth NVIDIA Shield TV Pro Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-evaluating-the-2v-clearstream-hdtv-antenna-high-quality-meets-modern-aesthetics/"><u>Unboxing and Evaluating the 2V ClearStream HDTV Antenna: High Quality Meets Modern Aesthetics</u></a></li>
+</ul></div>
 

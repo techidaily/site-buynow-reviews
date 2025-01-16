@@ -1,7 +1,7 @@
 ---
 title: "Retro Meets New Age in Ratchet & Clank Review: An Iconic Journey Reimagined"
-date: 2025-01-03T19:42:27.252Z
-updated: 2025-01-10T17:56:47.053Z
+date: 2025-01-14T04:13:55.060Z
+updated: 2025-01-16T07:51:21.261Z
 categories:
   - BestProducts
 description: "This Article Describes Retro Meets New Age in Ratchet & Clank Review: An Iconic Journey Reimagined"
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/c0270bb78c702f180d69e641fb9f373f4cd07e8ef
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/JA3JlwOuidCKxo4M92FWCfYUoI4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Kelsey Simon
 
  What We Like
@@ -41,17 +45,9 @@ Lifewire / Kelsey Simon
 
 3.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/8XGs9qzQ6hLIBySEKXEvBMfEkq4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -75,21 +71,17 @@ Lifewire / Kelsey Simon
 
  The Elder Scrolls V: Skyrim is an action role-playing game focused on single-player immersion in a fantasy world. It was originally released in 2011 and has most recently been ported over to the Switch. We took a close look at this game on its newest platform, playing it on the go to test the handheld gameplay experience, along with the plot and graphics.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Simple for all users**
 
  As with other games on the Nintendo Switch, you’ll need to insert the cartridge into your device. Skyrim does take a while to launch, so be patient as it loads up. There shouldn’t be any special downloads required, like with other games, and as soon as things load you’ll be able to play.
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/uXDVHaBrdIlv5tI-qRgiPK0Iig4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460721-e6a53664e7eb4e65a75bf5cceb928e28.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Plot: A huge world with loads to explore**
 
@@ -108,6 +100,10 @@ Lifewire / Kelsey Simon
  When it comes to role-playing games, Skyrim balances player control perfectly with world immersion. You can learn everything there is to know about the world of Skyrim if you wish, or you can just run along killing things and doing the main missions. It’s really up to you.
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/1fxH7ty_kqxpugJDk2tIQndKvI0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546078-6bdc67e56311473f9c1edeab00d2caa5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -147,11 +143,11 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/Iik6f_7RIRMWo5R6zGYxgGeL4n0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546076-8fb741faa7144fa6bafe386d2b7d8296.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Price: A tad expensive**
 
@@ -159,11 +155,11 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Other action RPGs**
 
@@ -174,6 +170,10 @@ Lifewire / Kelsey Simon
 **Good if you want to play on the go.**
 
  Even though The Elder Scrolls V: Skyrim is a great game and the Switch is an amazing platform, our advice is only to buy Skyrim for the Switch if you’re looking to play on the go. Otherwise, we’d suggest purchasing Skyrim for the PC, where you’ll really be able to enjoy superior graphics and customization options.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -203,20 +203,22 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-seamless-srt-to-text-transformation-a-modern-technique/"><u>[Updated] 2024 Approved Seamless SRT-to-Text Transformation A Modern Technique</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-image-integrity-keeping-quality-high-during-iphone-crops/"><u>[Updated] In 2024, Image Integrity Keeping Quality High During iPhone Crops</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-are-there-restrictions-in-saving-youtube-videos/"><u>2024 Approved Are There Restrictions in Saving YouTube Videos?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-logitech-c615-camcorder-appraisal-balancing-quality-with-cost-efficiency/"><u>Comprehensive Logitech C615 Camcorder Appraisal - Balancing Quality with Cost-Efficiency</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/cost-effective-tp-link-re200-wifi-range-amplifier-assessment-the-balance-of-quality-and-price/"><u>Cost-Effective TP-Link RE200 WiFi Range Amplifier Assessment - The Balance of Quality and Price</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/drone-vfx-experience-try-no-cost-luts-on-mini-and-air-drones/"><u>Drone VFX Experience – Try No-Cost LUTS on Mini & Air Drones</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/drones-in-a-rivalry-dji-inspire-one-vs-gopro-karma-x-for-2024/"><u>Drones in a Rivalry DJI Inspire One Vs GoPro Karma X for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/effective-methods-for-downloading-and-implementing-asus-atk0100-acpi-drivers/"><u>Effective Methods for Downloading and Implementing ASUS ATK0100 ACPI Drivers</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-smart-picks-user-friendly-bd-software-for-pc-and-mac/"><u>In 2024, Smart Picks User-Friendly BD Software for PC and Mac</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/introducing-amazon-halo-a-revolutionary-and-intimately-insightful-health-monitor/"><u>Introducing Amazon Halo: A Revolutionary and Intimately-Insightful Health Monitor</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/master-the-art-of-game-trading-among-friends-on-your-xbox-one-console/"><u>Master the Art of Game Trading Among Friends on Your Xbox One Console</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-honor-x9b-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Honor X9b Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sonys-cat-s42-toughphone-unveiled-robust-construction-yet-limited-in-velocity/"><u>Sony's CAT S42 Toughphone Unveiled: Robust Construction, Yet Limited in Velocity</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-understanding-the-new-iphone-13-specifications/"><u>The Ultimate Guide to Understanding the New iPhone 13 Specifications</u></a></li>
-<li><a href="https://media-tips.techidaily.com/transform-your-wmv-media-the-ultimate-guide-to-creating-stunning-mov-format-videos/"><u>Transform Your WMV Media: The Ultimate Guide to Creating Stunning MOV Format Videos</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-unveiling-nitro-understanding-and-obtaining-discords-premium-tier/"><u>[New] In 2024, Unveiling Nitro Understanding & Obtaining Discord's Premium Tier</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-minecraft-homestead-essentials-6-10/"><u>[Updated] In 2024, Minecraft Homestead Essentials #6-10</u></a></li>
+<li><a href="https://extra-information.techidaily.com/assessing-gopro-hero5-session-quality/"><u>Assessing GoPro Hero5 Session Quality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bluetooth-compatible-space-saving-universal-keyboard-by-moko-highly-portable/"><u>Bluetooth Compatible, Space-Saving Universal Keyboard by MoKo: Highly Portable</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-smartphone-revealed-zte-blade-a3y-delivers-solid-features-at-great-value/"><u>Budget Smartphone Revealed: ZTE Blade A3Y Delivers Solid Features at Great Value</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-the-netgear-nighthawk-c7000-exceptional-wireless-router-uncovered/"><u>Comprehensive Evaluation of the Netgear Nighthawk C7000 - Exceptional Wireless Router Uncovered</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/encodeur-et-convertisseur-hevc-h265-options-premium-pour-plateformes-windows-11-et-mac/"><u>Encodeur Et Convertisseur HEVC H.265 : Options Premium Pour Plateformes Windows 11 Et Mac</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/how-to-download-and-make-unique-instagram-ringtone-solo-for-2024/"><u>How to Download & Make Unique Instagram Ringtone Solo for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-nokia-130-music-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Nokia 130 Music to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-gif-transformation-to-stickers-on-whatsapp-discord-and-telegram/"><u>In 2024, Mastering GIF Transformation To Stickers on WhatsApp, Discord & Telegram</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-messages-after-infinix-note-30-vip-has-been-deleted-by-fonelab-android-recover-messages/"><u>Recover your messages after Infinix Note 30 VIP has been deleted</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-beauty-and-adaptability-a-comprehensive-review-of-dell-xps-13-7390s-2-in-1-ultrabook-features/"><u>Unveiling the Beauty and Adaptability: A Comprehensive Review of Dell XPS 13 7390'S 2-in-1 Ultrabook Features</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unveiling-the-best-of-ai-file-analysis-via-gpt/"><u>Unveiling the Best of AI: File Analysis via GPT</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722621310891-unveiling-the-portable-powerhouse-the-pioneer-bdr-xs06s-blu-ray-burning-excellence-reviewed/"><u>Unveiling the Portable Powerhouse: The Pioneer BDR-XS06's Blu-Ray Burning Excellence Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-secrets-of-the-kobo-libra-h2o-the-future-proof-water-resistant-ereader-for-book-lovers/"><u>Unveiling the Secrets of the Kobo Libra H2O: The Future-Proof, Water-Resistant Ereader for Book Lovers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/which-smart-speaker-wins-comparing-google-assistant-and-alexa-for-you/"><u>Which Smart Speaker Wins? Comparing Google Assistant & Alexa for You</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ws-2902a-osprey-ambient-weather-station-high-performance-at-affordable-prices-a-comprehensive-review/"><u>WS-2902A Osprey Ambient Weather Station: High Performance at Affordable Prices - A Comprehensive Review</u></a></li>
 </ul></div>
 

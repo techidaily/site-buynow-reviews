@@ -1,7 +1,7 @@
 ---
 title: "Affordable Microsoft Surface Laptop Go Critique: The Perfect Mix of Mobility & Power"
-date: 2024-08-10T23:40:51.426Z
-updated: 2024-08-11T23:40:51.426Z
+date: 2025-01-10T14:39:47.564Z
+updated: 2025-01-16T05:09:16.102Z
 categories:
   - BestProducts
 description: "This Article Describes Affordable Microsoft Surface Laptop Go Critique: The Perfect Mix of Mobility & Power"
@@ -13,11 +13,12 @@ thumbnail: https://thmb.techidaily.com/2749ec4be60f0504bc654efda73e1c73772893136
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fitbit Versa Lite
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![Fitbit Versa Lite](https://www.lifewire.com/thmb/cLfckr_Y6BZxrI48GvfteHPwShs=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4057119-HeroSquare-771afa6a985240f0ab5fe71246b3d502.jpg)
 
 Lifewire / Todd Braylor
@@ -40,10 +41,6 @@ Lifewire / Todd Braylor
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## Fitbit Versa Lite
 
 ![Fitbit Versa Lite](https://www.lifewire.com/thmb/O7QnNkdge4zffV7BYmgcQZadk2I=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4057119-HeroSquare-771afa6a985240f0ab5fe71246b3d502.jpg)
@@ -73,12 +70,17 @@ Lifewire / Todd Braylor
 
  With an attractive price point to match it's confident smartwatch identity, the Versa Lite succeeds at combining affordability and function, striking a fine balance between being a little computer on your wrist and a delimited fitness tool.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Fitbit Versa Lite](https://www.lifewire.com/thmb/A3jXmqXMfkFi3FKj8NYHxxYKi84=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4057119-03-849db13f6309480cb88c9d05e512f1a1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Todd Braylor
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Customizable and instinctive**
 
@@ -96,6 +98,10 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Quick-tips and syncing**
 
  The Fitbit Versa Lite is quick and easy to set up—the most involved part of the process is downloading the Fitbit app to your smartphone and connecting it to your watch. The Fitbit app is available for both iOS and Android platforms, and syncing it to the Versa Lite via Bluetooth is very straightforward.
@@ -106,9 +112,6 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Comfort: Attractive and confident wearability**
 
  The Fitbit Versa Lite feels nice in your hands and on your wrist. The device is relatively lightweight at 1.41 ounces and the screen unit sits naturally on the back of your wrist. The Versa Lite comes with two wristbands, one small and one large, measuring four and 5.25 inches long. Both are a little less than an inch wide and are made of a smooth, soft polymer material which is very comfortable for extended periods of wear.
@@ -116,6 +119,10 @@ Lifewire / Todd Braylor
  Size-wise, it’s not the most ideal fitness tracker for sleep monitoring. It really feels like you are wearing a watch to bed.
 
  Aesthetically, the Versa Lite's screen and wrist band are attractive and look sleek. You can confidently wear the Versa Lite in any professional setting—it's good-looking but not overly flashy. Size-wise, it’s not the most ideal fitness tracker for sleep monitoring. It really feels like you are wearing a watch to bed and you might find yourself wanting to leave it on the bedside table instead.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Lean and effective**
 
@@ -135,29 +142,27 @@ Lifewire / Todd Braylor
 
  It is unclear how many users are affected by this glitch (it seems other users are unaffected) but we experienced it with the Versa Lite Edition we tested. The only way for us to exit the swim exercise app was to hold down the side button for about 10 seconds in order to escape with the factory power cycle feature. This was one of the only significant flaws we found with the Versa Lite, but it did mean that all data for the swim workout was lost after restarting the Fitbit. This essentially rendered the swim mode unusable on our unit.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![Fitbit Versa Lite](https://www.lifewire.com/thmb/97XADSG__Ti-9y6W9YfT6A-sRLg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4057119-04-a5baf62c5de749cb93986be2eab3ad2d.jpg)
 
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Battery Life: Days of activity**
 
  Fitbit promised four or more days of battery life for the Versa Lite, and they weren’t lying. The Versa Lite we tested lasted almost four and a half days before draining all the way down to zero. This made so many days of daily wear and daily runs seem hassle-free.
 
  It also charged back up to 100% in just about two hours—for a device that gives you a range of stats, this speedy battery top-up means the fitness freaks among us won't have to sacrifice too much time away from our metrics.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Fitbit Versa Lite](https://www.lifewire.com/thmb/NkHZ0M514IlrqowHF6M_QWHxgj8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4057119-06-be4c149f1dff4214acfe0fbc3a4d63e6-1-f6f110eb54e142c992dd3f613bdb9f28.jpg)
 
 Lifewire / Todd Braylor
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Key Features: Fitbit basics plus apps for any activity**
 
@@ -167,9 +172,6 @@ Lifewire / Todd Braylor
 
  A host of other smartwatch apps come standard with the Versa Lite, including alarms, a weather app, a stopwatch, a relaxation app that guides you through short mindfulness exercises, and the specific exercise apps mentioned above. As far as additional apps for the Versa Lite, this is it—the Lite Edition does not have the ability to add extra apps.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: A deal for under $200**
 
  Retailing for $159.95 and occasionally selling for less on sale, the Versa Lite is a price-conscious but solid piece of tech that prioritizes exercise. It's a great introduction to the smartwatch lifestyle with all the notifications you need to be connected and without an overwhelming amount of distractions.
@@ -192,9 +194,6 @@ Lifewire / Todd Braylor
 
  Though we can’t recommend this watch to swimmers (pending a potential software solution for that glitch), the Fitbit Versa Lite is a great way to chart your progress throughout a training program or competitive season. The combination of the Fitbit Basics and dedicated exercise apps makes this watch both an insightful wellness monitor for everyday activity and a great tool for tracking your fitness progress.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Garmin Forerunner 945](https://www.lifewire.com/garmin-forerunner-945-review-4768586)
@@ -220,14 +219,11 @@ Lifewire / Todd Braylor
 * Memory Capacity  7 days of activity data, 30 days of daily totals
 * What's included  Fitbit Versa Lite Edition watch, small wrist band, large wrist band, USB charging cradle
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -236,4 +232,26 @@ Lifewire / Todd Braylor
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-avoiding-unwanted-accounts-on-insta/"><u>[New] Avoiding Unwanted Accounts on Insta</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-free-tools-top-5-screen-recorder-apps-for-chrome-devices/"><u>[New] Free Tools Top 5 Screen Recorder Apps for Chrome Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-demystifying-video-profit-on-youtube-for-2024/"><u>[Updated] Demystifying Video Profit on YouTube for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unlocking-video-potential-top-9-tips-for-vr-storytelling/"><u>[Updated] Unlocking Video Potential Top 9 Tips for VR Storytelling</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/delineating-differences-between-apples-ipad-pro-and-macbook-pro-models/"><u>Delineating Differences Between Apple's iPad Pro and MacBook Pro Models</u></a></li>
+<li><a href="https://win-answers.techidaily.com/disco-elysium-dlc-not-launching-heres-how-you-can-overcome-installation-errors-on-pc/"><u>Disco Elysium DLC Not Launching? Here's How You Can Overcome Installation Errors on PC</u></a></li>
+<li><a href="https://fox-links.techidaily.com/essential-guide-to-creating-stunning-timelapses-using-gopro-software/"><u>Essential Guide to Creating Stunning Timelapses Using GoPro Software</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-evaluation-unpacking-the-features-of-netgear-c3700-dual-purpose-device/"><u>Expert Evaluation: Unpacking the Features of Netgear C3700 Dual-Purpose Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/flexispot-theodore-standing-desk/"><u>Flexispot Theodore Standing Desk</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-comprehensive-guide-to-mastering-facetune-app-features/"><u>In 2024, The Comprehensive Guide to Mastering Facetune App Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-examination-unveiling-the-features-of-nook-glowlight-4/"><u>In-Depth Examination: Unveiling the Features of Nook GlowLight 4</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-why-nokia-31-is-your-go-to-starter-smartphone/"><u>In-Depth Review: Why Nokia 3.1 Is Your Go-To Starter Smartphone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-new-kid-on-the-block-better-in-depth-analysis-of-galaxy-s24-ultra-vs-s23-ultra/"><u>Is the New Kid on the Block Better? In-Depth Analysis of Galaxy S24 Ultra Vs. S23 Ultra</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maxing-out-your-ears-and-wallet-on-apples-headphones/"><u>Maxing Out Your Ears & Wallet on Apple's Headphones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reviewing-escorts-latest-innovation-multi-functional-radar-detector-with-cutting-edge-gps-features/"><u>Reviewing Escort's Latest Innovation: Multi-Functional Radar Detector with Cutting-Edge GPS Features</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/streamlining-your-subtitles-top-10-web-based-editors-reviewed/"><u>Streamlining Your Subtitles Top 10 Web-Based Editors Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-djis-latest-innovation-mavic-e-airborne-camera/"><u>The Ultimate Review of DJI's Latest Innovation - Mavic E Airborne Camera</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/troubleshooting-your-unresponsive-printer-insights-from-yl-computings-expertise/"><u>Troubleshooting Your Unresponsive Printer: Insights From YL Computing's Expertise</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/uncover-the-secrets-of-hardware-with-toms-pro-reviews/"><u>Uncover the Secrets of Hardware with Tom's Pro Reviews</u></a></li>
+</ul></div>
 

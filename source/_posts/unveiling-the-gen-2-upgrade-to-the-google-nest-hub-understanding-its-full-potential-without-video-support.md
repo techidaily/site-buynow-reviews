@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Gen 2 Upgrade to the Google Nest Hub - Understanding Its Full Potential Without Video Support
-date: 2025-01-06T22:56:15.733Z
-updated: 2025-01-10T22:57:26.834Z
+date: 2025-01-12T08:28:22.391Z
+updated: 2025-01-16T11:02:08.211Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Gen 2 Upgrade to the Google Nest Hub - Understanding Its Full Potential Without Video Support
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/_nOB6lzooA58y-fATbEsfRW2Rn8=/400x300/fi
 ## Cyberpunk 2077
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/lg-rMa42Ti9heFLfXVc2qNkjwk0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cyberpunk-2077-1-d90f62b5a126437681da9916c0360527.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -85,10 +81,14 @@ Andy Zahn / Lifewire
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/YQBwL9wFHphVzIqJYlYwd0J2OYU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-2-7e358ac09a2c48fbb0f6aaec1e9381e9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Story: Engaging and well written
 
@@ -102,6 +102,10 @@ Andy Zahn / Lifewire
 
  Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Gameplay: Fun, but deeply flawed
 
  As with the game as a whole, Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows. It does some things very well and stumbles bafflingly in other regards. The game mostly takes place in the first person, with third-person view being an option while driving.
@@ -109,6 +113,10 @@ Andy Zahn / Lifewire
  Driving is not what I’d call a perfect experience in either third or first-person modes. Though beautifully designed and widely varied, vehicles tend to have little weight to them, and you really have to work to avoid careening about the road, running over pedestrians, and attracting the tepid attention of the police. They all also seem to be in desperate need of a new set of brakes, and to make matters worse the AI for the NPC vehicles is very simple indeed. Park your car with a bit of it sticking out into the road and a line will quickly build up as these simpletons exhibit infinite patience rather than simply go around.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/NwK7qVv8XDmr_i0b9XzULnmPZ9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-5-664cae2e38304560a7d6fc3ce2a84335.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -123,10 +131,6 @@ Andy Zahn / Lifewire
  If you want to avoid conflict and don’t want to slow down for stupid drivers, your best bet is a motorcycle, and it is indeed a blast to go zipping through the streets dodging through gaps in traffic. For some reason, motorcycles control much more reliably than cars, and a cynical mind might suppose that more care was put into motorcycle control due to Cyberpunk featuring the brand of motorcycle owned by a major celebrity who plays a part in the game’s story.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/ByBdwophc_bSfdD-P0CfbqJgbwY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-7-e6be7e2c1ae24ac3a1c5dbfd4a5b595a.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -160,10 +164,6 @@ Andy Zahn / Lifewire
 
 At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Bugs: Welcome to Glitch City
 
  At launch Cyberpunk 2077 is something of a bug-riddled mess. Even a few months and a few patches later it’s very noticeably in need of major fixes. Right out of the gate I found a collectible card that can only be picked up during the intro, but the game refused to allow me to pick it up, so I was forced to leave it sitting there forlornly, forever gnawing at the completionist streak in me.
@@ -176,7 +176,15 @@ At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/JM3cD1pX6maee1yiQYZnSgc-9pw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-4-624da4fa8225434eb59ba999a53dafd6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Mature content: Pushing the boundaries
 
@@ -198,10 +206,6 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/toUXDFSRFZjol-BOgnhnVEyJTYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-8-7b54b824c3bc4dcfb04234f69204d2f6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Andy Zahn / Lifewire
 
  If you don’t have a ray tracing enabled card, you may want to think twice about Cyberpunk 2077 until you’re able to upgrade. It’s playable on older cards, but the incredible visuals of this game running on high-end hardware are such an integral part of the experience that it’s hard to recommend running in a reduced capacity. The same goes for last-gen consoles ([PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) ,[Xbox One](https://www.lifewire.com/xbox-one-buyers-guide-3562291) ), where the experience is also greatly impacted by reduced processing power. Players are reporting the worst issues on these older consoles, where Cyberpunk appears to be almost unplayable for many.
@@ -209,10 +213,6 @@ Andy Zahn / Lifewire
  The[PS5](https://www.lifewire.com/sony-playstation-5-review-5088394) and[Xbox Series X](https://www.lifewire.com/microsoft-xbox-series-x-review-one-power-packed-4k-console-5088039) may offer a more consistent experience (though not equivalent to high-end PC), but like 30 series Nvidia GPUs these devices are in high demand and short supply, and you won’t be free of bugs, glitches, and performance issues even there.
 
  An alternative worth considering if you have a robust high-speed internet connection is streaming the game on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) . This will allow you to experience the game at its best without having to invest in a two thousand dollar PC. However, it does leave your ability to play the game at the mercy of your ability to access a strong internet connection.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Graphics: Ahead of its time
 
@@ -234,21 +234,21 @@ Andy Zahn / Lifewire
 
 Andy Zahn / Lifewire
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Multiplayer: Absent for the moment
 
  At launch and for long after Cyberpunk 2077 will be a single-player game. However, CDPR has said that a few years down the road they will be launching a multiplayer mode, and a lot of people are looking forward to that. Of course, it is impossible to predict if this will be any good or if some circumstances might prevent its release, but there is a lot of potential for Cyberpunk to become a better experience when Night City goes online. With that said, CDPR really needs to fix the single-player game before they even think about launching multiplayer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Price: A refreshing lack of micro-transactions
 
  At $60 with no extra monetization at launch, Cyberpunk 2077 is something of a bargain. Take this with a grain of salt though, as this situation could change dramatically once the multiplayer mode is released.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Cyberpunk 2077 vs. Assassin’s Creed: Valhalla
 
@@ -288,24 +288,15 @@ Andy Zahn / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-5-tools-for-cutting-edge-video-title-and-tag-generation/"><u>[New] In 2024, 5 Tools for Cutting Edge Video Title & Tag Generation</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-behind-the-screen-essential-post-vidcon-gatherings/"><u>[New] In 2024, Behind the Screen Essential Post-VidCon Gatherings</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-boosting-visual-impact-incorporate-apple-music-for-2024/"><u>[Updated] Boosting Visual Impact Incorporate Apple Music for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-top-strategies-to-maximize-win11-usage/"><u>[Updated] Top Strategies to Maximize Win11 Usage</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-skyrocket-your-storage-top-20-free-cloud-services-to-choose-from-1tbplus/"><u>2024 Approved Skyrocket Your Storage - Top 20 Free Cloud Services to Choose From (1TB+)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/classroom-ready-tech-a-comprehensive-asus-chromebook-c202sa-review-for-learners-of-all-ages/"><u>Classroom Ready Tech: A Comprehensive Asus Chromebook C202SA Review for Learners of All Ages</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comparing-the-best-apple-ipad-air-t-vs-samsung-galaxy-tab-s7plus/"><u>Comparing the Best: Apple iPad Air T Vs. Samsung Galaxy Tab S7+</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enhanced-apple-watch-series-4-evaluation-a-step-further-in-excellence/"><u>Enhanced Apple Watch Series #4 Evaluation: A Step Further in Excellence</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/essential-screen-recording-tools-a-comprehensive-educators-guide/"><u>Essential Screen Recording Tools A Comprehensive Educator's Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-unparalleled-data-transfer-the-ultimate-review-of-extollos-cutting-edge-lansocket-1500/"><u>Experience Unparalleled Data Transfer: The Ultimate Review of Extollo's Cutting-Edge LANSocket 1500</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/future-of-fb-ads-whats-a-must-try/"><u>Future of FB Ads – What’s a Must-Try?</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-gopro-quik-review-is-it-the-best-video-editor-for-your-needs-for-2024/"><u>New GoPro Quik Review Is It the Best Video Editor for Your Needs for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/pixel-battles-which-is-better-the-nintendo-switch-lite-or-the-new-oled-model/"><u>Pixel Battles: Which Is Better, the Nintendo Switch Lite or the New OLED Model?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-chats-with-tangos-voice-and-video-free-calling-feature/"><u>Revolutionize Your Chats with Tango's Voice & Video Free Calling Feature!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-art-of-gaming-pcs-a-detailed-review-of-corsair-one-pro-efficiency-and-innovation/"><u>The Art of Gaming PCs - A Detailed Review of Corsair One Pro Efficiency and Innovation</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782305-9781591438663-the-double-goddess/"><u>The Double Goddess | Free Book</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/transform-your-career-with-the-most-effective-linkedin-learning-programs-of-2024/"><u>Transform Your Career with the Most Effective LinkedIn Learning Programs of 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/ultimate-list-top-10-high-res-4k-cameras-in-smartphones/"><u>Ultimate List Top 10 High-Res 4K Cameras in Smartphones</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-embrace-e-reading-kindle-unlimiteds-four-key-pros/"><u>Why Embrace E-Reading? Kindle Unlimited’s Four Key Pros</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/comment-arreter-la-reinitialisation-automatique-et-le-redemarrage-incessant-sur-votre-ordinateur-avec-windows-10-guideline-rapide/"><u>Comment Arrêter La Réinitialisation Automatique Et Le Redémarrage Incessant Sur Votre Ordinateur Avec Windows 10 - Guideline Rapide!</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/comprehensive-breakdown-of-polarr-photo-editors-features/"><u>Comprehensive Breakdown of Polarr Photo Editor's Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/essential-buyers-guide-to-the-budget-friendly-amazon-kindle-of-2019/"><u>Essential Buyer's Guide to the Budget-Friendly Amazon Kindle of 2019</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-the-beast-detailed-examination-of-the-giant-amongst-galaxys-remote-control-trucks-the-ford-f-150-edition/"><u>Experience the Beast: Detailed Examination of the Giant Amongst Galaxy's Remote Control Trucks - The Ford F-150 Edition</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-itel-a60-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Itel A60 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/highly-rated-philips-somneo-analysis-leading-alarm-clocks-unveiled/"><u>Highly Rated Philips Somneo Analysis: Leading Alarm Clocks Unveiled</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-on-xiaomi-redmi-note-12-pro-4g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Xiaomi Redmi Note 12 Pro 4G Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-google-nest-mini-camera-exploring-facial-recognition-and-innovative-delivery-notifications/"><u>In-Depth Analysis of the Google Nest Mini Camera: Exploring Facial Recognition & Innovative Delivery Notifications</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/maximizing-gaming-experience-optimal-ps4-camera-setup-tips/"><u>Maximizing Gaming Experience: Optimal PS4 Camera Setup Tips</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unraveling-the-mystery-of-0x80072af9-failure/"><u>Unraveling the Mystery of 0X80072AF9 Failure</u></a></li>
 </ul></div>
 
