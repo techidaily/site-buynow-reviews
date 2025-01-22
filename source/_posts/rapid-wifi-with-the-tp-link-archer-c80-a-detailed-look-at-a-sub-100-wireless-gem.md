@@ -1,7 +1,7 @@
 ---
 title: Rapid WiFi with the TP-Link Archer C80 - A Detailed Look at a Sub-$100 Wireless Gem
-date: 2024-12-31T00:01:26.300Z
-updated: 2025-01-03T20:55:44.246Z
+date: 2025-01-18T17:12:34.279Z
+updated: 2025-01-22T18:35:25.337Z
 categories:
   - BestProducts
 description: This Article Describes Rapid WiFi with the TP-Link Archer C80 - A Detailed Look at a Sub-$100 Wireless Gem
@@ -19,7 +19,7 @@ thumbnail: https://www.lifewire.com/thmb/hnfn1HKm08TJxpBixlaHeqOfiug=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router
@@ -47,6 +47,10 @@ Lifewire / Erika Rawes
 [View On Amazon $199](https://www.amazon.com/dp/B07P3FGKYD?tag=lifewire-onsite-prod-20&ascsubtag=4942498%7Cn31dea18fa28a4d9a88e5e3a62470a49720%7CB07P3FGKYD) [View On Adorama.com $450](https://www.adorama.com/nerax120100n.html?utm%5Fsource=google&utm%5Fmedium=organic&utm%5Fcampaign=organicshopping&utm%5Fsource=adl-gbase-hometech) [View On B&H Photo Video $399](https://www.bhphotovideo.com/c/product/1469206-REG/netgear%5Frax120%5Fnighthawk%5Fax12%5F12%5Fstream%5Fwifi.html)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router
 
@@ -86,6 +90,10 @@ Lifewire / Erika Rawes
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/fw0FJuD9bAOkQEHuAZ9OFq5toXk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_05-2a03227466354aad82fe55b884b76ac6-4d18f476974a44b081aafc943a8e56b1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 ## **Setup: Quick and easy**
@@ -104,14 +112,10 @@ Lifewire / Erika Rawes
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/y2V4Ncx3Z1ul8B-4lsc_IeiyCRQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_04-9e452ddedd2b4a46893fddd147c06d4f.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Network performance: Stellar**
@@ -139,7 +143,7 @@ Lifewire / Erika Rawes
  The router has two USB 3.0 storage ports on the back for connecting an external hard drive.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: Nighthawk App**
@@ -147,10 +151,6 @@ Lifewire / Erika Rawes
  In the Nighthawk app, you can change your router’s settings, create a guest network, control your router remotely, manage your devices individually, and you can test your network speeds. However, when testing my network speeds, they consistently clock much faster on the Nighthawk app than on other platforms like Ookla and VeeApps.
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/MPwp1LtMC7Ua30t8VnJy7bjuqn4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_02-94fbae95ca5d4851a1cf40b197da4161.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -169,7 +169,7 @@ Lifewire / Erika Rawes
  The Nighthawk RAX120 performs impressively, but it‘s costly and lacks some user-friendly features like strong parental controls and easy-to-manage antivirus, so it’ll be more desirable for those with heavier networking demands than the average user.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -210,24 +210,17 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-help.techidaily.com/new-6-free-software-to-convert-youtube-to-mp3-for-iphone/"><u>[New] 6 Free Software to Convert YouTube to MP3 for iPhone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-exploring-dells-bold-move-with-the-latest-p2715q-monitor-review/"><u>[Updated] 2024 Approved Exploring Dell's Bold Move with the Latest P2715Q Monitor Review</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-mastering-facebook-visuals-adding-text-boxes-and-dark-bar-overlays-for-2024/"><u>[Updated] Mastering Facebook Visuals Adding Text Boxes & Dark Bar Overlays for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-selective-enhancements-for-optimal-gopro-use/"><u>[Updated] Selective Enhancements for Optimal Gopro Use</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-experience-the-thrill-of-kinemaster-and-rank-10-online-alternatives-alike/"><u>2024 Approved Experience the Thrill of KineMaster and Rank 10 Online Alternatives Alike</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-innovation-in-action-top-video-editing-strategies/"><u>2024 Approved Innovation in Action Top Video Editing Strategies</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-legally-safe-chants-and-tunes-the-ultimate-meditation-list/"><u>2024 Approved Legally Safe Chants & Tunes - The Ultimate Meditation List</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-mobvoi-ticwatch-pro-3-evaluation-how-the-dual-screens-enhance-endurance/"><u>Comprehensive Mobvoi TicWatch Pro 3 Evaluation: How the Dual Screens Enhance Endurance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-unmatched-durability-meets-straightforward-configuration-in-the-acurite-pro-weather-station-01036m/"><u>Comprehensive Review: Unmatched Durability Meets Straightforward Configuration in the AcuRite Pro Weather Station 01036M</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/could-a-new-ipad-enhance-your-daily-experience-more-than-your-outdated-model/"><u>Could a New iPad Enhance Your Daily Experience More Than Your Outdated Model?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-asus-rt-ac68u-a-perfect-blend-of-speed-and-security-in-modern-5g-wi-fi-technology/"><u>Evaluating the Asus RT-AC68U: A Perfect Blend of Speed and Security in Modern 5G Wi-Fi Technology</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-s17t-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo S17t by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-poco-x5-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Poco X5 to Gmail | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-netgear-nighthawk-x6-wi-fi-booster-unit-a-comprehensive-review/"><u>In-Depth Analysis of Netgear Nighthawk X6 Wi-Fi Booster Unit: A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-nokia-31-a-beginners-dream-device/"><u>In-Depth Look at the Nokia 3.1 - A Beginner's Dream Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/pinnacle-cars-secret-code-solvers-2024-insights/"><u>Pinnacle Cars' Secret Code Solvers - 2024 Insights</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-art-of-decreasing-audio-intensity-in-logic-pro-for-2024/"><u>The Art of Decreasing Audio Intensity in Logic Pro for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-list-of-fun-games-perfect-for-your-next-downtime-session/"><u>Ultimate List of Fun Games Perfect for Your Next Downtime Session</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unraveling-the-mystery-how-does-the-netgear-c3000-stack-against-modern-modem-routers-in-a-comparative-analysis/"><u>Unraveling the Mystery: How Does the Netgear C3000 Stack Against Modern Modem-Routers in a Comparative Analysis?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-boost-youtube-video-performance-with-rapid-rendering-methods/"><u>[Updated] Boost YouTube Video Performance with Rapid Rendering Methods</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/altering-default-settings-to-use-a-different-app-for-music-files-tips-from-yl-computing/"><u>Altering Default Settings to Use a Different App for Music Files - Tips From YL Computing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-the-best-features-of-the-hp-chromebook-11-your-trusted-partner-in-learning-working-and-gaming/"><u>Discovering the Best Features of the HP Chromebook 11 - Your Trusted Partner in Learning, Working, and Gaming</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/high-performance-low-cost-dive-into-the-tp-link-archer-a9-router-for-less-than-a-hundred-bucks/"><u>High Performance, Low Cost: Dive Into the TP-Link Archer A9 Router for Less than a Hundred Bucks!</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-iphone-6-plus-without-a-passcode-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your iPhone 6 Plus Without a Passcode</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-about-motorola-moto-g84-5g-frp-bypass-by-drfone-android/"><u>In 2024, About Motorola Moto G84 5G FRP Bypass</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Itel P55 5G? | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/mending-corrupted-mp4-files/"><u>Mending Corrupted MP4 Files</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/test-drive-the-future-of-convenience-with-maxoaks-185wh50000mah-charger-a-detailed-user-experience-report/"><u>Test Drive the Future of Convenience with MaxOak’s 185Wh/50,000mAh Charger – A Detailed User Experience Report</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-selection-of-top-5-best-android-photo-apps-for-2024/"><u>The Ultimate Selection of Top 5 Best Android Photo Apps for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-lenovo-ideapad-130s-balancing-portable-strength-and-user-experience/"><u>Unveiling the Lenovo IdeaPad 130S: Balancing Portable Strength and User Experience</u></a></li>
 </ul></div>
 

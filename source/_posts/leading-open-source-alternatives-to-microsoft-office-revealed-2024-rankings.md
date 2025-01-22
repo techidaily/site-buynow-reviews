@@ -1,7 +1,7 @@
 ---
 title: "Leading Open Source Alternatives to Microsoft Office Revealed: 2024 Rankings"
-date: 2025-01-09T09:35:40.891Z
-updated: 2025-01-16T14:44:26.976Z
+date: 2025-01-17T19:21:25.317Z
+updated: 2025-01-22T18:41:04.857Z
 categories:
   - BestProducts
 description: "This Article Describes Leading Open Source Alternatives to Microsoft Office Revealed: 2024 Rankings"
@@ -46,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/96b0dc304ed2f0b22e595834a3c54ad2566287334
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Best Overall
 
 [Logitech Ergo K860](https://www.amazon.com/Logitech-Wireless-Ergonomic-Keyboard-Wrist/dp/B07ZWK2TQT/?tag=lifewire-onsite-prod-20&ascsubtag=4147386%7Cn326e10e09a2e4a42be05879465b0c31513%7CB07ZWK2TQT)
@@ -78,10 +74,6 @@ PHOTO: Amazon
  The K860 features an integrated wristrest that is among the most comfortable. While it does provide excellent support and is something of a necessity with ergonomic keyboards, the inability to separate the wrist rest from the keyboard itself could present a problem if it ever wears out, forcing you to buy a new unit altogether.
 
 **Type:** Membrane | **Connectivity:** Wireless receiver, Bluetooth | **RGB:** None | **Tenkeys:** Yes | **Palm Rest:** Yes | **Dedicated Media Controls:** No
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Best Bluetooth
 
@@ -112,7 +104,7 @@ PHOTO: Amazon
 **Type:** Membrane | **Connectivity:** Wireless receiver | **RGB:** None | **Tenkeys:** Yes | **Palm Rest:** Yes | **Dedicated Media Controls:** Yes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best for Macs
@@ -144,6 +136,10 @@ PHOTO: Amazon
 
 [Kinesis Freestyle2 Blue (Mac) Review](https://www.lifewire.com/freestyle2-blue-review-4780187)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Best for Gaming
 
 [KINESIS Gaming Freestyle Edge RGB](https://www.amazon.com/KINESIS-Gaming-Freestyle-Mechanical-Keyboard/dp/B07SXX7P6D/?tag=lifewire-onsite-prod-20&ascsubtag=4147386%7Cn326e10e09a2e4a42be05879465b0c31513%7CB07SXX7P6D)
@@ -174,7 +170,7 @@ PHOTO: Amazon
 [The Best Mice for Macs of 2024](https://www.lifewire.com/best-mice-for-macs-6753004)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What to Look For in an Ergonomic Keyboard
@@ -183,12 +179,16 @@ PHOTO: Amazon
 
  Where will you be using this keyboard? Is it mainly for personal use, or will you take it to the office? Do you need an ergonomic keyboard explicitly made with gamers in mind? While you can use a keyboard for multiple purposes, you may enjoy customizing which one you buy based on how you will use it the most.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Mac vs. PC**
 
  Do you have a Mac or a PC? While it seems like keyboards should be usable with both, that’s not always the case. You need to make sure whatever keyboard you buy is compatible with your system (this is usually a bigger problem for Macs rather than PCs). Additionally, the two operating systems have slightly different keys. While you can often use mapping software to alleviate these issues, you may want to purchase a keyboard specifically designed for your type of machine.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Keyboard size**
@@ -235,24 +235,24 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-financial-freedom-from-viewing-videos-effective-monetization-tactics-for-fb-for-2024/"><u>[Updated] Financial Freedom From Viewing Videos Effective Monetization Tactics for FB for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-compreeved-guide-to-creating-stellar-youtube-outros/"><u>[Updated] In 2024, Compreeved Guide to Creating Stellar YouTube Outros</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-advanced-zoom-practices-for-chromebook-users/"><u>2024 Approved Advanced Zoom Practices for Chromebook Users</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazons-kindle-oasis-201-delving-into-a-refined-paper-similar-reading-journey/"><u>Amazon's Kindle Oasis 201#: Delving Into a Refined, Paper-Similar Reading Journey</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/blueprint-for-an-intriguing-videography-script-for-2024/"><u>Blueprint for an Intriguing Videography Script for 2024</u></a></li>
-<li><a href="https://fox-metric.techidaily.com/boost-your-profits-and-fun-with-top-ranking-trivia-party-apps-discover-how/"><u>Boost Your Profits & Fun with Top-Ranking Trivia Party Apps - Discover How!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/budget-friendly-pruveeo-f5-1080p-dashboard-camera-review-is-it-worth-your-cash/"><u>Budget-Friendly Pruveeo F5 1080P Dashboard Camera Review - Is It Worth Your Cash?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-underwater-wonders-and-more-in-high-quality-with-x2/"><u>Discover Underwater Wonders & More in High Quality with X2</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-on-the-superior-features-of-samsung-galaxy-tab-s3-for-android-aficionados/"><u>Expert Analysis on the Superior Features of Samsung Galaxy Tab S^3 for Android Aficionados</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/homepod-mini-and-echo-dot-showdown-understanding-their-unique-features/"><u>HomePod Mini and Echo Dot Showdown: Understanding Their Unique Features</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-android-tutorial-reversed-video-display/"><u>In 2024, Android Tutorial Reversed Video Display</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-on-the-iphone-15-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock On the iPhone 15 Without Previous Owner?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/master-the-darkness-an-insightful-look-into-the-resilient-and-portable-design-of-j5-tactical-v1-pro-lights/"><u>Master the Darkness: An Insightful Look Into the Resilient and Portable Design of J5 Tactical V1 Pro Lights</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/paramounts-best-vr-movies-to-watch-now-for-2024/"><u>Paramount's Best VR Movies to Watch Now for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-console-experience-with-the-exceptional-asus-vg245h-monitor/"><u>Revolutionize Your Console Experience with the Exceptional Asus VG245H Monitor</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/speedy-and-simple-renewing-synaptics-psn-port-touchpad-drivers-in-minutes/"><u>Speedy and Simple: Renewing Synaptics PS/N Port TouchPad Drivers in Minutes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-cheetah-arms-for-budget-shoppers/"><u>The Ultimate Cheetah Arms for Budget Shoppers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-best-streaming-apps-of-this-year/"><u>The Ultimate Guide to the Best Streaming Apps of This Year</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-features-reviewed-for-apples-popular-book-reading-app/"><u>Top Features Reviewed for Apple's Popular Book Reading App</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-youtube-archiving-a-guide-to-moving-to-dailymotion/"><u>[New] 2024 Approved YouTube Archiving A Guide to Moving to Dailymotion</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-rapid-revamp-of-images-navigating-the-photos-editor-in-win10/"><u>[New] Rapid Revamp of Images Navigating the Photos Editor in WIN10</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-captivating-viewers-with-tiktoks-best-captioning-practices-top-5/"><u>[Updated] 2024 Approved Captivating Viewers with TikTok's Best Captioning Practices (Top 5)</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-step-by-step-guide-for-pcmac-movie-recording/"><u>[Updated] In 2024, Step-by-Step Guide for PC/Mac Movie Recording</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/1725288241953-winx-dvd-copy-pro/"><u>「特集：WinX DVD Copy Pro安全な価格クリップコード取得ガイド」</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-enhance-audio-visual-fidelity-use-av1-on-youtube/"><u>2024 Approved Enhance Audio-Visual Fidelity Use AV1 on YouTube</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/apple-vision-pro-revealing-customer-insights-from-a-unique-selling-question-tech-trends/"><u>Apple Vision Pro: Revealing Customer Insights From a Unique Selling Question | Tech Trends</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assessing-amazon-primes-value-proposition/"><u>Assessing Amazon Prime's Value Proposition</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-oppo-find-x7-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Oppo Find X7.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-powerful-portability-with-sx740-hs-review/"><u>Discovering Powerful Portability with SX740 HS Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/entry-level-drone-excellence-reviewing-the-syma-xx5c-racing-quadcopters-value-and-performance/"><u>Entry-Level Drone Excellence: Reviewing the SYMA X#X5C Racing Quadcopter's Value and Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-the-flashy-netgear-nighthawk-rax8n-revolutionizing-wi-fi-with-wi-fi-6-capabilities/"><u>In-Depth Review of the Flashy Netgear Nighthawk RAX8n – Revolutionizing Wi-Fi with Wi-Fi 6 Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-the-game-of-selection-key-points-to-ponder-when-buying-a-console/"><u>Mastering the Game of Selection: Key Points to Ponder When Buying a Console</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/optimize-your-iphones-camera-for-perfection/"><u>Optimize Your iPhone's Camera for Perfection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pros-vs-cons-unveiling-whats-inside-pidgin-instant-messenger/"><u>Pros Vs. Cons: Unveiling What's Inside Pidgin Instant Messenger</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-how-knack-breaks-the-mold-with-characters-while-navigating-conventional-gaming-tropes/"><u>Review: How Knack Breaks the Mold with Characters While Navigating Conventional Gaming Tropes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-innovative-samsung-galaxy-chromebook-2-review/"><u>The Ultimate Guide to the Innovative Samsung Galaxy Chromebook 2 Review</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-zte-by-fonelab-android-recover-video/"><u>The way to get back lost videos from ZTE</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-budget-friendly-gaming-keyboards-fellowes-microban-wired-model-analysis/"><u>Top Budget-Friendly Gaming Keyboards: Fellowes Microban Wired Model Analysis</u></a></li>
 </ul></div>
 

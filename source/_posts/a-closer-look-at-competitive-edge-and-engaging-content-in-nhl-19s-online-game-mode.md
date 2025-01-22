@@ -1,7 +1,7 @@
 ---
 title: A Closer Look at Competitive Edge and Engaging Content in NHL '19'S Online Game Mode
-date: 2024-08-15T09:28:58.757Z
-updated: 2024-08-16T09:28:58.757Z
+date: 2025-01-19T17:57:02.329Z
+updated: 2025-01-22T18:38:56.537Z
 categories:
   - BestProducts
 description: This Article Describes A Closer Look at Competitive Edge and Engaging Content in NHL '19'S Online Game Mode
@@ -13,12 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/tZdmphQQkokcC1IeZBs4b_7mO7s=/400x300/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## 1byone Amplified Digital HDTV Antenna
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/pWXHOnFpWCs9EltKF9bRUP_y5aU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -43,6 +44,10 @@ Lifewire / Jonno Hill
 ## 1byone Amplified Digital HDTV Antenna
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/y6y0rP_H9I7oHwldUMIq-18GrFw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -71,47 +76,44 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Vanilla**
 
  The 1byone Digital Amplified Indoor Antenna uses a flat rectangular design similar to other powered indoor antennas on the market. The 13.25 x 9.25 inch antenna surface is roughly in line with most of the other products I looked at in this category, the only real difference being that the 1byone has a much more rigid surface.
 
  Being a powered antenna, the 1byone uses an external amplifier to boost the signal. This box contains a coaxial input attached via the included 16.5ft cable, and has a power input, which can be supplied by the TV itself if it can support USB power. Otherwise, 1byone includes a USB power adapter.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ## **Setup: Fairly intuitive**
 
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas. Simply attach the 16.5ft coaxial cable to the external amplifier, connect the power to a USB power source, and then attach the coaxial cable from the amplifier to your TV.
 
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Performance: Good enough for most**
 
  The 1byone Digital Amplified Indoor HD TV Antenna didn’t have the best performance of the antennas we’ve tested, falling somewhere in the middle of the pack. In my channel acquisition test, I averaged 59 channels across all the tests performed. This compares to the worst performing antenna at just 47, and the best at 76.
 
  This should be more than suitable for most people living within a city in relatively close proximity to the source of the TV signal. As for those living further, your mileage may vary.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Range: Middle of the road**
 
  1byone makes no specific promises about the range of their antenna, although they do cite users having positive experiences from as far as 48 miles away in their customer testimonials. Given how many factors impact the effective range, I think it is somewhat wise not to make any promises. Nonetheless, this is clearly a device that will be best suited for people living in or near major metropolitan areas.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/6y-ITpY8n7xf8BteMqdJjYm-paU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_05-178a02351af040cc89c86169b88a6de2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: A great deal**
 
  The 1byone Digital Amplified Indoor Antenna costs just $25, making it the least expensive option out of the antennas I tested. It picked up all the major channels that I would actually watch, and didn’t have any issues with the signal. So from my perspective, why would I pay more? I think buyers would probably be best served by seeing if an antenna like this works for them. If you discover you need something more substantial, feel free to move on to a pricier option.
@@ -141,14 +143,11 @@ Lifewire / Jonno Hill
 * Indoor/Outdoor  Indoor
 * Warranty  One year limited
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -157,4 +156,26 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-swiftvideo-pro-accelerate-your-android-content/"><u>[New] 2024 Approved SwiftVideo Pro Accelerate Your Android Content</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-echo-your-personality-setting-unique-ringtones-and-sounds-in-androids-settings-menu/"><u>[New] Echo Your Personality Setting Unique Ringtones & Sounds in Android's Settings Menu</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-the-art-of-memory-management-increasing-ram-in-minecraft-for-2024/"><u>[New] The Art of Memory Management Increasing RAM in Minecraft for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-feast-your-eyes-on-9-whole-film-winter-wonders-no-charge/"><u>[Updated] Feast Your Eyes on 9 Whole-Film Winter Wonders No Charge!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-optimal-flv-to-youtube-transformers-in-a-ranking-list/"><u>[Updated] Optimal FLV to YouTube Transformers in a Ranking List</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-channels-surging-ideas-and-insights-unleashed-for-2024/"><u>10 YT Channels Surging Ideas and Insights Unleashed for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2019-amazon-kindle-analysis-high-quality-e-reader-at-a-budget-friendly-cost/"><u>2019 Amazon Kindle Analysis: High-Quality E-Reader at a Budget-Friendly Cost</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-quick-aspect-tweaking-over-the-internet/"><u>2024 Approved Quick Aspect Tweaking Over the Internet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-top-selection-of-mice-designed-for-mac-computers/"><u>2024'S Top Selection of Mice Designed for Mac Computers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-beginners-guide-to-utilizing-preview-as-a-powerful-photo-tool-on-macos/"><u>A Beginner's Guide to Utilizing Preview as a Powerful Photo Tool on macOS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-basic-light-therapy-with-the-heimvision-sunrise-a80-s-alarm-clock-review/"><u>A Closer Look at Basic Light Therapy with the HeimVision Sunrise A80 S Alarm Clock Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-minimalist-approach-to-ufo-beliefs-with-aminy/"><u>A Minimalist Approach to UFO Beliefs with Aminy</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/additional-paid-in-capital-400/"><u>Additional Paid-In Capital: $400</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/analyzing-the-microsoft-surface-duos-performance-issues-and-steep-pricing/"><u>Analyzing the Microsoft Surface Duo's Performance Issues and Steep Pricing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722554875657-discover-the-ultimate-selection-of-online-tv-shops-ranked-by-experts/"><u>Discover the Ultimate Selection of Online TV Shops - Ranked by Experts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-hilarity-in-a-click-meme-creation/"><u>In 2024, Hilarity in a Click (Meme Creation)</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-honor-x50i-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Honor X50i Devices</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-checklist-for-video-quality-boost-version-22/"><u>In 2024, The Ultimate Checklist for Video Quality Boost Version 2.2</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722576342449-iphone-vs-samsung-the-ultimate-consumers-dilemma-top-picks-for-your-next-phone/"><u>IPhone vs Samsung: The Ultimate Consumer's Dilemma – Top Picks for Your Next Phone!</u></a></li>
+</ul></div>
 

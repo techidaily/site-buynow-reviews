@@ -1,7 +1,7 @@
 ---
 title: Pinpoint Precision Meets Durability in Sabrent's Travel-Friendly Wired Gaming Mouse
-date: 2025-01-09T06:56:49.127Z
-updated: 2025-01-16T11:03:57.580Z
+date: 2025-01-16T16:49:38.279Z
+updated: 2025-01-22T16:56:42.503Z
 categories:
   - BestProducts
 description: This Article Describes Pinpoint Precision Meets Durability in Sabrent's Travel-Friendly Wired Gaming Mouse
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/-_iV1Mooi46f-WT6ARwL2rf_pgY=/400x300/fi
 ## Sabrent Mini Travel USB Optical Mouse
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/NHk2GXtdpeJT9sEET7cl5b3Coq0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_HeroSquare-6ae9d6d299054d748f84492b5c31f033.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -46,10 +42,6 @@ Lifewire / Rebecca Isaacs
 [View On Amazon $6](https://www.amazon.com/dp/B01MSJPX06/?tag=lifewire-onsite-prod-20&ascsubtag=4799034%7Cn6493c6f4bf4b471ba05fab7dd162554120%7CB01MSJPX06)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Sabrent Mini Travel USB Optical Mouse
 
@@ -77,7 +69,7 @@ Lifewire / Rebecca Isaacs
  Working on the go can prove difficult on a laptop, especially when you need to work on heavy-hitting projects requiring precision. Travel mice, or portable computer mice that can be packed and unpacked on the go, can alleviate much of the proverbial headache of working on PC-heavy tasks. For those who prefer their mouse have a cable, the Sabrent fits the bill. Using high definition precision technology, the tiny, three-year-old mouse is designed for those who want convenience and extreme precision in their work.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Basic**
@@ -89,6 +81,10 @@ Lifewire / Rebecca Isaacs
  It’s important to keep in mind that this is a wired, ergonomic mouse that relies on a USB port connection. So while it doesn’t require any batteries, it can be problematic if you need more than 25 inches the cable provides. The cable itself expands with a gentle pull of the cable from its own mini-port, and is easily retractable with a tug on each side of the cable. Just be careful when retracting it, as it is similar to a window shade in that it retracts with near-violent gusto.
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/E-UHv94vEiLyLkgwTG1qIFE6uvQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_04-76e4b475ca3f4449a746c22f3713f784.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -102,6 +98,10 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Precise, but mildly problematic**
 
  The Sabrent boasts that it’s a high precision mini mouse, and in that regard, we have to agree. While 1200 dpi is minimal in comparison to some of the other heavy-hitting mice on the market, this mouse wasn’t designed to be used as a gaming mouse—it was designed in mind that you could take it and pack it on the go and get the job done.
@@ -109,10 +109,6 @@ Lifewire / Rebecca Isaacs
  After using it for over 25 hours, the precision blew us away; even the smallest twitch of the mouse registered movement on the PC and[laptop](https://www.lifewire.com/computer-and-laptop-reviews-4102643) we tested it across. Not once did we have to reclick on an item because the Sabrent failed to register the movement, proving that the cable was of speedy and accurate benefit to the mouse. The speed of the mouse highlighted its precision, darting across the monitor screens as we shifted the mouse instantaneously.
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/ZAK9csfHFEKVkNFSzE-Knbqabgs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_03-c6a7b875505642c69218c2c6c3449e50.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -129,10 +125,14 @@ Lifewire / Rebecca Isaacs
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/h8ibsbPtDqgJOD0XgpZSD6FOXUU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_02-1331828bbc3f460baebd85cbd24d61e2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Reasonable**
 
@@ -179,20 +179,21 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/void-mainstream-underrated-movies-of-the-year-for-2024/"><u>[New] Avoid Mainstream Underrated Movies of the Year for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-web-conferences-archival-for-2024/"><u>[New] Web Conferences Archival for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/how-to-fix-forza-horizon-5-crashing-on-pc/"><u>How to Fix Forza Horizon 5 Crashing on PC</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-youtube-shorts-solutions-to-frequent-problems/"><u>In 2024, YouTube Shorts Solutions to Frequent Problems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-design-shortcomings-an-expert-take-on-the-pioneer-bdr-xd05b-drives/"><u>Navigating Design Shortcomings: An Expert Take on the Pioneer BDR-XD05B Drives</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/nintendo-showdown-a-detailed-analysis-of-lite-versus-oled-console-experiences/"><u>Nintendo Showdown: A Detailed Analysis of Lite Versus OLED Console Experiences</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/oneplus-buds-z-review/"><u>OnePlus Buds Z Review</u></a></li>
-<li><a href="https://win11.techidaily.com/pinpoint-where-win11-stores-window-picture-files/"><u>Pinpoint Where Win11 Stores Window Picture Files</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/quick-fix-guide-overcoming-steam-game-installation-errors/"><u>Quick Fix Guide: Overcoming Steam Game Installation Errors</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionary-12mp-image-quality-from-docoolers-usb-20-a-detailed-review/"><u>Revolutionary 12MP Image Quality From Docooler's USB 2.0 - A Detailed Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionary-motorola-one-hyper-analysis-the-ultimate-guide-to-a-stunning-powerful-mid-range-device/"><u>Revolutionary Motorola One Hyper Analysis: The Ultimate Guide to a Stunning, Powerful Mid-Range Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sonos-nomad-review-reliable-sound-on-the-move/"><u>Sonos Nomad Review: Reliable Sound on the Move</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stay-active-with-the-portable-samsung-galaxy-fit2-ultimate-health-partner/"><u>Stay Active with the Portable Samsung Galaxy Fit2 - Ultimate Health Partner</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-video-game-systems-in-2/"><u>Top Rated Video Game Systems in 2#!</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/troubleshooting-god-of-war-tackling-persistent-crashes-on-personal-computers/"><u>Troubleshooting God of War: Tackling Persistent Crashes on Personal Computers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-debut-video-capture-review/"><u>[New] Debut Video Capture Review</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-simple-steps-for-merging-youtube-media-files/"><u>[Updated] 2024 Approved The Simple Steps for Merging YouTube Media Files</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-premier-10-survival-showdowns/"><u>[Updated] Premier 10 Survival Showdowns</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-weave-webcomic-wonders-with-giphy-for-2024/"><u>[Updated] Weave Webcomic Wonders with Giphy for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-honor-x9a-frp-bypass-by-drfone-android/"><u>About Honor X9a FRP Bypass</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-look-at-the-eufy-t82-(video-doorbell-unlocking-security-without-a-recurring-fee/"><u>Comprehensive Look at the Eufy T82 <Video Doorbell: Unlocking Security Without a Recurring Fee</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cyberpunk-2077-evaluation-an-imperfect-yet-remarkable-game/"><u>Cyberpunk 2077 Evaluation: An Imperfect Yet Remarkable Game</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-how-to-save-on-phone-contracts-with-our-top-picks/"><u>Discover How to Save on Phone Contracts with Our Top Picks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-vonages-position-at-the-forefront-of-voip-innovation/"><u>Evaluating Vonage's Position at the Forefront of VoIP Innovation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-choice-the-premier-extended-desk-mats-of-the-year/"><u>Expert Choice: The Premier Extended Desk Mats of the Year</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-discussing-metas-vision-for-tomorrow-keeps-me-awake-a-conversation-highlighted-on-zdnet/"><u>How Discussing Meta's Vision for Tomorrow Keeps Me Awake - A Conversation Highlighted on ZDNet</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-the-easiest-fix-on-how-to-livestream-a-podcast/"><u>In 2024, The Easiest Fix on How to Livestream a Podcast</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/iphone-showdown-the-new-era-of-the-iphone-15-plus-versus-the-elite-pro-max/"><u>IPhone Showdown: The New Era of the iPhone 15 Plus Versus the Elite Pro Max</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-new-frontier-advanced-chatbot-innovation/"><u>The New Frontier: Advanced Chatbot Innovation</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-vivo-x90s-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Vivo X90S Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-amazon-kindle-oasis-is-its-superior-design-worth-the-price-tag/"><u>Unveiling the Amazon Kindle Oasis: Is Its Superior Design Worth the Price Tag?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Expert Analysis on the Budget Champion: TP-Link Archer C80 Below $100 Wireless Review"
-date: 2024-12-28T00:16:56.633Z
-updated: 2025-01-03T23:00:17.218Z
+date: 2025-01-18T17:08:05.109Z
+updated: 2025-01-22T18:09:28.208Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Analysis on the Budget Champion: TP-Link Archer C80 Below $100 Wireless Review"
@@ -46,7 +46,7 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
@@ -80,10 +80,6 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/Ep4Dk2l5q44AgM0S3cs9My3AE3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_03-a367c45b39474785856cb986e82c88dc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
  Overall, the C80 feels pretty sturdy. There are four antennas, and they don’t feel flimsy or easily breakable. The antennas are exceptionally long—disproportionately so when compared to the router’s body—but the length of the antennas is advantageous for performance. You can move the antennas 90 degrees up and down and roughly 180 degrees side to side, which lets you appropriately adjust them for placement on a wall or table. The Gigabit Ethernet ports (one WAN, four LAN) and power adapter port are located on the back of the device, which is ideal for placement on a flat surface, but not as great for mounting on a wall because the cables come out of the top of the router, and they’re difficult to hide or organize.
@@ -109,20 +105,20 @@ Lifewire / Erika Rawes
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Range: Even better than advertised**
 
  TP-Link advertises the C80 as a router for three-bedroom homes. However, that estimate understates the router’s range capabilities. My home is a two-story, 3,000 square-foot residence with five-bedrooms, and I was able to maintain a stable Wi-Fi connection in every corner. Every closet, bathroom, and bedroom got a steady signal, and I experienced no dead zones whatsoever. Even in the garage, front yard, and backyard, the signal remained strong. It was only when I attempted to use multiple gaming and streaming devices at one time that I experienced any sort of lag.
 
  Every closet, bathroom, and bedroom maintained a signal, and I experienced no dead zones whatsoever.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Software: TP-Link Tether app**
 
@@ -135,10 +131,14 @@ Lifewire / Erika Rawes
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Around 100 bucks**
 
@@ -189,16 +189,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/updated-sunset-to-silhouette-adobe-guide/"><u>[Updated] Sunset to Silhouette Adobe Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expand-and-strengthen-home-internet-with-the-netgear-nighthawk-x6s-router-range-extender/"><u>Expand and Strengthen Home Internet with the Netgear Nighthawk X6S Router Range Extender</u></a></li>
-<li><a href="https://driver-error.techidaily.com/expert-tips-for-diagnosing-and-repairing-the-dll-rpc-server-process-failure-on-windows-vista-and-7/"><u>Expert Tips for Diagnosing and Repairing the 'DLL RPC Server Process' Failure on Windows Vista & 7</u></a></li>
-<li><a href="https://extra-information.techidaily.com/exploring-the-realm-of-video-production-obs-and-free-luts/"><u>Exploring the Realm of Video Production OBS & Free LUTs</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Google Pixel 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Lava Agni 2 5G? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-pre-owned-ipad-market-a-buyers-checklist-of-5-key-points/"><u>Navigating the Pre-Owned iPad Market: A Buyer’s Checklist of 5 Key Points</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/prime-filmmaker-forecasts-group/"><u>Prime Filmmaker Forecasts Group</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-ups-power-solutions-ultimate-protection/"><u>Top-Rated UPS Power Solutions: Ultimate Protection</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tp-link-archer-c9-review-a-favorite-budget-router/"><u>TP-Link Archer C9 Review: A Favorite Budget Router</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/vivo-y100-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Vivo Y100 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ailing-your-online-visibility-with-optimal-youtube-thumbnail-dimensions/"><u>[New] Nailing Your Online Visibility with Optimal YouTube Thumbnail Dimensions</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-video-repair-tool-to-fix-and-repair-corrupted-video-files-of-play-7t-by-stellar-video-repair-mobile-video-repair/"><u>Best Video Repair tool to Fix and Repair Corrupted video files of Play 7T</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/blu-ray-vs-streaming-making-the-right-choice-for-your-home-entertainment/"><u>Blu-Ray Vs. Streaming: Making the Right Choice for Your Home Entertainment</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-oneplus-12r-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast OnePlus 12R Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-revisiting-old-memories-how-to-upload-them-on-snapchat/"><u>In 2024, Revisiting Old Memories How to Upload Them on Snapchat</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-samsung-galaxy-m14-4g-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Samsung Galaxy M14 4G Phone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/premier-top-8-4k-blu-ray-playback-machines/"><u>Premier Top 8 4K Blu-Ray Playback Machines</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/premier-virtual-tts-services-a-comprehensive-list-of-online-resources-for-2024/"><u>Premier Virtual TTS Services A Comprehensive List of Online Resources for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transform-your-listening-on-youtube-music-by-implementing-these-easy-adjustments/"><u>Transform Your Listening on YouTube Music by Implementing These Easy Adjustments</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transforming-from-lone-explorer-to-team-player-how-multiplayer-shaped-my-game-experience/"><u>Transforming From Lone Explorer to Team Player: How Multiplayer Shaped My Game Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/transforming-in-game-audio-identity-for-a-unique-competitive-advantage-no-charge/"><u>Transforming In-Game Audio Identity for a Unique Competitive Advantage (No Charge!)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/turn-up-the-scene-speed-on-your-iphone-filming-and-slowing-down-methods-for-2024/"><u>Turn Up the Scene Speed on Your iPhone Filming & Slowing Down Methods for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-watching-netflix-live-through-discord/"><u>Ultimate Guide: Watching Netflix Live Through Discord</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/upcoming-end-date-xbox-360-content-library-discontinues-service-for-the-month/"><u>Upcoming End Date: Xbox 360 Content Library Discontinues Service for the Month</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/watching-music-unfold-spotifys-latest-addition-of-official-song-videos/"><u>Watching Music Unfold: Spotify's Latest Addition of Official Song Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/weekly-update-changes-coming-to-netflixs-basic-plan-and-enhanced-techniques-in-iphone-restoration/"><u>Weekly Update: Changes Coming to Netflix's Basic Plan & Enhanced Techniques in iPhone Restoration</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-you-need-to-hit-the-pause-button-on-apple-music-listening-records-for-better-security/"><u>Why You Need to Hit the Pause Button on Apple Music Listening Records for Better Security</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/wiring-up-your-xbox-gaming-pad-for-use-on-windows-or-mac-desktops-and-laptops/"><u>Wiring Up Your Xbox Gaming Pad for Use on Windows or Mac Desktops and Laptops</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/youtube-music-introduces-new-ai-powered-station-functionality-similar-to-spotifys-smart-playlists/"><u>YouTube Music Introduces New AI-Powered Station Functionality, Similar to Spotify's Smart Playlists</u></a></li>
 </ul></div>
 

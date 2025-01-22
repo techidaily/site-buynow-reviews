@@ -1,7 +1,7 @@
 ---
 title: "Pixelbook Go Overview: Stunning Implementation but Steep Pricing Assessment"
-date: 2025-01-14T14:41:09.716Z
-updated: 2025-01-16T15:11:31.288Z
+date: 2025-01-20T18:12:32.697Z
+updated: 2025-01-22T16:14:41.817Z
 categories:
   - BestProducts
 description: "This Article Describes Pixelbook Go Overview: Stunning Implementation but Steep Pricing Assessment"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/5d2525fa4f290b123e4403376fabc636b3a54f2e7
 ## ASUS Chromebook Flip C302CA-DHM4
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/DGHTHeH4BLy5d9h8cxxoe8sErZU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_HeroSquare-01d50171ef9c411f82467742bfad1126.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -44,13 +48,13 @@ Lifewire / Andrew Hayward
 
 4.5
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## ASUS Chromebook Flip C302CA-DHM4
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/A6HRRNfYS6KrVqW-2K3fI0NN7EI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_HeroSquare-01d50171ef9c411f82467742bfad1126.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -82,10 +86,14 @@ Lifewire / Andrew Hayward
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/3Q2pRvweVt3Gf6RfBaAwQ15QBag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_bottom_04-1508a99e93e94312a9477c6ec5c15022.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design and Features: It’s flippin’ nice**
 
@@ -104,10 +112,6 @@ Lifewire / Andrew Hayward
  Like current MacBooks, the Chromebook Flip is all about USB-C ports; it puts one on each side and skips full-sized USB-A ports entirely. You can charge the laptop from either of those ports, and that versatility is appreciated. However, there’s also a microSD card port on the right, which is handy as the 64GB internal storage on this model is pretty slim (there are 32GB and 128GB versions available, as well), along with a 3.5mm headphone port on the left side.
 
  The Chromebook Flip’s keyboard feels great in action. The one-piece chiclet keyboard has a scissor-style key design with 1.4mm of travel, which gives it a more satisfying feel than the latest MacBooks’ keys (which have very little travel), and the keys are responsive and not especially loud in usage. It’s also brightly backlit, which isn’t always the case with Chromebooks. The touchpad below is nicely sized and wider than some we’ve seen, although not nearly as large as Apple’s luxurious trackpads of late.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: No sweat whatsoever**
 
@@ -138,26 +142,22 @@ Lifewire / Andrew Hayward
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/7B1-43v0GHPcS2HESabWT97_XPQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_Keyboard_03-8bc37c7c2d0243bb8ed1fa10e338374f.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Audio: Sounds fine**
 
  The tiny speaker grates on the left and right side of the Chromebook Flip don’t look too promising, but the playback quality was better than expected. Music output isn’t big and bold, but it’s pretty clear and it can get loud without getting too muddled. Video playback via YouTube and Netflix was sometimes too quiet at full volume, however.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Network: No complaints here**
 
  The Chromebook Flip has dual-band Wi-Fi that can connect to both 2.4Ghz and 5Ghz networks, and we had no issues with either during our testing. We went online at a home network and a Starbucks Google network alike, and things were routinely speedy. On the home network, we saw speeds of about 33Mbps and upload speeds in excess of 10Mbps—essentially the same as we’ve seen with[other laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) and[smartphones](https://www.lifewire.com/best-smartphones-4043781) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Battery: Nearly a day’s worth**
 
@@ -194,7 +194,7 @@ Lifewire / Andrew Hayward
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Asus Chromebook Flip C302CA vs. Apple MacBook Air**
@@ -243,14 +243,17 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-twist-and-tell-the-art-of-angling-your-videos-for-instagram-audiences/"><u>[Updated] In 2024, Twist & Tell The Art of Angling Your Videos for Instagram Audiences</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-innovative-techniques-for-video-editing-on-windows-8-movie-maker/"><u>[Updated] Innovative Techniques for Video Editing on Windows 8 Movie Maker</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-unveil-your-gaming-prowess-with-perfect-screen-shots-pc-for-2024/"><u>[Updated] Unveil Your Gaming Prowess with Perfect Screen Shots (PC) for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-frame-by-frame-findings-insightful-recorder-analysis/"><u>In 2024, Frame by Frame Findings Insightful Recorder Analysis</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Tecno Spark Go (2023)? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-the-hp-omen-obelisk-your-ideal-gaming-machine-insights-from-our-in-depth-review/"><u>Is the HP OMEN Obelisk Your Ideal Gaming Machine? Insights From Our In-Depth Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ps5-slim-vs-regular-ps5-which-one-should-you-choose/"><u>PS5 Slim Vs. Regular PS5: Which One Should You Choose?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-of-kootek-desktop-cooler-perfect-for-any-user-need/"><u>Review of Kootek Desktop Cooler: Perfect for Any User Need</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-of-the-antipods-at-127-high-definition-television-without-a-cord/"><u>Review of the Antipod's AT-127 - High Definition Television without a Cord</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-can-instagrams-video-selfies-be-trusted/"><u>[New] 2024 Approved Can Instagram's Video Selfies Be Trusted?</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-embedded-epicness-galaxy-games-chronicle-for-2024/"><u>[Updated] Embedded Epicness Galaxy Games Chronicle for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/best-free-iphone-11-imei-checker-by-drfone-ios/"><u>Best Free iPhone 11 IMEI Checker</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-insights-into-ring-smart-alarm-systems-plus-user-feedback/"><u>Comprehensive Insights Into Ring Smart Alarm Systems + User Feedback</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-next-level-virtual-skies-with-exceptional-clarity-an-in-depth-look-at-x-plane-11s-aviation-graphics/"><u>Exploring Next-Level Virtual Skies with Exceptional Clarity: An In-Depth Look at X-Plane 11'S Aviation Graphics</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-3-ways-to-erase-iphone-8-when-its-locked-within-seconds-drfone-by-drfone-ios/"><u>In 2024, 3 Ways to Erase iPhone 8 When Its Locked Within Seconds | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-oneplus-11-5g-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from OnePlus 11 5G to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/introducing-the-imac-with-apples-innovative-m1-chip-comprehensive-performance-analysis/"><u>Introducing the iMac with Apple's Innovative M1 Chip – Comprehensive Performance Analysis</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/is-investing-in-a-wi-fi-mesh-solution-justifiable-for-enhanced-coverage-and-speed/"><u>Is Investing in a Wi-Fi Mesh Solution Justifiable for Enhanced Coverage and Speed?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/score-exclusive-deals-acer-products-at-record-prices-this-prime-day-2024-style/"><u>Score Exclusive Deals: Acer Products at Record Prices This Prime Day, 2024 Style</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/seamless-transition-of-cherished-ringback-sounds-upgrade-to-your-new-iphone-without-spending-a-penny/"><u>Seamless Transition of Cherished Ringback Sounds: Upgrade to Your New iPhone Without Spending a Penny</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-review-on-minecraft-a-game-that-welcomes-players-of-all-ages/"><u>The Definitive Review on Minecraft - A Game That Welcomes Players of All Ages</u></a></li>
 </ul></div>
 

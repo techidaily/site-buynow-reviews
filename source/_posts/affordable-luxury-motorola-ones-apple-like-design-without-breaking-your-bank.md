@@ -1,7 +1,7 @@
 ---
 title: "Affordable Luxury: Motorola One's Apple-Like Design Without Breaking Your Bank"
-date: 2024-08-10T23:48:12.683Z
-updated: 2024-08-11T23:48:12.683Z
+date: 2025-01-19T16:29:22.211Z
+updated: 2025-01-22T19:06:30.690Z
 categories:
   - BestProducts
 description: "This Article Describes Affordable Luxury: Motorola One's Apple-Like Design Without Breaking Your Bank"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/14a22e63716263e4dbf21490561e8b1d60bb16b34
 ## Flexispot Theodore Standing Desk
 
 ![Flexispot Theodore Standing Desk](https://www.lifewire.com/thmb/j-bZzQrKEa5BwuAv26jY6OgzXS8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FlexiSpot_StandingDesk_HeroSquare-a880730a5c574fbc9dfef59383e4aee6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -64,9 +68,6 @@ Lifewire / Rebecca Isaacs
 
  Cue the Flexispot Theodore Standing Desk. The Flexispot was the answer to everything I needed in my workspace: classy; modern; and completely adjustable. After a week of testing, it’s safe to say I’ve never been so madly in love with a piece of furniture.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Design: Mixing the old with the new
 
  This standing desk’s design and aesthetic gave me an executive feel when I set it up. First things first—it’s really heavy, clocking in at around 100 pounds if the packaging is to be believed. I can’t recommend handling the box by yourself, and, had I tried that myself, I would have probably been squished trying to haul it up two flights of stairs.
@@ -77,11 +78,16 @@ Lifewire / Rebecca Isaacs
 
 ![Flexispot Theodore Standing Desk](https://www.lifewire.com/thmb/du2Ec4SmWWkaWQQCKbMuR4NiBUo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FlexiSpot_StandingDesk_02-4a15245115084875b6ac05ba8f4c6a53.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Performance and Usage: Adjustable and comfortable
 
  Once I set the desk up, I sat down and felt like a queen in my castle. Even at its lowest, the desk provided that ergonomic feel I desperately need in my home office setup. The two legs of the desk sit far enough back, and the desk is wide so I didn’t have to worry about kicking the legs accidentally. That said, I live in a house with cats that shed, and I noticed that the hair did stick and stand out on the metal.
@@ -92,18 +98,10 @@ Lifewire / Rebecca Isaacs
 
  The Theodore Standing Desk also turned out to be the perfect place to store my[Jabra Talk 45 Headset](https://www.lifewire.com/jabra-talk-45-review-5070286#:~:text=A%20great%2C%20feature%2Dpacked%20Bluetooth,with%20its%20voice%20command%20features.) and[Microsoft RVF Arc Touch Mouse](https://www.lifewire.com/microsoft-rvf-arc-touch-mouse-review-4799143) so I wouldn’t keep losing them around the house. The desk’s drawer is about three inches deep, so it could also easily store important papers. And, since the desk space is so large, I could easily fit two 17-inch laptops on there and have extra space to hold my cell phone, planner, and a desk lamp with room to spare.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![Flexispot Theodore Standing Desk](https://www.lifewire.com/thmb/frfVa5g5ngg9vZAugmed_f2jsho=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FlexiSpot_StandingDesk_03-b929f6838e464f14ad5615d440449658.jpg)
 
 Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## Controls: Tap a button
 
  If I got tired of sitting, usually with a cat on my lap, I could easily convert this into a standing desk thanks to two buttons that raise and lower the desk through motorized controls. While it was a little noisy, the noise doesn’t seem atypical for any standing desk models on the market. I stopped the desk when it rose to conform to my height of 5 feet, 8 inches, but the desk can go up to nearly 50 inches for people who need the extra height.
@@ -114,11 +112,16 @@ The ultimate burning program for all your needs!</a>
 
 ![Flexispot Theodore Standing Desk](https://www.lifewire.com/thmb/IfBuQB7ShOvw2XlkJal4eCb1myE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FlexiSpot_StandingDesk_04-1e85750d263e43f4815a4b1eeddf41a1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Price: A steal at the price
 
  At around $500, before desk accessories like a[standing desk mat](https://www.lifewire.com/best-standing-desk-mats-4155870) , the Flexispot Theodore is very reasonably priced. Keep in mind that you’re not paying for real wood, which factors into the price tag, but a wood veneer finish. Fancier, more modern-looking standings desks can run close to $1,000\.
@@ -127,9 +130,6 @@ Lifewire / Rebecca Isaacs
 
 Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## FlexiSpot Theodore vs. Rain Design iLevel 2 Laptop Stand
 
  Let’s say that perhaps a standing desk you’re thinking about investing in a[standing desk converter](https://www.lifewire.com/best-standing-desks-5118383) like the Rain Design iLevel 2 Laptop Stand. At around $51, it seems like it would be a no-brainer to go for the cost-effective option here.
@@ -150,9 +150,6 @@ Lifewire / Rebecca Isaacs
 * [Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/ergodriven-topo-review-4775310)
 * [Ergohead Standing Desk Mat](https://www.lifewire.com/ergohead-standing-desk-mat-review-4775317)
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Theodore Standing Desk
@@ -165,14 +162,11 @@ Lifewire / Rebecca Isaacs
 * Warranty  5-year limited warranty
 * Connectivity Options  USB port
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -181,4 +175,22 @@ Lifewire / Rebecca Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-insiders-choice-the-best-fb-video-tools-for-2024/"><u>[New] Insider's Choice The Best FB Video Tools for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-essential-tips-for-skyrocketing-your-instagram-followers/"><u>[Updated] Essential Tips for Skyrocketing Your Instagram Followers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-economic-options-in-panoramic-recording-equipment/"><u>2024 Approved Economic Options in Panoramic Recording Equipment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-chromebook-c202sa-review/"><u>Asus Chromebook C202SA Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/b550-xt-analysis-advanced-voice-commands-and-silent-operation/"><u>B550-XT Analysis: Advanced Voice Commands & Silent Operation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/battle-for-supremacy-in-a-new-star-wars-game-a-deep-dive-into-squadrons-features-and-gameplay/"><u>Battle for Supremacy in a New Star Wars Game – A Deep Dive Into Squadrons' Features & Gameplay</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/canons-sx530-a-hassle-free-camera-companion-for-novices/"><u>Canon's SX530: A Hassle-Free Camera Companion for Novices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-map-my-ride-app-evaluation/"><u>Comprehensive Guide: Map My Ride App Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-how-the-arlo-video-doorbell-combines-monitoring-and-protection-effortlessly/"><u>Discover How the Arlo Video Doorbell Combines Monitoring and Protection Effortlessly</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-convert-avchd-mts-to-mp4-for-huawei-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to convert AVCHD MTS to MP4 for Huawei ?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-spotlight-on-best-selling-ae-plugins-for-instagram/"><u>In 2024, Spotlight on Best-Selling AE Plugins for Instagram</u></a></li>
+<li><a href="https://driver-error.techidaily.com/non-functional-keyboard-lights-on-asus-model/"><u>Non-Functional Keyboard Lights on ASUS Model</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-essential-guide-to-the-3rd-gen-echo-dot-2e-how-this-tiny-device-packs-all-in-one-alexa-functionality/"><u>The Essential Guide to the 3Rd Gen Echo Dot (2E): How This Tiny Device Packs All-in-One Alexa Functionality</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-ultimate-guide-to-building-podcast-rss-for-2024/"><u>The Ultimate Guide to Building Podcast RSS for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/uncovering-hidden-wellsprings-of-free-graphic-designs/"><u>Uncovering Hidden Wellsprings of Free Graphic Designs</u></a></li>
+</ul></div>
 

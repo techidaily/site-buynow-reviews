@@ -1,7 +1,7 @@
 ---
 title: Comprehensive TP-Link Archer C80 Analysis - Top Under $100 Routers
-date: 2025-01-13T19:21:34.008Z
-updated: 2025-01-16T12:30:41.924Z
+date: 2025-01-18T17:16:42.023Z
+updated: 2025-01-22T19:17:38.214Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive TP-Link Archer C80 Analysis - Top Under $100 Routers
@@ -18,13 +18,13 @@ thumbnail: https://www.lifewire.com/thmb/hnfn1HKm08TJxpBixlaHeqOfiug=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/6eJwPC0xPwMxCh4aQhG73X9dkzU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -51,7 +51,7 @@ Lifewire / Erika Rawes
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -75,6 +75,10 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -86,10 +90,6 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup: Easier than most**
 
@@ -108,7 +108,7 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -121,15 +121,15 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -174,20 +174,17 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-capture-your-pc-hp-laptop-screen-recording-guide/"><u>[New] Capture Your PC HP Laptop Screen Recording Guide</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-how-to-make-a-good-podcast-trailer/"><u>[New] How To Make A Good Podcast Trailer</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-expert-tips-for-effortless-access-to-youtube-comments/"><u>[Updated] Expert Tips for Effortless Access to YouTube Comments</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-channel-flair-free-download-templates/"><u>[Updated] In 2024, Channel Flair Free Download Templates</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-elegance-unleashed-motorola-one-vs-iphone-a-comprehensive-review/"><u>Affordable Elegance Unleashed: Motorola One Vs. IPhone - A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/apc-back-ups-be600m1-review-efficient-battery-backup-with-a-built-in-usb-charger/"><u>APC Back-UPS BE600M1 Review: Efficient Battery Backup With a Built-In USB Charger</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comparing-smart-speakers-google-nest-audio-vs-apple-homepod/"><u>Comparing Smart Speakers: Google Nest Audio Vs. Apple HomePod</u></a></li>
-<li><a href="https://win-forum.techidaily.com/complete-tutorial-on-removing-windows-11-patches/"><u>Complete Tutorial on Removing Windows 11 Patches</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-lenovo-ideapad-features-of-an-excellently-built-budget-laptop/"><u>Comprehensive Guide to the Lenovo Ideapad: Features of an Excellently Built Budget Laptop</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-ion-audio-tailgater-plus-assessment-experience-extended-playtime-with-superior-bass-accentuation-and-ease/"><u>Comprehensive Ion Audio Tailgater Plus Assessment: Experience Extended Playtime with Superior Bass Accentuation and Ease</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-ultimate-e-reader-in-the-2019-kindle-oasis-review-like-turning-real-pages/"><u>Discover the Ultimate E-Reader in the 2019 Kindle Oasis Review: Like Turning Real Pages</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722516983019-distinguishing-between-echo-pop-and-echo-dot-a-comprehensive-guide/"><u>Distinguishing Between Echo Pop and Echo Dot: A Comprehensive Guide</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-the-latest-amd-rx-480-driver-version-instantly/"><u>Get the Latest AMD RX 480 Driver Version Instantly</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/motherboard-sales-surge-to-39-million-units-as-shipments-bounce-back-to-pre-pandemic-figures/"><u>Motherboard Sales Surge to 39 Million Units as Shipments Bounce Back to Pre-Pandemic Figures</u></a></li>
-<li><a href="https://driver-install.techidaily.com/simplify-system-updates-wintel-hd520/"><u>Simplify System Updates W/Intel HD520</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-achieve-striking-visuals-your-guide-to-uploading-at-correct-dimensions/"><u>[New] Achieve Striking Visuals Your Guide to Uploading at Correct Dimensions</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-animation-amalgamator-a-top-choice-for-saving-and-storing-your-tweeted-gifs/"><u>[New] In 2024, Animation Amalgamator A Top Choice for Saving and Storing Your Tweeted GIFs</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-utilizing-azure-speech-to-text-api/"><u>[New] Utilizing Azure Speech-to-Text API</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-starting-your-own-platform-a-guide-to-critiquing-home-essentials/"><u>[Updated] 2024 Approved Starting Your Own Platform A Guide to Critiquing Home Essentials</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-comprehensive-rotational-view-analysis-for-2024/"><u>[Updated] Comprehensive Rotational View Analysis for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-crucial-top-5-smallest-action-recorders-review/"><u>[Updated] In 2024, Crucial Top 5 Smallest Action Recorders Review</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-the-clear-winner-in-screen-recording-software/"><u>[Updated] In 2024, The Clear Winner in Screen Recording Software</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevating-your-drone-game-discover-why-the-dji-mavic-3-is-a-cut-above-in-aerial-imaging/"><u>Elevating Your Drone Game? Discover Why the DJI Mavic 3 Is a Cut Above in Aerial Imaging</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/embrace-a-holistic-approach-to-health-with-fitbit-sense-vs-apple-watch/"><u>Embrace a Holistic Approach to Health with Fitbit Sense Vs. Apple Watch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/game-on-with-the-philips-evnia-ultimate-49-curved-oled-screen-experience/"><u>Game On with the Philips Evnia: Ultimate 49 Curved OLED Screen Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/keeping-your-furry-friends-fit-a-comprehensive-review-of-the-petsafe-healthy-pet-feeder-for-weight-control/"><u>Keeping Your Furry Friends Fit: A Comprehensive Review of the PetSafe Healthy Pet Feeder for Weight Control</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-apple-airtag-evaluation-ideal-tracking-device-for-iphone-owners/"><u>Top Apple AirTag Evaluation: Ideal Tracking Device for iPhone Owners</u></a></li>
 </ul></div>
 

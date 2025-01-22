@@ -1,7 +1,7 @@
 ---
 title: Top Rated Video Doorbell From RemoBell for Less Than a Hundred Bucks!
-date: 2025-01-03T02:33:55.839Z
-updated: 2025-01-04T01:54:53.098Z
+date: 2025-01-16T18:02:40.595Z
+updated: 2025-01-22T18:09:36.382Z
 categories:
   - BestProducts
 description: This Article Describes Top Rated Video Doorbell From RemoBell for Less Than a Hundred Bucks!
@@ -21,6 +21,10 @@ thumbnail: https://www.lifewire.com/thmb/mZDUOsPvbQNLswTVKscdAIhd7sk=/400x300/fi
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/GshnCnk_G-hNSwDTRjGVB28Nl-o=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -72,7 +76,7 @@ thumbnail: https://www.lifewire.com/thmb/mZDUOsPvbQNLswTVKscdAIhd7sk=/400x300/fi
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Pretty awkward**
@@ -95,15 +99,7 @@ thumbnail: https://www.lifewire.com/thmb/mZDUOsPvbQNLswTVKscdAIhd7sk=/400x300/fi
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Connectivity: Smooth sailing**
 
@@ -130,7 +126,7 @@ thumbnail: https://www.lifewire.com/thmb/mZDUOsPvbQNLswTVKscdAIhd7sk=/400x300/fi
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: More than most**
@@ -138,6 +134,10 @@ thumbnail: https://www.lifewire.com/thmb/mZDUOsPvbQNLswTVKscdAIhd7sk=/400x300/fi
  The Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender is listed at $250, although it’s being sold for $220 at multiple retailers as of this writing. That’s definitely on the higher end for an extender.
 
  Should you really spend that much on an extender? If you don’t already have a new Wi-Fi 6 router, then probably not. You might see higher peaks of speed as I did, but rather than trying to mix and match old and new tech, you’re probably better off investing in a new Wi-Fi mesh system that can cover the entire house. Netgear’s Orbi is a favorite, as is Google’s similar Nest Wi-Fi system.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Netgear Nighthawk AX8 vs. Netgear Nighthawk X6S (EX8000)**
 
@@ -150,7 +150,7 @@ thumbnail: https://www.lifewire.com/thmb/mZDUOsPvbQNLswTVKscdAIhd7sk=/400x300/fi
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -179,18 +179,22 @@ thumbnail: https://www.lifewire.com/thmb/mZDUOsPvbQNLswTVKscdAIhd7sk=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-low-budget-camera-buys-roundup-for-2024/"><u>[New] Low-Budget Camera Buys Roundup for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-transform-your-social-media-image-best-tools-for-professional-fb-cover-photos/"><u>[Updated] Transform Your Social Media Image Best Tools for Professional FB Cover Photos</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-fantasy-villas-with-oriental-elegance-mc-edition/"><u>2024 Approved Fantasy Villas with Oriental Elegance, MC Edition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/beyond-the-hype-an-objective-look-at-bose-quiet-control-30/"><u>Beyond the Hype: An Objective Look at Bose Quiet Control 30</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/creative-labs-2013-sound-blaster-zxr-in-depth-analysis-and-expert-evaluation/"><u>Creative Labs' 2013 Sound Blaster ZXR - In-Depth Analysis and Expert Evaluation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/family-friendly-durable-cams-for-splashing-and-snapping/"><u>Family-Friendly Durable Cams for Splashing and Snapping</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-create-a-digital-signature-online-for-docx-document-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Create a Digital Signature Online for .docx document</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-oneplus-12r-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track OnePlus 12R Location by Number | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-vivo-y100a-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Vivo Y100A to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/master-cortana-archive-windows-based-steps/"><u>Master Cortana Archive: Windows-Based Steps</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/speedy-methods-moving-audio-files-from-iphoneipad-onto-usb-drive/"><u>Speedy Methods: Moving Audio Files From iPhone/iPad Onto USB Drive</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-clearstream-eclipse-antenna-top-notch-functionality-in-an-easy-package/"><u>The ClearStream Eclipse Antenna: Top-Notch Functionality in an Easy Package</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-mobile-reception-amplifiers/"><u>Top-Rated Mobile Reception Amplifiers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-optimize-your-films-a-mac-approach-to-instagram-shortening/"><u>[New] 2024 Approved Optimize Your Films A Mac Approach to Instagram Shortening</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-step-by-step-guide-to-master-gratuitous-timer-software/"><u>[New] In 2024, Step-by-Step Guide to Master Gratuitous Timer Software</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-supreme-session-naming-service/"><u>[New] Supreme Session Naming Service</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-watch-unseen-selective-tools-for-insta-enthusiasts/"><u>2024 Approved Watch Unseen Selective Tools for Insta Enthusiasts</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/advanced-mac-image-compiler-for-2024/"><u>Advanced Mac Image Compiler for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/convert-your-movies-effortlessly-with-the-newest-version-of-winx-dvd-ripper-free-hd-to-mp4-on-windows-11/"><u>Convert Your Movies Effortlessly with the Newest Version of WinX DVD Ripper Free: HD to MP4 on Windows 11</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/expert-guide-navigating-the-aomei-customer-service-platform/"><u>Expert Guide: Navigating the AOMEI Customer Service Platform</u></a></li>
+<li><a href="https://fox-making.techidaily.com/improve-your-scan-results-effective-troubleshooting-techniques-from-yl-software-professionals/"><u>Improve Your Scan Results: Effective Troubleshooting Techniques From YL Software Professionals</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-keeping-the-joyful-jokes-techniques-to-download-tweets-animated-content/"><u>In 2024, Keeping the Joyful Jokes Techniques to Download Tweets’ Animated Content</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-affordable-monitors-the-ultimate-buyers-guide/"><u>Top Rated Affordable Monitors : The Ultimate Buyer's Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-compact-smartphones/"><u>Top Rated Compact Smartphones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-computers-for-artists-and-designers/"><u>Top Rated Computers for Artists & Designers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-hdmi-switchers-your-ultimate-guide/"><u>Top Rated HDMI Switchers : Your Ultimate Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-automobile-mobile-holder-selections/"><u>Top-Rated Automobile Mobile Holder Selections</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-ipad-protective-covers-for-the-latest-gen-models-2024-edition/"><u>Top-Rated iPad Protective Covers for the Latest Gen Models - 2024 Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-iphone-13-slide-and-stand-case-protectors/"><u>Top-Rated iPhone 13 Slide & Stand Case Protectors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-laptop-peripherals-and-gadgets/"><u>Top-Rated Laptop Peripherals and Gadgets</u></a></li>
 </ul></div>
 

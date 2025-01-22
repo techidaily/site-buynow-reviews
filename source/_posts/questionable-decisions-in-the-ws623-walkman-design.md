@@ -1,7 +1,7 @@
 ---
 title: Questionable Decisions in the WS623 Walkman Design
-date: 2024-12-30T20:51:24.812Z
-updated: 2025-01-03T20:45:37.402Z
+date: 2025-01-17T18:11:55.240Z
+updated: 2025-01-22T16:53:12.525Z
 categories:
   - BestProducts
 description: This Article Describes Questionable Decisions in the WS623 Walkman Design
@@ -23,7 +23,7 @@ thumbnail: https://www.lifewire.com/thmb/-Cr0-SCaIqkQaWKOAtau13mGySQ=/400x300/fi
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/uK2E64Wzmh1SC5wGVrVGSMMtQgk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_HeroSqaure-ac1bb2840cb04106b14f3838b80a3bf2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
@@ -77,6 +77,10 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Fits perfectly on your windshield**
 
  The Rexing V1 Dashcam has a more distinctive form factor than other models we reviewed. Unlike many popular dashcam models, the V1 doesn’t resemble a point-and-shoot camera that hangs from your windshield. Rather, it’s angled to fit the curve of the glass. This makes for a more integrated, smooth look.
@@ -94,14 +98,10 @@ Lifewire / Danny Chadwick
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/ztn3EsFqtKkWImvQhtgcr1vlHwI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_02-9ee3aa46e7394a1ab263a6b12b287314.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Be sure that’s where you want to put it**
 
@@ -117,10 +117,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Camera Quality: Basic**
 
  You can set this dash-mounted camera to capture footage in either 720p or 1080p resolution, which is pretty limited. Similar dashcams can capture footage up to 2560 x 1440 resolution, with others going all the way up to 4K. However, if all you’re looking for is a simple security device, 1080p will do just fine.
@@ -130,7 +126,7 @@ Lifewire / Danny Chadwick
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/9_1pHoEq74JWPJ8reothv8PeI8E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_04-c5d42af8ddfa4296a6c6b1e8551edef6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
@@ -152,6 +148,10 @@ Lifewire / Danny Chadwick
 ## **Price: A good value**
 
  The Rexing V1 retails for $130, but as of the time of this writing, can typically be purchased for closer to $100\. We feel like this is a perfectly appropriate price for this device—it falls right in the middle of the typical dashcam price range, providing better performance than super budget models, but without the high-tech features of the more expensive options out there. In short, it’s a good price for a solid, basic device.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Z3 Plus vs. Rexing V1**
 
@@ -198,19 +198,24 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/approved-elite-recording-devices-for-livestream-producers/"><u>2024 Approved Elite Recording Devices for Livestream Producers</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-poco-f5-pro-5g-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Poco F5 Pro 5G without App | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-iphone-models-for-mobile-gaming-in-2-comparison-and-reviews/"><u>Best iPhone Models for Mobile Gaming in 2# Comparison and Reviews</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/converting-mb-to-seconds-a-20mb-scenario-for-2024/"><u>Converting MB to Seconds A 20MB Scenario for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/create-iso-images-from-dvds-with-ease-comprehensive-guide-for-users-of-windows-111087-and-mac-osx/"><u>Create ISO Images From DVDs with Ease: Comprehensive Guide for Users of Windows 11/10/8/7 and Mac OSX</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/exclusive-ig-edits-for-apple-and-android-users-for-2024/"><u>Exclusive IG Edits for Apple & Android Users for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-building-an-audience-on-ig-steps-to-reach-1k-in-one-month/"><u>In 2024, Building an Audience on IG Steps to Reach 1K in One Month</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-vivo-y100-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Vivo Y100 to Mac? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-versatile-intro-editing-app-for-your-device-repertoire/"><u>In 2024, Versatile Intro Editing App for Your Device Repertoire</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/insightful-reviews-for-garmin-vivosmart-4-the-new-era-in-body-energy-and-stress-evaluation/"><u>Insightful Reviews for Garmin Vivosmart 4 - The New Era in Body Energy & Stress Evaluation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-definitive-review-of-bybs-exceptional-e430-led-lamp-with-advanced-swivel-feature/"><u>The Definitive Review of BYB's Exceptional E430 LED Lamp with Advanced Swivel Feature</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-step-by-step-tutorial-on-how-to-use-the-print-function-in-photoshop/"><u>The Ultimate Step-by-Step Tutorial on How to Use the 'Print' Function in Photoshop</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-review-twelve-south-compass-pro-device-delivers-superior-stability-performance/"><u>Top Rated Review: Twelve South Compass Pro Device Delivers Superior Stability Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-amazonbasics-7-port-usb-30-hub-your-solution-for-extra-ports/"><u>Ultimate Guide to the AmazonBasics 7-Port USB 3.0 Hub: Your Solution for Extra Ports</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-japanese-aesthetics-on-the-go-applying-anime-filters-to-snaps/"><u>[New] In 2024, Japanese Aesthetics on the Go Applying Anime Filters to Snaps</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-solo-mastery-how-to-turn-off-apex-legends-cross-play-feature-for-2024/"><u>[New] Solo Mastery How to Turn Off Apex Legends' Cross-Play Feature for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-strategic-application-of-hashtags-in-fb-advertising/"><u>[New] Strategic Application of Hashtags in FB Advertising</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/pgrade-your-videography-with-the-top-10-flv-to-youtube-devices-for-2024/"><u>[New] Upgrade Your Videography with the Top 10 Flv-to-YouTube Devices for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-evolving-narratives-in-the-age-of-vr-movies/"><u>[Updated] Evolving Narratives in the Age of VR Movies</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-real-time-view-counter-analyzers-for-2024/"><u>[Updated] Real-Time View Counter Analyzers for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-ultimate-reddit-winners-a-collection-of-best-posts/"><u>[Updated] Ultimate Reddit Winners A Collection of Best Posts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-iphone-models-for-an-immersive-gaming-experience/"><u>Best iPhone Models for an Immersive Gaming Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-nest-audio-vs-nest-mini-which-smart-speaker-wins/"><u>Comparing Nest Audio Vs. Nest Mini: Which Smart Speaker Wins?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/effortless-fitness-management-with-samsungs-compact-galaxy-fit2-tracker/"><u>Effortless Fitness Management with Samsung's Compact Galaxy Fit2 Tracker</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-can-the-samsung-cf591-deliver-high-quality-gaming-experiences/"><u>Expert Analysis: Can the Samsung CF591 Deliver High-Quality Gaming Experiences?</u></a></li>
+<li><a href="https://techidaily.com/important-considerations-prior-to-purchasing-your-icloud-storage-plan/"><u>Important Considerations Prior to Purchasing Your iCloud Storage Plan</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-is-the-tp-link-archer-ax60-5-new-seo-titles-for-tp-link-archer-ax6000-review-better-than-the-nighthawk-ax12/"><u>In-Depth Review: Is the TP-Link Archer AX60 5 New SEO Titles for TP-Link Archer AX6000 Review: Better Than The Nighthawk AX12?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/outdoor-rc-fun-with-the-blade-blh4100-your-ultimate-120-s-heli-review-guide/"><u>Outdoor RC Fun with the Blade BLH4100: Your Ultimate 120 S Heli Review Guide</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Samsung Galaxy S23 FE | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/quick-and-sturdy-online-linking-with-the-tiny-size-u631-usb-wi-fi-adapter-a-smart-choice-for-fast-networking/"><u>Quick & Sturdy Online Linking with the Tiny Size U631 USB Wi-Fi Adapter - A Smart Choice for Fast Networking</u></a></li>
+<li><a href="https://win11.techidaily.com/quick-tips-for-opening-windows-11s-component-services/"><u>Quick Tips for Opening Windows 11'S Component Services</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-your-creative-potential-with-the-anthropics-photo-editor-in-depth-software-critique/"><u>Unlock Your Creative Potential with the Anthropics Photo Editor - In-Depth Software Critique</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-performance-potential-a-detailed-review-of-the-netgear-c3700-as-an-effective-modem/"><u>Unlocking Performance Potential: A Detailed Review of the Netgear C3700 as an Effective Modem</u></a></li>
 </ul></div>
 

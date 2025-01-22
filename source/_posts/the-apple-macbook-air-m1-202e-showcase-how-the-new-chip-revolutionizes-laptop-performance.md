@@ -1,7 +1,7 @@
 ---
 title: The Apple MacBook Air (M1, 202E) Showcase - How The New Chip Revolutionizes Laptop Performance
-date: 2024-12-28T17:05:54.029Z
-updated: 2025-01-03T20:21:22.441Z
+date: 2025-01-16T20:12:03.881Z
+updated: 2025-01-22T19:19:03.875Z
 categories:
   - BestProducts
 description: This Article Describes The Apple MacBook Air (M1, 202E) Showcase - How The New Chip Revolutionizes Laptop Performance
@@ -47,7 +47,7 @@ thumbnail: https://www.lifewire.com/thmb/uG2dZvul4g85zXD4sna6WxhbCeE=/400x300/fi
 ![Watch Dogs: Legion](https://www.lifewire.com/thmb/Qr_SiCRONOchw7xBWly6nRwi4qM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Watch-Dogs-Legion-PC-1-4cb0288b78324a52bf9ccce096ab5218.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -68,6 +68,10 @@ thumbnail: https://www.lifewire.com/thmb/uG2dZvul4g85zXD4sna6WxhbCeE=/400x300/fi
 
  Watch Dogs: Legion is the latest installment in Ubisoft’s[Watch Dogs](https://www.liveabout.com/watch-dogs-2-cheats-codes-and-walkthroughs-4773695) series, and you can literally play as any character you encounter in the open world. Although Watch Dogs: Legion released without online gameplay (it became available in December 2020), you can play the campaign mode on PC or[console](https://www.lifewire.com/best-gaming-consoles-4154610) right now. Is this game worth the time and monetary investment? I played Watch Dogs: Legion for 30 hours to find out, evaluating its story, gameplay, graphics, to see how it compares to other titles.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setting and Plot: Fun, but predictable**
 
  Watch Dogs: Legion is set in a near-future version of London. The game accurately depicts landmarks, as well as the overall vibe of the city, but it’s a fictional version of London with a heavy tech theme. You have a few different enemies — a group consisting of private military, state operatives, and organized crime, as well as a hacker group called Zero Day. Zero Day pulls off a major terrorist operation in London. This causes the government to give power to a military group (Albion), and that group promptly implements a martial law type system of oppression.
@@ -75,10 +79,6 @@ thumbnail: https://www.lifewire.com/thmb/uG2dZvul4g85zXD4sna6WxhbCeE=/400x300/fi
  You’re part of a group called DedSec, and you and your associates were framed for the terrorist act, although Zero Day were the real culprits. You now need to rebuild the organization, work to take down the multiple groups, and give London back to the people “V for Vendetta”-style.
 
 ![Watch Dogs: Legion car chase](https://www.lifewire.com/thmb/w01z_qW1xkiYdMVSg0obsvGJ2NU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-3-042727c8603245bfbcde2e3b67ab7ed8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -88,6 +88,10 @@ thumbnail: https://www.lifewire.com/thmb/uG2dZvul4g85zXD4sna6WxhbCeE=/400x300/fi
 
 ![Watch Dogs: Legion spider drone](https://www.lifewire.com/thmb/UOpYTu-WYh_4Z_Icu9ZD7aLW78Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-4-a1beafe90fe7494b84b19f97e292c2ab.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
  Once you complete the opening scene, the game is presented like most open world games — pick a mission, drive to it, complete the mission, and repeat. There are plenty of distractions and side missions to take part in like collecting text and audio files, finding the tech points which allow you to upgrade, participating in bare-knuckle fighting, delivering packages, and drinking a beer, and applying paste-ups. You can also shop for clothes.
@@ -96,6 +100,10 @@ thumbnail: https://www.lifewire.com/thmb/uG2dZvul4g85zXD4sna6WxhbCeE=/400x300/fi
 
  Watch Dogs: Legion looks incredible, with great draw distances, and an incredibly detailed world.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Gameplay: Cool character engine, redundant missions**
 
  Watch Dogs: Legion is an open world action-adventure game. I played on PC, and I used an[Xbox controller](https://www.lifewire.com/games-console-reviews-4102640) . The controls were tight, intuitive, and consistently responsive. It felt natural to run through the world, climb, and drive. I was especially impressed with the vehicles, as you can feel the difference when you’re driving a sports car versus when you’re driving a bus.
@@ -103,10 +111,6 @@ thumbnail: https://www.lifewire.com/thmb/uG2dZvul4g85zXD4sna6WxhbCeE=/400x300/fi
  Fighting is simple yet satisfying, with a dodge and counter system that feels realistic, and interesting finishing moves. Shooting feels pretty ok too— the aiming works well, and the duck and cover system feels natural. Cut scenes are very well done. They don’t feel arbitrarily thrown in, and they’re well integrated in the game engine. The main storyline takes around 20 hours, but it’ll take much longer if you play all the side missions.
 
 ![Watch Dogs: Legion character creation](https://www.lifewire.com/thmb/fT7PRS6tGlloKdqVFXl8H-TPrVY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-2-ed238e68324c450997c310f225ff57a6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -128,11 +132,11 @@ thumbnail: https://www.lifewire.com/thmb/uG2dZvul4g85zXD4sna6WxhbCeE=/400x300/fi
 
 ![Watch Dogs: Legion mission](https://www.lifewire.com/thmb/K-AWpBjCaRJlrJ0G-xBMEG92pQo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-7-87aeabc18ddb4bca8252d33fcb1f20bf.jpg)
 
- Erika Rawes / Lifewire
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Erika Rawes / Lifewire
 
 ## **Price: The usual $60**
 
@@ -141,10 +145,6 @@ thumbnail: https://www.lifewire.com/thmb/uG2dZvul4g85zXD4sna6WxhbCeE=/400x300/fi
  There’s just not enough multiplayer meat on the bone or story to justify paying that much more. The $60 price even feels a little high for this game. If you really love open world games, the $60 price might be worth it to you, especially since you can upgrade at no additional cost to the next-gen version if you buy the game on[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) or[Xbox One](https://www.lifewire.com/xbox-one-buyers-guide-3562291) , but you might not get as much playtime out of Watch Dogs: Legion as you would other $60 titles.
 
  The story kept me interested, although the plot bordered on predictable.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Watch Dogs: Legion vs. Grand Theft Auto Series**
 
@@ -177,22 +177,20 @@ thumbnail: https://www.lifewire.com/thmb/uG2dZvul4g85zXD4sna6WxhbCeE=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-charting-your-course-in-the-realm-of-youtube-shorts/"><u>[New] In 2024, Charting Your Course in the Realm of YouTube Shorts</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-ranking-the-greats-top-15-stop-motion-masterpieces/"><u>[New] Ranking the Greats - Top 15 Stop Motion Masterpieces</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-professional-screenrecorder-x2-breakdown/"><u>[Updated] 2024 Approved Professional ScreenRecorder X2 Breakdown</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-mechanics-of-parody-video-making-101-for-2024/"><u>[Updated] The Mechanics of Parody Video Making 101 for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/arma-3-freezing-problems-discover-5-key-solutions-to-keep-your-game-running-smoothly/"><u>Arma 3 Freezing Problems? Discover 5 Key Solutions to Keep Your Game Running Smoothly</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-tp-link-archer-c50-a-value-proposition-for-savvy-shoppers/"><u>Comprehensive Analysis of the TP-Link Archer C50: A Value Proposition for Savvy Shoppers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-2021-apple-tv-4k-next-level-streaming-and-seamless-siri-integration/"><u>Exploring the 2021 Apple TV 4K: Next-Level Streaming & Seamless Siri Integration</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/handbrake-v10x-dvd/"><u>Handbrake v1.0.xのセットアップガイド: 安全なダウンロード、簡単なインストール、日本語設定、DVD動画変換手順</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-photos-from-itel-p40-by-fonelab-android-recover-photos/"><u>How to get back lost photos from Itel P40.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/hp-zbook-firefly-15-gen-8-review-unveiling-the-ultimate-portable-powerhouse/"><u>HP ZBook Firefly 15 Gen 8 Review - Unveiling the Ultimate Portable Powerhouse</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unlocking-the-secrets-of-selecting-a-powerful-podcast-name/"><u>In 2024, Unlocking the Secrets of Selecting a Powerful Podcast Name</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-lg-k92-are-5g-speeds-worth-the-tradeoff/"><u>In-Depth Review of LG K92 - Are 5G Speeds Worth The Tradeoff?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lesser-known-brand-spotlight-avantree-aria/"><u>Lesser-Known Brand Spotlight: Avantree Aria</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/skyline-constructions-unveiled-a-riveting-urban-designers-critique/"><u>Skyline Constructions Unveiled: A Riveting Urban Designer's Critique</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ffort-for-quick-setup-youtube-biz-channel-ideas/"><u>Top Effort for Quick Setup YouTube Biz Channel Ideas</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-best-of-canadas-fongo-phone-plans-a-revealing-review/"><u>Unveiling the Best of Canada's Fongo Phone Plans: A Revealing Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-microsoft-surface-go-a-cost-effective-tablet-with-identity-conundrums-explored/"><u>Unveiling the Microsoft Surface Go - A Cost-Effective Tablet with Identity Conundrums Explored</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-cutting-edge-teamblend-skills-for-smoothed-conferencing-borders/"><u>[New] Cutting-Edge Teamblend Skills for Smoothed Conferencing Borders</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-ultimate-zero-cost-fb-imagery-and-cinematic-builder/"><u>[New] In 2024, Ultimate Zero-Cost FB Imagery & Cinematic Builder</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-photographic-soundtracking-online/"><u>[New] Photographic Soundtracking Online</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bose-wave-soundtouch-iv-review-good-audio-poor-design/"><u>Bose Wave SoundTouch IV Review: Good Audio, Poor Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-test-drive-of-netgear-nighthawk-x6-ac3200-top-performance-for-fams/"><u>Comprehensive Test Drive of Netgear Nighthawk X6 AC3200 - Top Performance for FAMs</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/creative-vlog-ideas-for-daily-use-for-2024/"><u>Creative Vlog Ideas for Daily Use for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ear-friendly-enemies-apples-airpods-pro-confront-samsungs-buds-pro/"><u>Ear-Friendly Enemies: Apple's AirPods Pro Confront Samsung's Buds Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/from-fidos-eyes-comprehensively-reviewing-the-top-of-the-class-furbo-camera/"><u>From Fido’s Eyes: Comprehensively Reviewing the Top-of-the-Class Furbo Camera</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-dreaded-drawing-dynamo/"><u>In 2024, Dreaded Drawing Dynamo</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-tips-and-tricks-for-apple-id-locked-issue-on-iphone-se-by-drfone-ios/"><u>In 2024, Tips and Tricks for Apple ID Locked Issue On iPhone SE</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-the-affordable-amazonbasics-6-sheet-document-shredder/"><u>In-Depth Evaluation of the Affordable AmazonBasics 6-Sheet Document Shredder</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/set-up-your-first-google-meet-and-plan-it/"><u>Set Up Your First Google Meet & Plan It</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-pick-2021-alienware-aurora-r11-assessment-ultimate-gamers-choice/"><u>Top Pick 2021 Alienware Aurora R11 Assessment: Ultimate Gamer's Choice</u></a></li>
+<li><a href="https://win-forum.techidaily.com/unlocking-the-secrets-to-your-windows-11-bios-configuration/"><u>Unlocking the Secrets to Your Windows 11 BIOS Configuration</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unveiling-the-hidden-potential-of-twitter-archives/"><u>Unveiling the Hidden Potential of Twitter Archives</u></a></li>
 </ul></div>
 

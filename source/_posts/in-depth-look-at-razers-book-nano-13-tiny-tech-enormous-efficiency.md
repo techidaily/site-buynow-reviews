@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Look at Razer's Book Nano 13: Tiny Tech, Enormous Efficiency"
-date: 2025-01-11T22:57:10.951Z
-updated: 2025-01-16T14:59:06.982Z
+date: 2025-01-19T18:36:55.785Z
+updated: 2025-01-22T18:27:48.235Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Look at Razer's Book Nano 13: Tiny Tech, Enormous Efficiency"
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/f567dab373423469fdd9df8f70e7990588879bfed
 ![AmazonBasics 7 Port USB 3.0](https://www.lifewire.com/thmb/61zrtwf2XnDfg9oA0igeVIB2E3M=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_HeroSquare-b4652c2651b5474f84409577b3760479.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
@@ -91,10 +91,14 @@ Lifewire / Jonno Hill
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/-6zArDEXr2_gqDvtkeqZAbTQKiQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_05-c3e5d946a7e84b6cb1b395cff1103e42.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: No trouble at all**
 
@@ -112,10 +116,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: Just what you’d expect**
 
  The AmazonBasics 7 Port USB 3.0 Hub performed as expected in our tests, providing USB 3.0 Gen 1 speeds. The five ports in the back supply the standard 0.9A of power, whereas the ports on the side, designed for fast charging, can supply up to 1.5A. If you neglect to connect the hub to a power source, the entire device will have to share the 0.9A of power supplied by your computer’s[USB 3.0 port](https://www.lifewire.com/what-is-usb-3-0-2626038) .
@@ -131,7 +131,7 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **AmazonBasics 7 Port USB 3.0 Hub vs. Aukey USB Hub 3.0**
@@ -147,7 +147,7 @@ Lifewire / Jonno Hill
  The AmazonBasics 7 Port USB 3.0 Hub is an otherwise capable device that is unfortunately marred by quality control issues and cheap construction. That said, if you don’t care as much about design and construction quality, it might still be a good affordable option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -179,16 +179,21 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-android-sound-recording-without-root-simple-guide/"><u>2024 Approved Android Sound Recording Without Root [Simple Guide]</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-from-play-to-replay-capturing-switch-games/"><u>2024 Approved From Play to Replay Capturing Switch Games</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/best-video-changer-tools-reviewed-8-of-the-best-for-iphones-and-pcs-for-2024/"><u>Best Video Changer Tools Reviewed 8 of the Best for iPhones and PCs for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixing-relink-launch-problems-in-your-favorite-rpg-granblue-fantasy/"><u>Fixing Relink Launch Problems in Your Favorite RPG, Granblue Fantasy</u></a></li>
-<li><a href="https://win-able.techidaily.com/1722998546024-getting-unstuck-from-fortnites-load-screen-dilemma-solutions-inside/"><u>Getting Unstuck From Fortnite's Load Screen Dilemma - Solutions Inside!</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-oppo-a1x-5g-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Oppo A1x 5G</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/netgears-nighthawk-x10-ad7200-a-thorough-review-of-its-high-speed-wi-fi-wonders/"><u>Netgear's Nighthawk X10 (AD7200) - A Thorough Review of Its High-Speed Wi-Fi Wonders!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/quality-at-cost-2024s-top-cams/"><u>Quality at Cost: 2024'S Top Cams</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-battle-of-titans-how-does-the-apple-iphone-15-pro-stack-up-to-the-pro-max-edition/"><u>The Battle of Titans: How Does the Apple iPhone 15 Pro Stack Up to the Pro Max Edition?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ergodyne-topo-review-an-essential-guide-to-choosing-an-effective-standing-desk-pad/"><u>The Ergodyne Topo Review: An Essential Guide to Choosing an Effective Standing Desk Pad</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-netgear-nighthawk-x4-router-and-range-extender-combo-a-detailed-review/"><u>Top Netgear Nighthawk X4 Router & Range Extender Combo - A Detailed Review</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unlocking-the-secrets-of-perfect-aspect-ratios/"><u>[Updated] Unlocking the Secrets of Perfect Aspect Ratios</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/5-important-questions-answered-before-you-invest-in-a-fitness-tracker/"><u>5 Important Questions Answered Before You Invest in a Fitness Tracker</u></a></li>
+<li><a href="https://article-files.techidaily.com/a-comprehensive-look-at-quantum-hdr-for-2024/"><u>A Comprehensive Look at Quantum HDR for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/achieve-fitness-goals-in-style-the-comprehensive-review-of-the-garmin-vivomove-hr-smartwatch/"><u>Achieve Fitness Goals in Style: The Comprehensive Review of the Garmin Vivomove HR Smartwatch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-innovation-unpacking-the-performance-and-price-of-arcshells-ar-5-review/"><u>Affordable Innovation: Unpacking the Performance and Price of ArcShell's AR-5 Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-quality-in-tablets-a-comprehensive-look-at-the-new-amazon-fire-hd-8/"><u>Affordable Quality in Tablets: A Comprehensive Look at the New Amazon Fire HD 8</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazon-basics-tablet-propped-holder-review/"><u>Amazon Basic's Tablet Propped Holder Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazon-basics-tablet-stand-review-toss-a-tablet-stand-in-your-pocket/"><u>Amazon Basics Tablet Stand Review: Toss A Tablet Stand In Your Pocket</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/canonayers-guide-to-color-gratification-paid-and-no-cost-luts-for-2024/"><u>Canon'ayer’s Guide to Color Gratification – Paid & No-Cost LUTs for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-turn-up-the-volume-a-guide-to-personalizing-ringtone-and-sound-settings-on-android-devices/"><u>In 2024, Turn Up the Volume A Guide to Personalizing Ringtone & Sound Settings on Android Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722547221370-in-depth-analysis-battery-powered-google-wireless-nest-doorbell-performance/"><u>In-Depth Analysis: Battery-Powered Google Wireless Nest Doorbell Performance</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/real-time-webcam-and-screen-melding-tips/"><u>Real-Time Webcam & Screen Melding Tips</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/resolving-the-adobe-premiere-pro-missing-compatible-video-player-issue/"><u>Resolving the 'Adobe Premiere Pro Missing Compatible Video Player' Issue</u></a></li>
+<li><a href="https://article-helps.techidaily.com/saving-big-on-final-cut-pro-without-paying/"><u>Saving Big on Final Cut Pro without Paying</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/speedy-setup-latest-wacom-intuos-graphics-tablet-drivers-installed-in-no-time/"><u>Speedy Setup: Latest Wacom Intuos Graphics Tablet Drivers Installed in No Time!</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-fcpx-masterclass-how-to-create-visually-stunning-videos/"><u>Updated In 2024, FCPX Masterclass How to Create Visually Stunning Videos</u></a></li>
 </ul></div>
 

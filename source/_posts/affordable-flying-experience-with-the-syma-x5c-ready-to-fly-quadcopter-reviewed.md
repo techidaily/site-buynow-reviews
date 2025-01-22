@@ -1,7 +1,7 @@
 ---
 title: Affordable Flying Experience with the SYMA X5C Ready-to-Fly Quadcopter Reviewed
-date: 2024-08-15T09:27:38.070Z
-updated: 2024-08-16T09:27:38.070Z
+date: 2025-01-20T17:44:37.480Z
+updated: 2025-01-22T19:15:12.282Z
 categories:
   - BestProducts
 description: This Article Describes Affordable Flying Experience with the SYMA X5C Ready-to-Fly Quadcopter Reviewed
@@ -14,13 +14,11 @@ thumbnail: https://www.lifewire.com/thmb/uRyX-yqBs13WVczZZcn9SFh8N4I=/400x300/fi
 4.8
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Motorola MG7700 Cable Modem and Router
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Motorola MG7700](https://www.lifewire.com/thmb/wUfud-dw3x-fQBAILjgQYd_Srx4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-4082541-3-2-5c8fadb846e0fb00014a9735.jpg)
 
 Lifewire / Claire Cohen
@@ -46,9 +44,6 @@ Lifewire / Claire Cohen
 
 ## Motorola MG7700 Cable Modem and Router
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Motorola MG7700](https://www.lifewire.com/thmb/3X3Cjz1mO5USWmPRXT1W5zSdqOE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-4082541-3-2-5c8fadb846e0fb00014a9735.jpg)
 
 Lifewire / Claire Cohen
@@ -75,18 +70,12 @@ Lifewire / Claire Cohen
 
  We recently reviewed the MG7700 to examine just how well it would perform in an average home environment by evaluating the design, ease of setup, network speeds, and software features.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Design: Simple and functional
 
  The Motorola MG7700 is fairly compact at 9.1 x 2.6 x 2.6 inches with a gray finish and a black stand. On the front of the device, you’ll find several indicator lights that tell you if it’s powered up, whether any traffic is flowing through your network, and if people are connected to your wireless network. The light indicators are easy to see and understand — something you don’t typically find in a modem from your cable company.
 
  The MG7700 has a power port on the back, as well as a coaxial port for connecting your service provider’s cable to the device. There are also four[local area network](https://www.lifewire.com/what-is-lan-4684071) (LAN) ports if you want to directly plug your computers and other devices into the modem using an Ethernet cable.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Motorola MG7700](https://www.lifewire.com/thmb/djrbmUe-WrBQ_Tx-xD6258JjBmU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-4-5c8faefcc9e77c0001a926be.jpg)
 
  Lifewire / Claire Cohen
@@ -97,6 +86,10 @@ Lifewire / Claire Cohen
 
  The Best Cable Modems on the Market
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Setup Process: Location, location, location
 
  Since the Motorola MG7700 is a combined cable modem and router, you’ll need to plug it into[your ISP’s coaxial cable](https://www.lifewire.com/introduction-to-network-cables-817868) in order to pipe Internet into your home. This can limit your placement locations a bit since coax cables are often installed by your provider in less-than-ideal locations, especially if you live in an apartment building.
@@ -105,9 +98,6 @@ Lifewire / Claire Cohen
 
  If you do get the choice of where it’s installed, you usually want the coax cable to come in from an unobtrusive corner, not sprouting out from the middle of the living room in an unsightly fashion. Unfortunately, that’s bad for routers which work best in a central location of your house or apartment so the signal covers everywhere you need. If you can’t get find a good spot away from other wireless devices, metal, walls, and other barriers that can impede signal, you may want to invest in a coax cable extension.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Motorola 7700](https://www.lifewire.com/thmb/RfuGGYo_UZvzWOQw8Rb7KZnMkhs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-1-5c8faf2dc9e77c00014a9db2.jpg)
 
  Lifewire / Claire Cohen
@@ -117,8 +107,9 @@ Lifewire / Claire Cohen
  Information about approved third-party equipment can usually be found on your cable provider’s website. If not, it’s best to call and ask before you buy. We were able to set it up on Spectrum without any trouble.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Connectivity: The latest standards
 
  The Motorola MG7700 is a 24x8 DOCSIS 3.0 modem that doubles as a wireless router. It has 24 downstream channels (which are lanes that handle network traffic, so the more, the better) allowing it to potentially hit a 1 Gbps download speed. There are eight upstream channels for a maximum 246 Mbps upload. This is a pretty standard set of connectivity protocols that makes it a lot faster than 16x4 modems, but slower than 32x8 ones.
@@ -132,6 +123,10 @@ Lifewire / Claire Cohen
  Some advice: It’s often best to connect things such as smart switches and smart bulbs to the 2.4GHz band since they tend to be scattered across the house and reserve the 5GHz one for more bandwidth-hungry devices such as streaming sticks, game consoles, and TVs.
 
  The “1900” represents the maximum theoretical bandwidth the router is capable of. In this case, the MG7700 could hit 1,900 Mbps, but again, this is only if your cable provider supports it, not to mention other factors like wireless interference due to congested bands and throttling from your provider.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Network Performance: Fast speeds with a caveat
 
@@ -151,13 +146,14 @@ Lifewire / Claire Cohen
 
  Overall, if you live in a large apartment or a modestly-sized home, you won’t be disappointed by the performance of the MG7700.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Software: User-friendly options
 
  The MG7700’s built-in software is customizable, too. Once your router is set up, you can go to a specified IP address (the instructions will tell you which one) in your Web browser to change settings, including the name of the default network, enabling password protection, toggling the channels your router will communicate on, and more. There’s also an Advanced page that allows you to set up a[firewall](https://www.lifewire.com/definition-of-firewall-817568) or enable parental controls. Overall, the settings are well laid out, easy to understand, and simple to change.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Price: Good value for the speed
 
  At $189.99 (MSRP), the MG7700 isn’t quite as a cheap as standalone modems, which can cost as little as $30, but incorporating both a modem and router into one device makes the price more palatable.
@@ -184,6 +180,10 @@ Lifewire / Claire Cohen
 
 * [Netgear Nighthawk C7000](https://www.lifewire.com/netgear-nighthawk-c7000-review-4686068)
 * [Netgear C3700 Cable Modem Router](https://www.lifewire.com/netgear-c3700-cable-modem-router-review-4686094)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -212,8 +212,6 @@ Lifewire / Claire Cohen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -221,4 +219,22 @@ Lifewire / Claire Cohen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-adept-principles-for-youtube-participants/"><u>[New] In 2024, Adept Principles for YouTube Participants</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-finding-the-right-free-srt-translation-for-you-our-8-picks/"><u>[New] In 2024, Finding the Right FREE SRT Translation for You – Our #8 Picks</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-infusing-life-into-ppt-with-professional-voiceovers/"><u>[Updated] 2024 Approved Infusing Life Into PPT with Professional Voiceovers</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-enhancing-visual-storytelling-with-picture-in-picture-techniques-on-mac-for-2024/"><u>[Updated] Enhancing Visual Storytelling with Picture In Picture Techniques on Mac for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-navigating-the-in-app-interface-for-smooth-streaming/"><u>[Updated] Navigating the In-App Interface for Smooth Streaming</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-chatcam-video-saver-app/"><u>2024 Approved ChatCam Video Saver App</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-hp-63-a9cb8x-printhead-driver-for-windows-compatible-with-p1102w/"><u>Download & Install HP 63-A9C/B8X Printhead Driver for Windows - Compatible with P1102w</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/key-aspects-to-contemplate-when-selecting-a-sim-free-phone-for-your-needs/"><u>Key Aspects to Contemplate When Selecting a SIM-Free Phone for Your Needs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/linksys-velop-explored-an-in-depth-look-at-this-leading-mesh-router-technology/"><u>Linksys Velop Explored: An In-Depth Look at This Leading Mesh Router Technology</u></a></li>
+<li><a href="https://techtrends.techidaily.com/macos-15-sequoia-anticipated-debut-date-advanced-functionality-and-breaking-information-breakdown/"><u>MacOS 15 'Sequoia': Anticipated Debut Date, Advanced Functionality & Breaking Information Breakdown</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-the-pre-upload-checklist-for-your-websites-visual-appeal/"><u>Mastering the Pre-Upload Checklist for Your Website's Visual Appeal</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-the-small-screen-a-comprehensive-look-at-the-apple-ipad-mini-(span)5(span)/"><u>Mastering the Small Screen: A Comprehensive Look at the Apple iPad Mini <Span>5</Span></u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-your-secure-home-with-blinks-4-camera-floodlight-security-setup/"><u>Mastering Your Secure Home with Blink's 4-Camera Floodlight Security Setup</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/premium-police-scanners-launched/"><u>Premium Police Scanners Launched</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/solution-wind-speeds-over-5msec-can-increase-the-rate-of-moisture-loss-through-evaporation-leading-to-uneven-drying-surface-defects-and-reduced-strength-in-81/"><u>Solution: Wind Speeds over 5M/Sec Can Increase the Rate of Moisture Loss Through Evaporation, Leading to Uneven Drying, Surface Defects, and Reduced Strength in the Concrete.</u></a></li>
+</ul></div>
 

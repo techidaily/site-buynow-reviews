@@ -1,7 +1,7 @@
 ---
 title: "Canon PowerShot: The Efficient SX620 HS Explores Photography"
-date: 2025-01-09T11:46:46.859Z
-updated: 2025-01-15T23:06:10.856Z
+date: 2025-01-16T17:12:40.503Z
+updated: 2025-01-22T20:17:47.312Z
 categories:
   - BestProducts
 description: "This Article Describes Canon PowerShot: The Efficient SX620 HS Explores Photography"
@@ -18,12 +18,16 @@ thumbnail: https://thmb.techidaily.com/68d72132debc55d7a219d5ad96f3f8ade10f55eb9
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/mk2ndJKMrOgGOYfE8uNwJVYkaTk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
@@ -48,16 +52,12 @@ Lifewire / Nick Jaynes
 4.5
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/kUpys0K04ePH0SuEfAENz--MXSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
 
@@ -92,6 +92,10 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Fast charging for demanding devices**
 
  The best part of the Anker PowerDrive 2 is its charging. It has the ability to charge iPads simultaneously without getting overheated thanks to its PowerIQ and VoltageBoost technology. Each USB port can output a maximum 5V/2.4A, for a total of 24W. That’s in line with other car[chargers](https://www.lifewire.com/best-wireless-phone-chargers-4138571) we tested, but the PowerIQ technology can help identify device and deliver the fastest possible charge. This also gives you some overvoltage protection to make sure something like a smartwatch doesn’t fry when you plug it in.
@@ -103,7 +107,7 @@ Lifewire / Nick Jaynes
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Middle of the pack**
@@ -125,10 +129,6 @@ Lifewire / Nick Jaynes
  **The Anker PowerDrive 2 is the workhorse of the in-car USB charger market.**
 
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -156,22 +156,22 @@ Lifewire / Nick Jaynes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-elevate-your-online-engagements-with-pc-and-phone-recordings/"><u>[New] Elevate Your Online Engagements with PC & Phone Recordings</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-fun-flair-for-text-memes-with-easy-genrator/"><u>2024 Approved Fun Flair for Text Memes with Easy Gen'rator</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/aerial-artistry-mastering-the-craft-of-drone-video-editing/"><u>Aerial Artistry Mastering the Craft of Drone Video Editing</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-the-portable-and-productive-samsung-galaxy-chromebook-2-experience/"><u>Expert Review: The Portable and Productive Samsung Galaxy Chromebook 2 Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-unleashing-productivity-with-corsairs-all-in-one-gaming-pc-the-one-pro/"><u>Expert Review: Unleashing Productivity with Corsair's All-in-One Gaming PC, the One Pro</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/from-phone-footage-to-channel-fame-a-seamless-setup-for-your-businesspersonal-brand-for-2024/"><u>From Phone Footage to Channel Fame A Seamless Setup for Your Business/Personal Brand for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/hands-on-with-the-new-klipsch-flexus-200-soundbar/"><u>Hands On With the New Klipsch Flexus 200 Soundbar</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/iphone-se-202n-user-guide-a-reasonably-priced-tech-marvel-reviewed/"><u>IPhone SE (202N) User Guide - A Reasonably Priced Tech Marvel Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-the-tp-link-archer-ax6000-a-superior-alternative-to-the-netgear-nighthawk-ax12-detailed-review-inside/"><u>Is the TP-Link Archer AX6000 a Superior Alternative to the NETGEAR Nighthawk AX12? Detailed Review Inside</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/marvels-spider-man-miles-morales-analysis-a-compact-story-with-profound-influence/"><u>Marvel's Spider-Man: Miles Morales Analysis - A Compact Story with Profound Influence</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/methods-to-restart-printers-automatic-service-in-win/"><u>Methods to Restart Printer's Automatic Service in Win</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/must-have-savings-apple-offers-on-prime-day-extravaganza/"><u>Must-Have Savings: Apple Offers on Prime Day Extravaganza</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/nest-building-20-scaling-up-your-inhabitable-oasis/"><u>Nest Building 2.0: Scaling-Up Your Inhabitable Oasis</u></a></li>
-<li><a href="https://win-blog.techidaily.com/resolved-fixing-pc-crashes-in-age-of-wonders-planetfall-troubleshooting-tips/"><u>Resolved: Fixing PC Crashes in 'Age of Wonders: Planetfall' - Troubleshooting Tips</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/unlock-the-secrets-maximizing-your-video-content-on-zoom-and-youtube-live/"><u>Unlock the Secrets Maximizing Your Video Content on Zoom & YouTube Live</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/widerspruch-zwischen-fuhrungskraften-und-verwaltern-gefahrdet-digitalisierungsbemuhungen-eine-analyse-der-abbyy-berichte/"><u>Widerspruch Zwischen Führungskräften Und Verwaltern Gefährdet Digitalisierungsbemühungen – Eine Analyse Der ABBYY-Berichte</u></a></li>
-<li><a href="https://win-excellent.techidaily.com/wie-man-eine-versehentlich-geloschte-excel-datenbank-unter-windows-11-wiederherstellt/"><u>Wie Man Eine Versehentlich Gelöschte Excel-Datenbank Unter Windows 11 Wiederherstellt</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-art-of-shooting-and-editing-slow-motion-content-for-instagram/"><u>[New] 2024 Approved The Art of Shooting and Editing Slow Motion Content for Instagram</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-social-media-live-war-fb-live-and-yt-live-vs-twitter-spaces/"><u>[New] In 2024, Social Media Live War FB LIVE & YT Live Vs. Twitter Spaces</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-broad-spectrum-of-uavs/"><u>2024 Approved Broad Spectrum of UAVs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-best-in-class-combined-cable-and-wireless-router-units-reviewed/"><u>2024'S Best-in-Class Combined Cable and Wireless Router Units Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-top-performers-best-combined-cable-modem-and-routers/"><u>2024'S Top Performers: Best Combined Cable Modem and Routers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-beginners-guide-printer-ready-designs-using-adobe-photoshop/"><u>A Beginner's Guide: Printer-Ready Designs Using Adobe Photoshop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-game-of-two-talents-mlb-the-show-19-blends-sports-realism-with-riveting-roleplaying-dynamics-our-review/"><u>A Game of Two Talents: MLB The Show 19 Blends Sports Realism with Riveting Roleplaying Dynamics – Our Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-monoprice-graphics-tablet-comprehensive-review-and-value-insights/"><u>Affordable Monoprice Graphics Tablet - Comprehensive Review & Value Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazons-e-reading-revolution-why-kindle-unlimited-membership-is-a-wise-choice/"><u>Amazon’s E-Reading Revolution: Why Kindle Unlimited Membership Is a Wise Choice</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/analyzing-boses-noise-cancelling-expertise-in-qc30/"><u>Analyzing Bose's Noise Cancelling Expertise in QC30</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722629709644-get-ready-for-action-dive-into-a-vibrant-new-season-of-fortnite-review-and-strategy/"><u>Get Ready for Action! Dive Into a Vibrant New Season of Fortnite Review and Strategy</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-fix-evil-genius-2-when-it-refuses-to-boot-up/"><u>How to Fix Evil Genius 2 When It Refuses to Boot Up</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-a05s-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Samsung Galaxy A05s PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-accelerating-learning-on-tiktok-changing-your-profile-number/"><u>In 2024, Accelerating Learning on TikTok Changing Your Profile Number</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlocking-iphone-6s-plus-passcode-without-a-computer-drfone-by-drfone-ios/"><u>In 2024, Unlocking iPhone 6s Plus Passcode without a Computer | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/prime-greener-recording-devices-utilization-tips/"><u>Prime Greener Recording Devices Utilization Tips</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/top-5-book-trailers-that-will-captivate-you/"><u>Top 5 Book Trailers That Will Captivate You</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Beat the Market: How Apple's 2020 ARM-Powered Mac Mini Outshines Its Rival PCs"
-date: 2024-12-29T22:56:14.207Z
-updated: 2025-01-04T00:43:31.685Z
+date: 2025-01-15T18:28:11.142Z
+updated: 2025-01-22T16:59:22.194Z
 categories:
   - BestProducts
 description: "This Article Describes Beat the Market: How Apple's 2020 ARM-Powered Mac Mini Outshines Its Rival PCs"
@@ -18,13 +18,13 @@ thumbnail: https://thmb.techidaily.com/52f669a15e335bb29d06275250544e9470586ee07
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Apple MacBook Pro 16-inch (2021)
 
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/L5Mbsc5JB_OpmoLJkqia2EonbI8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-hero-8413a7aa67ca443bb241da703c1025b2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Sascha Brodsky
 
@@ -49,6 +49,10 @@ Lifewire / Sascha Brodsky
 ## Apple MacBook Pro 16-inch (2021)
 
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/Bj4JU3ddfkgYppYQYoy1GmCukCA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-hero-8413a7aa67ca443bb241da703c1025b2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Sascha Brodsky
 
@@ -77,6 +81,10 @@ Lifewire / Sascha Brodsky
 
  I’ve been using Apple portables ever since the Powerbook 100 was released in 1991\. After spending several weeks with the new MacBook Pro, it offers the responsiveness previously associated only with iPads and iPhones, matched with the refined form factor of Apple’s best laptops.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Design: Back to the future
 
  On the surface, the new MacBook Pro doesn’t look radically different from Apple’s previous Pro laptop models. It’s got a similar aluminum case, and the screen is about the same size as the 2019 model.
@@ -85,15 +93,15 @@ Lifewire / Sascha Brodsky
 
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/dFndxams3xUoua0_gkYqRycgBdU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-1-db37ffedba744e8eb2070780c0d8de10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Sascha Brodsky
 
  The Pro could be considered a step back in some areas. For one thing, at 0.66 by 14 by 9.8 inches and 4.8 pounds, the MacBook Pro is chunkier and heavier than the model it replaces. This is definitely not a laptop you’ll forget you are carrying in your backpack. On the other hand, the heft of the new MacBook is reassuring and in keeping with its target market of professionals.
 
  Apple has also gone full circle and replaced the ports it removed in previous iterations of the MacBook. You get a MagSafe connector, headphone jack, SD card slot, HDMI port, and three Thunderbolt 4 ports, which should be enough for almost any user. There’s no USB-A port but most people won’t miss it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Keyboard: Precision is everything
 
@@ -110,10 +118,6 @@ Lifewire / Sascha Brodsky
  There’s nothing not to like about the trackpad on the new MacBook Pro. It’s big and responsive, and you won’t notice it after a while, which is all you need in an input device.
 
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/tD3rxlw9zH5xufV5ztJIZyrJc3Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-3-db6300639d8049d1862d0e4f25a35222.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Sascha Brodsky
 
@@ -143,10 +147,6 @@ Lifewire / Sascha Brodsky
 
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/UM5_acSqOhRJtIaZE3CeAWp45y0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-2-2be1639ee44f489286cb43a53aaf6454.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Sascha Brodsky
 
  For those who want to know the details, the PCMark benchmarking software found the following scores for the MacBook Pro:
@@ -161,6 +161,10 @@ Lifewire / Sascha Brodsky
 
  Multi-Core: 7552
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Battery: Keeps on going and going
 
  One of the benefits of the new M1 chip is its efficiency. Despite its power, the chip sips energy. The M1 Pro ran for 16 hours on its battery during continuous use, making it the longest-lasting laptop I've ever tried.
@@ -170,10 +174,6 @@ Lifewire / Sascha Brodsky
  The M1 Pro ran for 16 hours during continuous use, making it the longest-lasting laptop I've ever tried.
 
  Another nice thing about the efficient M1 chip is the fact that the MacBook runs cool. I’ve used it for dozens of hours, and it never felt more than slightly warm. Contrast that to my 2019 MacBook Pro that used to get so hot I was worried it would catch fire.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Price: Cough, splutter?
 
@@ -186,7 +186,7 @@ Lifewire / Sascha Brodsky
  A less expensive MacBook will be just fine for many users who just need a light work and fun machine. But for anyone who wants arguably the best laptop ever made, only the new MacBook Pro will do.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## MacBook Pro (M1, 2021) vs. MacBook Air (M1, 2020)
@@ -247,17 +247,19 @@ Lifewire / Sascha Brodsky
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-streamlined-mac-package-audio-plus-video-capture-for-2024/"><u>[Updated] Streamlined Mac Package Audio + Video Capture for 2024</u></a></li>
-<li><a href="https://discover-able.techidaily.com/iuewoeaykplusamhpluswnlzog6auy5pwi5bcg5pah5lu26yca6lplush5lul5asq572r5lyg6l6t5yiw5yw25luw55s16isrig/"><u>簡易指南: 高效将文件通过以太网传输到其他电脑</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-garmin-venu-analysis-your-ultimate-guide-for-247-wellness-monitoring/"><u>Comprehensive Garmin Venu Analysis - Your Ultimate Guide for 24/7 Wellness Monitoring</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/efficient-avi-to-gif-conversion-made-simple-windowsmac-edition-with-filmora-for-2024/"><u>Efficient AVI-to-GIF Conversion Made Simple Windows/Mac Edition with Filmora for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/eliminate-darkness-solutions-to-restore-facetime-screen-clarity/"><u>Eliminate Darkness: Solutions to Restore FaceTime Screen Clarity</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-24-hour-film-size-gb-measurement-guide/"><u>In 2024, 24-Hour Film Size GB Measurement Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/professional-insight-on-logitech-c920-ultra-hd-webcam-experience/"><u>Professional Insight on Logitech C920 Ultra HD Webcam Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-the-mid-range-segment-with-a-dash-of-pizzazz-the-comprehensive-motorola-one-hyper-evaluation/"><u>Revolutionizing the Mid-Range Segment with a Dash of Pizzazz - The Comprehensive Motorola One Hyper Evaluation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/should-upgraded-iphones-excite-you-more-than-new-models/"><u>Should Upgraded iPhones Excite You More Than New Models?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-rexing-v1-dash-cam-uncovered-securing-your-journey-without-breaking-the-bank/"><u>The Rexing V1 Dash Cam Uncovered: Securing Your Journey Without Breaking the Bank</u></a></li>
-<li><a href="https://win-hot.techidaily.com/unlock-peak-internet-potential-with-proven-boost-techniques-from-yl-computings-expert-tips/"><u>Unlock Peak Internet Potential with Proven Boost Techniques From YL Computing's Expert Tips</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/1728487295115-windows-11/"><u>Windows 11におけるドライブレターの変更手順：４つの効果的な方法</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-your-step-by-step-adventure-in-metaverse-avatar-crafting/"><u>[Updated] 2024 Approved Your Step-by-Step Adventure in Metaverse Avatar Crafting</u></a></li>
+<li><a href="https://techtrends.techidaily.com/boost-performance-with-ease-clearing-your-android-devices-cache-instructions/"><u>Boost Performance with Ease: Clearing Your Android Device's Cache Instructions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/critically-acclaimed-reimagining-of-the-wasteland-2-directors-edition-reviewed/"><u>Critically Acclaimed Reimagining of The Wasteland 2: Director’s Edition Reviewed</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/essential-insights-protect-your-privacy-from-common-chatbot-threats/"><u>Essential Insights: Protect Your Privacy From Common Chatbot Threats</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expertly-selected-highest-quality-usb-drives-of-the-year-2024/"><u>Expertly Selected, Highest Quality USB Drives of the Year 2024</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/how-to-enable-mov-playback-in-vlc-media-player-top-solutions/"><u>How to Enable MOV Playback in VLC Media Player – Top Solutions</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1722995035220-immediate-fixes-for-combat-arms-delays-streamlined-approach/"><u>Immediate Fixes for Combat Arms Delays - Streamlined Approach</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-fresh-filmmakers-footnotes-unveiling-video-quality-terms/"><u>In 2024, Fresh Filmmaker's Footnotes Unveiling Video Quality Terms</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-the-nuances-of-video-sound-design/"><u>In 2024, Mastering the Nuances of Video Sound Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-why-the-samsung-gear-s3-frontier-stands-out-amongst-smartwatches-with-its-abundance-of-features/"><u>In-Depth Analysis: Why the Samsung Gear S3 Frontier Stands Out Amongst Smartwatches with Its Abundance of Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-portability-and-performance-with-the-new-razer-stealth-laptop-review/"><u>Mastering Portability and Performance with the New Razer Stealth Laptop Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-remote-communication-a-deep-dive-into-logitechs-high-definition-c920-webcam/"><u>Mastering Remote Communication: A Deep Dive Into Logitech's High-Definition C920 Webcam</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/ringtone-repository-prime-picks-for-downloadable-calls/"><u>Ringtone Repository Prime Picks for Downloadable Calls</u></a></li>
+<li><a href="https://win-forum.techidaily.com/unstick-your-files-how-to-use-revo-uninstaller-for-forced-folder-deletion-on-windows-operating-systems/"><u>Unstick Your Files: How to Use Revo Uninstaller for Forced Folder Deletion on Windows Operating Systems</u></a></li>
 </ul></div>
 

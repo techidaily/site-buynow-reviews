@@ -1,7 +1,7 @@
 ---
 title: Affordable Excellence with TP-Link Archer C50 - In-Depth Analysis
-date: 2024-08-15T09:26:33.340Z
-updated: 2024-08-16T09:26:33.340Z
+date: 2025-01-16T18:26:03.830Z
+updated: 2025-01-22T17:29:05.913Z
 categories:
   - BestProducts
 description: This Article Describes Affordable Excellence with TP-Link Archer C50 - In-Depth Analysis
@@ -14,8 +14,9 @@ thumbnail: https://www.lifewire.com/thmb/mmbrE9_55HrTJ55Kp-P9NDxY-B8=/400x300/fi
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Kootek Laptop Cooling Pad
 
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/7No_c3E_HUrSqeMtUM6UkfB2e9Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_HeroSquare-6441809b63624fe0a5eeff086503ee26.jpg)
@@ -39,12 +40,17 @@ Lifewire / Andrew Hayward
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Kootek Laptop Cooling Pad
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/vuq5u4XUGBs6ncFjbes1JatZvV8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_HeroSquare-6441809b63624fe0a5eeff086503ee26.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -70,9 +76,6 @@ _We purchased the Kootek Laptop Cooling Pad_   _so our reviewer could put it to 
 
  Kootek’s Laptop Cooling Pad isn’t the cheapest option around, nor is it the most premium—but it’s effective and sells for a reasonable price, and is large enough to accommodate larger laptops with 17-inch displays. A clunky height adjustment system is the main drawback, but it doesn’t stop the Kootek pad from working as expected.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Design: Clunky, but it works
 
  The Kootek Laptop Cooling Pad is a larger unit, measuring nearly 15 inches wide, 11.8 inches tall, and about 1.4 inches thick, with a weight of 2.6 pounds. It’s heavier and bulkier than the lightweight TopMate C302 Cooling Pad, for example, and feels more durable as a result.
@@ -92,9 +95,9 @@ Lifewire / Andrew Hayward
  There are two buttons at the back of the pad: One button controls the large, central fan (4.72 inches), while the other controls the four smaller fans (2.76 inches each). I’m not sure why you would choose to use only some fans at any given time, since they’re all quiet, but the option is there if you want it. You’ll also find two USB-A ports, meaning this cooling pad functions as a hub for plugging additional accessories into your laptop.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Setup Process: Very straightforward
 
  The Kootek Laptop Cooling Pad doesn’t require any software or its own power unit to function. Simply place it under your laptop, adjust the height as desired, and then plug the built-in USB cable into your laptop to power it on. As mentioned, you can control the fans using the buttons at the back of the pad, and the USB ports can be used for additional accessories.
@@ -115,26 +118,21 @@ Lifewire / Andrew Hayward
 
  Meanwhile, I saw a peak internal temperature of 196 degrees when playing Fortnite, along with an external temperature of 118 degrees. With the cooling pad equipped, I saw a slightly lower internal peak of 192 degrees, although it mostly hovered in the 160 to 170-degree range during testing. The external peak with the Kootek pad was 106 degrees. Curiously, I saw the exact same numbers with the Heaven graphics benchmark test with and without the cooling pad: 162 degrees internally and 109 degrees external.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/ppFnQ9kEpjbEV9cYbHzLRI5j-j8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_05-4a4d5ee065a94c3e984ae0c96f4916d8.jpg)
 
 Lifewire / Andrew Hayward
 
  All told, the Kootek Laptop Cooling Pad made a solid effort in lowering the temperature of the Razer Blade 15 while playing Dirt 5 and Fortnite, although the cheaper, dual-fan TopMate C302 cooling pad saw slightly better overall results. Your experience may vary depending on your laptop of choice, however. All the while, the Kootek pad stayed pretty quiet in stark contrast to the Razer Blade’s own very loud internal fans.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ## Price: Entirely reasonable
 
  At $26 from Amazon, the Kootek Laptop Cooling Pad is a reasonably-priced option with solid performance and the ability to accommodate larger laptops. There are cheaper options out there, as well as some with additional features such as temperature sensors and additional fan controls, but Kootek’s device delivers good functionality for the price.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/30UKekQcQjJ1mpixthV5avHNZsE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_02-9e1418002e754b2c8e01cb12f766975a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -167,14 +165,11 @@ Lifewire / Andrew Hayward
 * Ports  USB-A x2
 * Waterproof  N/A
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -183,4 +178,22 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-ultimate-list-of-quick-pace-audio-apps/"><u>[New] 2024 Approved Ultimate List of Quick-Pace Audio Apps</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-comparing-gopros-max-and-hero-11-for-the-best-video-quality/"><u>2024 Approved Comparing GoPro's Max and Hero 11 for the Best Video Quality</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-next-gen-psvr-experience-essential-upcoming-games-to-watch/"><u>2024 Approved Next Gen PSVR Experience Essential Upcoming Games to Watch</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-on-apple-iphone-13-pro-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud on Apple iPhone 13 Pro Safe and Legal</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/explore-top-rated-image-transition-tools-for-2024/"><u>Explore Top-Rated Image Transition Tools for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-overcome-hp-laserjet-p2035-printer-drivers-error-on-microsoft-windows/"><u>How to Overcome HP LaserJet P2035 Printer Drivers Error on Microsoft Windows</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-diving-into-twitter-starting-fresh/"><u>In 2024, Diving Into Twitter Starting Fresh</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-best-amazon-fire-hd-10-kids-edition-a-thorough-examination-of-its-unparalleled-safety-functions/"><u>Navigating the Best Amazon Fire HD 10 Kid's Edition - A Thorough Examination of Its Unparalleled Safety Functions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ps5-or-ps5-slim-which-version-should-you-buy/"><u>PS5 or PS5 Slim - Which Version Should You Buy?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-pets-meal-schedule-with-arf-pets-programmable-feeder/"><u>Revolutionize Your Pet's Meal Schedule with Arf Pets Programmable Feeder</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-hydraulic-radius-indicates-flow-efficiency-larger-values-suggest-less-friction-and-more-efficient-flow/"><u>The Hydraulic Radius Indicates Flow Efficiency; Larger Values Suggest Less Friction and More Efficient Flow</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-reliability-test-for-kensuns-compact-and-durable-travel-friendly-tire-inflator/"><u>The Reliability Test for Kensun's Compact & Durable Travel-Friendly Tire Inflator</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-trustworthy-and-easy-to-carry-kensun-tire-pump-a-thorough-review-for-car-enthusiasts/"><u>The Trustworthy & Easy-to-Carry Kensun Tire Pump: A Thorough Review for Car Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-ratchet-and-clank-timeless-adventure-redefined/"><u>The Ultimate Guide to Ratchet & Clank: Timeless Adventure Redefined</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-the-ultimate-fcpx-cropping-guide-resize-and-refine-your-images/"><u>Updated In 2024, The Ultimate FCPX Cropping Guide Resize and Refine Your Images</u></a></li>
+</ul></div>
 

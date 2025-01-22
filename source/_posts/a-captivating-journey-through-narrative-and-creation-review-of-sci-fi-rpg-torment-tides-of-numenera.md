@@ -1,7 +1,7 @@
 ---
 title: "A Captivating Journey Through Narrative and Creation - Review of Sci-Fi RPG 'Torment: Tides of Numenera'"
-date: 2024-08-15T09:29:30.081Z
-updated: 2024-08-16T09:29:30.081Z
+date: 2025-01-20T16:34:05.743Z
+updated: 2025-01-22T17:44:03.364Z
 categories:
   - BestProducts
 description: "This Article Describes A Captivating Journey Through Narrative and Creation - Review of Sci-Fi RPG 'Torment: Tides of Numenera'"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/a48de872a6c6993681d46785e55907dbe1a82ff0e
 
 3.3
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Alienware Aurora R9
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/SBirmVys72S63lQd4lWukO_gXRw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
@@ -40,12 +37,13 @@ Lifewire / Zach Sweat
 
 3.3
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Alienware Aurora R9
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/BiBvvSXCg5l15o1T-fJmijAM9PQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -81,6 +79,10 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Polarizing sci-fi aesthetics**
 
  The best way to describe Alienware’s design for a vast majority of their products can be summed up as “polarizing.” Going all the way back to the company’s early days, their sci-fi and alien-esque aesthetics have always appealed to some, while those who prefer clean lines and minimal looks flee in the opposite direction.
@@ -101,9 +103,6 @@ Lifewire / Zach Sweat
 
  Inside the case, Alienware has made the new R9 quite upgradeable, allowing owners to easily pull things apart for access to various components. Though it’s a bit cramped inside, the genius ability to swing the PSU (power supply unit) out to the side when the case is removed provides easier access to the motherboard and all its parts. While we’re a bit concerned with the airflow due to this tight fit inside the case, it does allow you to upgrade hardware down the line if you want.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## **Setup Process: Plug and play**
 
  Because this is a prebuilt, setting up your new PC is super simple—essentially plug and play. This is another hugely important thing to consider if you want to get into PC gaming, but don’t know the first thing about installing an OS, troubleshooting build issues or navigating the BIOS.
@@ -115,6 +114,10 @@ Lifewire / Zach Sweat
  Upon landing at your new desktop within Windows 10, the rest of the setup process is mostly up to you. Typically, I continue the initial process by checking for Windows updates, installing those first and restarting as necessary, followed by downloading updates for drivers and graphics cards. Once you’ve got the important software updated, the next best thing is to download your favorite apps and software you want to use, like Steam, Spotify, Chrome, etc.
 
  From here, you can either fine tune your new PC’s looks within the settings menu or keep things as they are. If you’re using a monitor with a higher refresh rate or resolution, it’s also a good idea to ensure your PC is fully utilizing this by perusing the display settings and options. After all, nobody likes finding out they’ve been stuck on 60Hz with their display that’s capable of hitting 144Hz.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Results may vary**
 
@@ -134,9 +137,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ## **Gaming: From ok to amazing, if you have the cash**
 
  Much like performance in everyday tasks, your performance in gaming is based on what hardware your Aurora features. You can go all the way up to a monsterous gaming rig with a GTX 2080, or all the way down to our little base model with a GTX 1650, so it’s up to you how much performance you’re willing to pay for.
@@ -153,6 +153,10 @@ Lifewire / Zach Sweat
 
  Your gaming performance in relation to the Aurora is subject to your hardware, peripherals and network speeds if playing an online game, so choose the best model you can afford within your budgetary restrictions and keep in mind how you plan to use your PC.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Audio: Decent prebuilt performance and surround sound**
 
  A quality audio setup is something often overlooked when it comes to computers, but it’s something that can really add to the overall enjoyment of your PC. Immersive soundscapes in games and movies, astounding dynamic range in music and crisp, clear dialogue combine to separate the mediocre computers from the great.
@@ -165,9 +169,6 @@ Lifewire / Zach Sweat
 
  Although true audiophiles will still want to stick with a DAC, or digital-to-analog converter, the Aurora R9 packs in pretty decent audio options for most users.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Network: Solid Ethernet, average Wi-Fi**
 
  In the age of the internet, network speeds and performance are paramount for most users, especially so if you’re a gamer. This fact not only applies to those who love online multiplayer games, but also those who prefer singleplayer since most people now download their software online.
@@ -182,16 +183,14 @@ Lifewire / Zach Sweat
 
  There are multiple Wi-Fi options for hardware on the R9 if you’re willing to pay extra, but the included 802.11ac 2x2 Wireless, Wi-Fi and Bluetooth 4.1 worked well enough for us in a pinch. Even still, you’re better off using a cable.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wMnVqt6RV24C1Vfncnf2J3E0fAg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-15-fe70fca5ffd04da6abd8c0ef8f026eef-f6d5eaf9efcb461a902fc750a192dd0c.jpg)
 
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Software: Windows 10 with some bloatware and extras**
 
  Whether or not you love Windows 10, the somewhat infamous OS is what you’ll inevitably get from Dell when you purchase an Aurora R9\. If you’re new to the system, it takes a bit of getting used to, but it’s simple enough for everyone to navigate once you get going.
@@ -219,8 +218,9 @@ Lifewire / Zach Sweat
  Overall, the price of the R9 is ok at best, and you do get some nice software features from Alienware, but it’s still cheaper to build your own.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Alienware Aurora R9 vs. Dell G5 5090**
 
  Comparing two gaming PCs in a head-to-head competition is difficult due to the sheer amount of potential hardware configurations, but Dell also offers prebuilts outside the Alienware brand that are similar.
@@ -256,8 +256,6 @@ Lifewire / Zach Sweat
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -265,4 +263,26 @@ Lifewire / Zach Sweat
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-leading-low-cost-audio-tools-1-to-10-desktop-recorder-guide/"><u>[New] In 2024, Leading Low-Cost Audio Tools #1 to #10 Desktop Recorder Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-essential-tips-sharing-your-apple-devices-screen-with-youtube-for-2024/"><u>[Updated] Essential Tips Sharing Your Apple Devices Screen with YouTube for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-firefoxs-pip-explained-a-users-handbook/"><u>[Updated] In 2024, Firefox's PIP Explained A User's Handbook</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-ultimate-guide-to-comfortable-keyboard-cushions/"><u>2024'S Ultimate Guide to Comfortable Keyboard Cushions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-close-look-at-the-nixplay-w15a-frame-features/"><u>A Close Look at the Nixplay W15A Frame Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-leadership-challenges-in-tropico-6s-envisioned-tropical-utopia/"><u>A Closer Look at Leadership Challenges in Tropico 6'S Envisioned Tropical Utopia</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-look-at-watch-dogs-legions-unique-setting-a-review/"><u>A Comprehensive Look at Watch Dogs: Legion's Unique Setting - A Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-audiophile-experience-an-insightful-look-into-series-3-paww/"><u>Affordable Audiophile Experience: An Insightful Look Into Series 3 (Paww)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/all-about-the-samsung-galaxy-tab-s6-a-deep-dive-into-its-capabilities-with-s-pen-and-multi-window-experience/"><u>All About The Samsung Galaxy Tab S6: A Deep Dive Into Its Capabilities with S Pen and Multi Window Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazon-halo-review-the-revolutionary-and-intimate-approach-to-personal-health-tracking/"><u>Amazon Halo Review: The Revolutionary and Intimate Approach to Personal Health Tracking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/an-adventure-in-textures-in-depth-analysis-of-minecrafts-campfire-tales-pack/"><u>An Adventure in Textures: In-Depth Analysis of Minecraft's Campfire Tales Pack</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722658961837-be-wary-of-phishing-attempts-always-verify-sources-before-providing-any-information-or-transferring-assets/"><u>Be Wary of Phishing Attempts; Always Verify Sources Before Providing Any Information or Transferring Assets.</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/complete-guide-how-to-restore-damaged-jpeg-images-with-advanced-repair-software/"><u>Complete Guide: How to Restore Damaged JPEG Images with Advanced Repair Software</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/crafting-the-future-workplace-with-vr-technology/"><u>Crafting the Future Workplace with VR Technology</u></a></li>
+<li><a href="https://video-capture.techidaily.com/how-to-upload-dvd-files-as-mp4-for-flawless-viewing-across-all-media/"><u>How to Upload DVD Files as MP4 for Flawless Viewing Across All Media</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-change-location-on-yik-yak-for-your-vivo-s18-pro-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Vivo S18 Pro to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/the-essential-guide-to-new-driver-installations-for-the-dell-2330d2330dn-color-laser-printing-unit/"><u>The Essential Guide to New Driver Installations for the Dell 2330D/2330DN Color Laser Printing Unit</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/title-guaranteed-methods-for-verifying-a-websites-authenticity-and-avoiding-scams/"><u>Title: Guaranteed Methods for Verifying a Website's Authenticity & Avoiding Scams</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unboxing-the-apple-m3-macbook-air-the-three-key-improvements-that-impressed-us-most-zdnet/"><u>Unboxing the Apple M3 MacBook Air: The Three Key Improvements That Impressed Us Most | ZDNET</u></a></li>
+</ul></div>
 

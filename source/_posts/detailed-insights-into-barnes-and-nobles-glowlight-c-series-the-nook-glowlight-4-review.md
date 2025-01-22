@@ -1,7 +1,7 @@
 ---
 title: "Detailed Insights Into Barnes & Noble's Glowlight C Series: The Nook GlowLight 4 Review"
-date: 2025-01-01T20:38:34.001Z
-updated: 2025-01-04T02:53:08.759Z
+date: 2025-01-16T18:24:33.970Z
+updated: 2025-01-22T16:05:32.618Z
 categories:
   - BestProducts
 description: "This Article Describes Detailed Insights Into Barnes & Noble's Glowlight C Series: The Nook GlowLight 4 Review"
@@ -18,13 +18,13 @@ thumbnail: https://thmb.techidaily.com/1e51a070d33ae9b31b39fd46bedbd90cddc68c490
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Assassin's Creed Valhalla (PC)
 
 ![AC Vallhalla](https://www.lifewire.com/thmb/uNOEoXtNzm8yuWudHDVzDNDutY8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Assassins-Creed-Valhalla-1-b7cabc5b5656439bbb47518048f57aa5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -46,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/1e51a070d33ae9b31b39fd46bedbd90cddc68c490
 [View On Ubi.com](https://store.ubi.com/us/assassins-creed-valhalla/5e849c6c5cdf9a21c0b4e731.html)
 
 4.8
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Assassin's Creed Valhalla (PC)
 
@@ -79,6 +75,10 @@ thumbnail: https://thmb.techidaily.com/1e51a070d33ae9b31b39fd46bedbd90cddc68c490
 
  I played the game on PC for several days, but it’s also available on all other major platforms including the upcoming[Xbox Series X](https://www.lifewire.com/price-release-date-specs-xbox-series-x-5077092) , Xbox One, upcoming[PlayStation 5](https://www.lifewire.com/playstation-5-4778089) , and PlayStation 4\.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Story: A lot going on, and none of it to be spoiled**
 
  There’s a lot to say here, but not much that can be said without spoilers. Given how engaging I found the plot, it would be a shame to spoil it in any way. Suffice it to say that, though it begins as a typical revenge story, it soon becomes more complex and interesting. You play as Eivor, a male or female warrior who raids England during the reign of Alfred the Great.
@@ -100,7 +100,7 @@ thumbnail: https://thmb.techidaily.com/1e51a070d33ae9b31b39fd46bedbd90cddc68c490
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Gameplay: Easy to pick up, challenging to master**
@@ -120,7 +120,7 @@ thumbnail: https://thmb.techidaily.com/1e51a070d33ae9b31b39fd46bedbd90cddc68c490
 ![AC Valhalla 3](https://www.lifewire.com/thmb/giaP-JV9QK6uFcdU_di4iWkvszw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-5-56a01de51a2a4540ae8650bece502873.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
@@ -137,15 +137,15 @@ thumbnail: https://thmb.techidaily.com/1e51a070d33ae9b31b39fd46bedbd90cddc68c490
 
 ![AC ship](https://www.lifewire.com/thmb/n9S5L4JClTiqP1vYa_7cTGw6o0c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-7-d89d4a9941b8488ea6ef1aeba6486895.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
 
 ## **Difficulty and Content Settings: Lots to customize**
 
  Valhalla gives you plenty of ways to customize your experience. You can adjust the difficulty of stealth, combat, and exploration separately, so you can choose which gameplay elements are difficult and which you’d rather not get in the way. Additionally, mature elements in the game such as blood and gore can be toggled on and off, which will be a[relief to parents](https://www.lifewire.com/best-pc-games-4147292) and a boon to anyone who doesn’t fancy seeing severed heads flying through the air.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Minigames: Enjoyable diversions**
 
@@ -154,6 +154,10 @@ thumbnail: https://thmb.techidaily.com/1e51a070d33ae9b31b39fd46bedbd90cddc68c490
  Orlog is an interesting dice game that I would honestly like to own in real life, and the drinking minigame is a highly enjoyable reflex-based challenge. A nice touch is that the results of imbibing huge amounts of mead persist for a period of time after the minigame is complete. After all, are you really a Viking warrior if you’re not completely drunk all the time?
 
 ![AC tattoos](https://www.lifewire.com/thmb/trRirIDsjFej03o-_HDCFsnnrzs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-6-5449cde060b441a499a5189fda9a7a0a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -173,6 +177,10 @@ thumbnail: https://thmb.techidaily.com/1e51a070d33ae9b31b39fd46bedbd90cddc68c490
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process and Performance: A rough start**
 
  Assassin’s Creed: Valhalla is typical of modern AAA titles in that it requires a big download and a considerable amount of storage space to house on your PC or console. With the day one update to consider, you’re looking at around 50GB.
@@ -189,21 +197,17 @@ thumbnail: https://thmb.techidaily.com/1e51a070d33ae9b31b39fd46bedbd90cddc68c490
 
  Of course, if you’re playing on[console](https://www.lifewire.com/best-gaming-consoles-4154610) you don’t have to worry about performance issues since the game is better optimized. It’s currently available for Xbox One and PlayStation 4, and will be available for the Xbox Series X and PlayStation 5 at launch. You can also get it on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Typical AAA**
 
  The base game will set you back the typical $60, while the gold edition bundles in the season pass and costs a full $100\. That will include the planned expansions which will add Ireland and France to the map. Expensive though $100 is, it does promise a potentially huge amount of content. The game also has microtransactions, which is a bit of a bummer, though these weren’t integrated into the game at the time of writing.
 
 ![AC horse](https://www.lifewire.com/thmb/teY5MG-6xAT5sxNurIFy_iYPPvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-2-58ab82ef1f624e01b1c1c6dab8bca06b.jpg)
 
- Lifewire / Andy Zahn
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Andy Zahn
 
 ## **Assassin’s Creed: Valhalla vs. Watch Dogs: Legion**
 
@@ -214,10 +218,6 @@ thumbnail: https://thmb.techidaily.com/1e51a070d33ae9b31b39fd46bedbd90cddc68c490
  Final Verdict: Epic stories and exciting combat in a sprawling open world.
 
  Assassin’s Creed: Valhalla exceeds, as Assassin’s Creed games so often do, in creating the most painstakingly detailed virtual recreation of a place and period possible. It’s got exploration, intense combat, and enthralling stories by the bucket full, and it’s easy to get lost in its sheer scope and scale. Just beware if you’re playing on a PC that will test the limits of your gaming rig.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -242,24 +242,21 @@ thumbnail: https://thmb.techidaily.com/1e51a070d33ae9b31b39fd46bedbd90cddc68c490
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-unleashing-speed-advanced-techniques-to-fast-forward-videos-on-tiktok/"><u>[New] Unleashing Speed Advanced Techniques to Fast Forward Videos on TikTok</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-unlock-monetization-how-to-apply-for-the-youtube-partner-program-2024/"><u>[New] Unlock Monetization How to Apply for the YouTube Partner Program 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-windows-11-tips-for-effective-sound-recording/"><u>[Updated] In 2024, Windows 11 Tips for Effective Sound Recording</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-leading-websites-for-extracting-youtube-intros/"><u>2024 Approved Leading Websites for Extracting YouTube Intros</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/apple-mac-mini-with-m1-chip-2020-a-revolutionary-leap-beyond-the-rival-computers/"><u>Apple Mac Mini with M1 Chip (2020): A Revolutionary Leap Beyond the Rival Computers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/cing-your-content-10-exceptional-reacting-techniques/"><u>Enhancing Your Content 10 Exceptional Reacting Techniques</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-strengths-and-features-of-beatits-powerful-bt-d11-unit/"><u>Evaluating the Strengths and Features of Beatit's Powerful BT-D11 Unit</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-budget-friendly-topmate-c302-pc-chiller-cost-effective-performance/"><u>Expert Analysis of the Budget-Friendly TopMate C302 PC Chiller: Cost-Effective Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-evaluation-cat-s42-a-study-in-robust-defense-and-limited-velocity/"><u>Expert Evaluation: CAT S42 - A Study in Robust Defense and Limited Velocity</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fix-guide-addressing-hyperx-cloud-alpha-microphone-performance-issues/"><u>Fix Guide: Addressing HyperX Cloud Alpha Microphone Performance Issues</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-itel-p55-5g-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Itel P55 5G? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-apple-losing-its-crown-the-alluring-world-of-skagen-falster-2-showcased-in-our-review/"><u>Is Apple Losing Its Crown? The Alluring World of Skagen Falster 2 Showcased in Our Review</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580763861-is-german-hard-to-study/"><u>Is German Hard To Study?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lenovo-thinkpad-x1-fold-analysis-innovative-design-meets-imperfections/"><u>Lenovo ThinkPad X1 Fold Analysis: Innovative Design Meets Imperfections</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/perfecting-audio-the-best-cam-mics-for-2024/"><u>Perfecting Audio The Best Cam Mics for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/pocket-friendly-yet-high-end-v770-explored/"><u>Pocket-Friendly Yet High-End: V770 Explored</u></a></li>
-<li><a href="https://driver-error.techidaily.com/seamless-sound-in-the-windows-11-world/"><u>Seamless Sound in the Windows 11 World</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-perfect-kid-friendly-laptop-exploring-the-asus-chromebook-c202sa-review/"><u>The Perfect Kid-Friendly Laptop? Exploring the Asus Chromebook C202SA Review</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-rated-airtag-wallets-in-2eightyfour-professional-reviews-and-ratings-techradar/"><u>Top-Rated AirTag Wallets in 2Eightyfour: Professional Reviews & Ratings | TechRadar</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-expertise-in-visual-communication-a-guide-to-gif-creation/"><u>[New] Expertise in Visual Communication A Guide to GIF Creation</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-raw-to-refined-the-essential-guide-to-podcast-editing-with-garageband/"><u>[Updated] From Raw to Refined The Essential Guide to Podcast Editing with GarageBand</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/best-mkv-video-player-apps-top-18-options-compatible-with-macos-windows-11-ios-and-android-devices/"><u>Best MKV Video Player Apps: Top 18 Options Compatible with macOS, Windows 11, iOS & Android Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/catch-every-nfl-game-this-season-with-just-five-top-streaming-platforms/"><u>Catch Every NFL Game This Season with Just Five Top Streaming Platforms</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-how-spotify-dominates-streaming-services-through-its-superior-play-queue-technology/"><u>Discover How Spotify Dominates Streaming Services Through Its Superior Play Queue Technology</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211372604-9781925924909-dreams/"><u>Dreams | Free Book</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/embracing-vinyl-and-books-post-internet-blackouts-my-journey-back-to-analog/"><u>Embracing Vinyl and Books Post-Internet Blackouts: My Journey Back to Analog</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-limitations-and-drawbacks-of-the-pioneer-bdr-xd05b-blu-ray-burning-solution/"><u>Exploring Limitations and Drawbacks of the Pioneer BDR-XD05B Blu-Ray Burning Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/important-points-to-evaluate-prior-to-acquiring-an-openly-secured-smartphone/"><u>Important Points to Evaluate Prior To Acquiring an Openly Secured Smartphone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-vivo-t2-5g-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Vivo T2 5G Device</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/latest-nvidia-rtx-2060-graphics-driver-compatible-with-multiple-windows-os-versions/"><u>Latest NVIDIA RTX 2060 Graphics Driver: Compatible with Multiple Windows OS Versions</u></a></li>
+<li><a href="https://windows11.techidaily.com/overcoming-windows-crash-zeroing-in-on-error-0x800f0831/"><u>Overcoming Windows Crash: Zeroing In on Error 0X800F0831</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/periscope-insights-accessibility-costs-and-signup-guide/"><u>Periscope Insights Accessibility, Costs & Signup Guide</u></a></li>
+<li><a href="https://driver-install.techidaily.com/step-by-step-driver-revival-for-effective-windows-11-printing/"><u>Step-By-Step Driver Revival for Effective Windows 11 Printing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-5-replacements-for-microsoft-office/"><u>Top 5 Replacements for Microsoft Office</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transforming-in-car-entertainment-a-comprehensive-review-of-the-lihan-lhfm1039-bluetooth-fm-transmitter/"><u>Transforming In-Car Entertainment: A Comprehensive Review of the LIHAN LHFM1039 Bluetooth FM Transmitter</u></a></li>
 </ul></div>
 
